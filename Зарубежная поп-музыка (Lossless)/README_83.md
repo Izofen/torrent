@@ -1,3 +1,63 @@
+###  Публикация: 871258   (881216) от 21.02.2015
+
+VA - Pure... Party (2012)  Box Set, 4CD[FLAC|Lossless]<Pop, Dance, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Думаю, что самое время перед предстоящими праздниками устроить маленькое музыкальное Party. Правда оно уж и не такое маленькое. А главное очень даже заводное. P!nk, Ke$ha, Shakira, Lou Bega - от всех этих имен может снести башню. Так что в эти праздничные дни смело врубайте этот бокссет и наслаждайтесь.CD1:
+01. P!nk - Get the Party Started   (3:14)
+02. Ke$ha - TiK ToK  (3:22)
+03. Shakira - She Wolf  (3:10)(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 04:20:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7F20192BCBA585BA14CC7BC206B7C44B27752AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 186346   (881646) от 25.03.2010
+
+Sarah Brightman - Sarah Brightman (2CD) (2009) [FLAC|Lossless]<Рop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Be With You (With Paul Stanley) [04:30]
+02. What You Never Know [03:25]
+03. Whiter Shade Of Pale [03:39]
+04. Free [03:46]
+05. It's A Beautiful Day [03:58]
+06. Dust In The Wind [03:43]
+07. Scarborough Fair [04:10]
+08. The Second Element [04:42]
+09. Who Wants To Live Forever [03:56]
+10. En Aranjuez Con Tu Amor [03:51](   Читать дальше...   )Жанр: РopПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 186263   (881865) от 25.03.2010
 
 2 Unlimited - No Limits (1993) [FLAC|Lossless]<Pop>
@@ -655,72 +715,6 @@ VA - BRAVO Hits 84 (2014) [FLAC|Lossless|WEB-DL]<Pop, Top 40>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:578E3B7C81863ABBFB29B3DC6C1CED3360D088AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 763078   (886925) от 05.03.2014
-
-James Morrison - The Awakening (2011) [FLAC|Lossless]<Pop, Soft Rock, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. In My Dreams (4:47)
-02. 6 Weeks (3:14)
-03. I Won't Let You Go (3:51)
-04. Up (feat. Jessie J) (3:40)
-05. Slave To The Music (3:25)
-06. Person I Should Have Been (3:49)
-07. Say Something Now (4:02)
-08. Beautiful Life (2:43)
-09. Forever (3:42)
-10. The Awakening (5:10)(   Читать дальше...   )Жанр: Pop, Soft Rock, SoulПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A84DEDD571985D252AB0770483C2D0D0DD28043E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 763396   (887256) от 05.03.2014
-
-Jamie Grace - Ready to Fly (2014) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. So Amazing (0:28)
-02. Beautiful Day (3:10)
-03. Just a Friend (Feat Manwell of Group1Crew) (3:45)
-04. Fighter (3:46)
-05. Little ol Me (3:31)
-06. To Love You Back (4:01)
-07. Do Life Big (3:05)
-08. Every Bit of Lovely (3:23)
-09. White Boots (Feat Morgan Harper Nichols) (4:11)
-10. The Waiting (3:17)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:404ABB60F13152AA3D44A586709FA9E09CFC396F
 ```
 
 

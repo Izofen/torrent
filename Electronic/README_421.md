@@ -1,3 +1,135 @@
+###  Публикация: 1122269   (798886) от 05.04.2017
+
+VA - Spring Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sombra Modos - Botavara (Original Mix)  5:34
+02.  Arrojas - Venas Silenciosas (Original Mix)  5:55
+03.  Sweetadelic - Aguas Claras (Original Mix)  5:36
+04.  Lamar Ensemble - Inspirational Shortcut (Original Mix)  5:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79F5F829E0879663228BA54339A84FE612C75356
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230757   (798934) от 02.11.2021
+
+Mehdi Saleh aka: Alphaxone, Inner Place, Monolith Cycle, Spuntic - Discography 50 Releases (2010-2021) [MP3|320 Kbps] <Dark Ambient, Soundscape, Drone>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alphaxone:
+Inner Place:
+Monolith Cycle:
+Spuntic:(   Читать дальше...   )Жанр: Dark Ambient, Soundscape, Ambient, Visual Space Music, DroneПродолжительность: 41:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6C1F91AEA17951BFF07964684D7F7D20CFBB80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024375   (798945) от 02.11.2021
+
+Foretaste - 8 Albums (2005-2021) [MP3|320 кб/с] <Electronic, Synthpop, Electro>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Foretaste (Предвкушение) - французская синти-поп группа, малоизвестная в России, по всей видимости из-за лимитированных изданий альбомов, но весьма впечатляющая.Список альбомов:
+01. 2005 - Beautiful Creatures
+02. 2008 - Terrorist TV
+03. 2011 - Love On Demand(   Читать дальше...   )Жанр: Electronic, Synthpop, ElectroПродолжительность: 06:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100A0ED1D62740A2A44994CB4E7A2BA9AD8E0F7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506946   (799049) от 02.11.2021
+
+Ummet Ozcan - Tomorrowland Friendship Mix (2021-10-28) [MP3|320 Kbps] <Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baas - Alter Ego
+02. Gaga & Mateo! - Galvanize
+04. Shouse - Love Tonight (ID Remix)
+04. Chapter & Verse - Lights Go Out (ID Remix)(   Читать дальше...   )Жанр: Big RoomПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B83331A3A6B472C19FE2E6B379DCB161286A82F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506469   (799087) от 02.11.2021
+
+Fatboy Slim - Everybody Loves A Mixtape Podcast (2021) [MP3|192 Kbps] <house, tech house, disco house, electronic, funky house, edm>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: house, tech house, disco house, electronic, funky house, edmПродолжительность: 11:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3E8713E6CECBA582438613E46F4629BD76052C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506803   (799091) от 02.11.2021
 
 Qrion - I Hope It Lasts Forever (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Chill House>
@@ -560,141 +692,6 @@ VA - Dark Room Erotica Jazz Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B38802A479822154FF2D9E6AC5D6969017AB0F2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121710   (799677) от 03.04.2017
-
-VA - Soft Chill House Beach Lounge Vol.2 (2017) [MP3|320 Kbps] <Chillhouse, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Clemens Rumpf - Feel So Good (Disco Blend Mix)  6:45
-02.  Bastixs - Muzik  5:17
-03.  Discey - Ashram (Vocal Edit)  7:04
-04.  Ritmo Fatalismo - Sangria After Midnight  6:00(   Читать дальше...   )Жанр: Chillhouse, LoungeПродолжительность: 02:28:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDED694E11B1269093C3EDDF9D580084F186AFD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121717   (799680) от 03.04.2017
-
-VA - Vinyl Lounge Set (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirotures — Displace (Jazzing Cut)
-02. Shangly Joe — Elements Stunt (Main Mix)
-03. Rawback — Stand Alone (Deep Version)
-04. Monowork — Seem (Chillmix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DECDDAC778C19A1B7639473C6AB74BF49E95D236
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273405   (799766) от 02.01.2019
-
-ScAnDroid Experiment's - Rhythms of Nature (2019) Авторская раздача [MP3|320 Kbps] <Experimental Electronic, Downtempo, Easy Melody>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhythms of Nature (Intro)
-02. Almost New Year Thoughts
-03. On The Neighbor's Cart (Original Mix)
-04. Ipsa Vetus Fabula (Original Mix)(   Читать дальше...   )Жанр: Experimental Electronic, Downtempo, Easy MelodyПродолжительность: 01:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B1F8107F6228C401E936059F7C8C633FCC89CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273449   (799776) от 02.01.2019
-
-Paul Kalkbrenner - Parts of Life (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part Eleven (03:27)
-02. Part Three (03:48)
-03. Part Fourteen (04:50)
-04. Part Seven (03:24)(   Читать дальше...   )Жанр: Electronic, Tech House, TechnoПродолжительность: 00:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ED11472E59961CF47CCFA7578E88E987C12E7F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273604   (799778) от 02.01.2019
-
-VA - We Chill Series: Top Tracks of 100 % Relaxing Cafe / Bar / Lounge / Chillout Music - 8 Releases (2012-2017) [MP3|320 Kbps] <Chillout, Lounge, Ambient, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799778.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012 - We Chill (Top 40 Chill Out Tracks)
-2013 - We Chill • Vol. 1 (Top 50 - Best Of Chillout / Lounge / Cafe / Bar)
-2014 - We Chill • Del Mar. Vol. 2 (50 Top Tracks of 100 % Relaxing Cafe / Bar / Lounge / Chillout Music)
-2014 - We Chill • Del Mar. Vol. 3 (50 Top Tracks of 100 % Relaxing Cafe / Bar / Lounge / Chillout Music)(   Читать дальше...   )Жанр: Chillout, Lounge, Ambient, DowntempoПродолжительность: 30:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63496519F17C763060588392EDC278A366E41DDC
 ```
 
 

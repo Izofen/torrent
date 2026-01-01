@@ -1,3 +1,30 @@
+###  Публикация: 1382291   (820758) от 10.05.2020
+
+VA - Best Electronic Of All Time (2020) [MP3|320 Kbps] <Electro, House, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daft Punk - One More Time 5:20
+02. Moby - Porcelain 4:01
+03. Donna Summer - I Feel Love 3:45
+04. Depeche Mode - Enjoy The Silence 4:15(   Читать дальше...   )Жанр: Electro, House, OtherПродолжительность: 04:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F70C6B8A53957A3A20CEC63C8B79E120E53AF9DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116917   (820802) от 21.03.2017
 
 VA - 100 Popular European Hit (2017) [MP3|320 Kbps] <Pop, Dance, Eurodance>
@@ -671,33 +698,6 @@ VA - Ministers Of Progressive (2016) [MP3|320 кб/с] <Trance, Psy Trance, Psyc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BC617B1EB446F843753569980BF50A6A8955A6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116583   (821956) от 20.03.2017
-
-Oscar Benton - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bensonhurst Blues
-02. Five Long Years
-03. Helpless
-04. Busted(   Читать дальше...   )Жанр: BluesПродолжительность: 02:04:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:967B35E18CDB186A496A53A6C50266AA3F0204A0
 ```
 
 

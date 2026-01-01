@@ -1,3 +1,30 @@
+###  Публикация: 1380631   (830849) от 04.05.2020
+
+VA - Deep Tech House Session (2020) [MP3|320 Kbps] <Deep, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830849.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Schneider & Haze - Si Balla
+002. Sparrox - Good Time (Original Mix)
+003. DJ Pp & Thousand Nights - Follow The Sun (Original Mix)
+004. Dreamweaver - Life Is The Limit(   Читать дальше...   )Жанр: Deep, Tech HouseПродолжительность: 10:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FACA99C31B790601C084B129C446DB7002EF931
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005637   (830907) от 10.04.2016
 
 VA - Alterportal HITS 16 Vol. 91 - March (2016) [MP3|128-320 кб/с] <Alternative, Metal, Rock>
@@ -668,33 +695,6 @@ Howlin' Wolf - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3D55C9989BC7F61F1A6DAF5C201AE1E641FD2A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114390   (831968) от 15.03.2017
-
-VA - Record Super Chart #478 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Sava & Irina Rimes - I Loved You (Denis First Remix)  3:20
-02.  Klaas - Riot (Extended Mix)  4:00
-03.  Ofenbach - Be Mine (Amice Remix)  3:23
-04.  Consoul Trainin - Take Me To Infinity (Amice Remix)  4:44(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E2659C848B786B430F12047F24D230780988661
 ```
 
 

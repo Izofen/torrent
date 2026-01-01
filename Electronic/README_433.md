@@ -1,3 +1,138 @@
+###  Публикация: 1196478   (822552) от 03.01.2018
+
+VA - Focus On Nicholas Van Orton (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicholas Van Orton - Artras (Original Mix) [08:35]
+02. Nicholas Van Orton - Flamas (Original Mix) [08:25]
+03. Nicholas Van Orton - Radient (Original Mix) [07:07]
+04. Nicholas Van Orton - Hay Grises (Original Mix) [08:15](   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 02:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15E1E00920132F4A2C5BD5AF40D875C7ADE715F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196704   (822554) от 03.01.2018
+
+VA - Transire Recordings Best Of 2017 (Mixed by Lightform) (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nakhiya - Ephemeral (Abide Remix)
+02. Aldo Moro - Bahamontes (Imida Remix)
+03. Abide - Him (Lightform Remix)
+04. Dawid Jurzyk - Flying Green (Alex DJohn Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:26:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2B2C5D66BF4EBF38E882CDDB15C3A2DAF4B0CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382037   (822650) от 09.05.2020
+
+X-Men - Atmosfera (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822650.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Atmosfera (6:54)
+2. Back To The Groove (7:04)
+3. Ion - Eco Road (Remix) (7:47)
+4. Psychedelika (6:52)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C88D0BF26D712273BD2513C00B7549C2A872EE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381909   (822657) от 09.05.2020
+
+VA - Early Morning Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - A Dream in Your Eyes (Original Mix)
+02. Michael E - Let It Rain (Original Mix)
+03. Charlie North - Saltwater (Ambient Mix)
+04. Marie Therese - Gin & Tonic (Pier-O Bossa Chill Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D8F38723134E69D5F69B97F00014029F8EA2FB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382038   (822660) от 09.05.2020
+
+VA - Progressive & Psy Trance Pieces, Vol. 23 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822660.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. WHITENO1SE - Take Me Higher (5:09)
+2. Symphonix - Crystal Black (5:48)
+3. GHOST RIDER - Soul Recover (Normalize Remix) (6:51)
+4. Zyrus 7 - The Expanse (6:04)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E590BECDC55DEFA7105482F5AF33686CBF858686
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381981   (822661) от 09.05.2020
 
 VA - My Garden Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -565,141 +700,6 @@ VA - Yoshitoshi: Best Of 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:330BDEAE2F416DC9271F8F76A2C2A020BBA1AE11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196297   (824241) от 02.01.2018
-
-VA - Calm Morning Vol.1 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dharma Frequency - Sense Of Serenity 06:00
-02. Sami Sivananda - Mental Journey 04:27
-03. Prana Tones - Eastern Piano 04:52
-04. Dharma Frequency - Bonzai Vibes 04:31(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 02:31:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BE6C9BCA465AAE254D784D3657F4DC8E4C9F27F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116195   (824439) от 19.03.2017
-
-VA - Nu Disco, Volume 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anton Ishutin - Devil In My Head (feat Irina Makosh) [06:25]
-02. Ffunk - About You [03:48]
-03. NekliFF/Mary SK - First Dot (Tosel & Hale remix) [05:58]
-04. Tunnelvision - Popping Candy (Monrabeatz & Black Birdz remix)[05:50](   Читать дальше...   )Жанр: Nu Disco, Deep HouseПродолжительность: 04:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5DFDFC7120E685318FD8112B747B6DD0F93A9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381235   (824473) от 08.05.2020
-
-VA - Mykonos Chillout Cafe - Feelings Del Mar, Vol. 1-5 (2007-2010) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824473.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Noise Boyz - With My Own Eyes (Keys of da Sea Mix) (5:30)
-2. Bay Area; Hela Delgado - Espiritu + Libertad (Viva Mix) (5:43)
-3. Mahoroba - Photo in My Mind (Great Memories Mix) (5:47)
-4. Orange Music; Mirjam - Islandlover (Monotonic Trip Mix) (6:22)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 07:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37326A472622DA10EFBE5E3D0F3E6E54BA020532
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115998   (824564) от 19.03.2017
-
-VA - Sirup Deep Anthems Miami (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nora En Pure - Better Off That Way 03:11
-02. Edx – Revered (Radio Mix) 03:14
-03. Croatia Squad – Going South (Radio Mix) 02:51
-04. Daniel Portman – Cahuenga 04:00(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:10:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA048BFB9EA1E17E58C9B888767E9DC1D73FE2CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381754   (824698) от 08.05.2020
-
-VA - Sweet & Tender Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - A Rose for You (Original Mix)
-02. Michael E - Tropic of Capricorn (Original Mix)
-03. Simon Le Grec - Romantique Part Un (Sensitive Mix)
-04. Mo'jardo, Tim Gelo - Midnight in Paris(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:190E205593DF97FD4B69D742CB822D82E878B7CE
 ```
 
 

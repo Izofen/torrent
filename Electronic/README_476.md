@@ -1,3 +1,138 @@
+###  Публикация: 1093774   (932492) от 16.01.2017
+
+VA - Total Trance Selections Vol.01 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Indecent Noise - Blade Dancer (Extended Mix)  7:52
+02.  Rodrigo Deem - Lux (Extended Mix)  6:13
+03.  Lange - Hacktivist (Extended Mix)  6:23
+04.  Future Antics - Everything Is Nothing (Extended Mix)  7:31(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BA2D7A28C56A75DDFC557A73AF4653A375FE5F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093832   (932499) от 16.01.2017
+
+VA - Wind in the Field (Downtempo Series)  Vol.003 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Groofeo - Way (Original Mix)  4:09
+02.  The A.W. - With You (Original Mix)  3:25
+03.  Seventh - Nonexistent Instant Awe (Original Mix)  2:55
+04.  Golden Light Orchestra - Spellbound (Anair Remix)  3:43(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:27:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1192BCA3ED7A3F9DE2B3833FEACB67CA30EEB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985926   (932572) от 13.02.2016
+
+Blank & Jones and Mark Reeder  ‎ - Reordered (2009) [FLAC|Lossless|tracks + .cue] <House, Electro, Synth-pop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Forest (Schwarzwald Mix) (6:48)
+02. Heart Of Wax (Heart Of Crystal Mix) (6:27)
+03. Loneliness (Alone In The Dark Mix) (4:55)
+04. Consequences (Resultant Mix) (4:27)(   Читать дальше...   )Жанр: House, Electro, Synth-popПродолжительность: 01:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:888809ADADCA8BCEBFFDE85666471594376F9146
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986294   (932581) от 13.02.2016
+
+VA - Chillout And Lounge Ibiza Style (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932581.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Angelina Astle - Love Inversion [04:19]
+002. King Hookiss - After Midnight (Chillout Mix) [08:01]
+003. Emma Luna - Lunas [03:40]
+004. TRILLIAN - Angel Eyes [03:42](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:846405D21C80D7C0F1B77DB261E853BF09B11309
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364880   (933415) от 05.03.2020
+
+VA - Dark Archive (2020) [MP3|320 Kbps] <Techno>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Konstantinus - Aura [7:05]
+02. Austin Price - Loft [6:09]
+03. L-DMT - Darkness [6:25]
+04. Anomalous - Uncertain Nature [6:37](   Читать дальше...   )Жанр: TechnoПродолжительность: 00:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44513196252C4ECF0B299EA3EC0C9F60D89DF423
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364884   (933424) от 05.03.2020
 
 VA - Dark Tunes 2020 [MP3|320 Kbps] <Drum & Bass>
@@ -557,138 +692,6 @@ VA - JustRomantic (2007) 2CD [FLAC|Lossless|tracks + .cue] <Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EACE3D4F3989DA0D166AEA78B5FA5F274AFAF65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 153255   (934345) от 04.03.2020
-
-The Crystal Method - Divided By Night (2009) [FLAC|lossless]<Breakbeat/Electronic>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divided By Night (5:01)
-02. Dirty Thirty (feat Peter Hook) (5:24)
-03. Drown In The Now (feat Matisyahu) (5:47)
-04. Kling To The Wreckage (feat Justin Warfield) (4:04)(   Читать дальше...   )Жанр: Breakbeat, ElectronicПродолжительность: 01:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60AD1E7FB336D7AAB333E217BCD5287E2E06B58F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984368   (935493) от 11.02.2016
-
-Ultravox - The Voice:The Best Of Ultravox (1997) [FLAC|Lossless|image + .cue] <New Vawe,  Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935493.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Vienna	4:39
-2	Sleepwalk	3:12
-3	The Voice	4:24
-4	We Came To Dance	4:06(   Читать дальше...   )Жанр: New Vawe,  Synth-popПродолжительность: 01:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF2E0AD9515F007C7735DFD438C75F62F86A4E65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984738   (935557) от 11.02.2016
-
-VA - Suanda Music Radio Top 10 January 2016 (Mixed by Roman Messer) (2016) [MP3|320 кб/с] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer feat Natalie Gioia - Religion (Original Mix)
-02. Jan Johnston - Skysearch (Aimoon Dub Mix)
-03. Sarah Russell - Take Me Back (Original Mix)
-04. Aurosonic feat Nicol Cache - Tell Me Why (Mhammed El Alami Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476FE18CC46487416377A0A0110F51D72B656943
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364591   (936265) от 03.03.2020
-
-Sibewest - Cyberlove (2020) IMMINENT [FLAC|Lossless|WEB-DL|tracks] <Future Garage, Synthwave, House>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyberlove (04:37)Жанр: Future Garage, Synthwave, HouseПродолжительность: 00:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ECA458B48DD330B779F6C29AA3E50B1A6BBD180
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364578   (936387) от 03.03.2020
-
-Killstarr - Worlds Apart (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave, Dreamwave, 80s>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Worlds Apart (4:40)
- 02. Wonderland (4:03)
- 03. In Motion (3:16)
- 04. The Traveller (4:37)(   Читать дальше...   )Жанр: Electronic, Synthwave, Retrowave, Dreamwave, 80sПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5FDF3B1031630C15A3904A076907FB5BF540F54
 ```
 
 

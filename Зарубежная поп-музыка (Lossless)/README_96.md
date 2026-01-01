@@ -1,3 +1,57 @@
+###  Публикация: 1474128   (1013222) от 01.06.2021
+
+VA - Fresh Pop Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Perfect (4:23)
+02. Lianne La Havas - Paper Thin (4:58)
+03. Wiz Khalifa; Charlie Puth - See You Again (3:49)
+04. Paul Rey - Talking In My Sleep (2:58)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 01:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:859F002CD72CE6819046123A33AD120E4F4E6DDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473144   (1013795) от 28.05.2021
+
+Moby - Reprise (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everloving (3:19)
+02. Natural Blues (4:30)
+03. Go (3:42)
+04. Porcelain (5:53)(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF26C480B0F199728669C67514E9C32395EF42B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473187   (1013842) от 28.05.2021
 
 Texas - Hi (2021) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
@@ -642,60 +696,6 @@ Taylor Swift - Fearless (Taylor's Version) (2008) 2CD / Target Exclusive / 2021 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85079D5BC4BB75110FB03B3680DC5C8A5733CCF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462163   (1021324) от 13.04.2021
-
-гр. Тяни-толкай - 3000 шагов. Баллады (2005) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3000 шагов
-02. Океан тайги ( дуэт с Алексеем Хлестовым )
-03. Снег
-04. Даль-чужбинушка(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9064968B7069AC3FC1EA45E7A2BCEEDA80F89CFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459561   (1023124) от 02.04.2021
-
-VA - Acoustic Hits 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine Dragons - Demons (Live London Sessions / 2013) (03:07)
-02. Justin Bieber - Holy (Acoustic) (03:25)
-03. Shawn Mendes - Wonder (Acoustic) (02:53)
-04. Topic - Breaking Me (Acoustic Version) (02:47)(   Читать дальше...   )Жанр: PopПродолжительность: 02:05:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CD84DAB67A50A6DAFC2684AF3BDAC742979336D
 ```
 
 

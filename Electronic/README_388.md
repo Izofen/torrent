@@ -1,3 +1,138 @@
+###  Публикация: 1277972   (774236) от 23.01.2019
+
+Hybrid Leisureland - Discography 9 Releases (2007-2016) Ultimae Records, Double Life Records [FLAC|Lossless|tracks+.cue, tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Distance And Will (07:54)
+ 02. Pale Reflection (06:00)
+ 03. Mirage Of Memories (07:19)
+ 04. Signal (06:29)(   Читать дальше...   )Тип издания: CD, Web •Жанр: AmbientПродолжительность: 01:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21764FB873D6766276B673C6BEEE19B90CD102BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278151   (774241) от 23.01.2019
+
+Lowering - Brooklyn (2018) [FLAC|Lossless|Web-DL|tracks] <Experimental, Dark Ambient, Dark Jazz>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tonight I Am Throwing My Dreams Away (7:44)
+02. Of The Time We Were Happy (3:24)
+03. Our Last Kisses (7:02)
+04. We're Dancing... (4:24)(   Читать дальше...   )Жанр: Experimental, Ambient, Dark Jazz, Doom Jazz, Post-RockПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A05E0392AF741A52647F33A193639F739415CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015327   (774280) от 11.05.2016
+
+VA - We Love House Music Vol. 1 (40 Sexy Tunes) (2016) [MP3|320 кб/с] <Dance, House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Promo Star - Inside The Club
+02. Raynold Boss - Look At The Time (Nik Caldera's Club Mix)
+03. Philippe Laroche - Everyone At The Party
+04. Subsystem - The Streets Of Rhythm(   Читать дальше...   )Жанр: Dance, House, Electro HouseПродолжительность: 02:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE8CF3353801B2BB25A976C85106DFF51042CD59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277953   (774311) от 23.01.2019
+
+VA - Ibiza Winter Island 2019 (2018) The Deep-House Edition [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Progression-Rome (5th Avenue Mix)
+02. Ernst Bentley-Get It Now (Original Mix)
+03. Club Elite-Fujinami (Red Motel Deep Mix)
+04. One Light Project-Fashion Show (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:21:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D414E6E94A7DCCFD4DA4F4AF8BDD43CF60EE2075
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277987   (774312) от 23.01.2019
+
+VA - Vocal Dance Vol. 5 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Betsie Larkin - Unite (Omnia Extended Remix)
+02. Christina Novelli - Carousel (Ruslan Radriges Extended Remix)
+03. FEEL feat. Diana Leah - One Last Time (Vadim Bonkrashkov Remix)
+04. Gamma - Every Goodbye (NoMosk Extended Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C32EC58DB1E6E21D696F68E8B3D011E9A73400C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278012   (774315) от 23.01.2019
 
 VA - Tea Leaves (2019) Compiled by DJ V ++ [FLAC|Lossless|WEB-DL|tracks] <Downtempo, ChillOut, Lounge, Electronica>
@@ -557,141 +692,6 @@ VA - You Gotta Work For This Body (2018) [MP3|320 Kbps] <Deep, Minimal, Tech Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69661D62C8885D90DD54833CE86CFCD5DC7D94B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212728   (775218) от 13.03.2018
-
-VA - Best Of Deep House 2018 Vol.02 (2018) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  LTN & Stendahl feat. Arielle Maren  -  Black Hole (Elypsis Vocal Remix)  5:09
-02.  Eleven.Five  -  Last Night (Original Mix)  5:09
-03.  RNX  -  Utah (Original Mix)  4:54
-04.  Illumia  -  I Know (Extended Mix)  6:32(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D7CD8C6B095C3D5C6D067D116795BC931776E3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212809   (775219) от 13.03.2018
-
-VA - Sensitive Recollection Vol 1: Slow Deep House Grooves (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mario Aureo & Patryk Molinari - You (Paskal & Urban Absolutes remix) (06:04)
-02. Benn Finn - Soul Searching (Mirco Niemeier remix) (06:28)
-03. Toni Haupt - Loosen (feat Mila - Dole & Kom remix) (09:22)
-04. Ame Vent - Wanna Move (feat Walking Technique) (08:08)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:07:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F05FF941F02D575665D05F7C0DFF2EB4E48414A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212517   (775221) от 13.03.2018
-
-VA - Amsterdam Trance Sessions Vol.15 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Digital Rush  -  There Is Love (Radio Mix)  4:04
-02.  Alphadelta  -  All Your Words (Original Mix)  4:37
-03.  Erika K  -  Equus (Original Mix)  6:31
-04.  Denis Sender & Tycoos  -  Collabro 2.0 (Original Mix)  3:37(   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0352EAA7965E8BDAD6B27AAECD6387C02925C73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212731   (775223) от 13.03.2018
-
-VA - Moments For Your Soul (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alberto Margheriti  -  Relaxation (Original Mix)  3:48
-02.  TSL  -  Heart Of Me (Original Mix)  4:01
-03.  Alexia Bianchi  -  Essence Of Jazz (Original Mix)  3:32
-04.  Flokkendof  -  My Ocean (Original Mix)  3:49(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:18:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC1C32BBE80594C1421CC183D7B864B8F357473
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212756   (775224) от 13.03.2018
-
-VA - Shopping Affair Lounge Edition (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mephia  -  Sweet Seduction (Original Mix)  4:36
-02.  Riddle Of Monogamy  -  La Venise De Colmar (Original Mix)  5:06
-03.  Radical Chic  -  Rise Of Manners (Original Mix)  5:42
-04.  Don Gorda Project  -  Peaceul Forest (Original Mix)  5:55(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:21:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D2579130E40C702B8B16A0B0CE214C35B3F01E
 ```
 
 

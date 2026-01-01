@@ -1,3 +1,192 @@
+###  Публикация: 1381723   (824466) от 08.05.2020
+
+Secret Garden - Nocturne The 25th Anniversary Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Classical, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824466.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nocturne (3:14)
+2. Song From A Secret Garden (3:33)
+3. Adagio (2:55)
+4. Serenade To Spring (3:15)(   Читать дальше...   )Жанр: New Age, Classical, InstrumentalПродолжительность: 01:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B009C5304C4631A5D20913622AF66D686B6B9E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381789   (824481) от 08.05.2020
+
+Кватро - Тебе поем (2020) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824481.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Kyrie Eleison
+2. Благослови, Душе моя, Господа
+3. Богородице, Дево, Радуйся
+4. Херувимская песнь (Павел Чесноков)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE967F0A2925B97F219E0790DE355A589DBB20E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381473   (824688) от 08.05.2020
+
+Asian Zen - Fresh Meditation Soundtrack (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824688.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Oriental Bliss 02:56
+2. Flashes of Water 03:13
+3. Relaxing Oriental Rhythms 03:36
+4. Healing Treasure 03:17(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1463754727DF014FDBB2AF7FC29EB78340FD1248
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381516   (824690) от 08.05.2020
+
+Asian Zen - Peaceful Zen Lullabies (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824690.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dream Sleep Song 03:24
+2. Sleep for Mom & Dad 03:37
+3. Natural Sleep Aid 03:31
+4. Gentle Piano Lullaby	 03:08(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ADA9BC3DC5366EC6786F227C5D683301D2C996D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381318   (824693) от 08.05.2020
+
+Asian Zen, Soothing Sounds - Harmony of Yoga After Hard Day (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824693.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Divine Healing 04:30
+2. Yoga Exercises 02:56
+3. Art of Meditation 02:56
+4. Sacred Prayers 03:05(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33EC54587855C90A3F9F762B91B6DFDB815CF731
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381840   (824805) от 08.05.2020
+
+Terry Scott Taylor - The Music of Armikrog. (2015) [FLAC|Lossless|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme Armikrog
+02. Hot and Beefed (The Zipkicker)
+03. Scaly Maps
+04. The Squarely Beast(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E6A334F2DF1EE29AA96DC0DF4C56F8730B572AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 880985   (826004) от 24.03.2015
+
+James Bay - Chaos And The Calm (2015) [FLAC|Lossless]<Indie Pop, Indie Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Craving
+02. Hold Back The River
+03. Let It Go
+04. If You Ever Want To Be In Love(   Читать дальше...   )Жанр: Indie Pop, Indie FolkПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9332A0865A94EF484B0D8F4F3EFFF351CEDB2440
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114707   (826060) от 18.03.2017
 
 Voez (2016) [FLAC 2.0|24/44|WEB-DL|tracks] <OST, Pop, Instrumental>
@@ -504,195 +693,6 @@ Wychazel - Mirage (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B26720604680B02E94858F2CC4207E27BA66E2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005908   (830743) от 10.04.2016
-
-Vineyard - Unto the King (1989) [FLAC|Lossless|tracks + .cue] <Praise & Worship>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Cry Holy (Eddie Espinosa) (03:30)
-02. Lord We Praise You (Eddie Espinosa) (02:33)
-03. Words Can Never Say (Eddie Espinosa) (03:25)
-04. Soften My Heart (Eddie Espinosa) (03:03)(   Читать дальше...   )Жанр: Praise & WorshipПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC2E82A4B67EE983C03D217C69F68E23CF4A57BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379924   (830754) от 04.05.2020
-
-Salvador Candel - Tocando Cielo (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830754.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bailando en las estrellas 03:02
-2. Eternidad 05:05
-3. Tocando cielo	04:41
-4. Abrazando a la tierra 08:49(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A194CA22B59CB6D82EBD3A089359778BCDA401D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380680   (831361) от 04.05.2020
-
-Asian Zen - Valentine’s Healthy Rituals (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831361.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Focus and Visualization 03:38
-2. In Harmony with Partner 03:39
-3. String and Healthy Body 03:39
-4. Stress and Anxiety Relieve 03:39(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D838EB07F6FC0C3C461333324EBCE4463B0B710F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380759   (831453) от 04.05.2020
-
-Silvis Silentii - The Sounds of Nature (2016-2020) (2020) [FLAC|Lossless|WEB-DL|tracks] <Field Recording>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZOOM0001 (01:04)
- 02. ZOOM0002 (02:35)
- 03. ZOOM0003 (02:29)
- 04. ZOOM0004 (02:22)(   Читать дальше...   )Жанр: Field RecordingПродолжительность: 01:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5602040761846DA6DC18ECDA0A9CD31AAD568B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380230   (831564) от 04.05.2020
-
-Salvador Candel - Luna (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831564.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Camelot 05:06
-2. Reflejos de luna 05:14
-3. El ritmo de la luna 05:48
-4. Vientos del alma 05:45(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D7E6E5B5E3B03A1362CCE4BFEB49376A6AD624A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380592   (831567) от 04.05.2020
-
-Inon Zur - Syberia 3 (Original Soundtrack) (2017) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Syberia 3 Main Theme
-02. Thrill of Nature
-03. Dark Force in Motion
-04. Call of Tradition(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB15EBE195C1F66A3DEFAD103C82DD55B50D8134
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380275   (831572) от 04.05.2020
-
-Salvador Candel - Caminante Del Cielo (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831572.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Namaste 04:10
-2. Evocación 06:21
-3. Caminante del cielo 05:20
-4. Sámba 04:09(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E7C2B377BD20F00C4111572F7687691FF3EBD0
 ```
 
 

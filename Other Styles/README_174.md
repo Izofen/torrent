@@ -1,3 +1,194 @@
+###  Публикация: 751597   (943449) от 01.02.2014
+
+VA - Tribal Voices. Songs from Native Americans (1996) [MP3|320 кб/с]<Folk, Native american, New age>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(3:49) 01. Quiltman - Oglala
+(2:06) 02. Rita Coolidge & Walela - The Apache Honoring Song
+(3:10) 03. Kevin Locke - Traveling Alone
+(3:42) 04. Sharon Burch - Grandmother's Way
+(2:41) 05. Goodhouse Family & Joseph Fire Crow - Round Dance Song
+(1:57) 06. Ulali - Grammah Easter's Lullaby
+(5:12) 07. Jerry Alfred - Generation Hand Down
+(3:20) 08. Andrew Vasquez - Tomorrow's Dream
+(2:55) 09. Six Nations Women Singers - Ho Wi Yo Ho We Ya He YaЖанр: Folk, Native american, New ageПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AEE9994774904C54B2A884502637FA6320A3A0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983138   (943609) от 06.02.2016
+
+Simon and Garfunkel - Greatest Hits (1972) [FLAC|Lossless|tracks + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mrs. Robinson (03:52)
+02. For Emily, Whenever I May Find Her (live) (02:26)
+03. The Boxer (05:11)
+04. The 59th Street Bridge Song (Feelin' Groovy) (live) (01:51)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1068B7EB6B30644598AF92FBD4EE88B4FC09C3BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983524   (943937) от 06.02.2016
+
+John Adorney - Beckoning (1998) [APE|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gift [04:41]
+02. Beckoning [04:29]
+03. The Gathering [06:07]
+04. Solace	[04:09](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40306704EA7F27B2FE06C89D16303B0B835E7077
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090939   (944548) от 08.01.2017
+
+Sally-Ann Taylor - Beginners Guide to Meditation & Visualisation (2012) [FLAC|Lossless|WEB-DL|tracks] <Spoken Word>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Counting (feat. Llewellyn) [00:05:18]
+02. Visualisation [00:16:09]
+03. Colour Healing (feat. Llewellyn) [00:32:49]Жанр: Spoken WordПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A540C3682AE1640C595DF30AE835A31709A604C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 282246   (944601) от 14.01.2011
+
+Мельница - Рождественские песни (2011) [FLAC|Lossless]<Folk-Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Береги себя
+2. ОвечкаЖанр: Folk-RockПродолжительность: 00:09:20
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090338   (944638) от 08.01.2017
+
+Arcade Messiah - III (2016) [MP3|320 кб/с]<Instrumental Post-Metal, Progressive Metal>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944638.jpg" />
+</div>
+
+
+###  Подробнее
+
+[06:05] 01. Revolver
+[07:15] 02. Citadel
+[10:27] 03. Deliverance
+[06:49] 04. Life Clock(   Читать дальше...   )Жанр: Instrumental Post-Metal, Progressive MetalПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE661B20EA4F294C4565495FA3A322BC5E4DEDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090444   (944646) от 08.01.2017
+
+Arcade Messiah - Arcade Messiah (2014) [FLAC|tracks|WEB-DL]<Instrumental Post-Metal, Progressive Metal>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944646.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:35] 01. Sun Exile
+[06:48] 02. Your Best Line Of Defence Is Obscurity
+[05:23] 03. Traumascope
+[02:52] 04. Aftermath(   Читать дальше...   )Жанр: Instrumental Post-Metal, Progressive MetalПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3AC86D24BEF3CAF99704C8AD381E97D1F385E77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090354   (944704) от 08.01.2017
 
 Arcade Messiah - III (2016) [FLAC|tracks|WEB-DL]<Instrumental Post-Metal, Progressive Metal>
@@ -512,195 +703,6 @@ Trent Reznor & Atticus Ross - Watchmen / Хранители (Music from the HBO 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C94AD8B9806AB224AD9075FAE544573B5E80991
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362554   (948306) от 24.02.2020
-
-Paul Haslinger - Exit Ghost (2020) [FLAC|Lossless|WEB-DL|tracks]<Electronic, Contemporary Instrumental, Ambient>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948306.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:45| 01. The Faltering Sky
-|03:14| 02. Intrinsic
-|03:28| 03. Room 3
-|01:58| 04. Exit Ghost(   Читать дальше...   )Жанр: Electronic, Contemporary Instrumental, AmbientПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98AB0676DCE48632C0486039DEC1C4880A161AA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362553   (948307) от 24.02.2020
-
-Paul Haslinger - Exit Ghost (2020) [MP3|320 кб/с]<Electronic, Contemporary Instrumental, Ambient>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948307.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:45| 01. The Faltering Sky
-|03:14| 02. Intrinsic
-|03:28| 03. Room 3
-|01:58| 04. Exit Ghost(   Читать дальше...   )Жанр: Electronic, Contemporary Instrumental, AmbientПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15EC90E5876BDC4DBD6BA470565D8349F36B4E7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362545   (948312) от 24.02.2020
-
-Marcus Paus - Mortal (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948312.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:08| 01. Mortal
-|03:15| 02. Ecce Eric
-|04:12| 03. The Interrogation Scene
-|03:44| 04. Christine's Introduction(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DBE38861C41240D2E667EC150F66772745A6F07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362577   (948313) от 24.02.2020
-
-Rob (Robin Coudert) - Revenge / Выжившая (Bande Originale du Film) (2017) [FLAC|Lossless|CD|tracks + cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948313.jpg" />
-</div>
-
-
-###  Подробнее
-
-|06:03| 01. Revenge
-|01:17| 02. Peyotl
-|00:48| 03. Apple Bikini
-|03:12| 04. Rape Part 1(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2FF1B17202D524551BBAC56D9B40B6D6F180400
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362576   (948315) от 24.02.2020
-
-Rob (Robin Coudert) - Revenge / Выжившая (Bande Originale du Film) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948315.jpg" />
-</div>
-
-
-###  Подробнее
-
-|06:03| 01. Revenge
-|01:17| 02. Peyotl
-|00:48| 03. Apple Bikini
-|03:12| 04. Rape Part 1(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:803CCEF48A563603C206C085A4320D222D70AACE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362585   (948411) от 24.02.2020
-
-Rob (Robin Coudert) - Maniac / Маньяк (Original Motion Picture Soundtrack) (2013) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Synthwawe>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948411.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:47| 01. Doll
-|03:41| 02. Haunted
-|01:02| 03. Double Trouble
-|02:46| 04. Bells(   Читать дальше...   )Жанр: Soundtrack, Score, SynthwaweПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73ABD9399CA6E710DB48C15E530FC587E2744DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362643   (948413) от 24.02.2020
-
-The Cactus Blossoms - Easy Way (2019) [FLAC|Lossless|WEB-DL|tracks] <Country>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desperado
-02. I’m Calling You
-03. Please Don’t Call Me Crazy
-04. Got A Lotta Love(   Читать дальше...   )Жанр: CountryПродолжительность: 00:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55590E52FFD1283F045DADF5F12784EB30FFF747
 ```
 
 

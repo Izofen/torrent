@@ -1,3 +1,138 @@
+###  Публикация: 1521350   (766102) от 01.01.2022
+
+VA - Anjunadeep. The Remixes 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lakou Mizik – Sanba Yo Pran Pale (DJ Koze Remix Radio Edit) (05:13)
+02. Alan Fitzpatrick – Warning Signs (CamelPhat Remix) (03:14)
+03. Eli & Fur – Come Back Around (Maya Jane Coles Remix) (03:42)
+04. CRi – Stranger (DJ BORING Remix) (04:35)(   Читать дальше...   )Жанр: Progressive House, Deep House, Tech HouseПродолжительность: 03:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B0D4E78C4C6B98C43563D562DD2C56284CA3150
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521336   (766106) от 01.01.2022
+
+Midnight Danger - Nights at Lake Milsen (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Darksynth, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into an Abyss of Fear (feat. Sonia Anubis) (4:55)
+02. Maniac (feat. Martin Sweet) (4:44)
+03. Fatal Attraction (feat. Max Cruise) (4:43)
+04. A Storm Out There (3:25)(   Читать дальше...   )Жанр: Retrowave, Darksynth, SynthwaveПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E84FF1C1F88A685604630DBD673EB429B27D690B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279414   (766111) от 29.01.2019
+
+Blind Date - Dreamworld (1986) LP [MP3|320 Kbps] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Heart Keeps Burning (4:01)
+02. Traces (3:48)
+03. Back Out On The Street (4:27)
+04. Dreamworld (4:59)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F07743BFA0C2811BDB2ADCA34052D6FB6C7097D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279497   (766115) от 29.01.2019
+
+nthng - Shine (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine (06:21)
+02. Embryo (04:59)
+03. Lyla (03:52)
+04. Atom (09:48)Жанр: Ambient, TechnoПродолжительность: 00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FECEA687AB5F5FBCCE532D85F8F56C1593FC2E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279283   (766116) от 29.01.2019
+
+Kid Koala - Music to Draw To: Io (2019) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Experimental, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circle of Clouds (07:36)
+02. All for You (feat. Trixie Whitley) (03:20)
+03. Torus (03:04)
+04. Transmission 4 (03:43)(   Читать дальше...   )Жанр: Trip-Hop, Experimental, AmbientПродолжительность: 01:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE11C68DF95494D9D05CBFF4F7D5047C1CCDCB4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279348   (766121) от 29.01.2019
 
 VA - The Elektrolux Decade - 10 Years Elektrolux (2005) [FLAC|Lossless|tracks+.cue] <Downtempo, Dub, Deep House, Chillout, Ambient>
@@ -560,141 +695,6 @@ Sangam - You Make Me (2019) Kudatah [FLAC|Lossless|WEB-DL|tracks] <Ambient, Expe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF96D8731A420DA70D24FD94AE29FB96454EABC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125860   (767130) от 16.04.2017
-
-VA - Lovely Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lamar Ensemble - Inspirational Shortcut
-02. The Sura Quintet - Keep Me Company
-03. Diario - Ancient Stone Steps
-04. Miraflores - Savory(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627EDDBE29147EE8ED550247C0619F9EF33BCB61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125768   (767140) от 16.04.2017
-
-TC - Atlantic Treasure (2016) [MP3|320 Kbps] <Ambient, Modern Classical>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767140.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wonderland - 02:59
-2. Navigator - 10:50
-3. Pastory - 07:15
-4. Clockwork - 06:36(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 01:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:875EE9CB2066544E28790CD246C5B9CDA6ED1489
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125905   (767144) от 16.04.2017
-
-VA - Lakeside Chill Sounds Vol.7 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ialaz - Interlude 1  1:33
-02.  Lemongrass - Lazy Eve  4:08
-03.  The Diventa Project - French Pleasure  4:51
-04.  Mathieu & Florzinho - Miracle Of Love (feat. Madeevah)  5:13(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C9C30C07E66D1E36887065190E078BD13DF251
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125567   (767192) от 16.04.2017
-
-VA - Chill Out In Montecarlo Vol.4 (Luxury Compilation) (2017) [MP3|320 Kbps] <Chill Out, Trance>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chris Wilson - Back Seat  3:40
-02.  Leslie Darsy - Delicate Soul  3:58
-03.  Bob Lane DJ - Until The End Of Time  5:09
-04.  Sean Woodby - Acoustic Mood  4:01(   Читать дальше...   )Жанр: Chill Out, TranceПродолжительность: 01:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD823D5251B0E652925251451A4FD527926FA5E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213887   (767360) от 18.03.2018
-
-VA - Running Beats Vol.16 - Musik Zum Laufen (Inkl. 5 KM & 10 KM Mix) (2018) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lost Frequencies & Zonderling  -  Crazy  2:33
-02.  Boogie Pimps  -  Somebody to Love (Rework) (Audax Remix)  4:39
-03.  Sound Of Legend  -  Push The Feeling On (Radio Edit)  3:03
-04.  EDX  -  Runnin'  3:26(   Читать дальше...   )Жанр: House, DanceПродолжительность: 03:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC50D5DD0FF18FB7CD73EECB90E26B54B6226C7B
 ```
 
 

@@ -1,3 +1,58 @@
+###  Публикация: 873797   (866533) от 01.03.2015
+
+Kylie Minogue - Kylie (1988) Deluxe Edition, 2CD/2015, PWL Records/ [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+По многочисленным просьбам PWL Records переиздала  классический альбом Kylie, с которым дебютировала безусловная принцесса поп-музыки Kylie Minogue.
+"Kylie" был первоначально выпущен в июле 1988 года и стал рекордных шесть раз платиновым в Великобритании - он стал самым продаваемым дебютным альбомом, изданным когда-либо.
+В представляемой Deluxe Edition была проведена цифровая обработка с оригинальных плёнок студии.
+Кроме того его расширили на два CD и DVD (в раздачу не входит). Второй CD редких треков (   Читать дальше...   )CD1:
+01. I Should Be So Lucky  (3:25)
+02. The Loco-Motion  (3:14)
+03. Je Ne Sais Pas Pourquoi  (4:02)
+04. It's No Secret  (3:58)(   Читать дальше...   )Жанр: PopПродолжительность: 02:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C071474E0BC60FC88D98B12CF5C4E6F9334504C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 873584   (866722) от 01.03.2015
+
+VA - PRO FM Super Hits Vol. 1 (2014) [FLAC|Lossless]<Pop, Dancepop, Eurodance, House, Latin Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Top 40, Pop, Electronic, Dancepop, Eurodance, House, Latin DanceПродолжительность: 01:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6DEFC605D9047289B8B198C08048DA81DFB59F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 873662   (866752) от 01.03.2015
 
 Shania Twain - Greatest Hits (2004) [APE|Lossless]<Country,Pop>
@@ -691,66 +746,6 @@ Modern Talking - Ready For Romance - The 3rd Album (1986) [FLAC|Lossless]<EuroDi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D21D35B0BF1C11AFC232E7B7B5C00649159EEB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997612   (873894) от 17.03.2016
-
-Two Of Us - Inside Out (1988) [APE|Lossless|image + .cue] <Synth-Pop, Sophist-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Inner Voices
-02. I ll Be Around
-03. Building An Empire
-04. We Got A Break It Out(   Читать дальше...   )Жанр: Synth-Pop, Sophist-PopПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:053B5304FA80BA517FBC327CD100DE8CCB365593
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300699   (874251) от 25.02.2011
-
-ABBA - Gold - Complete Edition (2008) /Universal Music, Japan/ [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Night City (3:37)
-02. Angeleyes (4:23)
-03. The Day Before You Came (5:51)
-04. Eagle (4:25)
-05. I Do, I Do, I Do, I Do, I Do (3:17)
-06. So Long (3:11)
-07. Honey, Honey (2:58)
-08. The Visitors (5:47)
-09. Our Last Summer (4:21)
-10. On And On And On (3:45)(   Читать дальше...   )Жанр: PopФормат: 2 × CD, Compilation, Remastered, SHM-CDПродолжительность: 02:38:03
-
-## Скачать торент
-```bash
-нет
 ```
 
 

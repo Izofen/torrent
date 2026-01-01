@@ -1,3 +1,30 @@
+###  Публикация: 1380497   (833176) от 03.05.2020
+
+VA - 70s Rock Originals (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Doobie Brothers - China Grove
+02. Deep Purple - Fireball
+03. Hawkwind - Silver Machine
+04. Motörhead - Motorhead (Alternate Take)(   Читать дальше...   )Жанр: RockПродолжительность: 02:12:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31485ED32D2CC92E45FC45AE7881ADCC5B765811
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 879961   (833184) от 20.03.2015
 
 Mark Knopfler - Tracker (2015) limited Deluxe Edition [MP3|320 кб/с]<Rock, Blues Rock, Folk Rock>
@@ -665,33 +692,6 @@ VA - Guitar Heroes (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:282C2E162D90C5561760243AD138E8B0C45790D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377604   (851884) от 22.04.2020
-
-Yurcash (Юркеш) - Каралі Карпаратівав (2019) [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Інтро (00:18)
-02. Карпаратівна вечерінка (03:45)
-03. Танець-наливанець (03:48)
-04. Кабак (03:01)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F225881B105432EEB3E95783D596FE63A6E76C
 ```
 
 

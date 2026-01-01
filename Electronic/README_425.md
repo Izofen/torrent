@@ -1,3 +1,138 @@
+###  Публикация: 1198837   (802959) от 14.01.2018
+
+VA - Best Of LW Tech House II (2018) [MP3|320 Kbps] <Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  CamelPhat  -  Under The Influence (Original Mix)  6:17
+02.  Charlie Hedges & Ashton Russell  -  These Feelings (Extended Mix)  5:46
+03.  Michael Bibi  -  Magic Carpet (Original Mix)  5:54
+04.  Tommy Vercetti  -  Don't Understand (Original Mix)  6:38(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 03:20:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:883CAFE5C1FB0D033C587C0C90B61DCDCAFB047C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198766   (802961) от 14.01.2018
+
+VA - Black Hole House Music 01-18 (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roger Shah & Aisling Jarvis  -  Call Me Home (Extended Mix)  9:16
+02.  Reddfield  -  You’ll Feel Love (Original Mix)  6:48
+03.  Alain Ducroix & NotAndrew  -  Unstoppable (Extended Mix)  4:04
+04.  Kokaholla & Quinn Bates  -  Lucky Ones (Original Mix)  3:47(   Читать дальше...   )Жанр: HouseПродолжительность: 01:26:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3A7436D8080CA525FD73134484A35F84A79B0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009598   (803212) от 24.04.2016
+
+DJ Nike Twist - TranceWave 138 @ GTI Radio (21.04.2016) [MP3|320 кб/с] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803212.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mike Adams - Nine Worlds (Original Mix) (Alter Ego)
+2. Diher & R3dub - Lynx (Original Mix) (Alter Ego)
+3. Alan Morris - Lost In Space (Original Mix) (Transistic)
+4. Highforcer - Galaxy (Aldo Henrycho Remix) (OceanBlue)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A8E648817B7C41E85B094E0A4C27C302FBC77B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120055   (803460) от 30.03.2017
+
+VA - Latin House Music Summer 2017 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carrilio - Samba De Janeiro (Markus D'ambrosi Remix) 04:44
+02. Cuba Club - Suavemente (Extended Mix) 04:37
+03. Gualbert Teran - Estoy Aqui 03:26
+04. Tommy Boccuto - Walking You (Max Marotto Remix) 07:22(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677109D83B316EDDA0A7AE30FFEDD51D58D61A9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120104   (803562) от 30.03.2017
+
+VA - The Golden Voyage of Disco, Vol. 1 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cool Million feat. Eugene Wilde – Back for More (DJ Friction Disco Mix) (6:14)
+02. Kraak & Smaak feat. Sam Duckworth – Good for the City (Moullinex Remix) (4:05)
+03. Retrospaction – Walk the Night (6:39)
+04. How2 Groove – Nu-Pride (5:41)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E0F14DBBA628C93C1D4C1C677A96162EA0A96B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010540   (803955) от 24.04.2016
 
 VA - Super Eurobeat Vol. 237 (2016) Extended Version [FLAC|Lossless|tracks + .cue] <Electronic, Disco, Eurobeat>
@@ -560,140 +695,6 @@ VA - Cafe Luna (Chillout and Lounge Edition) (2016) [MP3|320 кб/с] <Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E438BB0A71C76C7AD27252250AC28865BEC23DA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384154   (806161) от 18.05.2020
-
-Dom & Roland - Parasite / Homicide / Paradrenasite (2020) Hive Remaster [FLAC 2.0|44.1/24|tracks|WEB-DL] <Drum n Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dom & Roland - Parasite (06:30)
- 02. Dom & Roland - Homicide (05:58)
- 03. Hive - Paradrenasite (06:20)Жанр: Drum n BassПродолжительность: 00:18:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B352404FB8D3CB91C6E525022DFFD7B47CA28EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384005   (806168) от 18.05.2020
-
-Low Budget Aliens - Junk DNA (2020) XPQ? [FLAC 2.0|44.1/24|tracks|WEB-DL] <Experimental, Jungle, IDM, Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CRASh LANDING (03:20)
- 02. Hazardous Waste Pump (03:50)
- 03. FE Ignot (01:41)
- 04. Geo-Stationary Monument (04:45)(   Читать дальше...   )Жанр: Experimental, Jungle, IDM, Drum & BassПродолжительность: 00:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2318B56735D9A1050CF15FA757934AE59339577D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009939   (806213) от 23.04.2016
-
-VA - Bigtime EDM Vol.8 (2016) [MP3|320 кб/с] <House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Bale - The One (feat. Aybewan) 06:19
-02. Sl Curtiz & Domovnik - Timeline (Teo Moss Remix) 05:46
-03. Dion Mavath - B52 06:19
-04. Teo Moss - Activation 05:06(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 03:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE8C9290F601983860450F9F25499F685045E7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 833125   (806283) от 12.01.2018
-
-Zero Degree - Discography 5 Releases (2005-2014) Audiophob, Ant-Zen [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Industrial, Psybient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cocoon (10:58)
- 02. Stasis (07:17)
- 03. Beacon (09:11)
- 04. Distance (11:08)(   Читать дальше...   )Жанр: Psybient/Downtempo/Progressive TranceПродолжительность: 01:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36029179C9CA89EF5EF3B4BF36FFEE98382C5A44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384130   (806354) от 18.05.2020
-
-Max de Wardener - Where I Am Today (2004) Accidental Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Glitch, Minimal>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luster (04:37)
- 02. Automatic (02:58)
- 03. Until My Blood Is Pure (02:52)
- 04. Noises From A Small Planet (05:05)(   Читать дальше...   )Жанр: Ambient, IDM, Glitch, MinimalПродолжительность: 00:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E944750A3FEF4F0B01196FA2F990322903E056E1
 ```
 
 

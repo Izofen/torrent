@@ -1,3 +1,30 @@
+###  Публикация: 1440891   (1038235) от 19.01.2021
+
+VA - Smooth Jazz: The Magic Of Improvisation (2021) [MP3|320 Kbps] <Smooth Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка для романтичных и утончённых натур, для ценителей качественной и красивой музыки, для настроения и заряда бодрости на весь день. Мелодии настраивающие на позитивное мышление в сборнике Smooth Jazz под названием "The Magic Of Improvisation".01. Giovanni Alaimo - Today
+02. Yellowjackets - The Red Sea
+03. Nicholas Cole - Snap
+04. Wolfgang Puschnig - Naima(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 04:34:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA39D47C3D80303224E33345347455C742A9B55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440893   (1038239) от 19.01.2021
 
 VA - Hospitality Christmas Pop Party (2021) [MP3|320 Kbps] <Pop, Romantic, Dance>
@@ -668,33 +695,6 @@ VA - Beatport Deep House: Electro Sound Pack #220 (2021) [MP3|320 Kbps] <Deep Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FB48D79A84BE286FF1771A111AFDAF76A8EF241
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613121   (1039585) от 18.02.2023
-
-VA - Музыка для машины Vol.9 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сергей Одинцов  - Нам До Разлуки Полчаса (03:54)
-02. Nola  - Тебя Любить (03:08)
-03. Dj. Sava & Md & Dj Feat. & Adriana Onci - Island Of Love (03:38)
-04. Флорида  - Кто Я (03:13)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E308871F2EDBB32DBAF8CD22AE5F58E2C9D37790
 ```
 
 

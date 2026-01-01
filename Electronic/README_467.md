@@ -1,3 +1,138 @@
+###  Публикация: 1491661   (908724) от 26.08.2021
+
+Xu & Darren Harper - Arising & Ceasing Of Things (2021) Rottenman Editions [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flickering Of Shadows & Leaf (03:40)
+ 02. A Dove Singing Near Broken Glasses (08:08)
+ 03. Early Morning Chords (08:32)
+ 04. Arising & Ceasing Of Things (07:38)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC22D1293DFDE49FCAF20C40D811285F5E8EBCEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098772   (908751) от 30.01.2017
+
+VA - Body Language Vol.2 (Dive Into The Magic Of Deep House) (2017) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bes & Meret - My Cocoon (Tom Leeland remix) 05:40
+02. Florito - Balearic Air (Beach Bar mix) 06:11
+03. Miss Luna - Love Peace & Happiness (Florito mix) 04:57
+04. Tom Appl - Downtown (Christos Fourkis remix) 05:14(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:25:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1C940100CB48B262AEBD8B2DE6B7466DE4433B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098339   (908844) от 30.01.2017
+
+VA - Deep Balearic House Music Vol.1 (2016) [MP3|320 Kbps] <House, Deep House, Balearic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mario Chris - By Your Side (04:00)
+02. Krokodile Kruegel - Fog In The Moonlight (05:02)
+03. Just Karl - Use It (06:04)
+04. 9Ball - Flowstone Salamander (06:09)(   Читать дальше...   )Жанр: House, Deep House, Club, Balearic, Progressive, DanceПродолжительность: 02:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF031D3E4CF98404CA1CA03CEA2A6B59FA96071
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246925   (908845) от 20.03.2020
+
+SHXCXCHCXSH | HSXCHCXCXHS - Discography 15 Releases (2012-2020) Avian, Rösten [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental, Industrial, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VOOO (05:35)
+ 02. OPPP (06:02)
+ 03. POPP (05:52)
+ 04. VVOV (05:58)Жанр: Techno/IndustrialПродолжительность: 08:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB6C891FBA24505BAF78347ED91579CB08AAACCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098621   (909029) от 30.01.2017
+
+VA - Die Landpartie Vol 01 (Best Of Chillout & Ambient Music Deluxe) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - Der Moment (Wellness Deluxe Version) (06:33)
+02. Lebensart - Die Leichtigkeit des Seins (Klangteppich Mix) (05:34)
+03. For Found Future - Dreamlands Harmony (Chillout Melody Mix) (04:29)
+04. Area 42 - Bittersweet (03:31)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066262B47D7A7828266F8AB396FEDB8E59751C56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368479   (909076) от 20.03.2020
 
 Four Tet - Sixteen Oceans (2020) Text Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <House, Ambient, Tech House, Downtempo, IDM, Minimal>
@@ -554,141 +689,6 @@ VA - Commemoration 3 Years (2017) [MP3|320 Kbps] <Minimal, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9941594DA37D4FEDC6D813B0FB8297E901A5E044
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368436   (911049) от 19.03.2020
-
-Etapp Kyle - Nolove (2020) Ostgut Ton [FLAC|Lossless|WEB-DL|tracks] <Techno, Leftfield>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nolove (04:08)
- 02. Unseen (04:54)
- 03. Polar (06:29)
- 04. Eden (04:25)Жанр: Techno, LeftfieldПродолжительность: 00:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84B223CD5C4795A7637D4318B6B29AAC5271DF3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368337   (911079) от 19.03.2020
-
-VA - Only For DJs - Spring 2020 [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Berte' & Daniel Tek feat. Monika Kiss - Better Of Alone (Extended Mix) 5:11
-02. JBGL - Dance Monkey (Extended Mix) 3:36
-03. Skelectro & Allenx feat. Norah B. & Itto - No Time (Spikaa Remix) 4:08
-04. MJX feat. Pat Cole - Free (Radio Mix) 3:32(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAFCC56E8222A748544217B0F4B5A36CD9A2555D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368235   (911087) от 19.03.2020
-
-Aevin - Discography 8 Releases (2014-2020) Raumklang Nusic [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Industrial, Experimental, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Contour Gate (06:53)
- 02. Dionsoop (01:20)
- 03. Ehomac (05:58)
- 04. Freque (00:57)(   Читать дальше...   )Тип издания: WebЖанр: IDM/Experimental/Glitch/AmbientПродолжительность: 05:03:31 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDC018A9779820194477DAC2F44F0AA751D916B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097855   (911496) от 28.01.2017
-
-Infected Mushroom - Return to the Sauce (2017) [FLAC|Lossless|WEB|tracks|image] <Psy-Trance, Electro House>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infected Mushroom - Flamingo (8:44)
-02. Infected Mushroom - Manipulator (6:33)
-03. Infected Mushroom - Return to the Sauce (7:46)
-04. Infected Mushroom - Groove Attack (6:48)(   Читать дальше...   )Жанр: Psy-Trance, Electro HouseПродолжительность: 01:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A78693352DEFC8315365E1E37CC0260C3725825
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374181   (911806) от 24.08.2021
-
-Hypnus Records - Label-Pack 47 Releases (2014-2021) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, Experimental>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BLNDR - Tomb (05:41)
- 02. Feral - Radha (06:53)
- 03. Skymn - Doctrine (08:20)
- 04. BLNDR - Movement Strobe 3 (06:35)(   Читать дальше...   )Жанр: Techno, Ambient, Experimental •Продолжительность: 27:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:726933B30605F0BE499F2CD42464AF54C4362356
 ```
 
 

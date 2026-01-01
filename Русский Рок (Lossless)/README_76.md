@@ -1,3 +1,111 @@
+###  Публикация: 1450777   (1028909) от 27.02.2021
+
+E.S.T. - Electro Shock Therapy (1989) Reissue, Remastered, Special Edition, 2021,  Meat Stocks Records [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Перестройка
+02. Джокер
+03. Батько, пожалей коней
+04. Knife(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44BDB8748E89F37C1FFBC52202FA82707A8A7A26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450363   (1028962) от 26.02.2021
+
+Земфира - бордерлайн (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028962.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. таблетки
+2. ок
+3. этим летом
+4. пальто(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:572469C6BE6E103ED84C1A17E3F39E3E2D423DB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450284   (1029011) от 26.02.2021
+
+Слот - Инстинкт выживания (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Introduction [00:01:17]
+02 Инстинкт выживания [00:03:57]
+03 Норма [00:04:30]
+04 17 лет [00:03:42](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD106563FC850D51C8FB11CEA9015D38462CADA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623461   (1029238) от 02.04.2023
+
+Автоматические удовлетворители - Любимые песни мамы (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ерунда [00:02:38]
+02. Буржуи [00:03:14]
+03. Юнкера [00:04:37]
+04. Крюк [00:04:37](   Читать дальше...   )Жанр: Funeral Punk RockПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA99D534758B4B518C37AE8D88B7009A6282F8CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623024   (1029609) от 31.03.2023
 
 Мураками - В песнях навсегда (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -584,112 +692,6 @@ orion trip - В поисках ответа (2023) EP [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC971E453C15E04FC36D47D0EB05E5C015146F74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445691   (1033491) от 06.02.2021
-
-VA - Трибьют Сергей "Чиж" Чиграков (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033491.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Василий Уриевский - День рождения
-2. Мураками - О.К.
-3. РокфоР - Скучная история (Крокодил)
-4. Дядя Ваня - Я подобно собаке(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F4055244B433AD400DB7123088FE69664628F5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445231   (1033721) от 05.02.2021
-
-ЧайФ - Оранжевое настроение-III (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033721.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Чудесные тихие песни
-2. Слишком много джаза, мама
-3. Планета секонд-хенд
-4. Нарисуй(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B0925DEB79471C5A7181EC19BCB74D05F0FE51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618201   (1034128) от 11.03.2023
-
-кис-кис - ламповый альбом (acoustic) (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. трахаюсь (acoustic) [00:02:44]
-02. мальчик (acoustic) [00:02:25]
-03. лбтд (acoustic) [00:02:15]
-04. качели (acoustic) [00:02:16](   Читать дальше...   )Жанр: RockПродолжительность: 00:28:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C587E30A6E0A703DF670B15D75C61B93E2CE31C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618205   (1034302) от 10.03.2023
-
-Земфира - PODNHA (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034302.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. PODNHA
-2. PODNHA (Archive Remix)Жанр: RockПродолжительность: 00:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC402177790DC0B6A0CE975D5D3E5652E516363
 ```
 
 

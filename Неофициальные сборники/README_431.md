@@ -1,3 +1,36 @@
+###  Публикация: 505960   (687783) от 06.06.2012
+
+VA - Инструментальная музыка (2012) vol. № 63 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. М.Таривердиев - Воспоминание о Венеции
+02. E.Simoni - Ballerina
+03. Cusco - Alcatraz
+04. J.Last & R.Clauderman - Indigo Bay
+05. J.Emblow - Tonight
+06. Behzad - Touch My Soul
+07. Botticelli - Song Sung Blue
+08. Vangelis - Movement VI
+09. Зодиак - Зодиак (mix)
+10. The B.B.S.O. - Living Next Door To Alice(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31FA9A8D341235E0E4548F68E35B606CC2B63D5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 506297   (687797) от 06.06.2012
 
 VA - Звёзды Шансона - Избранное (2012) [MP3|320 кб/с]<Шансон>
@@ -685,33 +718,6 @@ magnet:?xt=urn:btih:7A890D823FFCD1C1D37409669459F7E245CA9581
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:232FF4B10F3D9C372E304C2D8E64E15BB99A917C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221954   (689433) от 27.04.2018
-
-VA - The Light And Warm (2018) [MP3|320 Kbps] <New Age, Ambient, Relaxation,>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слушание мантр или просто музыки релакс направления способно ввести сознание в состояние медитации. Подобная практика обладает очищающим воздействием, которое обязательно со временем приносит результаты – снятие стресса и напряжений, улучшение работоспособности и памяти, увеличение жизненных сил, сияние души любовью и радостью01. Midori - The Light and Warmth
-02. Patrick Bernard - Sita Ram Hanuman Mantra
-03. Wychazel - Akasha
-04. Akoviani - Transgressus III(   Читать дальше...   )Жанр: New Age, Ambient, Relaxation,Продолжительность: 04:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5AF612D8180E5B347A60480B864A3FDFB72C9D
 ```
 
 

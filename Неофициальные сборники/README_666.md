@@ -1,3 +1,30 @@
+###  Публикация: 1463480   (1020482) от 18.04.2021
+
+VA - Record Super Chart 17.04.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ваня Дмитриенко - Венера-Юпитер (D. Anuchin Radio Edit) (2:54)
+02. Eneli, Monoir - 3 to 1 (3:39)
+03. Tiesto - The Business (2:44)
+04. Phao KAIZ Remix - 2 Phut hon (3:03)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:32:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A8489E88BBB1FEC435D0B8ED3FAD2753FAA0D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461951   (1020548) от 17.04.2021
 
 VA - Shazam Хит-парад Top 100 Russia 17.04 (2021) [MP3|192-320 Kbps] <Pop, Electronic, Dance>
@@ -668,33 +695,6 @@ VA - Best 80s Disco Hits (2021) [MP3|320 Kbps] <Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87053C365C996004155AE971B7FD6BED60260D8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462180   (1021275) от 13.04.2021
-
-VA - The Soft Playlist: Smooth Chilled Jazz (2021) [MP3|320 Kbps] <Smooth Jazz, Lounge, Chillout>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мягкая, нежная, трогательная. Именно под такую музыку хочется путешествовать по красивым местам старинного города или по аллеям пустынного парка. Большинство эмоций, полученных при прослушивании данной компиляции, просто не передать словами001. 22° Halo Aka Lea Maria Fries - Green
-002. Cava's - Jazz And Chill
-003. Fourplay - Play Lady Play
-004. Fergus Mccreadie - The Stones Of Brodgar(   Читать дальше...   )Жанр: Smooth Jazz, Lounge, ChilloutПродолжительность: 08:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FD35C995E5747D130C3CDF5B69B73A736548707
 ```
 
 

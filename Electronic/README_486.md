@@ -1,3 +1,138 @@
+###  Публикация: 1359418   (964354) от 12.02.2020
+
+VA - Uplifto-1: - Первая (2007) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Бойко Presents Sound Shocking - Глубоко (Club Mix) [08:09]
+02. Агент Смит - Я И Ты [05:40]
+03. Брюки - Под Зонтом [05:14]
+04. Пименов - Rockstar (Original Dub) [06:04](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:08:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:013185456265A11E59B2D616F26228AD73EA6A85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978038   (964465) от 22.01.2016
+
+VA - Best Of Vocal Trance 2016 (2016) [FLAC|tracks|WEB-DL]<Trance, Vocal Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964465.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:57] 01. Tenishia & Sue McLaren - Strong (Radio Edit)
+[03:51] 02. Stargazers & Kate Louise Smith - Black Diamond (Radio Edit)
+[02:54] 03. Kaimo K & Sarah Russell - Love Will Never Leave (Radio Edit)
+[03:53] 04. Susana & Hazem Beltagui - Silent For So Long (Maratone Radio Edit)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B55E49AB84837BF6519982131FD4FC7630D5C65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978165   (964584) от 22.01.2016
+
+Dj Sveta - My City (2016) [MP3|320 кб/с] <Progressive House, House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Remcord - Saed (Original Mix)
+Lucas Rossi - No Expectations (Original Mix)
+Advent's Rising - Return (Matter Remix)
+PAX - Fated(   Читать дальше...   )Жанр: Progressive House, HouseПродолжительность: 01:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144C093246B57F71D73141FFCD54BEEC7FBD78B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619546   (965226) от 18.02.2013
+
+Blutengel - Monument (2013) 2CD / Deluxe Edition [MP3|320 кб/с]<Darkwave, EBM, Goth Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legend Part 1 (0:58)
+02. A Place Called Home (4:52)
+03. Tod_Sunde (4:29)
+04. One Voice (4:23)(   Читать дальше...   )Жанр: Darkwave, Goth Industrial |Продолжительность: 00:31:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97B8D57730CB4795C8BB1B07FA4B2457E2E07733
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977559   (965474) от 21.01.2016
+
+VA - Best Of The 80's Volume 1 (1997) [FLAC|Lossless|tracks + .cue] <House, Synth-pop, Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pet Shop Boys , - West End Girls (5:19)
+02. Toni Basil , - Mickey (3:59)
+03. Bad Manners , - Special Brew (3:20)
+04. Kelly Marie , - Feels Like I'm In Love (3:57)(   Читать дальше...   )Жанр: Synth-pop, Disco, HouseПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FD68BC8298FC3E590F03DF1262FAAA1CA11E46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977278   (965547) от 21.01.2016
 
 VA - Ministry Of Sound: The Annual 2008 (2007) 3CD [FLAC|Lossless|tracks + .cue] <House, Electro>
@@ -556,153 +691,6 @@ Soulware - All That Binds Us - Rua (2018) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:365F6AD6F725492FBCFC8784CC8DA304FF78E6EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222943   (968696) от 08.02.2020
-
-Tell - Discography 6 Releases (2014-2018) [FLAC|Lossless|tracks] <Deep House, House, Downtempo, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Lost 200€ In A Club (04:23)
- 02. Cool Bananas (Stringmix) (04:45)
- 03. Starry Night (05:56)
- 04. Camel Ride (07:21)Тип издания: Web, VinylЖанр: House/Deep HouseПродолжительность: 03:00:43 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4196E94AF6C57214E1C7A3432234BD6D4E6F6BCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976421   (968760) от 18.01.2016
-
-VA - Planet Dream Vol. 1 (1998) 2CD [FLAC|Lossless|tracks + .cue] <Trance, Euro House, Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scooter - No Fate (R.O.O.S. Mix 1) (7:31)
-02. Three 'N One Presents Johnny Shaker - Pearl River (3:44)
-03. Moby - James Bond Theme (3:10)
-04. Dance 2 Trance - Power of American Natives 98 (DJ Quicksilver Radio Cut) (3:29)(   Читать дальше...   )Жанр: Trance, Euro House, Progressive TranceПродолжительность: 01:17:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB85632D628AD834E982566706C188C0C1A63759
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976559   (968806) от 18.01.2016
-
-Lenzman - Golden Age (2016) EP [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Got My Mind Made Up (04:54)
-02. Golden Age (feat Steo) (05:14)
-03. Never Enough (feat. Forren) (05:15)
-04. Homie Don’t Play That (04:51)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85D1C70554DA988BC08C0257F50C6B97049FC1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617026   (968849) от 15.02.2013
-
-Chill Out Allstars - Sunset Lounge Classics (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something
- 02. The Situation
- 03. Flying
- 04. One Minute
- 05. In the Mood
- 06. Island
- 07. Easy Living
- 08. Magic Moment
- 09. Sun Spirit
- 10. MidnightЖанр: Downtempo, Lounge, ChillOutПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE102189E900FB4F309B542CAB86021F027EDDAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616778   (968850) от 15.02.2013
-
-VA - The Cult of Lounge (2013) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manyus Joan Eta - Silvia (06:25)
-02. Noochie vs. Bridget - Sunshine (04:41)
-03. ITB Sea - Bacon Four (04:50)
-04. Agio-Lax - Suspirium (03:57)
-05. Didascalis - Nightbreeze (05:26)
-06. Supaquartet - Five Weeks (03:40)
-07. Elaphe Guttata - Uncertain Future (04:10)
-08. Sunday Job - Ms Frency Is Late (06:30)
-09. DJ Stella - Indonesian (04:33)
-10. Higgen - Lark (04:37)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A716991A8402E33BFC881908FA82F19D9282F0CB
 ```
 
 

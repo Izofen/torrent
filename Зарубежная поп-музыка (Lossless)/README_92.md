@@ -1,3 +1,57 @@
+###  Публикация: 975970   (970818) от 16.01.2016
+
+Alessandra Amoroso - Vivere a colori (2016) [FLAC|Lossless|tracks] <Pop, Vocal
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Stupendo fino a qui (03:49)
+ 02. - La vita in un anno (03:28)
+ 03. - Avro cura di tutto (03:40)
+ 04. - Vivere a colori (04:20)(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B016579EED58892A5A8A26C982C6693085B367E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975667   (971923) от 15.01.2016
+
+VA - Great Spanish Hits (1996) [FLAC|Lossless|tracks + .cue] <Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juanito - Amor de mis amores (3:11)
+02. Juanito - Bamboleo (2:43)
+03. Olivia Valere - Cantinero de Cuba (4:15)
+04. Chico Fuente - La Paloma (3:00)(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EE91A54A61FCDF9A957ECB290A871E75EEF74A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975495   (971936) от 15.01.2016
 
 Mariah Carey - Forever Gold (1999) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Blues>
@@ -687,71 +741,6 @@ Dolcenera - Le stelle non tremano (2015) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52FF320B2A8FB4E6810428D4CF1C057F1366DB49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 166043   (975976) от 15.01.2010
-
-Sarah McLachlan - Closer: The Best Of Sarah McLachlan (2008) Deluxe Edition, 2 CD [FLAC|Lossless]<Pop, Folk Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Vox (4:53)
-2. Steaming (4:44)
-3. Ben's Song (4:55)
-4. The Path Of Thorns (Terms) (5:51)
-5. Into The Fire (3:31)
-6. Drawn To The Rhythm (4:09)
-7. Mercy (4:22)
-8. Possession (4:38)
-9. Hold On (4:10)(   Читать дальше...   )Жанр: Pop, Folk RockПродолжительность: 01:58:23
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 438501   (976103) от 18.01.2012
-
-VA - Дискотека 80-х The Best of Авторадио (2011) [WavPack|Lossless] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Secret Service - A Flash In The Night (3:38)
-02.  Fancy - Flames Of Love (4:01)
-03.  Александр Барыкин - Аэропорт (4:20)
-04.  Виктор Салтыков Ft. Электроклуб - Ты Замуж За Него Не Выходи (3:42)
-05.  Modern Talking - You`Re My Heart, You`Re My Soul (3:23)
-06.  Алексей Глызин Ft. Гр. 'Ура' - Ты Не Ангел (4:00)
-07.  Chris Norman - Midnight Lady (4:12)
-08.  Joy - Valery (4:10)
-09.  Владимир Кузьмин - Пристань Твоей Надежды (4:45)
-10.  Владимир Пресняков - Спит Придорожная Трава (3:44)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:23
-
-## Скачать торент
-```bash
-нет
 ```
 
 

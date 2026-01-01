@@ -1,3 +1,57 @@
+###  Публикация: 1507598   (798243) от 05.11.2021
+
+ABBA - Voyage (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Still Have Faith In You (5:09)
+02. When You Danced With Me (2:50)
+03. Little Things (3:08)
+04. Don't Shut Me Down (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A954D8FCA97188C542DEFEBF21AF8C315A4F4704
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507650   (798269) от 05.11.2021
+
+Fancy - Hit Party (1998)(Compilation)[FLAC|Lossless|image + .cue] <Euro-disco, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flames of Love (bass up version)
+02. Blue Eyes and a Broken Heart
+03. Fools Cry
+04. Slice Me Nice(   Читать дальше...   )Жанр: Euro-disco, SynthpopПродолжительность: 01:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19B2A605627524887A6F1E1BB5B082E18D85DBBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 121678   (798896) от 02.11.2021
 
 Патрисия Каас (Patricia Kaas) - 15 альбомов (1988-2008) [FLAC|Lossless]<Pop, Jazz, Rock>
@@ -640,62 +694,6 @@ VA - Radio 538 Hitzone 77 (2016) 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DD27BB68E39FCFDFCF08699ABE1BFE4DCB98C91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548435   (805683) от 26.10.2021
-
-Michael Jackson - Bad (1987) 2012, 25th Anniversary Deluxe Edition, 3CD [FLAC|Lossless] <Pop, R&B, Funk, Dance, Rock, Dubstep>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный релиз состоит из трёх CD-дисков из нового Коллекционного издания в формате Бокс Сета, состоящего из 3-х СD-дисков (и 1-го DVD, в этой раздаче отсутствует).
-
-Диск 1 - ремастеринговые хиты основного альбома (01. Bad (4:08)
-02. The Way You Make Me Feel (4:59)
-03. Speed Demon (4:05)
-04. Liberian Girl (3:50)(   Читать дальше...   )Жанр: Pop, R&B, Funk, Dance, Rock, DubstepПродолжительность: 03:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E82C0398F650ADDF86FE4472D6378CA51BBD37B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384071   (806159) от 18.05.2020
-
-Lara Fabian - Papillon(S) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papillon
-02. Je Suis A Toi
-03. Changer Le Jeu
-04. Par Amour(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF53B2CEDBE90ADDE89D98E5DF648BF245332A3E
 ```
 
 

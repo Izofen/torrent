@@ -1,3 +1,30 @@
+###  Публикация: 989799   (915781) от 23.02.2016
+
+ME - Another Story High (2012) [MP3|320 кб/с] <Alternative, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпустив за годы деятельности этот mini- и полноценный альбом 2013 года, группа объявила о своём роспуске в начале 2016 года.01. Naked
+02. Insert Voice Here
+03. Dutch Medicine
+04. Slow Children Run(   Читать дальше...   )Жанр: Alternative, Progressive RockПродолжительность: 00:22:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3152A0D1F66EF4C53AADB339DEE5EDBFDB912AD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097357   (915848) от 26.01.2017
 
 Pride of Lions - Fearless (2017) [MP3|320 Kbps] <Rock>
@@ -693,33 +720,6 @@ The Karaoke Band - The Led Zeppelin 1960- 70s Karaoke Songbook 1 (2008) 2CD [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:831AD6A7D10F01B0189930C133F04CE8540F67F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095116   (926194) от 20.01.2017
-
-Point Blank - Point Blank (1976) Reissue, 2006, Wounded Bird Records [MP3|320 Kbps] <Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926194.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Free Man
-2. Moving
-3. Wandering
-4. Bad Bees(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F54D4C810C781168F3D52191B8C77F9AB044AB
 ```
 
 

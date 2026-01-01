@@ -1,3 +1,30 @@
+###  Публикация: 1095910   (922827) от 22.01.2017
+
+VA - Ultimate Vocals (2017) [MP3|320 Kbps] <Nu Disco, Funky, Progressive, Club, Soulful>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Garrix And Bebe Rexha - In The Name Of Love 03:15
+02. Armin Van Buuren Feat. Kensington - Heading Up High (Swanky Tunes Remix) 03:11
+03. Max Ruby - Meldonium (Radio Edit) 03:09
+04. Greenage - Drift 08:05(   Читать дальше...   )Жанр: Nu Disco, Funky, Progressive, Club, SoulfulПродолжительность: 05:08:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C21104B6E172AC3E41C904372BF46FEE1B861A84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095926   (922871) от 22.01.2017
 
 VA - Kazan Deeper 2017 (2017) [MP3|320 Kbps] <Deep House, Melodic, Progressive, Funky>
@@ -671,33 +698,6 @@ VA - Снегопад новинок. Часть № 6 (2017) [MP3|256 Kbps] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C328EDCC8E812635B31879E12B0AFE3946BBA34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095350   (924465) от 21.01.2017
-
-VA - Музыкальный плен. Часть № 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924465.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Evelina - Ei Filtterii 3:08
-002. Gladushevskyy & Новые Интеллигенты - Художник 4:23
-003. The Knocks Feat. Walk The Moon - Best For Last 4:28
-004. Александр Есин - Ностальгия 4:15(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12436747236655ED9BD5C37E8F2542FE3751F1F
 ```
 
 

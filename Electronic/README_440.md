@@ -1,3 +1,139 @@
+###  Публикация: 1112826   (841727) от 09.03.2017
+
+VA - Hoch Die Hande Wochenende Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daiden - Snow Is Falling 03:45
+02. Luke Meyers - Play House (Vocal Edit) 05:40
+03. Milord - The World Is Mine (Club Mix) 06:41
+04. James Marley Feat. Nathan Brumley - Summer Won't Wait (Extended Mix) 05:50(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD18ED321DF13E0E19BF0560BFBD2345C23419C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003707   (841844) от 04.04.2016
+
+Gareth Emery - 100 Reasons to Live (2016) [MP3|320 кб/с] <Progressive Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gareth Emery - The Story So Far (06:43)
+02. Gareth Emery feat. Joseph - Cloudline (06:54)
+03. Gareth Emery feat. Gavrielle - Far From Home (03:50)
+04. Gareth Emery feat. Wayward Daughter - Reckless (03:22)(   Читать дальше...   )Жанр: Progressive Trance, Progressive HouseПродолжительность: 01:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C2E696155095A6A74E5D0430FC8FCD4BC16753
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003868   (841860) от 04.04.2016
+
+VA - Spring Lounge 2016: Sounds Like Sunshine (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillwalker - Heaven's Waiting (Vocal Mix)
+02. Phonotronic - Peace in Mind (Sunset Anthem Mix)
+03. Vladi Strecker - Across the Sea (The White Bird Mix)
+04. DJ Maretimo - Sun Addicted (Pure Beach Cut)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B66ABCC951BBF341F5D0DB0294B5844C02D6DF0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 877804   (841879) от 15.03.2015
+
+Skrillex - Дискография (2009-2015) [MP3|320 кб/с]<Dubstep, Brostep, Breakbeat, Electro House>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее имя музыканта – Сонни Джон Мур (Sonny John Moore). Он родился 15 января 1988 года в Калифорнии, а его воспитанием занимались приемные родители. Только в 16 лет он узнал имена своих настоящих биологических папы и мамы, хотя самих этих людей он знал еще с детства.
+В девять лет Сонни подарили первый музыкальный инструмент – это была гитара, но только спустя (   Читать дальше...   )EP & Singles:
+2009 - Gypsyhook (CD EP)
+2010 - My Name Is Skrillex (EP)
+2010 - Scary Monsters And Nice Sprites (CD EP)(   Читать дальше...   )Жанр: Dubstep, Brostep, Breakbeat, Electro HouseПродолжительность: 08:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA9E2840FC55726500AFC5CA62E9E9F9C4ABCAB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003791   (841894) от 04.04.2016
+
+VA - Trance Only Vol.6 (Future Club and Hardtrance Anthems) (2016) [MP3|320 кб/с] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Altek - 2nd Chance 07:46
+02 Blufeld - A World Less Ordinary (Mark Found Remix) 09:38
+03 Benya - Rhea (Fredin Remix) 07:12
+04 Arrakeen, Jaki Song - Time (Neo Kekkonen Remix) 07:18(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3779D53D3A5C2E7AED524AEF71322029B396A348
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378655   (842889) от 27.04.2020
 
 VA - Med School: Graduation (2020) [MP3|320 Kbps] <Drum & Bass>
@@ -561,141 +697,6 @@ Beborn Beton - She Cried (2016) EP [FLAC|Lossless|tracks + .cue] <Synthpop, New 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAFC97E32B94C51799A3450E3DDD3755CBB67A0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002971   (845112) от 02.04.2016
-
-Sasha - Scene Delete (2016) [MP3|320 кб/с] <Electronic, Ambient, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Channel Deq (2:13)
-02. View2 (5:50)
-03. Baracus (6:46)
-04. Linepulse (6:16)(   Читать дальше...   )Жанр: Electronic, Ambient, DowntempoПродолжительность: 02:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1292D17007B08F956203A5920B6111A2A9E04DCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112025   (845153) от 07.03.2017
-
-VA - The Tribal House of Istanbul (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Dello - Gulbahar [00:09:03]
-02. Stradivarius - Hang on the Vibe [00:06:58]
-03. Kephee - What Happened [00:06:47]
-04. Oscar Vaught - Freak On [00:03:10](   Читать дальше...   )Жанр: House, Tech House, Deep House, ElectronicПродолжительность: 02:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF62499DEEA0AA73229923F3C44F548FED88E53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003059   (845201) от 02.04.2016
-
-VA - 10 Years Stil Vor Talent (Presented By Oliver Koletzki) - 2016 [MP3|320 кб/с] <Tech House, Deep House, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HVOB – Envy
-02. Joachim Pastor – Clean Slate
-03. Bjorn Starig – Moqui Marble
-04. Teenage Mutants/EdOne/Bodden – Expression(   Читать дальше...   )Жанр: Tech House, Deep House, TechnoПродолжительность: 03:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616D84860CC664BB45FD212AFC9AF2DDC45B6B19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111640   (845228) от 07.03.2017
-
-VA - Chilling Sunset Tunes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rey Salinero - Recuerdos [05:58]
-02. Morris Jones - Here We Are (Alfreo Molino Mix) [06:41]
-03. Arrojas - Cala de Piedras [05:57]
-04. The Sura Quintet - Keep Me Company [06:04](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:10:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D52BC21BB7B5E3225309683CC3A1EC671822BE73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002860   (845294) от 02.04.2016
-
-Oliver Schories - Relatively Definitely (2016) [MP3|320 кб/с] <Tech House, Deep House, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Curl
-02. Marin
-03. Floyd
-04. Barac(   Читать дальше...   )Жанр: Tech House, Deep House, TechnoПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEAA0FC22CDF46D092E82D08E0068D4ED52E0460
 ```
 
 

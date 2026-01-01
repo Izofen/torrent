@@ -1,3 +1,109 @@
+###  Публикация: 1445691   (1033491) от 06.02.2021
+
+VA - Трибьют Сергей "Чиж" Чиграков (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033491.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Василий Уриевский - День рождения
+2. Мураками - О.К.
+3. РокфоР - Скучная история (Крокодил)
+4. Дядя Ваня - Я подобно собаке(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F4055244B433AD400DB7123088FE69664628F5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445231   (1033721) от 05.02.2021
+
+ЧайФ - Оранжевое настроение-III (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033721.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Чудесные тихие песни
+2. Слишком много джаза, мама
+3. Планета секонд-хенд
+4. Нарисуй(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B0925DEB79471C5A7181EC19BCB74D05F0FE51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618201   (1034128) от 11.03.2023
+
+кис-кис - ламповый альбом (acoustic) (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. трахаюсь (acoustic) [00:02:44]
+02. мальчик (acoustic) [00:02:25]
+03. лбтд (acoustic) [00:02:15]
+04. качели (acoustic) [00:02:16](   Читать дальше...   )Жанр: RockПродолжительность: 00:28:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C587E30A6E0A703DF670B15D75C61B93E2CE31C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618205   (1034302) от 10.03.2023
+
+Земфира - PODNHA (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034302.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. PODNHA
+2. PODNHA (Archive Remix)Жанр: RockПродолжительность: 00:08:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC402177790DC0B6A0CE975D5D3E5652E516363
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617873   (1034529) от 09.03.2023
 
 Орбитум - Tribute To Ария (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -587,114 +693,6 @@ magnet:?xt=urn:btih:135E43E5A5B3F5B5B8E5B02A41AFCF09DB1D2CFB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0003057D1B4F289C2D0968B301C77B933A87BEFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616418   (1036440) от 02.03.2023
-
-Гранитный цех - Нигилизм (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Таллий [00:03:08]
-02. След [00:02:38]
-03. Рок-н-ролл [00:03:16]
-04. Пора умирать [00:02:49](   Читать дальше...   )Жанр: Hard Rock, PunkПродолжительность: 00:21:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64AE74FB9D462B8B369211A17878FDCBE61B520B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616429   (1036451) от 02.03.2023
-
-Staple R - Remember The Young Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronicore, Hardcore punk, Trancecore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corpse Party [00:03:18]
-02. Bumblebee Cemetery [00:04:58]
-03. Pew Pew [00:02:50]
-04. Ryomou Versus Ryofu [00:03:21](   Читать дальше...   )Жанр: Electronicore, Hardcore punk, Trancecore, Metalcore, NintendocoreПродолжительность: 00:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C67717CACA4B7259089B174BC28D4386266A3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616214   (1036723) от 01.03.2023
-
-Rabies - Бестиарий (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Увертюра "Morion" [00:01:56]
-02. Бестиарий [00:03:52]
-03. На руинах твоих империй [00:04:06]
-04. Оборотень [00:04:51](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBC4359797FDC9145866791BCE2D7F9A1DAA3A94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442007   (1037180) от 23.01.2021
-
-Babooshka - Плюнь Дьяволу в лицо! (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Крепостное право [00:05:17]
-02. Православный ЕГЭ [00:03:59]
-03. Бьёт - значит любит [00:04:12]
-04. Pro Добро [00:03:50](   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B3E78F7BEF172772EECF922250740F8FC3F4997
 ```
 
 

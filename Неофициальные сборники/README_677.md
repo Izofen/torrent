@@ -1,3 +1,30 @@
+###  Публикация: 1447138   (1032088) от 12.02.2021
+
+VA - Dream Dance Party (2021) [MP3|320 Kbps] <Techno, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032088.jpg" />
+</div>
+
+
+###  Подробнее
+
+С музыкальной подборкой "Dream Dance Party" Вы легко сможете подобрать для себя самые любимые треки, а также отсортировать, что и когда слушать: под хорошее настроение, жаркую погоду, веселую вечеринку дома, для пробежек или за рулём своего автомобиля.001. Netzer Battle - Xeno Rhinos
+002. Akis Ziak - Oscillation
+003. Pwcca - Hydrolysis
+004. Daniel Curley - You Liking(   Читать дальше...   )Жанр: Techno, EDMПродолжительность: 12:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4570F0FDF49F65B3C1E7C8E03001293B029FCEF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447141   (1032089) от 12.02.2021
 
 VA - Deep House Deluxe: Lounge Party (2021) [MP3|320 Kbps] <Tech, Deep House>
@@ -668,33 +695,6 @@ VA - Minimal Jam: Techno Clubbing Set (2021) [MP3|320 Kbps] <Minimal, Techno, Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5C2BB69DF0827DD0C7862B338FC208E1A1F2F2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445881   (1033307) от 07.02.2021
-
-VA - Event Of The Week: Progressive Trance Mix (2021) [MP3|320 Kbps] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это красивая музыка души, это новая гениальная симфония современного мира. Энергичный стиль музыки, который пробирает своим звучанием до глубины души, тела и мозга, это психическое состояние, при котором сознание человека воспринимает лишь малую долю того, что творится вокруг него. Под транс хочется танцевать, его хочется слушать вновь и вновь, он разрушает границы (   Читать дальше...   )001. Allen Watts - High Voltage
-002. Tim Besamusca - Lunaris
-003. Ram - Clockwork Orange
-004. Eldream & Mark Wild - Aura(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 12:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8E80DA6BE649DB6A3E6C840BEDBBEDE53EFAA12
 ```
 
 

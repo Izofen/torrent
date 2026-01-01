@@ -1,3 +1,138 @@
+###  Публикация: 989296   (917144) от 22.02.2016
+
+VA - Uplifting Only - Orchestral Trance Year Mix 2015 (Mixed by Ori Uplift) (2016) [MP3|320 кб/с] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Illitheas - Endless (Intro Mix Edit) (8:07)
+02. Ahmed Romel - Paradisum (7:57)
+03. SoundLift - Wonderful Feeling (8:01)
+04. Afternova - Into the Sky (2015 Remake) (7:18)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 05:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04199D11A3B388191728E9CC17129939F80BB65F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 865051   (917154) от 31.01.2015
+
+VA - Hotel Bar Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jupiter Jack - Ghosttown [03:38]
+02. Angelina Copa - Eu Quero Jogar (Bar Mix) [06:20]
+03. Sam Swift - The Heart Wants What It Wants [04:00]
+04. Paul Murs - Sun Goes Down [04:08](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDED9923F33E8CB4347E7704A25C74D225B5B939
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097044   (917188) от 25.01.2017
+
+Dance With the Dead - B-Sides: Vol. 1 (2017) [MP3|320 Kbps] <Synthwave, Synthpop, New Retro Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Out
+02. Banshee
+03. That House
+04. Stoic(   Читать дальше...   )Жанр: Synthwave, Synthpop, New Retro WaveПродолжительность: 01:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57F5EEF333E3118CD3284A014CC696B0BE21A0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490607   (917356) от 21.08.2021
+
+Cosmic Gate - Live @ New York City Sunset Set (2021-08-18) [MP3|320 Kbps] <Progressive House, Trance, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faithless feat. Suli Break & Jazzie B - Innadadance (Meduza Remix)
+02. Adriatique - Trance Lessons
+03. Dezza - Lost In You (Falling In Love) (Estiva Remix)
+04. The Temper Trap - Sweet Disposition (Estiva Remix)(   Читать дальше...   )Жанр: Progressive House, Trance, Deep HouseПродолжительность: 01:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C50E8984F3064274334780B438E78ADC5053A540
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989286   (917358) от 22.02.2016
+
+VA - RLX 10: The Chill out Collection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Camiel - No Fuzz [04:02]
+02. C.Cil - Sunset [03:26]
+03. Weathertunes - Destiny [04:38]
+04. Melleefresh - Mells Bells [05:36](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D394672BE16F23ECD2507680C1CA371141FEACC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989284   (917385) от 22.02.2016
 
 VA - RLX 9: The Chill out Collection (2015) [MP3|128-320 кб/с] <Downtempo, Chillout, Lounge>
@@ -557,140 +692,6 @@ VA - Redux Presents: The Finest Selection (2016) [MP3|320 Kbps] <Trance, Uplifti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4154ABE052B72972E4BAE3B95151D701F2D2D6CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096588   (919407) от 24.01.2017
-
-VA - Chill Party Chillout Fine Selection (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Zero Feedback - Rien Ne Va Plus (Don Gorda Project Remix)  7:00
-02.  Don Gorda Project feat. Solanos - Festa Do Sol (Funk Edit)  4:47
-03.  Enrico Donner - The Place  6:17
-04.  Solanos - Infinite Fields  5:24(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:30:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA862FC6F744BDB75918B355E120D72EEE681C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096535   (919411) от 24.01.2017
-
-VA - Sun Emotions Vol.1 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Pantelis - That Summer (The Balearica Anthem)  4:16
-02.  Florito - A La Playa  5:29
-03.  DJ Quincy Ortiz - The Way Home  7:01
-04.  Todoroff - Lost Without You (feat. David Paul)  6:36(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD76BA7E58381B0FD7498FE130C8088000578BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366841   (920306) от 13.03.2020
-
-Boris Brejcha - Violet Pill (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920306.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Violet Pill (8:33)
-2. On His Way (9:00)
-3. Babamba (7:50)Жанр: Tech House, MinimalПродолжительность: 00:25:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2710AD6A5382532C8F8CE0C5C0D378F82C842840
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988473   (920432) от 20.02.2016
-
-Illenium - Ashes (2016) [MP3|320 кб/с] <Dubstep, Future Bass, MidTempo>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Reverie (feat. King Deco)
-02.Fortress (feat. Joni Fatora)
-03.With You (feat. Quinn XCII)
-04.Sleepwalker (feat. Joni Fatora)(   Читать дальше...   )Жанр: Dubstep, Future Bass, MidTempo, TrapПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B2457E1FDB94A70E57103BDB245A739C911A9D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366760   (920576) от 13.03.2020
-
-VA - Trance Legion Vol.1-4 (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Progressive Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_920576.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Active Limbic System - Point Of No Return (Original Mix) (7:32)
-2. Hit The Bass - Enlighten (Original Mix) (4:36)
-3. Chris Oblivion - New Romantic Poem (Original Mix) (7:42)
-4. Hi Profile; Mr.What? - Space Invaders (Original Mix) (8:21)(   Читать дальше...   )Жанр: Psy-Trance, Progressive Psy-TranceПродолжительность: 04:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A085A5E20FB892B19A5ACC231A773C0B0AE17A9
 ```
 
 

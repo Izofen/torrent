@@ -1,3 +1,111 @@
+###  Публикация: 1142475   (642966) от 14.06.2017
+
+Marcus Malone - A Better Man (2017) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. House Of Blues  (04:20) 
+02. Better Man  (05:05) 
+03. Too Long Gone  (04:07) 
+04. Just Another Heartache  (03:11) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE658E056B6DB3E6AEB5F3593404413CC8824AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142429   (642980) от 14.06.2017
+
+Chick Corea - Rendezvous In New York (2003) 2CD, Stretch [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642980.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Armando's Rhumba (feat. Bobby Mcferrin) [04:59]
+02. Blue Monk (feat. Bobby Mcferrin) [05:35]
+03. Concierto De Aranjuez / Spain (feat. Bobby Mcferrin) [08:15](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 02:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:349C1288AC618D4174D4A23E6BDF56607728EEDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292692   (643080) от 31.03.2019
+
+Happy Day Singers - Gospel-Songs (1998) Box Set, 3CD, Compilation [FLAC|Lossless|image + .cue] <Gospel, Funk / Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643080.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01.	When The Saints
+02.	Swing Low
+03.	Bridge Over Troubled Water / Still Water Run Deep(   Читать дальше...   )Жанр: Gospel, Funk / SoulПродолжительность: 02:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8348B738942747443D76C765667956BDD2D1237D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142435   (643112) от 14.06.2017
+
+Kapok - Flatlands (2012) Kytopia [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [01:54]
+02. Missing Link [05:24]
+03. Up [03:00]
+04. Nausicaa [07:09](   Читать дальше...   )Жанр: Avant-Garde Jazz, Modern CreativeПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA203BA1731709DDA461BF00274DB70AD5B3BB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227844   (643244) от 28.05.2018
 
 Greg Abate - Straight Ahead (1993) Candid [FLAC|Lossless|image + .cue] <Post-Bop>
@@ -263,6 +371,72 @@ Eugene "Hideaway" Bridges - Hold On A Little Bit Longer (2015) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:038AA4FC339139A5702D414F39FA15AB69AA34B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516563   (643736) от 03.07.2012
+
+Laurindo Almeida & Baden Powell - Brasil Guitar Magic! (1999) [FLAC|Lossless]<Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_643736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Laurindo Almeida
+01. Samba Medley [05:20]
+02. O Barquinho [04:09]
+03. The Busy Bee [01:20]
+04. Canto Do Ossanha [05:31]
+05. Samba Triste [03:19]
+06. Escadoo [03:06]
+07. Air On A G-String [04:52]
+08. Dorival [05:05]
+(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517256   (643738) от 03.07.2012
+
+Lambert, Hendricks & Ross - Everybody's Boppin' (1989) [FLAC|Lossless]<Jazz, Bop, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_643738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Charleston Alley - H. Henderson, J. Hendricks, L. Kirkland [03:18]
+02 Moanin' - B. Timmons, J. Hendricks [02:34]
+03 Twisted A. Ross, W. Gray [02:15]
+04 Bijou - J. Hendricks, R. Burns [03:16]
+05 Cloudburst - J. Harris, L. Kirkland [02:15]
+06 Centerpiece - H. Edison, J. Hendricks [02:26]
+07 Gimme That Wine - J. Hendricks [02:58]
+08 Sermonette J. Adderley, J. Hendricks [03:47]
+09 Summertime - D. Heyward, G. Gershwin [01:43]
+10 Everybody's Boppin' - J. Hendricks [04:11](   Читать дальше...   )Жанр: Jazz, Bop, VocalФормат: CDПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -537,168 +711,6 @@ Vol 04 — Le blues rock(   Читать дальше...   )Жанр: BluesПр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC975725BF49CC1F7A3D22EA1A8D35C431B8BDAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142269   (644719) от 13.06.2017
-
-VA - Best Jazz Session Ever: Excellent Essence (2017) [MP3|320 Kbps] <Jazz, Instrumental>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Good Morning Jazz Academy - Best Jazz Session Ever  3:47
-02.  Background Music Masters - One Note (Cofee Break)  3:02
-03.  Instrumental Jazz Music Ambient - Burning Desire  3:30
-04.  Jazz Guitar Club - Relaxation Together  3:03(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 01:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CEC591950111C1C41D0D54E3A85D7833C5BA49D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541356   (644753) от 03.04.2022
-
-Angelique Francis - Long River (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Storms from My Eyes (4:55)
-02. Ashamed (4:45)
-03. Snow Rage (4:40)
-04. Long River (7:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB422412A1F983FA0815DD7C94C3CCDE51E7C7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541365   (644757) от 03.04.2022
-
-Bubba and the Big Bad Blues - Drifting (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want to Make Love to You Baby (4:23)
-02. Helping Hand (4:31)
-03. Drifting (6:10)
-04. Do What’s Right (3:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE589A2700C2B14CD670E91E6AB1FCF42525EFE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541361   (644762) от 03.04.2022
-
-B3 - New Songs, Old Socks (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Despair (6:06)
-02. Life Isn't That Hard (Old Socks Version) (4:12)
-03. So Tired (Old Socks Version) (6:10)
-04. Maria, Maria (Old Socks Version) (5:12)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:000575BF2837BF18C9749B98CB89BB82A9661D40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541354   (644765) от 03.04.2022
-
-Ade Wilding - Better Late Than Never (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pandemic (3:44)
-02. Crying To The Sky (4:17)
-03. Feel So Lonely (3:30)
-04. Hang On To Your Love (4:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FF5CC2AF6F7B957F03982CE940E516E0078EA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142216   (644863) от 13.06.2017
-
-Thierry Lang Trio - Serenity (2014) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ellen David [08:07]
-02. Overnight Train [04:58]
-03. Serenity [06:28]
-04. Mother [06:16](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CFFC1BB1727AFE6CC57D3427EE933329A4E0782
 ```
 
 

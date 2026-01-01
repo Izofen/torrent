@@ -1,3 +1,165 @@
+###  Публикация: 1128366   (728435) от 24.04.2017
+
+Mozgi - На белом (2017) [MP3|320 Kbps] <Pop, Dance-Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интролль
+02. Мощь (Сила)
+03. Казино (Попёрло) (Скит)
+04. Ипо Ипо(   Читать дальше...   )Жанр: Pop, Dance-PopПродолжительность: 00:25:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52F9674BEF39D27E1DE422D9ABC85A496C9A8E89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128385   (728661) от 24.04.2017
+
+Белый День - Весело живём! Лучшие песни (2004) Compilation [APE|Lossless|image + .cue] <Pop-Folk>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Весело живём!
+02. Дарья
+03. Ах, мамочка
+04. Валенки(   Читать дальше...   )Жанр: Pop-FolkПродолжительность: 01:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10BD441354E661793A317E440388EC10F5F5C4C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128381   (728672) от 24.04.2017
+
+Белый День - Трактористка (2003) [FLAC|Lossless|image + .cue] <Pop-Folk>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Трактористка
+02. Димочка
+03. Дарья
+04. Встали высокие сосны(   Читать дальше...   )Жанр: Pop-FolkПродолжительность: 00:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE847C75608657D56BC2B60A7D8DD8DE6E56991
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530531   (728694) от 11.02.2022
+
+VA - Созвездие хитов. Застольные песни 1 (2004) [MP3|320 Kbps] <Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А. Джигарханян - ...щас спою! ( из М/ф )
+02. В. Девятов - Коробейники
+03. О. Воронец - Ромашки спрятались
+04. А. Литвиненко и Т. Мушта - Огней так много золотых(   Читать дальше...   )Жанр: РетроПродолжительность: 01:08:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6834181C218CBA378F0889F0E3F90F68FB2EBD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022494   (728710) от 02.06.2016
+
+Fifth Harmony - Reflection (2015) Deluxe Edition [FLAC|Lossless|image + .cue] <Pop, Dance, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Top Down 3:40
+02. BO$$ 2:51
+03. Sledgehammer 3:51
+04. Worth It (feat. Kid Ink) 3:45(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD40757C2EE02933F38B8BD8A4E4871EA2227A15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530551   (728801) от 11.02.2022
+
+VA - Созвездие хитов-киношлягеры vol.1 (2004) [MP3|320 Kbps] <Soundtrack>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оркестр Ленинградской Гос. Филармонии - Увертюра
+( к/ф Приключения Шерлока Холмса и Доктора Ватсона )
+02. А. Ведищева - Песня о медведях
+( к/ф Кавказкая пленница )(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:10:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B20BEEE28E6705F658FF1C753B6F38E66F4B918
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022598   (728824) от 02.06.2016
 
 Queen Samantha - The Letter (The Best Of) (1994) [MP3|320 кб/с] <Electronic, Hi NRG, Disco>
@@ -527,168 +689,6 @@ VA - Latin Summer 2K17 (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AFE68A8F5D4131F3AFAE0A965BBF981EA0F5E27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283898   (730942) от 19.02.2019
-
-VA - Car Songs: The Anthems (2019) 4CD [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730942.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Meat Loaf - Dead Ringer For Love
-02. Bonnie Tyler - Holding Out For A Hero
-03. Cyndi Lauper - I Drove All Night(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F8E54BA5E432D717E3D1A556A6404BDFD8D87D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022094   (730949) от 31.05.2016
-
-Arthur Beatrice - Working Out (2014) [FLAC|Lossless|tracks] <Alternative Pop, Indie Pop, Indie Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Councillor
-02. Late
-03. Midland
-04. Carter (Uncut)(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Indie RockПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767FA09EDC92632D9F030E6CAA48909A6A97EA7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021976   (730992) от 31.05.2016
-
-Omer Ozgur - We Are All the Same (2016) [MP3|320 кб/с] <Pop, Rock, Blues>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are All the Same
-02. In Maldives
-03. The Girl Who Knows Everything
-04. No Sign(   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F92FCAC3B93184DBECBD45D75A5E18215B6E53F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022007   (731078) от 31.05.2016
-
-Rachael Sage - Choreographic (2016) [MP3|320 кб/с] <Pop, Folk, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven (Is A Grocery Clerk)    04:03
-02. Loreena    03:52
-03. Try Try Try    04:00
-04. Home (Where I Am Now)    04:34(   Читать дальше...   )Жанр: Pop, Folk, RockПродолжительность: 00:56:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C961C810A8970E766EA9EC7ECD5CD0DD84AEAB09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283738   (731715) от 18.02.2019
-
-VA - 100 Hits - The Best 80s Album (2018) 5CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731715.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Bonnie Tyler - Holding Out For A Hero
-02. Cyndi Lauper - I Drove All Night
-03. Belinda Carlisle - Leave A Light On(   Читать дальше...   )Жанр: PopПродолжительность: 06:27:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:896AD27518F9B7A664F48A6D9D9813AEE6673A9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127404   (731720) от 21.04.2017
-
-DJ BoBo - 25 Years (Greatest Hits) (2017) [MP3|320 Kbps] <Eurodance, Europop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Freedom  3:55
-02.  Everybody  3:50
-03.  Somebody Dance with Me  3:33
-04.  Pray  3:52(   Читать дальше...   )Жанр: Eurodance, EuropopПродолжительность: 02:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB769CF94E946D9D0F1021B57055507129971A8C
 ```
 
 

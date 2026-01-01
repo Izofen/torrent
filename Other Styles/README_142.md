@@ -1,3 +1,192 @@
+###  Публикация: 1118282   (811374) от 26.03.2017
+
+Ryan Farish - United (2017) [FLAC|Lossless|tracks] <Electronic, New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skies [00:04:52]
+02. Shooting Star [00:04:15]
+03. United [00:04:18]
+04. ForAva [00:02:58](   Читать дальше...   )Жанр: Electronic, New Age, DowntempoПродолжительность: 01:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A93B7AD97752C0F2C74FB92444BEF24D897429F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118044   (811474) от 26.03.2017
+
+VA - Sensual Meditation: Emotional Music, Deep Feeling Connection, Tantra Meditation (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erotic Massage Music Ensemble - Spa Music
+02. Improving Concentration Music Zone - Meditation
+03. Relaxing Night Music Academy - Silk Touch
+04. Mindfullness Meditation World - Calm Music(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F8A9806FAC7D1B6E68320FF3D83BC6FFE4B570E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197521   (811605) от 09.01.2018
+
+Hidehiko Matsumoto & Yoshio Kimura - Festival of Enka (1969) [MP3|320 Kbps] <Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hatoba Onna no Blues  (02:58) 
+02. Inochi Azukemasu  (02:33) 
+03. Keiko no Yume wa Yoru Hiraku  (02:47) 
+04. Koi Hitosuji  (02:48) (   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:424ABA3B1160F541FA46B1F08BC3882F96D5EBA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198053   (811878) от 09.01.2018
+
+Chicago Afrobeat Project, Tony Allen - What Goes Up (2017) [FLAC|Lossless|tracks + .cue] <Afrobeat>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bee Hive (feat. Tony Allen, Akenya, Isaiah Oby)
+02. Race Hustle (feat. Tony Allen, J.C. Brooks)
+03. Cut the Infection (feat. Tony Allen, Oranmiyan)
+04. I No Know (feat. Tony Allen, Ugochi)(   Читать дальше...   )Жанр: AfrobeatПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483E0046F7CEF910479E754CD693DB134612E4C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197875   (811881) от 09.01.2018
+
+Wychazel - Runecaster - The Very Best of Wychazel (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wildwood
+02. Wildwood Priestess
+03. Old Gods & Ancient Stones
+04. Lemuria(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AA32906844ED94D6BC997E48376485668F309F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197907   (811887) от 09.01.2018
+
+Kathryn Kaye - Songs of Changing Light (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter's Deepest Sleep
+02. Summer Afternoon
+03. Taos Song
+04. Heavy as a Feather(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4EE97FD60F2F10445864768A393B7950088A5BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009122   (811919) от 20.04.2016
+
+Faranak Shahroozi - Eternal Love (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternal Love    03:08
+02. You're My Everything    03:09
+03. Remembering the 80's    03:06
+04. Persia    03:51(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDB338ABB881AF819E20A1067BBCEBB280032049
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197628   (812013) от 09.01.2018
 
 Arsenal - De Poolreizigers (Soundtrack) (2007) [MP3|320 Kbps] <Cinematic Themes, Instrumental, Electronic>
@@ -500,193 +689,6 @@ Jon Henrik Fjallgren - Goeksegh - Jag ar fri (2015) [FLAC|Lossless|tracks] <Ethn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85A0B3766C19E0729833DA6CF185251E3C62610D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117624   (816898) от 23.03.2017
-
-VA - Dream Therapy (Top Deep Sleep Music, Dream Meditation, Sleep Yoga Nature Music) (2017) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Deep Sleep Hypnosis Masters - Massage Music  3:26
-02.  Deep Sleep Hypnosis Masters - Relaxing Theapy Music  3:19
-03.  Meditacao Espiritualidade Musica Academia - Chinese Meditation  3:52
-04.  Relaxing Night Music Academy - Ocean Waves  4:02(   Читать дальше...   )Жанр: Downtempo, Chillout, Ambient, New AgeПродолжительность: 01:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6A6DA01FCBA1A03D4893C366C8DD82CE4401B04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117589   (817035) от 23.03.2017
-
-VA - Tibetan Waves: Asian Ambient Relaxing Spirit, Deep Focus, Meditation Tibetan Music (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mindfullness Meditation World - Serenity Soul
-02. Tibetan Meditation Academy - Healing Sounds (Chimes)
-03. Therapeutic Tibetan Spa Collection - Tibetan Meditation
-04. Buddhist Meditation Temple - Relaxing Bowls(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82BF060626922089ADC721683DA781E2FEC746E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117633   (817047) от 23.03.2017
-
-Gomer Edwin Evans - Music for Lovers (1992) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817047.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nights in Black Satin (30:01)
-2. Love on the Beach (29:47)Жанр: New Age, InstrumentalПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D9A2FC426E32972F4BA97FCB162E2538859C25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196572   (817293) от 06.01.2018
-
-Shinnobu - Libertus (2017) [MP3|320 Kbps] <Neo-Classical, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817293.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Orion	4:06
-2.	Between Etheric Dreams	5:08
-3.	Erminig Enigmatic World	5:23
-4.	Unusual	5:15(   Читать дальше...   )Жанр: Neo-Classical, Ambient, New AgeПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A7DF5EFDB3C02B3D7F549FD46E36E9335FA84EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382669   (817374) от 12.05.2020
-
-Asian Zen - Ambient Meditative Experience (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817374.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Yoga Trance 02:51
-2. Sun Salutation 03:06
-3. Awaken Your Energy 03:17
-4. Total Relaxation 03:18(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6407700E55FF17CE8FC531330C3EB9E5398006EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196653   (817440) от 06.01.2018
-
-ГештальТ - РекА (2014) OST [MP3|320 Kbps] <Electronic Pop Rock>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ЛунА
-02. КапканЫ
-03. ВеселА
-04. Я рядоМ(   Читать дальше...   )Жанр: Electronic Pop RockПродолжительность: 00:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6795E6C5005A672D2896524B71E13FBAFE5AED59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197064   (817571) от 06.01.2018
-
-Back to Earth - The Journey to the Inner Island (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age: Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Journey to Island B. One
-02. The Journey to Island A. Two
-03. The Journey to Island C. Three
-04. The Journey to Island K. Four(   Читать дальше...   )Жанр: New Age: RelaxationПродолжительность: 01:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677C2A0C389AC8009E370F1298F2395EFF58B6D4
 ```
 
 

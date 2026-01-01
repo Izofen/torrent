@@ -1,3 +1,219 @@
+###  Публикация: 1227342   (648591) от 25.05.2018
+
+Jeri Brown & Jimmy Rowles - A Timeless Place (1995) Justin Time [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Star [6:48]
+02. After School [5:10]
+03. Baby, Don't Quit Now [6:44]
+04. A Timeless Place [7:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E35C40F3993ABC9421A5851D1E1450ED9DB9871
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227335   (648595) от 25.05.2018
+
+Makoto Terashita - Great Harvest (1978) 2014, Think! Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samoa [7:27]
+02. Take the Coltrane [5:31]
+03. Dai Hosaku (Great Harvest) [11:29]
+04. Tell Me an Old Story, Grand Papa [12:40](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E3C77759E5A9708EFDA275BEA84AD0BECAA804
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227339   (648600) от 25.05.2018
+
+Jimmy Rowles - Lilac Time (1994) Kokopelli Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music, Music Everywhere [5:19]
+02. Lullaby of the Leaves [5:28]
+03. Theme from Arrest & Trial [6:37]
+04. Accent on Youth [5:18](   Читать дальше...   )Жанр: Cool, Mainstream Jazz, Vocal JazzПродолжительность: 01:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E7B76003ED0A59C7AE3E8C1E9EABCD645C7FFCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141690   (648611) от 11.06.2017
+
+Chick Corea - The Musician (2017) 3CD, Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Captain Marvel [08:16]
+02. Light as a Feather [14:17]
+03. I Hear a Rhapsody [09:26]
+04. Spirit Rides [13:01](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 03:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7031DAE05BC1F10A395A00F725CEA1ECF3886362
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292121   (648637) от 28.03.2019
+
+Dr. Wu' and Friends - Hangin' With Dr. Wu' Texas Blues Project, Vol. 4 (2013) [MP3|320 Kbps] <Blues Rock, Texas Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Need a Witness (06:02)
+02. Shouda, Couda, Wouda (04:10)
+03. When Your Lips Start Moving (04:42)
+04. Voodoo Doll (Hendrix Slight Revisit) (03:49)(   Читать дальше...   )Жанр: Blues Rock, Texas BluesПродолжительность: 00:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EDFB0C0144E1185204608FBB19BEF8F3529E6F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141859   (648704) от 11.06.2017
+
+Paul Black - Blue Words (2009) [APE|Lossless|image + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talk To Me  (04:04) 
+02. Slippin Away  (04:04) 
+03. Jelly Fish  (03:09) 
+04. Breathe  (04:33) (   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E89BA385FA15812EF871602C05415E2387A487A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292201   (648748) от 28.03.2019
+
+Hat Fitz & Cara - Hand It Over (2019) [FLAC|Lossless|tracks + .cue] <Blues, Folk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648748.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Step Up (6:01)
+2. City Lights (3:18)
+3. Hold On (3:59)
+4. Harbour Master (3:18)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FAFFFDDDFC658D727C941E36E4093F3A5A45CCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141811   (648814) от 11.06.2017
+
+Bob Belden Ensemble - Treasure Island (1990) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Treasure Island - 7:40
+02. Deja Vu - 9:17
+03. The Treasure - 4:51
+04. Rites of Passage - 5:15(   Читать дальше...   )Жанр: Contemporary Jazz, Post-Bop, FusionПродолжительность: 01:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADF0A40C091B9B7656245E519813CF70F9041A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141694   (648815) от 11.06.2017
 
 Lars Gullin - with Chet Baker: 1955 - 56, Vol.1 (1992) Dragon Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
@@ -480,222 +696,6 @@ Harpdog Brown - For Love & Money (2019) [FLAC|Lossless|tracks + .cue] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A80C7DF22E2CA2EEE33C96D912BCD0E0B8EC522
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291916   (650694) от 27.03.2019
-
-David Murray - The London Concert (1999) 2CD, Cadillac Records [FLAC|Lossless|image + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650694.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. JasVan (for James VanDerzee) [20:24]
-02. Home [16:36]
-03. Secret Of The Circle [22:00](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 02:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE45AB9EEBF9CC041DF97FB75D91C7D12252E1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291919   (650695) от 27.03.2019
-
-Dizzy Gillespie - 1946 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Bass Hit - Part 1 [2:54]
-02. Oop Bop Sh'Bam [3:02]
-03. A Hand Fulla Gimme [3:02]
-04. That's Earl Brother [2:42](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 01:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72DBC227B8B3A600C231B2E80E491137C71B60F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291918   (650696) от 27.03.2019
-
-George Wallington - Knight Music (1956) 2000, Koch Jazz [APE|Lossless|image + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Godchild [3:19]
-02. Serendipity [3:05]
-03. Billie's Tune [3:05]
-04. The Ghostly Lover [3:47](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D21E3BA17B71B7DE428254F1892664E4B92447
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540759   (650756) от 31.03.2022
-
-Eclectic Maybe Band - Again Alors? (2022) [FLAC|Lossless|image + .cue] <Jazz-Rock, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650756.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Disquiet. 13:18
-2. Retable Vertigineux. 8:03
-3. Further on The Ladder. 7:22
-4. Tingling Skin. 6:27(   Читать дальше...   )Жанр: Jazz-Rock, FusionПродолжительность: 01:10:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23F6761690293C9FE6879DF197B402A6779657F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540676   (650759) от 31.03.2022
-
-Joscho Stephan - Django Nuevo (2009) Acoustic Music Records [FLAC|Lossless|tracks + .cue] <Swing, Gypsy, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stomp [3:10]
-02. So Rare [3:07]
-03. Rondo Alla Turca [2:03]
-04. If I had You [5:06](   Читать дальше...   )Жанр: Swing, Gypsy, Guitar JazzПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:661E98B12FB01D357B67BF15F76D643E41A932E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904747   (651111) от 05.06.2015
-
-Rufus - Party 'Til You're Broke (1981) Remastered /2012, Geffen Records/ [FLAC|tracks+.cue]<Soul, Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonight We Love (4:33)
-02. Hold On To A Friend (3:18)
-03. Love Is Taking Over (4:07)
-04. Secret Love (3:51)(   Читать дальше...   )Жанр: Soul, FunkПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA7984ABF80EA73920991BDB65BE5BA236BC5972
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904991   (651331) от 05.06.2015
-
-Gerry Mulligan - The Complete Verve Gerry Mulligan Concert Band Mosaic (May 21, 1960 - December 21, 1962) [FLAC|Lossless]<Jazz, Cool Jazz, Saxophone Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651331.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Little Rock Getaway (Joe Sullivan) 3:06
-2. Ballad (Gerry Mulligan) 4:16
-3. Big City Life (Bob Brookmeyer) 5:23
-4. Big City Blues (Bob Brookmeyer) 5:44(   Читать дальше...   )Жанр: Jazz, Cool, Saxophone Jazz, Contemporary Jazz, Hard Bop.Продолжительность: 04:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:429C6D1F707C4331E6311893D38B51A6FD1B7207
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904768   (651565) от 05.06.2015
-
-The Isley Brothers - Go For Your Guns (1977) Remastered /2011, Big Break Records/ [FLAC|tracks+.cue]<Funk, Soul, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pride (Parts 1 & 2) (5:34)
-02. Footsteps in the Dark (Parts 1 & 2) (5:07)
-03. Tell Me When You Need It Again (5:03)
-04. Climbin' Up the Ladder (Parts 1 & 2) (6:39)(   Читать дальше...   )Жанр: Funk, Soul, R&BПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:156773ED6016376092F97263A16140ACB6128469
 ```
 
 

@@ -1,3 +1,191 @@
+###  Публикация: 1119633   (805602) от 29.03.2017
+
+Jon Ekstrand - Life / Живое (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to the ISS (04:32)
+02. It's Alive (03:55)
+03. Like a Bird (02:11)
+04. Care to Dance ? (01:39)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06EF799BF014E585A3D082AA330808AC16A24108
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119778   (805611) от 29.03.2017
+
+Benjamin Wallfisch - Bitter Harvest / Урожай дьявола (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rusalka (04:52)
+02. Portrait (02:57)
+03. Lake Ritual (01:08)
+04. Red Star (01:55)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8FF6C9F3E9B9D748B2E0AD0DE8A3F3BAF5807E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119826   (805616) от 29.03.2017
+
+Tim Wheater - Whalesong (1991) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing With The Whales (30:19)
+02. Whale Echoes (30:54)
+03. Song Of The Southern Humpback Whale (10:41)Жанр: New AgeПродолжительность: 01:11:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:264CC15CE788209F41A7CAD5137AEDD54FB47EEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010059   (805670) от 23.04.2016
+
+Leo Rojas - Spirit Of The Hawk (2012) [FLAC|Lossless|tracks + .cue] <Panflute, New Age, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Rain (Part 1)
+02. Winnetou
+03. White Arrows
+04. En Aranjuez Con Tu Amor(   Читать дальше...   )Жанр: Panflute, New Age, FolkПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47A418357F65C8206D9E1D5457ADA5D89474D373
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119754   (805741) от 29.03.2017
+
+Sasha Merkulov - Absolutely Free Album (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thanks So For Pushing Record Button [00:04:15]
+02. Deep Inside [00:06:16]
+03. Don't look at him [00:04:32]
+04. Forest Soul [00:05:34](   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 00:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B541FD1F308343275FE907325489D01ADCE1E311
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119771   (805742) от 29.03.2017
+
+Rupert Gregson-Williams - Hacksaw Ridge / По соображениям совести (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Okinawa Battlefield (03:59)
+02. I could Have Killed Him (02:20)
+03. A Calling (02:42)
+04. Pretty Corny (01:44)(   Читать дальше...   )Жанр: Soundtrack, Score
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB674F0985B71B19B2F3A7027149CC0311D92274
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009832   (805994) от 23.04.2016
+
+Timothy Wenzel - Distant Horseman (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Bend in the River (feat- Josie Quick)    04:23
+02. Distant Horseman (feat- Josie Quick)    05:05
+03. Turn and Walk Away    04:00
+04. A Night so Cold (feat- Josie Quick)    05:04(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF20CA73360F5BEA378156984F1DAFEA5AFF8467
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198499   (806178) от 12.01.2018
 
 Ramin Djawadi - Игра престолов Сезон 7 / Game of Thrones Season 7 (2017) [MP3|320 Kbps] <Score>
@@ -504,195 +692,6 @@ En Voice - Дискография (2005-2006) [FLAC|Lossless]<Ambient, Chillout,
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118282   (811374) от 26.03.2017
-
-Ryan Farish - United (2017) [FLAC|Lossless|tracks] <Electronic, New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skies [00:04:52]
-02. Shooting Star [00:04:15]
-03. United [00:04:18]
-04. ForAva [00:02:58](   Читать дальше...   )Жанр: Electronic, New Age, DowntempoПродолжительность: 01:02:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A93B7AD97752C0F2C74FB92444BEF24D897429F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118044   (811474) от 26.03.2017
-
-VA - Sensual Meditation: Emotional Music, Deep Feeling Connection, Tantra Meditation (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erotic Massage Music Ensemble - Spa Music
-02. Improving Concentration Music Zone - Meditation
-03. Relaxing Night Music Academy - Silk Touch
-04. Mindfullness Meditation World - Calm Music(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F8A9806FAC7D1B6E68320FF3D83BC6FFE4B570E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197521   (811605) от 09.01.2018
-
-Hidehiko Matsumoto & Yoshio Kimura - Festival of Enka (1969) [MP3|320 Kbps] <Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hatoba Onna no Blues  (02:58) 
-02. Inochi Azukemasu  (02:33) 
-03. Keiko no Yume wa Yoru Hiraku  (02:47) 
-04. Koi Hitosuji  (02:48) (   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:424ABA3B1160F541FA46B1F08BC3882F96D5EBA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198053   (811878) от 09.01.2018
-
-Chicago Afrobeat Project, Tony Allen - What Goes Up (2017) [FLAC|Lossless|tracks + .cue] <Afrobeat>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bee Hive (feat. Tony Allen, Akenya, Isaiah Oby)
-02. Race Hustle (feat. Tony Allen, J.C. Brooks)
-03. Cut the Infection (feat. Tony Allen, Oranmiyan)
-04. I No Know (feat. Tony Allen, Ugochi)(   Читать дальше...   )Жанр: AfrobeatПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:483E0046F7CEF910479E754CD693DB134612E4C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197875   (811881) от 09.01.2018
-
-Wychazel - Runecaster - The Very Best of Wychazel (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wildwood
-02. Wildwood Priestess
-03. Old Gods & Ancient Stones
-04. Lemuria(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:22:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AA32906844ED94D6BC997E48376485668F309F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197907   (811887) от 09.01.2018
-
-Kathryn Kaye - Songs of Changing Light (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter's Deepest Sleep
-02. Summer Afternoon
-03. Taos Song
-04. Heavy as a Feather(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4EE97FD60F2F10445864768A393B7950088A5BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009122   (811919) от 20.04.2016
-
-Faranak Shahroozi - Eternal Love (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternal Love    03:08
-02. You're My Everything    03:09
-03. Remembering the 80's    03:06
-04. Persia    03:51(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDB338ABB881AF819E20A1067BBCEBB280032049
 ```
 
 

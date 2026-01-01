@@ -1,3 +1,30 @@
+###  Публикация: 972918   (980700) от 07.01.2016
+
+Hinds - Leave Me Alone (2016) [MP3|256 кб/с] <Alternative Rock, Indie Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Garden
+02. Fat Calmed Kiddos
+03. Warts
+04. Easy(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Garage RockПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0111693442E5210166B927CB4E3FC4E442A814A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 741850   (982261) от 04.01.2014
 
 Distant Dream - A New Beginning (2005) [MP3|320 кб/с]<Progressive rock>
@@ -735,33 +762,6 @@ Radical Face - 6 альбомов (2003-2012) Discography [MP3|320 кб/с]<Indi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AAA449DAE20ED8C9E870D734157F3D732828D76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601823   (997870) от 12.01.2013
-
-Landing - Wave Lair [EP] (2012) [MP3|320 кб/с]<Post Rock, Shoegaze, Dream Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patterns
-02. Resonance
-03. Cover Bare Arms
-04. Wave LairЖанр: Post Rock, Shoegaze, Dream PopПродолжительность: 00:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88087E62DA18AC1946DE09497B3F4AAF517CAA93
 ```
 
 

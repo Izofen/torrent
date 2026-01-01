@@ -1,3 +1,30 @@
+###  Публикация: 1015483   (773984) от 11.05.2016
+
+VA - Popular Britpop May (2016) [MP3|210-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773984.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shawn Mendes - Stitches
+002. Lukas Graham - 7 Years
+003. Dua Lipa - Be The One
+004. Alan Walker - Faded(   Читать дальше...   )Жанр: PopПродолжительность: 05:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB2A07AB4CC57AE45F57130562ED9D80214F40B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212853   (774006) от 14.03.2018
 
 Savage - Only You (2017) Remix [MP3|320 Kbps] <Club, Dance>
@@ -666,33 +693,6 @@ VA - Deep Night: Deep House Selection (2016) [MP3|320 кб/с] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4467AAD9299F61DC5BF96745F249BFFF4D61F663
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015495   (775080) от 10.05.2016
-
-VA - Luxury Chill House (2016) [MP3|320 кб/с] <Chillout, Downtempo, Chillhouse>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Kohlstedt - Ell (Christian Loffler Rework)
-02. Kiasmos - Looped
-03. Weus - For The Night
-04. Rodg - Life Is Life (Chill Mix)(   Читать дальше...   )Жанр: Chillout, Downtempo, ChillhouseПродолжительность: 03:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:432E9768B035E402DB8965203F4304136C835278
 ```
 
 

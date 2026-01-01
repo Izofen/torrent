@@ -1,3 +1,165 @@
+###  Публикация: 1385841   (796650) от 26.05.2020
+
+VA - Top 100 Hits (2020) [MP3|320 Kbps] <Euro Dance, Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796650.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Colton O'Brien - Too Close (Cover Of Alex Clare) 4:13
+002. Lemon Tart - Don't Run Away (Cover Of Tyler James Williams) 2:58
+003. KnightWest - Girl on Fire (Cover Of Alicia Keys) 4:28
+004. Elia Marathi - Bad (Cover Of David Guetta & Showtek) 2:52(   Читать дальше...   )Жанр: Euro Dance, Pop, DanceПродолжительность: 05:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5845A961166C0445C731EA25D5F6A054CF67CA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508717   (796804) от 09.11.2021
+
+Adriano Celentano - 24.000 Baci (1987) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 24.000 Baci	2:15
+02. Nata Per Me	2:46
+03. Non Esiste L'Amor 2:12
+04. Il Ribelle 2:20(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:298D29640D059DCA851B66A85764B5D562B1FFBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200063   (796838) от 19.01.2018
+
+Sabrina - Boys (2000) [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boys
+02. Like A Yo Yo
+03. Sexy Girl
+04. All Of Me(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2D79AF45719C6ABD941EC9A231BB98E356BF97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200179   (796844) от 19.01.2018
+
+VA - Giorgio Moroder - On The Groove Train 1974-1993 (Vol.1,2) (2012, 2013) 4CD [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796844.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли ремастированные, известные и редкие выборки из проектов маэстро Giorgio Moroder.01. Brian Evans - Lonely Lovers Symphony (3:54)
+02. Brian Evans - Crippled Words (3:18)
+03. Dino Solera - Classically Elise (Elise 77) (Album Version) (5:26)
+04. Trax - Watch Out For The Boogie Man (Single Version) (3:46)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 05:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB0A067653869AF87D2AACF0DE50D24A9124DA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508634   (796859) от 09.11.2021
+
+Nik Kershaw - The Works (1989) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Step Ahead
+02. Elisabeth's Eyes
+03. Take My Place
+04. Wounded Knee(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4219C17C4441EF350106B2D1011E01D51035626
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011309   (796876) от 27.04.2016
+
+Giorgio Moroder Remix Project - E=APC2   Audio Porn Central (2012) [MP3|320 кб/с] <Disco, House, Electro >
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. E=MC2 (Dirty McKenzie's Evolution Remix)   (6:27)
+02. E=MC2 (A Copycat Remix)   (8:57)
+03. E=MC2 (Divide & Kreate Remix)   (4:26)
+04. E=MC2 (Dunproofin' Refix)   (5:46)(   Читать дальше...   )Жанр: Disco, House, ElectroПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A4E639C99DED6C77C3910BBB26E58F9D735A1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199914   (796898) от 19.01.2018
 
 VA - Disco Revival (2018) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
@@ -533,168 +695,6 @@ ABBA - Voyage (2021) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF0C460E3FF37E2D1F9E306F5C17893EE7E19BE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507598   (798243) от 05.11.2021
-
-ABBA - Voyage (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Still Have Faith In You (5:09)
-02. When You Danced With Me (2:50)
-03. Little Things (3:08)
-04. Don't Shut Me Down (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A954D8FCA97188C542DEFEBF21AF8C315A4F4704
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507721   (798244) от 05.11.2021
-
-VA - Трибьют t.A.T.u. "200 по встречной" (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798244.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Даня Милохин - Не догонят
-2. Монеточка - Мальчик-гей
-3. Вера Брежнева - 30 минут
-4. ЛСП/White Punk - Клоуны(   Читать дальше...   )Жанр: PopПродолжительность: 01:25:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F39E934B5F79B06B065AC71353C7EC1015525E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507650   (798269) от 05.11.2021
-
-Fancy - Hit Party (1998)(Compilation)[FLAC|Lossless|image + .cue] <Euro-disco, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flames of Love (bass up version)
-02. Blue Eyes and a Broken Heart
-03. Fools Cry
-04. Slice Me Nice(   Читать дальше...   )Жанр: Euro-disco, SynthpopПродолжительность: 01:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B2A605627524887A6F1E1BB5B082E18D85DBBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507723   (798273) от 05.11.2021
-
-MARUV - No Name (2021) [MP3|320 Kbps] <Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798273.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Money
-2. Ne zabudu
-3. Put your hands up
-4. You and I(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E2237384C16616D3A75447D25E0F026FD00044
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507163   (798637) от 03.11.2021
-
-Blue System - My Star (2021) [FLAC|Lossless|tracks + .cue] <EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sorry Little Sarah (Maxi Version) (5:16)
-02. Big Boys Don't Cry (3:13)
-03. My Bed Is Too Big (No Longer Too Big Bed Mix) (5:28)
-04. Under My Skin (Radio Version) (3:35)(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB90366F3E299C65F2992C1FC60AA88571035FA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518187   (798651) от 04.01.2019
-
-Крис Кельми - Greatest Hits (1993) [MP3|320 кб/с]<Pop, Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ночное рандеву
-02. Усталое такси
-03. Козырная дама
-04. Леди Блюз(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA2ACDD4194F817B210CA9453B8B76E6BBF92C1
 ```
 
 

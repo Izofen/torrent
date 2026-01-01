@@ -1,3 +1,30 @@
+###  Публикация: 977546   (965675) от 21.01.2016
+
+VA - Reflective Deep House Mix (2016) [MP3|320 кб/с] <Deep House, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965675.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Roberto Rich - Santorini Night - Riviera Mix
+002. Alle Farben - Danse (Drauf & Dran Remix)
+003. Ataneus - Aquamarine (Aike Remix)
+004. Cosmo Klein - Diggin for Gold (Extended Mix)(   Читать дальше...   )Жанр: Deep House, Club, ElectroПродолжительность: 11:06:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B912B900E4333B18D28EA01BAB9CC094ABC817F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977436   (965679) от 21.01.2016
 
 VA - Trance Desire Volume 60 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
@@ -686,33 +713,6 @@ VA - 90s & 00s Covers Playlist (2015) [MP3|320 кб/с] <Pop, Covers>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17334A5770E572234201A134574A1321FBC04C55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976895   (967786) от 19.01.2016
-
-VA - Battle DJ (2016) [MP3|320 кб/с] <Dance, Club, House, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. IOWA - Бьёт Бит (Dj Andy Light & Dj O'Neill Sax Remix)
-02. Mike Candys feat. Evelyn & Tony T - Everybody (Tony Kart & Alexx Crown Remix)
-03. Ost Up - Про него (Dj MriD & Tony Kart Remix)
-04. Тимати feat. Рекорд Оркестр - Баклажан ( Viduta Remix )(   Читать дальше...   )Жанр: Dance, Club, House, TranceПродолжительность: 07:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E08E25BAD8F614A05E9AE5215737E3B95ACECBD
 ```
 
 

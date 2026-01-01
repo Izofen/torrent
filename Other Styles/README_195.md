@@ -1,3 +1,192 @@
+###  Публикация: 375546   (1030579) от 18.02.2021
+
+VA - Erotica (1977) [FLAC|Lossless] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фонтан эмоций и чувств на фоне прекрасной музыки. Эта подборка выходила под разными названиями, встречаются как минимум три - Les Vibrations, Erotheque, или просто - Erotica. Кстати, в те далекие года, в нашем народе этот сборник называли никак иначе как ...секс музыка.01. Nathalie Et Serge - Je T' Aime...Moi Non Plus 	(05:30)
+02. Nathalie Et Christine Avec Les Vibrations - Kiss 	(05:12)
+03. Les Vibrations - Emmanuelle 			(03:41)
+04. Andrea E Nicole - Sa Prima Volta 			(03:57)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F48589D2A95E0BE1E37403FDD19B7A034BFD5261
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 199315   (1030581) от 18.02.2021
+
+VA - La collection Latina Tango (2007) Compilation, Digipak [APE|Lossless|image + .cue] <Neo Tango>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quinteto Real - Canaro en Paris (2:51)
+02. Daniel Melingo - Noche Trasfigurada (1:32)
+03. Gallo Ramiro Quinteto - Al amigo Pablo Rago (4:22)
+04. Carlos Gardel - Anclao En Paris (2:08)(   Читать дальше...   )Жанр: Neo TangoПродолжительность: 01:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC7EED3996B8319A87BE11BB10C7D883FDEFE7C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 295442   (1030584) от 18.02.2021
+
+Оркестр Вермишель - 5 альбомов (1996 - 2010) [FLAC|Lossless|tracks + .cue, image + .cue] <Instrumental, Ethno-Art-Rock>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030584.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Оркестр Вермишель» («Vermicelli Orchestra») — российский инструментальный ансамбль, этно-арт-рок проект. Основатель коллектива и основной автор музыки — Сергей Щураков. Группа образована в 1996 году, состав группы менялся несколько раз и окончательно сформировался к 2000 году. В составе группы играли Илья Порхунов, Виталий Семенов, Наиль Кадыров, Всеволод Гаккель, (   Читать дальше...   )Список альбомов:
+1996 (2001) - Anabasis
+1999 - Византия
+2005 - Марк Аврелий(   Читать дальше...   )Жанр: Instrumental, Ethno-Art-RockПродолжительность: 03:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4ABBE4CD0A8CBE7AA946D345E2223AB9E9FE9F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 354958   (1030589) от 18.02.2021
+
+Валерий Приказчиков - 2 альбома (2004, 2008) [FLAC|Lossless|image + .cue, tracks] <Surf, Beat>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебют квартета «Электрон» состоялся в 1963 году в эфире популярной в то время радиостанции «Юность». Участники «Электрона» в разное время учились в музыкальных школах, В. Приказчиков и Е. Гусев занимались в музыкальном училище при Московской консерватории по классу гитары. Но настоящую школу они получили в художественной самодеятельности, в ансамбле гитаристов, которым (   Читать дальше...   )01. Электрон - Вернись 			  (1965) (02:33)
+02. Электрон - Мелодия из к-ф 'Бум' 	  (1965) (02:37)
+03. Электрон - Солнечные часы 		  (1966) (02:35)
+04. Электрон - Веселые туристы 		  (1966) (02:02)(   Читать дальше...   )Жанр: Surf, BeatПродолжительность: 01:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE961A8C2B3D5037F1CDA677636D71B9BC8C11B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 257665   (1030590) от 18.02.2021
+
+VA - Tango Planet – The Best Of Tango (1998) [FLAC|Lossless|image + .cue] <Tango>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Cumparasita - Julio Cortazon Orchestra 	(03:20)
+02. Adios Muchachos - Julio Cortazon Orchestra 	(01:39)
+03. El Choclo - Alle Gould Orchestra 		(02:18)
+04. Rio De La Plata - Armand Frydman & Deni Hekimian 		(02:20)(   Читать дальше...   )Жанр: TangoПродолжительность: 01:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E323A2A5ADFE709876BF18B6C60D282B3304D13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288570   (1030598) от 18.02.2021
+
+VA - Original Musette (2000) [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le p'tit bal du samedi soir (02:39)
+02. Caroussel Java 		(02:51)
+03. Java Militaire 		(02:19)
+04. La Java Bleue 		(02:46)(   Читать дальше...   )Жанр: Instrumental, AccordionПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE378FF2B6741713BA0298852237A6D79FC21DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 314732   (1030601) от 18.02.2021
+
+Bernd Steidl - Paganiniana (2001) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hrx 		        (00:25)
+02. Made in Germany 	(03:06)
+03. Apocalypse 		(04:51)
+04. Paganiniana 1 	(02:02)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D78677D48A73194545776A0E48661E5DB5DC34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448174   (1030910) от 17.02.2021
 
 The Harmony Group - Spanish Guitar Tribute to Abba (2007) Brisa Records, 2015 [FLAC|Lossless|WEB-DL|tracks] <Pop, Guitar, Instrumental>
@@ -504,195 +693,6 @@ Blackmore's Night - Shadow of the Moon (1997) 25th Anniversary Edition, 2023, Mi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:862D72FEDAC63EF45FB986D0EF5DB8B8023CE2D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616943   (1034536) от 09.03.2023
-
-VA - Enigma-Forest-Transit 3 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Physical Motion - Ave Maria
-02. Gregoria - The Rhythm
-03. Karunesh - Call of the Tribes
-04. Beautiful World - The Silk Road(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 01:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:996CDC8270F2E41DB4B988B74ECA92C64E451783
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617225   (1034538) от 09.03.2023
-
-VA - Enigma-Forest-Transit 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. eRa - Sempire d'Amor
-02. Delerium - Silence
-03. Beautiful World - Fearless
-04. Pandana - One Man Woman(   Читать дальше...   )Жанр: Electronic, New Age, DowntempoПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:403B15D5D350F670374AC0CD136D50126E6B652F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617498   (1034731) от 08.03.2023
-
-VA - Enigma-Forest-Transit 5 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Wave>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Megabyte - Electric Lover
-02. Interface - Strange Touch
-03. Dancing Fantasy - Voodoo Jammin (The Eros Mix)
-04. Software - Present Voice(   Читать дальше...   )Жанр: Electronic, Ambient, New WaveПродолжительность: 01:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:970CEA88FE6E2CA46FC22CF3BB2325C7938FA93B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617377   (1034797) от 08.03.2023
-
-Relax Time Zone - Bathroom Wellbeing Relax with Calm Piano (2023) [FLAC|Lossless|tracks] <Relax, Chillout, Jazz>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Days (3:20)
-02. Better Future (3:07)
-03. Prepare Great Meal (3:33)
-04. Melancholy Mood (3:02)(   Читать дальше...   )Жанр: Relax, Chillout, JazzПродолжительность: 00:53:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2686958339FB11848402843BB62C226840CFCB25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443283   (1034891) от 31.01.2021
-
-FolkBeat (FolkBeat RF) - Collection (2 Album, 3 EP, 6 Singles) (2015-2020) [FLAC|Lossless|tracks] <Folk, Electronic, Pop, Dance>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российская музыкальная группа, выступающая на стыке электронной и фолк-музыки. Группа FOLKBEAT была образована студентками музыкального училища Гнесиных Аленой Минулиной, отвечающей за вокал, битбокс, loop station и вокалистками Светланой Шестопаловой, Светланой Ивановой, Марией Зибровой. Музыканты выступают как с собственными произведениями, так и с народными песнями.Коллекция содержит 2 альбома, 3 EP, 6 Синглов
-2015 - In Mixt
-2016 - Светлая встреча
-2015 - Порушка(   Читать дальше...   )Жанр: Folk, Electronic, Pop, DanceПродолжительность: 02:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD53192941B07951A6C3DC18B348C2805FFE05A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444124   (1034913) от 31.01.2021
-
-VA-Enigmatica II / DJ Fact`ry volume 2 (2001) [FLAC|Lossless|tracks + .cue] <Enigmatic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meduzza - Fly Away 5:19
-02. Underground Spirits - Last Exile 4:38
-03. L.C. Puma - Coral Dream 7:27
-04. Lexus - Blind Fantasy 4:39(   Читать дальше...   )Жанр: Enigmatic, New AgeПродолжительность: 00:57:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:996629C1ED1717BE08790CDBAA676ECC6C3A8E48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443332   (1035730) от 28.01.2021
-
-Langhorne Slim - Strawberry Mansion (2021) [FLAC|Lossless|tracks + .cue] <Folk, Indie, Americana>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mighty Soul (01:57)
-02. Dreams (02:19)
-03. No Right Way (02:30)
-04. Lonesome Times (01:53)(   Читать дальше...   )Жанр: Folk, Indie, AmericanaПродолжительность: 00:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030238033B3B5F5870E24D92C89A29250A9D6A20
 ```
 
 

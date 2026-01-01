@@ -1,3 +1,30 @@
+###  Публикация: 1289565   (684458) от 17.03.2019
+
+VA - Electro House Without Framework (2019) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684458.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gareth Emery - Call To Arms
+002. Dash Berlin Feat. Bo Bruce - Coming Home
+003. Luke Bond - Clockwork
+004. Super8 & Tab - Blockchain(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 11:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84B7E16113226AAFD57CC34E99B22AC895F5C5AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029164   (684537) от 25.06.2016
 
 VA - 85 Dance Summer Hits (2016) [MP3|254-320 кб/с] <House, Trance, Club>
@@ -671,33 +698,6 @@ magnet:?xt=urn:btih:431DA38891A9BE617854841596DA5697E77D037C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01A2A2A04F4B2337965218D4766A1B53B37E4B0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222427   (685170) от 29.04.2018
-
-VA - German Top 50 Official Dance Charts 27.04.2018 (2018) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fatboy Slim - Right Here, Right Now (CamelPhat Radio Edit)
-02. Moguai, Zonderling - Lee
-03. Bingo Players, Goshfather - Everybody
-04. Steve Aoki, Daddy Yankee, Play-N-Skillz & Elvis Crespo - Azukita(   Читать дальше...   )Жанр: DanceПродолжительность: 02:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B47E08B9FC7B7A297FE1C0629CE2095F96D4E46
 ```
 
 

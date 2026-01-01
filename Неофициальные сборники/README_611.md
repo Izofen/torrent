@@ -1,3 +1,30 @@
+###  Публикация: 1096200   (920107) от 23.01.2017
+
+VA - Дискотека 2017 Dance Club Vol. 160 от NNNB (2017) [MP3|320 Kbps] <House, Synth Pop, Trance, Dubstep, Pop, Breaks, Drum & Bass, Nu Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920107.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Digital Emotion - Full Control  6:05
+002.  Filterkat - Don't You Wanna (Fabron Remix)  3:24
+003.  ZHU & Evergreen - Hometown Girl  3:56
+004.  Virtual Riot - In My Head (feat. PRXZM)  3:42(   Читать дальше...   )Жанр: House, Synth Pop, Trance, Dubstep, Pop, Breaks, Drum & Bass, Nu DiscoПродолжительность: 14:31:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8059EFA37C59E5F133DC59124EBB7F0F9BD8F9A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 631624   (920261) от 20.03.2013
 
 VA - Creative Electro Box 3 (2013) [MP3|320 кб/с]<House, Electro, Electro House>
@@ -668,30 +695,6 @@ VA - Новички в попсе Vol 2 (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6742FB1C1B8DF47E70089C0185394F26CAB7674
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288523   (921861) от 29.01.2011
-
-VA - Бомба года  хитов (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 11:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3256B2B3BDF3317542001E5F13469F89F4A34C5A
 ```
 
 

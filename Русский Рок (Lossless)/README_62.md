@@ -1,3 +1,111 @@
+###  Публикация: 665477   (744207) от 06.06.2013
+
+Земфира - Спасибо, Вендетта (2007) [FLAC|Lossless|image + .cue]<Rock, Acoustic, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В метро [2:54]
+02. Воскресенье [2:31]
+03. Дом [3:49]
+04. Мы разбиваемся [3:20](   Читать дальше...   )Жанр: Rock, Acoustic, Pop RockПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020240   (744854) от 26.05.2016
+
+Би-2 - ... и корабль плывёт (2000) 2xCD, 2016, Мистерия звука [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744854.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. И корабль плывет... (3:53)
+02. Восток (3:54)
+03. Сердце (5:10)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:16 + 00:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E4196CBFBAC53A54471587DFECF78F8102D63BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524038   (746513) от 14.01.2022
+
+Коррозия Металла - Каннибал + Дебош в Орлёнке (2021) 2xCD, Reissue, Remastered, Meat Stocks Records [FLAC|Lossless|image + .cue] <Thrash Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746513.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Каннибал:
+01. Каннибал (2021)
+02. Моторокер
+03. I'm President(   Читать дальше...   )Жанр: Thrash Metal, RockПродолжительность: 01:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D575761A407A07B3ACF57EFA56E5D7B4154996C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524081   (746522) от 14.01.2022
+
+Коррозия Металла - Орден Сатаны, Жизнь В Октябре (1987-1988) 2xCD, Reissue, Remastered, 2021, Meat Stocks Records [FLAC|Lossless|image + .cue] <Thrash Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746522.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - "Орден Сатаны" (Demo • 1988):
+01. СПИД
+02. Моторокер
+03. В шторме викинг и меч(   Читать дальше...   )Жанр: Thrash Metal, RockПродолжительность: 01:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:278A641B0B20A2ABB0E563306362B0E439C3840F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396552   (746747) от 15.07.2020
 
 Браво - The Best Of Rock 'n' Roll (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -592,114 +700,6 @@ Forgive-Me-Not - Heavenside (2004) [FLAC|Lossless|image + .cue] <Gothic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30479DCC935002225B15398BED8EA56307811686
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213793   (767351) от 18.03.2018
-
-Скандал - Подставные лица (1991) [FLAC|Lossless|tracks] <Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Подставные лица (4:14)
-  02. Возвращение в леса (3:14)
-  03. Не жалей наличных (4:35)
-  04. Домино (2:34)(   Читать дальше...   )Жанр: Rock, PunkПродолжительность: 00:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04DB5DD2EDAF092692F533611265C07BF90846E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279053   (767668) от 27.01.2019
-
-Калинов Мост - Даурия (2018) [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767668.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Летят Вороны
-2. Даурия
-3. До Улет
-4. Только Здесь(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBBC626BDCF55B0973AB54A954CDC38A3DF84A32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264282   (768413) от 26.01.2019
-
-Alkonost - Песни белой лилии (2016) [FLAC|Lossless|tracks + .cue] <Folk, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768413.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Река (4:55)
-2. Жемчужина (4:21)
-3. Русалка (4:39)
-4. Невеста лешего (4:09)(   Читать дальше...   )Жанр: Folk, MetalПродолжительность: 00:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889DF248EC200074DDF7AD73CE5251429AE0DB8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263874   (768417) от 26.01.2019
-
-Alkonost - Октаграмма (2018) [FLAC|Lossless|tracks + .cue] <Folk, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768417.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro (4:46)
-2. Тропа к Весне (5:18)
-3. Вслед молодой заре (4:02)
-4. Танец цветения (5:28)(   Читать дальше...   )Жанр: Folk, MetalПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C7EFC57B5058A63BF6024FFF20AC38FE7FEB3F
 ```
 
 

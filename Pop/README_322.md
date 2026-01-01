@@ -1,3 +1,171 @@
+###  Публикация: 289548   (916857) от 01.02.2011
+
+VA - Золотая русская коллекция. Облака в реке (2005) [MP3|320 kbps]<retro, pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ВИА Синяя птица - Клён (Ю.Акулов-Л.Шишко)
+02. ВИА Самоцветы - Салют (В.Пресняков, Ю.Маликов-Б.Салибов)
+03. ВИА Норок - О чём плачут гитары (М.Долган-рус.яз.В.Сундеев)
+04. ВИА Сябры - Печки-лавочки (О.Иванов-А.Поперечный)
+05. ВИА Поющие сердца - Вот какая беда (Б.Савельев-И.Кохановский)
+06. ВИА Самоцветы - Али-Баба (В.Пресняков, Ю.Маликов-И.Шаферан)
+07. ВИА Пламя 2000 - Не надо печалиться (А.Экимян-Р.Рождественский)
+08. ВИА Поющие сердца - Облака в реке (А.Днепров-И.Кохановыский)
+09. ВИА Надежда - До отправления поезда (А.Пахмутова-Н.Добронравов)
+10. ВИА Верные друзья - Девятый класс (Б.Монастырский-Ю.Рыбчинский)(   Читать дальше...)Жанр: retro, popПродолжительность: 01:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FB882EA4EC00A8D2BDF311B71D9AF6B082A24DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989260   (917110) от 22.02.2016
+
+Mimi Page - The Ethereal Blues (2015) [MP3|320 кб/с] <Alternative Pop, Dream Pop, Trip Hop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917110.jpg" />
+</div>
+
+
+###  Подробнее
+
+На творчество талантливой и востребованной исполнительницы, автора музыки и текстов оказали влияние такие мэтры, как Nine Inch Nails, Tori Amos, Radiohead, Thomas Newman и Enya.01. Singing in the Dark
+02. The Way
+03. Human Hurricane
+04. Hold Me(   Читать дальше...   )Жанр: Alternative Pop, Dream Pop, Trip HopПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6FFB05A654574F6F1B08E8BB8403121D0B02D32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989273   (917151) от 22.02.2016
+
+Mimi Page - Breathe Me In (2012) [MP3|320 кб/с] <Alternative Pop, Dream Pop, Trip Hop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Vanilla Sky
+02. Black Valentine
+03. Colorblind
+04. All I Need(   Читать дальше...   )Жанр: Alternative Pop, Dream Pop, Trip HopПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B2924F0D8B2643F9FD6860EFD5CA937D45EE706
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 757678   (917210) от 16.02.2014
+
+VA - В десяточку! 1-15, 17 (16 CD) (1995-2004) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917210.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Светлана Алмазова - В десяточку (3:12)
+2. Наталья Сенчукова - Кино про любовь (3:54)
+3. Ирина Салтыкова - Серые глаза (3:24)
+4. Диана - Не говори (3:53)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8CC3092E126F6185A562D33C73A74AA3FEBE46F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367345   (917227) от 15.03.2020
+
+VA - The Disco Box (1999) Compilation, 4CD [FLAC|Lossless|tracks] <Funk, Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917227.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Love’s Theme - Love Unlimited Orchestra [3:35]
+ 2. Dancing Machine - The Jackson 5 [2:42]
+ 3. Rock the Boat - The Hues Corporation [3:09]
+ 4. Honeybee - Gloria Gaynor [3:45](   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 04:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775038262D4BDCF5CFC4549A66AFD836811EA51E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366758   (917231) от 15.03.2020
+
+VA - 80's Gold (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917231.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tina Turner - Steamy Windows
+2. a-ha - Take On Me
+3. Duran Duran - Hungry Like the Wolf
+4. Stevie Nicks - Rooms On Fire(   Читать дальше...   )Жанр: PopПродолжительность: 03:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF2CB0BCD9B3074D3CA4A70F7421D6DFADDDFDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367085   (917237) от 15.03.2020
 
 VA - Greatest Rock'n'Roll Party (2004) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
@@ -535,167 +703,6 @@ CD 1:
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 864075   (921623) от 28.01.2015
-
-VA - Лучшие новинки радиоэфира vol.1 (2014) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Так мало выходит сегодня приличных сборников российской попсы.Тем неожиданней эта компиляция, выпущенная "Квадро Диск Украина".
-За простеньким (даже несколько не затейливым оформлением) Вы услышите действительно треки и которые не сходят с эфиров, и которые промелькнули почти не замеченными, и те которые может быть кто-то пропустил.
-Особенно хороши два (   Читать дальше...   )01. Григорий Лепс и Ани Лорак - Зеркала  (3:49)
-02. Виа Гра  - Перемирие  (3:44)
-03. Пицца - Оружие  (3:29)
-04. Светлана Тарабарова - Мы верим в любовь  (3:03)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC811BFFE90758C653B397E3DA8AF536571B954
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288505   (921857) от 29.01.2011
-
-Горячие головы - Дискография (2000-2006) [MP3|320 kbps]<Pop,Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop,DanceПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C73913C6207325A59FBED0B98A03FF491B980D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366507   (922240) от 12.03.2020
-
-Mandy Moore - Silver Landings (2020) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I’d Rather Lose (03:45)
-02. Save A Little For Yourself (03:39)
-03. Fifteen (04:09)
-04. Tryin' My Best, Los Angeles (04:01)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C23D45153915BAE068BE31299C058764BC4BA882
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987723   (922334) от 19.02.2016
-
-VA - Max Mix 30 Aniversario Vol 1, 2 - La Leyenda Del Primer Megamix Espanol (2015) [MP3|320 кб/с] <Disco, Italo-Disco, Italo House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Va - Max Mix 30 Aniversario Vol 1 Megamix (By Mike Platinas) B.P.M. 118-122 (12:30)
-02. Va - Max Mix 30 Aniversario Vol 1 Mix (By Mike Platinas) B.P.M. 124 (13:12)
-03. Va - Max Mix 30 Aniversario Vol 1 Jingles & Effects (03:02)
-04. Italian Boys - Forever Lovers (Extended Vocal Version) (06:10)(   Читать дальше...   )Жанр: Disco, Italo-Disco, Italo HouseПродолжительность: 07:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EDA26359A721F84A052521746968CDC59C0613E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366738   (922359) от 12.03.2020
-
-Yumi Zouma - Truth or Consequences (2020) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonely After (03:40)
-02. Right Track / Wrong Man (02:56)
-03. Southwark (03:22)
-04. Sage (03:01)(   Читать дальше...   )Жанр: Dream Pop, Indie, ElectronicПродолжительность: 00:33:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA0C0A8C4F6943C76AF89FA2936ED791AB8CE7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095945   (922377) от 22.01.2017
-
-VA - 2017 Grammy Nominees (2017) [FLAC|Lossless|tracks + .cue] <Pop, Dance, Club>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922377.jpg" />
-</div>
-
-
-###  Подробнее
-
-59-я ежегодная церемония вручения Grammy Awards пройдет 12 февраля 2017 года. Телесеть CBS будет транслировать шоу в прямом эфире из Staples Center в Лос-Анджелесе. На церемонии будут определены лучшие записи композиций и альбомов года в различных номинациях (записанных или воспроизведенных с 1 октября 2015 года по 30 сентября 2016 г.). Номинанты были объявлены 6 (   Читать дальше...   )01. Beyonce - Don't Hurt Yourself (Feat. Jack White)  (3:54)
-02. Twenty One Pilots - Stressed Out  (3:11)
-03. Sia - Cheap Thrills (Feat. Sean Paul)  (3:42)
-04. Drake - Hotline Bling  (3:48)(   Читать дальше...   )Жанр: Pop, Dance, Club, Rock, R&B, Trance, House, OtherПродолжительность: 01:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C46E910EB4429E5CAA1656A6AC7F3CD4BBBC3F2
 ```
 
 

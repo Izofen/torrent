@@ -1,3 +1,30 @@
+###  Публикация: 1352580   (1000733) от 15.01.2020
+
+VA - Громкие новинки Января Vol 1 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000733.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Alicia Keys - Underdog (3:28)
+2.Ava Max - On Somebody (3:04)
+3.Bombay Bicycle Club - I Can Hardly Speak (3:59)
+4.Chiko.T.D, Ersin Ersavas - Namaste (2:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC997140A36CC02A0D2A59645F13EFBF129B8E69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352070   (1000917) от 14.01.2020
 
 VA - 100 Hit Tracks Ultimate Driving Songs The Classics (2020) [MP3|320 Kbps] <Rock, Pop, R&B>
@@ -668,33 +695,6 @@ VA - 100 Greatest Heavy Metal Songs (2021) [MP3|320 Kbps] <Metal, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E68EC110D8934C6B3C11EF0F8D39D59C4EB8E2B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488461   (1002038) от 11.08.2021
-
-VA - Grooveyard Records: The Sound Of Guitar Rock - Best Of (2021) Volume Five [MP3|320 Kbps] <Blues Rock, Hard Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lance Lopez - Love  Hate Relationship (05:48)
- 02. Vince Hawkins & Company Slave - Room Full Of Mirrors (03:25)
- 03. Brett Ellis - Twice Removed From Yesterday (04:51)
- 04. Voodoo Room - In The Net (04:44)(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 01:18:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF026A13E88C2F58D3B9E69ACFDB6851D10941DD
 ```
 
 

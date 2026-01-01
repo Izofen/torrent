@@ -1,3 +1,138 @@
+###  Публикация: 1370309   (898460) от 26.03.2020
+
+The Orb - Abolition of the Royal Familia (2020) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Dub, Ambient, Abstract>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daze (Missing & Messed up Mix) (02:52)
+02. House of Narcotics (Opium Wars Mix) (06:07)
+03. Hawk Kings (Oseberg Buddhas Buttonhole) (04:57)
+04. Honey Moonies (Brain Washed at Area 49 Mix) (05:02)(   Читать дальше...   )Жанр: Downtempo, Dub, Ambient, AbstractПродолжительность: 01:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE29994E0E66EEF02757CB475F6CF9026594F7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370237   (898476) от 26.03.2020
+
+Johnny Jewel - Digital Rain (2018) [FLAC|Lossless|tracks + .cue] <Dark Ambient, Electronic>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digital Rain (05:19)
+02. Black Pyramid (01:00)
+03. The City Of Roses (02:36)
+04. Double Exposure (01:59)(   Читать дальше...   )Жанр: Dark Ambient, ElectronicПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED618D4E464B5067653C91C1E9AD1ED8BB2138B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370140   (898524) от 26.03.2020
+
+VA - Kontor Sports: Nonstop Powermix 2020.03 (2020) [MP3|320 Kbps] <House, Electronic, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VA - Kontor Sports Nonstop Powermix 2020.03 (Continuous DJ Mix) 1:04:15
+02. Loud Luxury feat. Brando - Body 2:43
+03. Danny Бvila - Beautiful Girls 2:42
+04. Mike Candys - Pump It Up 2:23(   Читать дальше...   )Жанр: House, Electronic, DanceПродолжительность: 02:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8747A4E80D3F0CD80E6D44B63FB46CB399EC06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370138   (898529) от 26.03.2020
+
+Satin Jackets - Solar Nights (The Remixes) (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Northern Lights (Antenna Remix) (5:40)
+ 02. Mirage (Anoraak Remix) (3:33)
+ 03. Athena (NTEIBINT Remix) (4:22)
+ 04. Automatic (The Oddness Remix) (6:17)(   Читать дальше...   )Жанр: Electro, House, Nu DiscoПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED6E59F1B8BF821A3CCC52BA4CA1F6D00EC9450
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370156   (898535) от 26.03.2020
+
+Alex Spite - Melodic Cosmonaut (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898535.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Never Give Up (5:36)
+2. Astral (6:36)
+3. Get Better (5:19)
+4. Melodic Cosmonaut (5:20)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABCCF50069599583955FD0E35E2769CFDA8865DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370108   (898539) от 26.03.2020
 
 Pablo Moriego - Deep House Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
@@ -560,141 +695,6 @@ Infected Mushroom - More than Just a Name (2020) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:281F6FDCA9DFD00B53CBF51F6D16AB5428070B30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100063   (901596) от 03.02.2017
-
-VA - Best of Uplifting Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Quest - C Sharp (Allen & Envy Remix)  6:00
-02.  Suncatcher - Sweet Submission (Original Mix)  8:07
-03.  Paul Denton - Same Stars (Original Mix)  7:09
-04.  The Thrillseekers - Halcyon 2016 (Original Mix)  3:48(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 03:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56C5BACB59C0E7121C053B37F809E97637A3C6A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100095   (901717) от 03.02.2017
-
-VA - Hypnotic Room (Best of 2016) (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic, Progressive, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paranoia106 - Misty (Original Mix) [07:57]
-02. Satoshi Fumi - Tunnel Vision (Original Mix) [06:57]
-03. Oleg Mass - Planetary (Original Mix) [07:40]
-04. Samuel Wallner - Clay (Original Mix) [06:12](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 03:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4210FBC7B9049BEE056D84FB2C5BB95871C357B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465279   (901828) от 01.03.2016
-
-Armin van Buuren - A State of Trance 551 - 750 (2012-2016) [MP3|128 ~ 320 кб/с]<Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunlounger feat. Zara Taylor – Try To Be Love (Roger Shah Naughty Love Mix)
-02. Rank 1 & Jochen Miller feat. Sarah Bettens – Wild And Perfect Day (Cosmic Gate Remix)
-03. Tune Of The Week: Alexander Popov – When The Sun (Eximinds Remix)
-04. Eximinds – August (Original Mix)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 677:39:50 (по 2 часа -/+ 5 мин.)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB478D486F45B63AD9F42B3D28637BE877EA95DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100221   (901870) от 03.02.2017
-
-Clarke : Hartnoll  (Vince Clarke & Paul Hartnoll) - 2Square (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Leftfield, House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Have A Drink To Think (04:16)
- 02. Zombie Blip (04:18)
- 03. The Echoes (05:29)
- 04. Do-A Bong (03:29)(   Читать дальше...   )Жанр: Techno, Leftfield, House, ElectroПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5989D226003834BEC1648A24F8ACA7F3DC1D39D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369736   (901986) от 24.03.2020
-
-Kim & Buran (Ким и Буран) - Best Melodies (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My First Cosmic Love (3:23)
-02. Adventure After School (3:41)
-03. The Garland (3:09)
-04. You Are the Sunshine (2:59)(   Читать дальше...   )Жанр: Lounge, Downtempo, Easy ListeningПродолжительность: 01:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B15037093327A4801EAA7F5606B425CB9665856F
 ```
 
 

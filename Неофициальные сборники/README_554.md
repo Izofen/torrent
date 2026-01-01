@@ -1,3 +1,30 @@
+###  Публикация: 1005048   (834438) от 08.04.2016
+
+VA - 45 Jahre ZDF Disco - Nr.1 Hits Der 70er (2016) [MP3|256 кб/с] <Pop, Rock, Soul, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sweet - Fox On The Run 03:21
+02. T. Rex - Metal Guru 02:25
+03. Smokie - Living Next Door To Alice 03:26
+04. The Rubettes - Sugar Baby Love 03:27(   Читать дальше...   )Жанр: Pop, Rock, Soul, DiscoПродолжительность: 03:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6FD64F3600BC7520CC63A394B27A129615892C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004614   (834453) от 08.04.2016
 
 VA - Extra Trance: Bonus [04] (2016) [MP3|320 кб/с] <Trance>
@@ -668,33 +695,6 @@ VA - Romantic R&B (2020) [MP3|320 Kbps] <R&B, Pop, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8B76EAFCEC2E8F18F5900E4A6D28A3CFE295AA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113951   (835094) от 13.03.2017
-
-Chris Bell - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Jobs
-02. Ain't Seen Nothing
-03. Cold-Hearted Woman
-04. Deli Man(   Читать дальше...   )Жанр: BluesПродолжительность: 02:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A40C66424303404EA549397902990E1065462EB
 ```
 
 

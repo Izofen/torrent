@@ -1,3 +1,165 @@
+###  Публикация: 1351360   (1002188) от 10.01.2020
+
+Georgia - Seeking Thrills (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Started Out (03:41)
+02. About Work the Dancefloor (03:28)
+03. Never Let You Go (03:47)
+04. 24 Hours (03:05)(   Читать дальше...   )Жанр: Pop-Rock, PopПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A57316BE7ADB7FDC5C92AD9C7361E135AE8E96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351290   (1002410) от 09.01.2020
+
+Fox The Fox - In The Dark Of The Nite (1984) [FLAC|Lossless|image + .cue] <Italo-Disco, Electro, Europop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002410.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Flirting And Showing 4:42
+2 Stealin' 4:47
+3 In The Dark Of The Nite 4:32
+4 Check It Out 4:59(   Читать дальше...   )Жанр: Italo-Disco, Electro, EuropopПродолжительность: 0:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8D99969B35FB30FF701267407569F62C4D240E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351247   (1002425) от 09.01.2020
+
+a-ha - Lifelines (2019) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lifelines (Demo) (5:16)
+02. You Wanted More (Demo) (4:01)
+03. Forever Not Yours (Demo) (4:12)
+04. There's A Reason For It (Demo) (4:14)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, Synthpop |Продолжительность: 01:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AD51D4A73CCBDFA44B27A40800C62D9F626F9D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351288   (1002430) от 09.01.2020
+
+Selena Gomez - Rare (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rare
+02. Dance Again
+03. Look At Her Now
+04. Lose You To Love Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767F2FCDFDDDA90944F4E8B0DEE67F0F547CB58B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351269   (1002468) от 09.01.2020
+
+Bazykina Twins - Moscow Nights Ultimate (2017) [FLAC|Lossless|image + .cue] <Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002468.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Moscow Nights 3:46
+2 What Goes On In Your Mind 4:25
+3 Loving Joy Is All I Know 3:25
+4 Female Of The Species 4:14(   Читать дальше...   )Жанр: Disco, Euro-DiscoПродолжительность: 01:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D108755C7AFB7B04B67D75490133D9E27567AD1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488051   (1002493) от 09.08.2021
+
+VA - 100 Hits Number 1's (2018) Box Set, 5 CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002493.jpg" />
+</div>
+
+
+###  Подробнее
+
+У каждого исполнителя есть несколько хитов, которые мы называем номер 1. Это по мнению большинства - вершина достижений каждого из исполнителей. Вот три года назад Demon Music Group решила собрать под обложкой одного бокссета такие высшие достижения некоторых исполнителей и дать возможность слушателям вспомнить и насладиться ещё раз хитами прошлого. Вряд ли Вы для (   Читать дальше...   )CD1:
+01. Britney Spears - …Baby One More Time  (3:31)
+02. Justin Timberlake feat. Timbaland - Sexyback  (4:03)
+03. Shakira feat. Wyclef Jean - Hips Don’t Lie  (3:39)(   Читать дальше...   )Тип издания: Box Set, 5 CDРелиз состоялся: 02 ноября 2018Жанр: Pop, Rock, DanceПродолжительность: 06:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAE4F3E95494B5BF7A7600AADDF4AD4C13C9D75E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488018   (1002576) от 09.08.2021
 
 Sweet Power - Hits On 33 - 50 Non-Stop Disco Dancing Hits (1981) LP [MP3|320 Kbps] <Electronic, Disco, Pop Rock, Soul, Rockabilly>
@@ -531,167 +693,6 @@ VA - Disco Hits Exclusive Collection (1989) [FLAC|Lossless|image + .cue] <Euro-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D6004944AB040D60EEB46D812F041963579FAF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349849   (1004060) от 03.01.2020
-
-Chyp-Notic - Nothing Compares 2 U (1990) [FLAC|Lossless|image + .cue] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing Compares 2 U (The Ultimate Dance-Version) 6:32
-02. Nothing Compares 2 U (The Techno Mix) 5:09
-03. 1-4-U 5:32Жанр: Euro HouseПродолжительность: 00:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84DD6D14CB61619C3A56D4C8E0CDEE78B8A03949
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349870   (1004069) от 03.01.2020
-
-Estimado - The Escape to Heaven (2017) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I’m Dancing On My Own 5:19
-02. Faster 7:08
-03. Believe In Me 7:45
-04. I Want You Heaven 6:48(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E27CD7C56529450EB4E6C65B82E033268F4920E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349866   (1004072) от 03.01.2020
-
-Rewind Feat. Madame Denise - Video Killed The Radio Star (1993) [FLAC|Lossless|image + .cue] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Video Killed The Radio Star (Radio Edit) 4:03
-02. Video Killed The Radio Star (With An Eye 2 Techno) 5:02
-03. Video Killed The Radio Star (Mother's Day) 4:15
-04. Kaleidoscope (Coming Soon) 2:17Жанр: Euro HouseПродолжительность: 00:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3836DC8A1172890128170394F2A99FAC8A1E9AFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348794   (1004229) от 02.01.2020
-
-VA - Ibiza Day & Night (2010 - 2012) 6 CD [FLAC|Lossless|tracks + .cue]<Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Musikk VS. Chiris Montana - Summer Lovin' ( Acapella )
-02. Martin Villeneuve - Come On Over ( Up Jeet Remix )
-03. Rio Dela Duna & Dani Cohiba - El Cubano ( Martin Villeneuve Remix )
-04. Do Santos - Noti Verisi(   Читать дальше...   )Жанр: EurodanceПродолжительность: 02:26:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91AB6704CF234239FE618AFEB5F1CDA26429AEE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349675   (1004266) от 02.01.2020
-
-Robbie Williams - The Christmas Present (2019) 2CD [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Winter Wonderland
-02. Merry Xmas Everybody (feat. Jamie Cullum)
-03. Let It Snow! Let It Snow! Let It Snow!(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C657B23E6469EB3409219C3F5D6D7CEE10B2085
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486823   (1004329) от 02.08.2021
-
-Новые Самоцветы - Вся жизнь впереди, надейся и жги! (2014) [FLAC|Lossless|WEB-DL|tracks] <Pop, Retro-Schlager>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:30)
- 02. Вся жизнь впереди (3:36)
- 03. Не повторяется такое никогда (3:49)
- 04. В последний раз (2:58)(   Читать дальше...   )Жанр: Pop, Retro-SchlagerПродолжительность: 01:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DA8886548003D7835F180A82F9B5DE6EDCB3862
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1025424   (712119) от 11.06.2016
+
+VA - iChill You Vol 1 (2016) [MP3|320 кб/с] <Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eskadet - Inaccessible (7:34)
+02. Lemongrass - Deep River (Stuce The Sketch Remix) (6:07)
+03. Tim Angrave - Contemplation Elevation (9:13)
+04. Peter Pearson - I Fell in Love (6:11)(   Читать дальше...   )Производство: Floating MusicЖанр: Lounge, Chill OutПродолжительность: 02:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960DAEAC02EC3465B9E3D1958F98F575C58CDDD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024892   (712219) от 11.06.2016
+
+Hamlet His Highness - For All & None (2015) [MP3|125-320 кб/с] <Ambient, Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712219.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Floating Through The Mist 04:32
+2. The Stream Of A Pleasant Dark 10:28
+3. For All And None 05:45
+4. The Pilgrim 02:16(   Читать дальше...   )Жанр: Ambient, ElectronicПродолжительность: 00:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE941D941BE45BB4F625C78ABF1D3DD6ADBD054
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025298   (712290) от 11.06.2016
+
+VA - Hooki-Sonic Recordings Summer Chill-Out Sampler (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Hookiss - Relax - Gregorian Chillout Mix [7:47]
+02. Susy Seven - Come with Me [7:00]
+03. The Soul Elephant - Nobody [5:14]
+04. Joxephad - Love for Chillout [4:59](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956774EA27B301901569ADBE9561FF6BAD105B74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025188   (712295) от 11.06.2016
+
+VA - Chilling Feeling (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lamar Ensemble - Tonal Colors [5:32]
+02. Amen B & Jeffron Vox - Clouds (Bardalimov's Deep Edit) [5:48]
+03. The Sura Quintet - Hit Your Deadline [5:32]
+04. Logophilia - Anakena [5:32](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:741DDBFAACE917FE562210F921FE3DEC4C817EBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130396   (712360) от 03.05.2017
+
+Klangstabil - Collection 10 Releases (1995-2015) Ant-Zen, MHz [FLAC|Lossless|tracks+.cue, tracks] <Industrial, Experimental, EBM, Electro, IDM, Techno>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712360.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Mein Name Ist... (04:08)
+ 02. Gloomy Day (Daruma Version) (05:06)
+ 03. Kill All Lifeforms (05:12)(   Читать дальше...   )Тип издания: CD, WebЖанр: Industrial, Experimental, EBM, Electro, IDM, Abstract, Techno •Продолжительность: 01:18:18+01:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2DDD85DB37B005EEE8319D24894185341E2C5D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 670620   (712439) от 20.06.2013
 
 666 - 6 Albums , 19 Singles (1997 - 2007) [FLAC|Lossless]<Euro House , Progressive Trance>
@@ -557,141 +692,6 @@ COAM - The Study Of Change (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F29C0691FE581F639923297D327EDF4B8153439D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130621   (714341) от 02.05.2017
-
-Hatikwa - The Second Narration (2017) [MP3|320 Kbps] <Goa Trance, Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Path Of Uncertainty (Experimental version) (14:07)
-02. Keen Insight (08:53)
-03. Atacama - Critical Fusion (Hatikwa remix) (08:03)
-04. Southern Sunset (Refreshed edit) (09:29)(   Читать дальше...   )Жанр: Goa Trance, Psy-TranceПродолжительность: 01:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE883746CC69A049066DE5A3EAA52E0D5B8781C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130658   (714413) от 02.05.2017
-
-VA - Running Magic 90s Comeback Hits (2017) [MP3|320 Kbps] <Funky, Club House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unlimited Friends – 90s Never End (Project X Remix) (4:02)
-02. B.g. The Prince of Rap – No Limits (Real Thing Euro Remix) (3:30)
-03. Lane McCray vs. DJane Monique – Sweet Dreams (Remundo Remix) (4:26)
-04. Linda Rocco vs. Andy Stead – You Make Me Feel Good (Dolls Mix) (4:28)(   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 03:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60CDA2D19464DA9F0BF9E1280BF7785D04343226
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130678   (714415) от 02.05.2017
-
-VA - Piano del Mar: Easy Listening Chill Lounge Moods (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Thomas Lemmer - Above The Clouds  4:27
-02.  Soleil Fisher - Daydreaming (Chill Mix)  5:55
-03.  Laura Goulding - Shine (Piano Mix)  4:51
-04.  Lemon Sol - Beautiful Morning (Piano Cafe Chillout To Ibiza Del Mar)  3:59(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2C07ABC73F54048A1C3A52DAF6EEF6E165F809
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130596   (714416) от 02.05.2017
-
-Saint Of Sin, Thunderbrain - 45 Minutes Epic Fantasy Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saint Of Sin – The Power of Now (00:04:33)
- 02. Thunderbrain – Cyclone (00:03:43)
- 03. Saint Of Sin – Bridge of Shining (00:04:14)
- 04. Thunderbrain – Day of Resurrection (00:07:03)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:056B89B10138C17A4B071319ABD327205D2F3FC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130660   (714425) от 02.05.2017
-
-Aly & Fila - Future Sound Of Egypt 494 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TrancEye & Tuomas J - Immortal (Extended Mix)
-02. Manuel Rocca & Illitheas - Enchanted (Original Mix)
-03. TranzLift vs. Airy - 1989 (AirLab7 Remix)
-04. Susana - Only Summer Knows (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DADEB3A709ABB22C1AD4A304CD99502BCAAEC3FC
 ```
 
 

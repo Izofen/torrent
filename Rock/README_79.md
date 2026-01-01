@@ -1,3 +1,30 @@
+###  Публикация: 1388658   (786568) от 07.06.2020
+
+VA - Rockin' the 90's (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786568.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Skid Row - Monkey Business
+2. Thunder - Dirty Love
+3. Nickelback - Leader of Men
+4. Honeymoon Suite - Say You Don't Know Me(   Читать дальше...   )Жанр: RockПродолжительность: 02:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6971276CDA0CCD730A5670E794851D5D71F5AAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388780   (786595) от 07.06.2020
 
 Powderfinger - One Night Lonely (2020) [MP3|320 Kbps] <Rock>
@@ -668,33 +695,6 @@ Smokie - Greatest Hits vol.1 & vol.2 (2017) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87EE95F26431BE5FDE56EF8189D4AD49449A32B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122494   (793312) от 06.04.2017
-
-The Stone Foxes - Twelve Spells (2015) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eye For Love (03:16)
-02. I Want To Be You (03:58)
-03. This Town (03:42)
-04. Cold Like a Killer (05:05)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6272156EB0D18A9D0F7C9E3A910D7179FC3111
 ```
 
 

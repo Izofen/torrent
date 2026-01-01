@@ -1,3 +1,30 @@
+###  Публикация: 1289179   (690062) от 14.03.2019
+
+Echoes - Live From The Dark Side A Tribute To Pink Floyd (2019) [MP3|320 Kbps] <Psychedelic Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine on You Crazy Diamond Pt. I-V (Live)
+02. One of These Days (Live)
+03. Learning to Fly (Live)
+04. Wish You Were Here (Live)(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 02:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1462C91266CCE7F3FCD72C87A422F6A3D07A160
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289002   (690070) от 14.03.2019
 
 VA - British Invasion Blues Rock (2018) [MP3|320 Kbps] <Rock, Blues, Pop, Folk>
@@ -668,33 +695,6 @@ magnet:?xt=urn:btih:36B01EC6F6D5532456EFBBA1F9243DDB7D10CA26
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:241BF16E0600255FB7E7B89E407674FB62624E17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533646   (703218) от 25.02.2022
-
-Антитіла - MLNL (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703218.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Топити за своє
-2. Кіно
-3. Маскарад
-4. Стань(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A6E15E6AC2115675EBD0993AC6A4EAF0E889B1D
 ```
 
 

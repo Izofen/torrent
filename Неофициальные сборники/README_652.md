@@ -1,3 +1,30 @@
+###  Публикация: 1488461   (1002038) от 11.08.2021
+
+VA - Grooveyard Records: The Sound Of Guitar Rock - Best Of (2021) Volume Five [MP3|320 Kbps] <Blues Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lance Lopez - Love  Hate Relationship (05:48)
+ 02. Vince Hawkins & Company Slave - Room Full Of Mirrors (03:25)
+ 03. Brett Ellis - Twice Removed From Yesterday (04:51)
+ 04. Voodoo Room - In The Net (04:44)(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 01:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF026A13E88C2F58D3B9E69ACFDB6851D10941DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488414   (1002042) от 11.08.2021
 
 VA - The Lives Rock (2021) [MP3|320 Kbps] <Rock, Punk, Alternative>
@@ -668,33 +695,6 @@ VA - Chill Cristmas Lounge (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E096247D699A82672710D4A5B912A1AEFE2DF81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350500   (1002944) от 07.01.2020
-
-VA - Amaranth: Deep House Electro Mix (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002944.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wandrezo - Feel The Sun
-002. Chris Folkz - Rare
-003. Xort Base - His Toys
-004. Bollen - Venue(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 13:11:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C23E59B030BD03AE0D34419928348D226BC12197
 ```
 
 

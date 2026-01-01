@@ -1,3 +1,192 @@
+###  Публикация: 1124304   (785780) от 11.04.2017
+
+The Nexion-Project - Voices of the Ascension (2011) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dawn  (02:15) 
+02. Passing Time  (02:08) 
+03. The Second World  (03:09) 
+04. Fly Away  (03:14) (   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E5EA7D1B6FA34BE3CA6FFB7B4302D5DA15CCDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124095   (785908) от 10.04.2017
+
+VA - Going in Style / Уйти красиво (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dean Martin - Memories Are Made of This (02:17)
+02. Sonny Rollins - St. Thomas (06:46)
+03. Mark Ronson - Feel Right (03:43)
+04. Otis Redding - Hard To Handle (02:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D695079EC7B0639DB9CD66DF55654A92AF7AA5C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124093   (785910) от 10.04.2017
+
+VA - Going in Style / Уйти красиво (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dean Martin - Memories Are Made of This (02:17)
+02. Sonny Rollins - St. Thomas (06:46)
+03. Mark Ronson - Feel Right (03:43)
+04. Otis Redding - Hard To Handle (02:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36AA2CEED75A83E547B48D2E246F8103A9746E5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124071   (785927) от 10.04.2017
+
+Mixed Choir под управлением М. Попсавова - Страстная пятница - Bulgarian Orthodo (1993) [FLAC|Lossless|tracks + .cue] <Orthodox Liturgy>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Great Litany (Velika ektenia) [6'13"]
+02. Good-Looking Joseph (Blagoobraznii Jossif) [8'05"]
+03. Grave-Wailing (Nadgroben plach) 20:44
+04. Eulogitarium [06:16](   Читать дальше...   )Жанр: Orthodox LiturgyПродолжительность: 01:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270A002BEE164A55CEDD39D4B10834C02C581B6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124005   (785931) от 10.04.2017
+
+Clookai - Massage Gold (2008) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternity [00:06:32]
+02. Touch of the Dove [00:06:08]
+03. The Secret Place [00:08:12]
+04. Stolen Moments [00:05:34](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C34666CA5EAA4961F10544F7686F5D35676E65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123630   (786077) от 09.04.2017
+
+ДахаБраха - Ягудки (2007) [MP3|320 Kbps] <NeoFolk, Country, Ethnic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шо З-под Дуба (03:48)
+02. Русалочки (01:49)
+03. Пані (03:28)
+04. За Дуби (02:20)(   Читать дальше...   )Жанр: NeoFolk, Country, EthnicПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336EB932A445EEF224C5E8661BEB28FB32ED0F0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123889   (786167) от 09.04.2017
+
+Hooman Rad - Quiet Dream of a Sweetbrier (2017) [MP3|320 Kbps] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quiet Dream of a Sweetbrier (00:05:28)
+02. Italian Coffee (00:04:43)
+03. All of What There Is (00:05:19)
+04. Very Special Proud Man (00:05:41)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E63B6D50D3C6D4541AEA35ED75B8AF4B8EF4AA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123653   (786182) от 09.04.2017
 
 Erwann Kermorvant, Axelle Renoir - 36 Quai des Orfevres (Original Soundtrack) (2004) [FLAC|Lossless|tracks] <Stage & Screen, OST>
@@ -505,195 +694,6 @@ magnet:?xt=urn:btih:CD5E9E6D993F5C44F9F637648A90703A97686269
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68973B58DFADDDBE9E86B1DE8978D62F4879C0FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202937   (789017) от 31.01.2018
-
-Франк Пурсель - Музыка хорошего настроения (2005) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Манчестер и Ливерпуль
-02. Поле золотых тюльпанов
-03. Я люблю
-04. Абакаччи(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7CA930560B04C6ACFF4A6110C497A96D9E57E8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276091   (789035) от 14.01.2019
-
-Greg Maroney - Remembrances (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789035.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Ask Again 04:46
-2. The Beauty Lies Within 04:47
-3. Lullaby for Leo 04:27
-4. Welcome Home 04:15(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA63AFC5CB7AC6F1CE560FB547CAB389D5D4943
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511092   (789245) от 20.11.2021
-
-Farinelli: Il Castrato - Original motion picture soundtrack (1994) [FLAC|Lossless|tracks + .cue] <Classical, Stage & Screen>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Son qual nave ch'agitata (08:10)
-02. Alto giove (04:34)
-03. Se al labbro mio non credi (04:55)
-04. Ombra fedele anch'io (09:32)(   Читать дальше...   )Жанр: Classical, Stage & ScreenПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EEB4AF81218C2179B6C3E52C85A1E6B59FC2671
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511072   (789763) от 19.11.2021
-
-Митрофановна - Развернула Митрофановна гармонь (2004) [MP3|320 Kbps] <Русская народная музыка>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты возьми гармонь (3:15)
-02. Хуторянка (3:44)
-03. Никто тебя не любит так, как я (3:19)
-04. Все татары, кроме я (2:09)(   Читать дальше...   )Жанр: Фольклор, Русская народная музыкаПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BDFB62409133F21D5C584F676256E4EE0CCF898
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202437   (789829) от 29.01.2018
-
-Celtic Woman - Homecoming: Live from Ireland (2018) [FLAC|Lossless|WEB-DL|tracks] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Homecoming Lament (Live 2017) (02:02)
-02. Mo Ghile Mear (My Gallant Star) (Live 2017) (04:09)
-03. My Heart Will Go On (Live 2017) (04:26)
-04. Walk Beside Me (Live 2017) (04:26)(   Читать дальше...   )Жанр: FolkПродолжительность: 01:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4FE4237F08D3EA8450484665FBB7A6D2199F9B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511037   (789839) от 19.11.2021
-
-Wellküren - Das Mensch: Traditionals (2003) [APE|Lossless|image + .cue] <Volksmusik>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Joseph-Jodler 0:36
-02 - Der junge schwarz' Schlossergesell 3:15
-03 - Evi-Landler 3:52
-04 - Bim Bam & Mäh-Jodler 3:23(   Читать дальше...   )Жанр: VolksmusikПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4DC4611B92DED6350E17B3A623910E153B53586
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275753   (789859) от 12.01.2019
-
-Spectradome - Dreamscape Wizard (2019) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ethereal Whisper - 3:19
-02. Liquid Notice - 3:21
-03. Didgerido-It - 2:38
-04. A Seagull Chant - 2:39(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8154AA91BDCF72D5937F9967FE23AF083BF7613C
 ```
 
 

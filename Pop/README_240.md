@@ -1,3 +1,165 @@
+###  Публикация: 1538002   (663289) от 20.03.2022
+
+VA - Delicious Pop (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maroon 5 - Sugar
+02. OneRepublic - Counting Stars
+03. Shawn Mendes - There's Nothing Holdin' Me Back
+04. Katy Perry - The One That Got Away(   Читать дальше...   )Жанр: PopПродолжительность: 02:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE77C0CA1ADAD43F30C0E133803F7E50088C1CE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138328   (664212) от 29.05.2017
+
+VA - New Generation Italo Disco - The Lost Files Vol.3 (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Michael - Love Games (BCR Extended Italian Mix) 7:32
+02.  Alan Brando - Don't Close Your Eyes (BCR Vocal Lugano Version) 7:51
+03.  Miko Vanilla - My Romance (BCR Extended Italian Mix) 6:19
+04.  Ken Martina - Change Your Heart (BCR Torino Extended Mix) 6:39(   Читать дальше...   )Жанр: Italo Disco, Spacesynth, Hi NRGПродолжительность: 01:22:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BC2AD5D4D208CA28179A1F4277EAF35349DA1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138535   (664214) от 29.05.2017
+
+Stars On 45 Proudly Presents The Star Sisters - Tonight ! 20.00 Hrs. Remix (2007) [FLAC|Lossless|image + .cue] <Europop, Schlager, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Star Sisters Remix 2007  (03:44) 
+02. A Tribute To Marilyn Monroe  (04:23) 
+03. Alexander's Ragtime Band  (03:07) 
+04. Cry Me A River  (03:53) (   Читать дальше...   )Жанр: Europop, Schlager, EurodanceПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4637E5D81BCF9496F545ED64B2A31EAEF047C25A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138508   (664322) от 29.05.2017
+
+Hans Edler - Space Vision (1979) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady In Black (4:16)
+02. It's Over (4:24)
+03. At The Speed Of The Light (3:55)
+04. Melt Down (4:37)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D5A2E4CCA68A25163BD34F82CE97C8ADAB3F79C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138475   (664323) от 29.05.2017
+
+Cheryl Ladd - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Vocal, Disco, Pop Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cheryl Ladd - американская актриса, певица и писательница. Шерил Джин Стоппелмор родилась в Хьюроне, Южная Дакота и переехала в Голливуд в 1970 году, чтобы начать музыкальную карьеру и вскоре записала песню для одного из анимационных проектов студии Hanna-Barbera. Тогда же она стала солисткой женской группы Josie and the Pussycats и выступала под псевдонимом Черри (   Читать дальше...   )01. Think It Over (3:23)
+02. Walking In The Rain (3:02)
+03. Skinnydippin' (3:17)
+04. I Know I'll Never Love This Way Again (3:42)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Vocal, Disco, Pop Rock, BalladПродолжительность: 01:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A0112DE89808D0230CB15F8F2739C54641C0A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138441   (664383) от 29.05.2017
+
+Dogs Of War - Dogs Of War (1977) LP [MP3|320 Kbps] <Electronic, Space-Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spaciula (4:38)
+02. Future Jungle (6:39)
+03. Intergalactic Tactic (4:36)
+04. Love Pirata (4:58)(   Читать дальше...   )Жанр: Electronic, Space-Rock, DiscoПродолжительность: 00:30:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F6EAFF09F2DF9F472852851CBA71942D9CF06B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 340427   (664607) от 22.05.2011
 
 Твой День (Виктор Попов) - Мама (1990) [MP3|256 kbps]<Pop>
@@ -536,168 +698,6 @@ Nation In Blue - Nothing Less (2016) [FLAC|Lossless|tracks] <Euro-Disco, Italo-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:408DFFB7AB5E3E086BA2F58CBBC28821D5EA98AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031378   (668499) от 03.07.2016
-
-VA - Radio Italia - Summer Hits (2016) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zucchero - Partigiano reggiano (3:00)
-02. Alessandra Amoroso - Vivere a colori (4:20)
-03. Vasco Rossi - Il blues della chitarra sola (3:07)
-04. Tiromancino - Piccoli miracoli (3:31)(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81BA1D1A178A5486C039544D84BDA73AE9587705
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031388   (668514) от 03.07.2016
-
-VA - Disco Tape Vol 2 (2016) [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change - Change of Heart (U.S. 12 Long Version) (7:23)
-02. Video - Somebody (Hey Girl) (Vocal Version) (6:15)
-03. Time - Can't You Feel It (Vocal Version) (5:36)
-04. Peter Jacques Band - Drives Me Crazy (Original 12 Inch Mix) (6:32)(   Читать дальше...   )Производство: RLT RecordsЖанр: DiscoПродолжительность: 02:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20EBF297F53A594BDA430FE1E941B25BF295E536
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031327   (668519) от 03.07.2016
-
-Stacey Q - Better Than Heaven (1986) [FLAC|Lossless|image + .cue] <Pop, Synth-pop, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Of Hearts (07:14)
-02. We Connect (04:15)
-03. Insecurity (03:30)
-04. Better Than Heaven (03:31)(   Читать дальше...   )Жанр: Pop, Synth-pop, Hi-NRGПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B81ED3CBB1F0562AB3B47453B7C363480E229018
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031253   (668590) от 03.07.2016
-
-Book Of Love - MMXVI-The 30th Anniversary Collection (Remastered) (2016) [FLAC|Lossless|tracks] <Synth-Pop, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boy (2016 Remastered)
-02. Book Of Love (2016 Remastered)
-03. I Touch Roses (2016 Remastered)
-04. You Make Me Feel So Good (2016 Remastered)(   Читать дальше...   )Жанр: Synth-Pop, PopПродолжительность: 01:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61239B44B885642A356364F89719EDF6B11EFFC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031265   (668599) от 03.07.2016
-
-The Pointer Sisters - Best Of The Pointer Sisters (1998) [APE|Lossless|image + .cue] <Pop, R'n'B, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm So Excited
-02. Jump (For My Love)
-03. Automatic
-04. Neutron Dance(   Читать дальше...   )Жанр: Pop, R'n'B, SoulПродолжительность: 01:14:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5778584DE032F97E2C7F563DE7420AF2480EA7B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030988   (668650) от 03.07.2016
-
-Delta Goodrem - Wings Of The Wild (2016) Sony Music Entertainment [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feline [00:04:15]
- 02. Wings [00:03:25]
- 03. Dear Life [00:03:09]
- 04. Just Call [00:04:01](   Читать дальше...   )Жанр: PopПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0864259794C98AC40F51B9012135D0C4D831510C
 ```
 
 

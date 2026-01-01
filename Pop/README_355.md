@@ -1,3 +1,163 @@
+###  Публикация: 1623872   (1029099) от 03.04.2023
+
+DJ Ryloff (Remixed Ru) - Трава у дома (2023) [WavPack|Lossless|image + .cue] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 DJ Нил & Гелена - Звездное лето (Refuse Breaks Vocal Remix Intro)
+02 Земляне feat. Дима Билан - Трава у дома (Dj Martinr Remix)
+03 Zivert - Я. Т. Л. (DJ Zhuk Remix)
+04 Лолита & Коста Лакоста - По-другому (Roman Max & Nicky One Extended Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064894DBCE2BAD61750633AE6DD9BD262DB367E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450128   (1029189) от 25.02.2021
+
+Bonnie Tyler - The Best Is yet to Come (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Is Yet To Come
+02. Dreams Are Not Enough
+03. Hungry Hearts
+04. Stuck To My Guns(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54488F3BC4A9C61F5BEF63A96F907BBEFAB41CFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450279   (1029194) от 25.02.2021
+
+Modern Boots - Garden of Love (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maybe Tonight (5:29)
+02. Angel's Heart (6:33)
+03. Give Me Your Heart Again (5:08)
+04. I Couldn't Love You (5:46)(   Читать дальше...   )Жанр: Italo-Disco, EurobeatПродолжительность: 01:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC341DCF6BBDA4A567B119D57EADB986B6294FC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 161466   (1029209) от 02.04.2023
+
+МакSим - Дискография  (2006-2009) [FLAC|Lossless] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Певица МакSим родилась 10 июня 1984 года в городе Казани.По словам МакSим, все в ее жизни происходило само собой. Сначала было обучение в вокальном кружке города Казани. Параллельно МакSим занималась в спортивном кружке карате дзю-тзютсу. 6 лет стараний и красный пояс в кармане.
+Даже в старших классах МакSим не отличалась прилежным поведением. Но прогулы и опоздания (   Читать дальше...   )Жанр: Pop, Dance, Disco.Продолжительность: 4:09:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26D8169623D717E56F5EA76EAF57D7A4657C34FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450121   (1029334) от 24.02.2021
+
+Bonnie Tyler - The Best Is yet to Come (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Is Yet To Come
+02. Dreams Are Not Enough
+03. Hungry Hearts
+04. Stuck To My Guns(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:862F4AC879CB311502879E04B64907E3EAA364E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450074   (1029381) от 24.02.2021
+
+Q - Q (1982) LP [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain (6:19)
+02. Disco Damage (4:18)
+03. I Am On Fire (3:43)
+04. Never Felt This Way Before (4:22)(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-pop, DiscoПродолжительность: 00:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524ECFA332969F28844545078CB76812AEA7FA40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623389   (1029408) от 01.04.2023
 
 Lian Ross - 4You (2023) 2CD [MP3|320 Kbps] <Euro-Disco, Synth-pop, Europop>
@@ -535,168 +695,6 @@ Lemar - Page In My Heart (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Pop, R&B, Soul
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A29DDC2B33B5FA44057CE8A2CEBC181909D543B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448787   (1030454) от 19.02.2021
-
-Soprano Турецкого - 10 (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030454.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Турецкое рондо
-2. Habanera
-3. Ау
-4. Бублики(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:524E25943D48F03FD0DA2F5CA79E01A82CFC912A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448868   (1030476) от 19.02.2021
-
-NK (Настя Каменских) - Eclectica (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Elefante
-02 - A Huevo
-03 - Yea Or Nay
-04 - Película(   Читать дальше...   )Жанр: Pop, Latin Pop, DanceПродолжительность: 00:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17BC318B39FD1BCF0F8BD7ACA314C95FA5B8850
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448586   (1030694) от 18.02.2021
-
-Стас Костюшкин - Лакшери (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030694.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лакшери
-2. Гитара
-3. Ха-ха
-4. Васёк(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A190D4A4421495534BFD6B54C5B8FAAAF8BDEAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621900   (1030763) от 26.03.2023
-
-VA - Mystera VI (2000) [OGG Vorbis|480 Kbps] <Electronic, Classical, Ambient>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - Who Wants To Live Forever
-02. Enigma - Return To Innocence
-03. Rosenstolz - Amo Vitam
-04. Loreena Mckennitt - The Mummers' Dance(   Читать дальше...   )Жанр: Electronic, Classical, AmbientПродолжительность: 01:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76310787E0051E155EF1537D674F96B5A01C599
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448464   (1030884) от 17.02.2021
-
-VA - VIVA Hit Collection Vol.5 (2000) (2000) [FLAC|Lossless|image + .cue] <Dance-pop, Europop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Five / We Will Rock You [0:02:58.69]
-02. Savage Garden / Affirmation [0:04:58.64]
-03. Christina Aguilera / I turn To you [0:04:37.44]
-04. Backstreet Boys / The one [0:03:50.74](   Читать дальше...   )Жанр: Dance-pop, EuropopПродолжительность: 01:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54BE6D5CF080B1B40E352C88E4FF37774102667B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448467   (1030930) от 17.02.2021
-
-Tindersticks - Distractions (2021) [FLAC|Lossless|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Man Alone (Can't Stop the Fadin') (11:07)
-02. I Imagine You (05:36)
-03. A Man Needs a Maid (04:42)
-04. Lady with the Braid (06:59)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28FB19D37FC134F90436BB4A07230A449870691A
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1125507   (768110) от 15.04.2017
+
+VA - Trance Mission (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sungazers - Beneath The Sky (Radio Cut)  4:25
+02.  TrancEye - When The Sun Goes Down (Radio Cut)  3:19
+03.  Zage & Ekatherina April - My Moon (DJ T.H. Radio Edit)  3:51
+04.  Andy Groove - The Knot (feat Sam Vince) (Omniks Edit)  3:44(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D827C967587C63B84D94FEA2DB479B466B845C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213507   (768166) от 17.03.2018
+
+Dense - Bellwether (2018) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Progressive Trance, Psychill>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circulating Carpet Ride (07:50)
+02. Garden of the Future (06:52)
+03. A New Life (08:18)
+04. Moon Crater Four (07:57)(   Читать дальше...   )Жанр: Psybient, Progressive Trance, PsychillПродолжительность: 01:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD78D19AD8C43B6BA2011DAAAD0508E9BF9334C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213582   (768183) от 17.03.2018
+
+VA - Wake Your Mind Sessions 003 (Mixed by Cosmic Gate) (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cosmic Gate & JES  -  Fall Into You (Eskai Intro Remix)  3:25
+02.  Di Rugerio  -  Aeternis (Original Mix)  7:24
+03.  Max Freegrant & Slow Fish  -  Sweet Lies (Original Mix)  3:50
+04.  Tinlicker feat. Thomas Oliver  -  Nothing Without You (Extended Mix)  7:22(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 05:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196F26713A3EFFC23007F25C6F710B3BDDC41E64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213439   (768184) от 17.03.2018
+
+VA - Black Hole Trance Music 03 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RAM - Guiding Star (feat Clare Stagg - LTN extended remix)
+02. Quench - Dreams (Nicholson's extended Cathedral remix)
+03. Cosmic Gate & Markus Schulz - AR (Patrick White extended remix)
+04. Jam & Spoon - Odyssey To Anyoona (Mr Sam Return Of The Phoenix Club remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A6A0C24D3A629CC13490E62F8301BE55562978
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213595   (768186) от 17.03.2018
+
+VA - Funky Disco House Grooves Vol.09 (2018) [MP3|320 Kbps] <House, Indie-Dance, Nu-Disco, Funky-Groove>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Riley - Feel So (Original Mix)
+02. Deepscale feat. Mary Irene - Promise Me Love (Original Mix)
+03. B.A.N.G! - Circles (A Love State Of Mind) (Instrumental Extended)
+04. JazzyGo - Kuasar (Original Mix)(   Читать дальше...   )Жанр: House, Indie-Dance, Nu-Disco, Funky-GrooveПродолжительность: 02:24:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0213CDFAE63E302F2CFA16F93B9AD6D0E32C93B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213501   (768193) от 17.03.2018
 
 VA - High Class Fitness Session (2018) [MP3|320 Kbps] <Minimal, Tech House>
@@ -557,137 +692,6 @@ Soukie & Windish - Loom (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87370758E1195811D22091B9F7A39C33BA87EFC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016985   (769687) от 15.05.2016
-
-VA - Deep House Babes (2016) [MP3|320 кб/с] <House, Tech House, Deep House, Electronic, Progressive, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthony Sax - Dance After the Sunset (Photomatic Mix) 03:11
-02. Carl Solar - Blonde Hair (Robert Carrera's House Mix) 03:21
-03. Alexandre Lotus - Escape from Boredom (Tommy Lavit's Light Mix) 03:01
-04. Dimension Zero - Dimension Zero (Subway Rhythms Mix) 03:14(   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 01:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBB755AC76A90821BA931F36142ECC2992DC5158
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016977   (769696) от 15.05.2016
-
-VA - Ultimate Dub Style Techno, Vol. 1 (2016) [MP3|320 кб/с] <House, Tech House, Deep House, Electronic, Progressive, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert Heel - Quantifizierung der Irrelevanz 04:34
-02. Kayowa - Pan (Regular Mix) 05:43
-03. Tim Duwensee - Platanias 08:13
-04. Niefelsen - Flying High 04:46(   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 02:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF13BB009AC60B1E64230C22707D6209AC25210B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002042   (769704) от 24.06.2020
-
-Jan Amit - Discography 19 Releases (2012-2020) Endless [SHF] Quest, SEALT [FLAC|Lossless|tracks] <IDM, Downtempo, Glitch, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orpheus's Takeoff (04:27)Тип издания: WEB, VinylЖанр: IDM, Downtempo, Glitch, Ambient •Продолжительность: 07:31:50 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C620E54704A20646C0F43629B9791456023FE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991225   (769770) от 24.06.2020
-
-VA - Cajmere - Wheels Of Steel Vol.1 (1998) [FLAC|Lossless|tracks + .cue] <Techno, Minimal, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andre L. Prioleau & Gene Santiago - One Small Step (04:03)
-02. Djaimin & Djaybee - Fever (03:54)
-03. Cajmere - Only 4 U (Mark Grant Mix) (03:00)
-04. Kerri Chandler - It's You (04:00)(   Читать дальше...   )Жанр: Techno, Minimal, Tech HouseПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFDF83E2FE064C46E929FC281B596AA0943BDCE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392102   (769811) от 24.06.2020
-
-Dheeva (Asura & Lestesie) - Discography 2 Releases (2020) Multiversal Records, Flangerine Records [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not From This World (07:30)
- 02. New Order (07:22)
- 03. Le Mur De Planck (07:39)Тип издания: WebЖанр: Psy-Trance, Goa Trance •Продолжительность: 00:54:03 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C43DC5E905FA87A012EBCD8ADC25F2F83A26920
 ```
 
 

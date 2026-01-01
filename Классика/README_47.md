@@ -1,3 +1,55 @@
+###  Публикация: 992522   (900571) от 02.03.2016
+
+Прокофьев, Hindemith - Quintet, Overture on Hebrew Themes; Octet (Berlin Soloists, Bashkirova) (2002) [MP3|320 кб/с] <Классическая музыка, Modern, Chamber>
+
+>>Классика
+>>Концерты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прокофьев - Overture on Hebrew Themes in C minor, op. 34
+01
+Hindemith - Octet
+02 (1) Breit. Massig schnell(   Читать дальше...   )Жанр: Классическая музыка, Modern, ChamberПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35372CC174C6208F1EA4F13847DE107157A64C4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992297   (900587) от 02.03.2016
+
+Я. Хейфец - К. Сен-Санс - Интродукция И Рондо-Каприччиозо / П. Сарасате  - Цыганские Напевы (1960) [FLAC|96/24|Lossless|tracks|Vinyl-Rip] <Classical, Violin>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. К. Сен Санс - Интродукция и рондо-каприччиозо, соч. 28
+02. П. Сарасате - Цыганские напевы, соч. 20Жанр: Classical, violinПродолжительность: 00:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89FEF0E2D1559A7B873D5216DF1491AC3318DC4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992423   (900594) от 02.03.2016
 
 Grieg, Prokofiev - Piano Concerto in A; Piano Concerto no. 3 (Nikolai Lugansky, Kent Nagano) (2013) [OGG|256 кб/с] <Классическая музыка, Orchestral, Concerto>
@@ -644,60 +696,6 @@ VA - Classical 2008 (2007) compilation, CDx2 [FLAC|Lossless|image + .cue] <Class
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CD12FD85EFC495BE19EAD94D7812A598C91CD72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992247   (902424) от 01.03.2016
-
-Montserrat Caballe - Caballe and Friends (1997) [FLAC|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caballe / Je Veux vivre dans le reve (3:51)
-02. Caballe / Questo cor ben lo comprende (3:08)
-03. Caballe, Carreras / Ah, quegli occhi... Mia gelosa! (5:55)
-04. Caballe / Spargi d'amore pianto (4:30)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35897A2798BB4141522F2542559C74C728BDFAE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992262   (902428) от 01.03.2016
-
-Jennifer Thomas - Winter Symphony (2015) [FLAC|Lossless|tracks] <Instrumental, Classical crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angels We Have Heard On High (feat. The Ensign Chorus) (5:18)
-02. Dance of the Sugar Plum Fairy (3:31)
-03. Carol of the Bells (4:37)
-04. Alleluia (feat. Felicia Farerre & The Ensign Chorus) (6:16)(   Читать дальше...   )Жанр: Instrumental, Classical crossoverПродолжительность: 00:56:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:563E2E08A4C3041E4387B647FF1C4278341CBFDC
 ```
 
 

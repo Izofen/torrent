@@ -1,3 +1,192 @@
+###  Публикация: 1219243   (715730) от 13.04.2018
+
+Dr. Jeffrey Thompson & Mick Rossi - Dancing Clouds (2007) [FLAC|Lossless|tracks] <New Age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmos 15:28
+02. Flying 15:49
+03. Astral Plane 16:05
+04. Dancing Clouds 15:22Жанр: New Age, Meditative, RelaxПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312BA8154153A9BC8FDB3047125BEB70F1F522C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024268   (715830) от 09.06.2016
+
+Michael Giacchino - Zootopia / Зверополис (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shakira - Try Everything (03:17)
+02. Stage Fright (00:40)
+03. Grey's uh-Mad at Me (01:45)
+04. Ticket to Write (01:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EBBFC8615B1C55D404A5C0A5F1F0209B7ED3111
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024266   (715958) от 09.06.2016
+
+Michael Giacchino - Zootopia / Зверополис (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shakira - Try Everything (03:17)
+02. Stage Fright (00:40)
+03. Grey's uh-Mad at Me (01:45)
+04. Ticket to Write (01:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:184075190F0AB1A52517BBAEF015BDB4E463D02F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130155   (715964) от 01.05.2017
+
+VA, Tyler Bates - Guardians of the Galaxy / Стражи Галактики (Original Motion Picture Soundtrack) (2014) Deluxe Edition [FLAC|Lossless|tracks + .cue]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tyler Bates - Morag (01:58)
+02. Tyler Bates - The Final Battle Begins (04:21)
+03. Tyler Bates - Plasma Ball (01:18)
+04. Tyler Bates - Quill's Big Retreat (01:38)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:49:42 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74CEA0BFA04639FE28978462C214E529E4E1A8A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024650   (716020) от 09.06.2016
+
+Deva Premal & Miten with Manose - Cosmic Connections Live (with Manose) (2016) Live [MP3|320 кб/с] <New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Om Sahana Vavatu Mantra (Live)
+02. Mangalam (Live)
+03. Nam Myoho Renge Kyo Mantra (Live)
+04. Om Kumara Mantra (Live)(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 00:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D5E982E40354523EB2ACFBC92613AB2D19A457
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024740   (716035) от 09.06.2016
+
+Hans Zimmer - Kung Fu Panda 3 / Кунг-фу Панда 3 (Music from the Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hans Zimmer & Lang Lang – Oogway's Legacy (02:00)
+02. Hans Zimmer - Hungry for Lunch (01:15)
+03. Hans Zimmer – The Power of Chi (04:12)
+04. Hans Zimmer – The Arrival of Kai (02:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFFC59F0F35E7EFAFBF852B2D7154D4CD3AE11F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024730   (716126) от 09.06.2016
+
+Midori - Mellow - Relaxation Piano (2014) [FLAC|Lossless|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clarity [00:08:22]
+ 02. A Promise of Love [00:05:08]
+ 03. Love Is All We Need [00:06:20]
+ 04. Peace [00:06:36](   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E45EB9B8D0CECCAC04381966207FF7F7B93FF69F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023598   (716127) от 09.06.2016
 
 Giga Wing 2 (Yasushi Kaminishi) (DC) (2001) [MP3|320 кб/с]<Score>
@@ -502,195 +691,6 @@ VA - Diving Dreams - The Coral Sea (2005) [APE|Lossless|image + .cue] <New Age, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5DDDB1E6BCFBE7FA966AD7EBC364BDA25687423
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 217056   (718742) от 05.08.2020
-
-Christophe Goze - A Day In Ibiza (2009) [APE|Lossless|image + .cue] <Easy Listening>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. About Us    		(06:19)
-02. Manana    			(06:14)
-03. Somthing Like This    	(05:58)
-04. Dream    			(05:39)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9D4636EC248A5C352CA068FA4487FB99CA34088
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 229946   (718753) от 05.08.2020
-
-Vittorio Del Monaco - Histoires D'amour (1991) (2CD) [FLAC|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Ballade Des Gens Heureux (03:03)
- 02. Mediterraneenne 		 (04:20)
- 03. L'amour En Mer 		 (03:08)
- 04. Voyage Voyage 		 (04:18)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E335E7072BDF2A8B8C12F863E9D238A353A6443E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285749   (718805) от 27.02.2019
-
-VA - The Most beautiful musical hits the songs of Andrew Lloyd Webber (Unknown) Box Set, 3CD, Compilation [FLAC|Lossless|image + .cue] <Instrumental, Stage & Screen>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718805.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01. Amigos Papa Siempre - Barcelona Olympics
-02. Don’t cry for me Argentina -Evita
-03. Another suitcase in another hall - Evita(   Читать дальше...   )Жанр: Instrumental, Stage & ScreenПродолжительность: 02:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33CE513529C012C13A8168D6F452CEDAD8E6BB91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285492   (718914) от 27.02.2019
-
-VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 9 (1994) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonata in D
-02. Sound of a song
-03. Hear my song
-04. Solveig's song(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96E499538262FF9B90571E3F36F0B56A306081C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285475   (718916) от 27.02.2019
-
-VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 5 (1990) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here, There and Everywhere + Hey Jude - Symphonic Rock Orchestra
-02. Chopin's Dreams (Etude) - Wave's Computer Orchestra
-03. Hello Mary (BachGounod Ave Maria) - Philharmonics of London
-04. Hummelflug + Ungarischer Tanz No.5 + Leichte Kavallerie + Carmen - Symphonic Rock Orchestra(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C807FC1A5FD955CBA403183BF156487354C1EDF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285106   (718926) от 27.02.2019
-
-Scotch On The Rocks - The Songs Of Anfield Road (2002) [FLAC|Lossless|image + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fields Of Anfield Road
-02. Scouser Tommy
-03. The Banks Of The Merseyside
-04. Liverpool Lou(   Читать дальше...   )Жанр: FolkПродолжительность: 00:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2035890401F2CFA411BE311B28BF8787FC466EB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285486   (718929) от 27.02.2019
-
-VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 6 (1990) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flight Of The Bumble Bee / Hungarian Dance No. 5 / Light Cavalry Carmen
-02. Blue Moon
-03. Holy Halls
-04. Here, There and Everywhere/ Hey Jude(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43C24CC7767FC64943BB14D2807763F45A5639F
 ```
 
 

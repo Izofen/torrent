@@ -1,3 +1,192 @@
+###  Публикация: 1359361   (964992) от 11.02.2020
+
+Грязный Эндрю - Матерные частушки (2019) [MP3|320 Kbps] <Частушки>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964992.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Матерные частушки, часть1
+2. Матерные частушки, часть2
+3. Матерные частушки, часть3
+4. Матерные частушки, часть4(   Читать дальше...   )Жанр: ЧастушкиПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB78E5DF6025CE9068DF8650E16D7228B365E36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977738   (965539) от 21.01.2016
+
+Henry Jackman - The 5th Wave / 5-я Волна  (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (02:00)
+02. Tsunami (02:37)
+03. Aftermath (02:41)
+04. Wright Patterson (01:16)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E1B2DD5BC0045A0CF3EA849B6516CF96FF663E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977539   (965684) от 21.01.2016
+
+VA - Country Hitmix (2000) Mix [FLAC|Lossless|image + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mix 1 - 4:59
+1.1	United Cowboys - Let's Go Nashville
+1.2	Gordon Lange & Kactus - Lone Star State Of Mine
+1.3	Willie Nelson - On The Road Again(   Читать дальше...   )Жанр: CountryПродолжительность: 00:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8607AF4701B92BECEA5104DC238F00A16DFD376A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358717   (965962) от 10.02.2020
+
+VA - Death Stranding (Songs from the Video Game) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965962.jpg" />
+</div>
+
+
+###  Подробнее
+
+|06:13| 01. Low Roar - Don't Be So Serious
+|02:50| 02. Low Roar - Bones
+|04:48| 03. Low Roar - Easy Way Out
+|02:03| 04. Low Roar - Poznan(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:224D1D552E878545B66483111EF879C3CE0FC07A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358947   (966086) от 10.02.2020
+
+VA - 100 Greatest Country The Best Hits from Nashville And Beyond (2020) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966086.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dolly Parton - To Know Him Is to Love Him
+002. Zac Brown Band - Chicken Fried
+003. Willie Nelson - Whiskey River
+004. Blake Shelton - God Gave Me You(   Читать дальше...   )Жанр: CountryПродолжительность: 05:48:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D63264EAA50E44AD7360D81C4E6E888856BAEF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 620138   (966182) от 17.02.2013
+
+V.A. - We Are The World - USA For Africa (1985) [FLAC (tracks+cue)|Lossless]<Pop, Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. USA For Africa - We Are The World
+02. Steve Perry - If Only For The Moment Girl
+03. The Pointer Sisters - Just A Little Closer
+04. Bruce Springsteen &The E-Street Band - Trapped(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358539   (966195) от 10.02.2020
+
+Jim Brickman - Romance (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Are So Beautiful
+02. Right Here Waiting
+03. On The Wings Of Love
+04. The Rose(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FF5ABC8852F1027E7DED07E2B39F6BFBA14CA06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358696   (966202) от 10.02.2020
 
 Randy Newman - Marriage Story / Брачная история (Original Music from the Netflix Film) (2019) [MP3|320 кб/с]<Soundtrack>
@@ -540,210 +729,6 @@ VA - Birds of Prey / Хищные птицы (Потрясающая истор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74DAA493A30EB4F046789261BD6BF3130376FEDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358226   (969641) от 07.02.2020
-
-VA - Birds of Prey / Хищные птицы: Потрясающая история Харли Квинн (The Album) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969641.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:14| 01. Doja Cat - Boss Bitch
-|02:11| 02. Whipped Cream - So Thick (feat. Baby Goth)
-|03:19| 03. Megan Thee Stallion & Normani - Diamonds (with Normani)
-|02:48| 04. Saweetie & GALXARA - Sway With Me(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11081F2F8024B90F4C36DC10BCA6AE62639DDDF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357382   (969689) от 07.02.2020
-
-VA - 100 Greatest Modern Country Songs (2020) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969689.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tim McGraw - Humble And Kind
-002. Chris Stapleton - Tennessee Whiskey
-003. Thomas Rhett - Die A Happy Man
-004. The Shires - The Hard Way(   Читать дальше...   )Жанр: CountryПродолжительность: 05:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4179D6A10AD2C5D64426BD3A7976C995C6A1E88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358231   (969705) от 07.02.2020
-
-Bear McCreary - See / Видеть: Season 1 (Apple TV+ Original Series Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969705.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:08| 01. The Alkenny People
-|07:54| 02. Witch Finders
-|02:04| 03. Father Voss
-|03:24| 04. Rock Wall Battle(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C0307C71E69C4EC76E52B75765098B743424FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744172   (970008) от 12.01.2014
-
-С418 - Minecraft - Volume Beta (2013) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Ki (01:32)
-02. Alpha (10:03)
-03. Dead Voxel (04:56)
-04. Blind Spots (05:32)
-05. Flake (02:50)
-06. Moog City 2 (03:00)
-07. Concrete Halls (04:14)
-08. Biome Fest (06:18)
-09. Mutation (03:05)
-10. Haunt Muskie (06:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:20:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA0694AB2185CE9F47D9307C3D8B0BF75045D6F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 167032   (970031) от 20.01.2010
-
-Орфей и Эвридика - Зонг-опера (2 части) (2003) [MP3|320 kb/s]
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Зонг-опера
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744918   (970051) от 12.01.2014
-
-VA - Instrumental Dreams (2013) [FLAC|Lossless]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Guitarra Azul - Tears in the Rain 			(05:44)
-02. Hiromi Sano - Gardenia Flowers 			(04:04)
-03. Armik - Treasure Island 				(04:36)
-04. Johannes Linstead - September Remembered 		(03:35)
-05. Mehdi - Bridge To Paradise 				(04:46)
-06. Nova Menco - And I Love Her 			(03:07)
-07. Guitarra Azul - Lotus Flower 			(04:16)
-08. Omar - Passage into Midnight 			(04:23)
-09. Hiromi Sano - I Drink 				(04:05)
-10. Pavlo - Sol Y Luna (Cha Cha) 			(04:37)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:608EC59E54E23CA31A2E048B2064C4CD45FAFA1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 407083   (970083) от 12.01.2014
-
-Mike Howe - 4 albums (2009-2013) [MP3|320 кб/с]<New age, Relax, Acoustic guitar>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(3:35) 01. American Travels
-(3:52) 02. Old Wooden House
-(3:42) 03. Badlands
-(3:45) 04. Hope
-(2:59) 05. Navajo Wind
-(3:58) 06. The Last Buffalo
-(4:11) 07. I Can See For Miles
-(3:58) 08. Desert Solitaire
-(3:21) 09. Friends Are Lost
-(2:40) 10. Wyoming(   Читать дальше...   )Жанр: New age, Relax, Acoustic guitarПродолжительность: 00:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A778DCFD88EF8BBA95638066509FE4629F4BE59E
 ```
 
 

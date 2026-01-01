@@ -1,3 +1,57 @@
+###  Публикация: 1437106   (1042535) от 03.01.2021
+
+VA - From Sweden With Love - The Next Generation (2006) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Knife / Silent Shout 04:53
+02. Peter Bjorn and John / Young Folks 04:39
+03. Vapnet / Färjemansleden 03:35
+04. Timo Räisänen / Let's Kill Ourselves a Son 03:15(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE62E4DC44BAACFF6CBCE60A359D3901C3841F57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437002   (1042555) от 03.01.2021
+
+Karizma Duo - Late Night Karizma (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sail On (4:03)
+02. Dream a Little Dream of Me (3:14)
+03. Feel (3:15)
+04. Mandy (2:50)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A9C20263B498DDA335B04A93872C9D5C8FDFB60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610065   (1042899) от 05.02.2023
 
 Bryan Adams - Cuts Like A Knife - 40th Anniversary, Live From The Royal Albert Hall (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
@@ -643,60 +697,6 @@ Kylie Minogue - Kylie Christmas [Fully Wrapped] (2025) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB1CFC8407224AA471D31435A6369121682C6E92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840693   (1047473) от 07.12.2025
-
-VA - Hooked On a Feeling - 70s Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Björn Skifs, Blue Swede - Hooked On a Feeling - (02:53)
- 02 Rod Stewart - Tonight's the Night (Gonna Be Alright) - (03:57)
- 03 Fleetwood Mac - Dreams (2018 Remaster) - (04:17)
- 04 Carly Simon - You're So Vain - (04:18)(   Читать дальше...   )Жанр: PopПродолжительность: 03:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1F8F9E95B7C21A8AF064A74954534E98C0F8782
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841603   (1048113) от 12.12.2025
-
-Infinite Coles - SweetFace Killah (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SweetFaceKillah [00:02:16]
-02. DMs [00:03:19]
-03. Boots (Ballroom C*NT mix) [00:03:42]
-04. Shoot [00:03:29](   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58E678354DC7B1308455BEB6BBA2AD67FA91F0D9
 ```
 
 

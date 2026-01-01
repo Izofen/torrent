@@ -1,3 +1,30 @@
+###  Публикация: 1350499   (1003194) от 06.01.2020
+
+Teach In - Bye Bye Bye (2020) (2 CD Compilation) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Friend Goodbye
+02. Sing Your Song
+03. My Rock And Roll Song
+04. Get On Board(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A05C604B2D688024D1F35742FB09D15C3A2C0C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350207   (1003447) от 05.01.2020
 
 Zarina Tilidze - Hit Collection (2019) [MP3|320 Kbps] <Pop, Lyric>
@@ -668,33 +695,6 @@ VA - 80s Hits Essentials (2021) [MP3|320 Kbps] <Disco, Pop, Rock, RnB>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A53B3BE235328526B3099C712EE15F37C7B9548
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473984   (1013364) от 31.05.2021
-
-VA - The Best Mother's Day Album In The World...Ever! (2021) [MP3|320 Kbps] <Pop, Rock, RnB>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bee Gees - More Than A Woman (From "Saturday Night Fever" Soundtrack)
-02. Calum Scott - You Are The Reason
-03. Lana Del Rey - Young And Beautiful
-04. Queen - Good Old-Fashioned Lover Boy (Remastered 2011)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 04:15:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5C8DF3184046117A52F4CD842CB78FA580CA4DF
 ```
 
 

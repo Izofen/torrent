@@ -1,3 +1,165 @@
+###  Публикация: 1273385   (800628) от 01.01.2019
+
+Mirko Hirsch - Undercover - Free Christmas Edition (2018) Compilation, Remastered [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rick De Moore - It's Love (Maxi Version) (6:19)
+02. Dario Silver - Lonely In The Name Of Love (5:06)
+03. Dario Silver - Electric Heartbeat (6:36)
+04. Dario Silver - Computer Girl (5:34)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:708E02F3D82C4E1254C0B0159ABEA8B5159A8B61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273499   (800636) от 01.01.2019
+
+Lisa - Lisa (1983) LP [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sex Dance (5:55)
+02. Invisible Love (5:17)
+03. Rocket To Your Heart (5:48)
+04. Mandatory Love (5:42)(   Читать дальше...   )Жанр: Electronic, Hi NRG, DiscoПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5596C88E4090C0204649C941CB64DA861210117
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273381   (800637) от 01.01.2019
+
+Italoconnection - Metropoli (2018) 2CD, Expanded Edition [MP3|320 Kbps] <Synth-pop, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horizon (5:02)
+02. Humanize (3:56)
+03. Sleeping (4:41)
+04. King Of The Night (3:40)(   Читать дальше...   )Жанр: Synth-pop, Italo-DiscoПродолжительность: 02:27:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE73CD673C41C70A281F4C8DAB1A317F3B6ED88A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384850   (800849) от 22.05.2020
+
+Ёлка - Past Perfect (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800849.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я не такая, как вы!
+2. Синтетический мир
+3. Изоляция
+4. Красная роза(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17788CDA0B3AD45DFAECE9EF9D1F709EBA805DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 729984   (800877) от 16.01.2018
+
+VA - Absolute Music 74 (2013) 2CD [FLAC|Lossless]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляю вашему вниманию последний сборник хитов от Eva Records (Absolute). И хотя они уже были на трекере в Мр3, полагаю, что любители качественного звука не пройдут мимо. Только не отправляйте этот диск в каталог ретро. Пусть не смущает вас цифра 74- это не год издания и не период выхода композиций - это всего лишь номер сборника самых последних "свеженьких" (   Читать дальше...   )01. Avicii - Hey Brother (3:12)
+02. Pitbull feat. Kesha - Timber (3:24)
+03. Jason Derulo feat. 2 Chainz - Talk Dirty (2:57)
+04. Drake feat. Majid Jordan - Hold on Were Going Home (3:46)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:208264977BA598FCE2F1E525CD01894A1059B3E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199095   (801024) от 16.01.2018
+
+Poppy - Poppy.Computer (2017) [FLAC|Lossless|tracks] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Poppy - 3:06
+02. Let's Make A Video - 2:51
+03. Bleach Blonde Baby - 3:30
+04. My Microphone - 2:52(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C386F3A4137F25860D16C31F832B02CB86EC4858
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199477   (801082) от 16.01.2018
 
 VA - Les chansons de l'année 1957 (2017) [MP3|320 Kbps] <Pop, French Chanson>
@@ -533,168 +695,6 @@ Beyonce - Lemonade (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17EDA400AB0A31EE91C6B10502F9412B7F5BABCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010725   (802160) от 25.04.2016
-
-VA - Eurovision Song Contest Stockholm 2016: Come Together (2016) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Folk Pop, Pop Rock, Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eneda Tarifa - Fairytale (Albania) - 3:01
-02. Iveta Mukuchyan - LoveWave (Armenia) - 2:58
-03. Zoë - Loin d'ici (Austria) - 3:01
-04. Dami Im - Sound Of Silence (Australia) - 3:05(   Читать дальше...   )Жанр: Pop, Eurodance, Folk Pop, Pop Rock, Chanson, Ballad, Swing, VocalПродолжительность: 02:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D0DAF73F8CAE49A5AA50988FE01A27C5CFEE56C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010738   (802161) от 25.04.2016
-
-Roxette - It Just Happens (2016) Single [FLAC|Lossless|WEB-DL|track] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Just Happens (03:46)Жанр: Pop RockПродолжительность: 00:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5E3996E369F52F850CB22881B9A22CF917FAA89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 650228   (802279) от 28.10.2021
-
-Непара - Дискография (3 альбома) (2003-2009) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Непара - это дуэт, состоящий из композитора и певца Александра Шоуа и красавицы с магнетическими глазами по имени Вика.
-Первая песня группы - «Другая причина» - завоевала аудиторию почти мгновенно.
-Казалось, раньше практически никто не пел о взаимоотношениях людей, которые хотели бы, да не могут в силу разнообразных социальных причин,
-как-то: другая семья, дети, (   Читать дальше...   )01. Домой
-02. Неверная луна
-03. Режиссер моей судьбы
-04. Вокзал на двоих(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC15E992789006E987331B186A914707DFF47223
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384400   (802515) от 20.05.2020
-
-Анжелика Варум - Лучшие песни (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop, Euro House>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сумасшедшая (4:30)
- 02. Нарисуй любовь (4:35)
- 03. Зимняя вишня (Новая версия) (5:20)
- 04. Если ты когда-нибудь меня простишь (4:08)(   Читать дальше...   )Жанр: Pop, Euro HouseПродолжительность: 02:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39D8FD052EDC875035F6D93362073DA16E6BB1BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010741   (802544) от 25.04.2016
-
-Lena Anderssen - Eagle In The Sky (2015) [FLAC|Lossless|tracks] <Pop, Alternative, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Home Sweet Home    03:14
-02. Eagle In The Sky    04:49
-03. Sorry That I Made You Cry    04:05
-04. Oh Brother With The Broken Wing    04:43(   Читать дальше...   )Жанр: Pop, Alternative, FolkПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03410EE691B1B0B95CA58C937C83FA5790FCF606
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199146   (802598) от 14.01.2018
-
-Asha Puthli - 8 Studio Albums (1973-2009) Exclusive [MP3|320 Kbps] <Electronic, Funk-Soul, Disco, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Asha Puthli - певица, продюсер и актриса родилась и выросла в Бомбее, Индия. Получила контракты и признание в Европе и за океаном. Ее записи, которые охватывают стили, такие как: блюз, поп, рок, соул, фанк, диско, и техно были произведены Del Newman  (продюсировал Элтона Джон и Кэт Стивенс) и Тео Macero (который выпустил Майлза Дэвиса и Вернона Рида). Исполнение на (   Читать дальше...   )Список альбомов:
-1973 - Asha Puthli
-1975 - She Loves To Hear The Music
-1976 - The Devil Is Loose(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Disco, Pop RockПродолжительность: 05:22:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16298B8C0E9FE19DDBAC585B6B81DE7BC7344FB5
 ```
 
 

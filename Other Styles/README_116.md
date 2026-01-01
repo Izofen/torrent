@@ -1,3 +1,192 @@
+###  Публикация: 1132626   (700637) от 09.05.2017
+
+Medwyn Goodall - The Sorcerer's Daughter 2 (2017) [MP3|320 Kbps] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter in the Mountains
+02. The Book of Dragons
+03. When It Snows in the Forest
+04. The Quest(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40934631A43CC806B4A93C5409A1198B6269B6CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132600   (700772) от 09.05.2017
+
+Parijat - Blessings (2017) [MP3|320 Kbps] <New age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise
+02. All Is Well
+03. I Hold You When You Fall
+04. The Heart Is a Resting Place(   Читать дальше...   )Жанр: New age, InstrumentalПродолжительность: 01:08:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77CCA0495AE756AB5BF43160D4676ED51D9B2554
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132424   (700781) от 09.05.2017
+
+Samuel Laflamme - Outlast II (Original Game Soundtrack) (2017) [FLAC|Lossless|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Origins of Murder Victim Jane Doe (01:33)
+02. Hide You in Ezekiel’s Blood (01:18)
+03. I Am the Chorus of Screams! (02:03)
+04. You Don’t Have to Hide (01:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B77CC1CA3C9C9E0DA84A40418CC5994455D00E81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132580   (700846) от 09.05.2017
+
+Timothy Wenzel - What We Hold Dear (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Murmuration (feat. Josie Quick & Jordan Schug)
+02. What We Hold Dear (feat. Josie Quick & Jordan Schug)
+03. Appalachian Waters
+04. Ascension (feat. Jordan Schug)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E075870D3B3AD147FD163D592ED18FF086932BAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132495   (700848) от 09.05.2017
+
+D-Emotion Project - Hybrid (1994) [FLAC|Lossless|image + .cue] <New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Svoboda 5:51
+02. The Mountain Song (Pritouritze Planinata) 6:54
+03. Optaki 4:54
+04. Sebastien's Song 3:29(   Читать дальше...   )Жанр: New Age, DowntempoПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A645B0E24C51365D53ED5F8240258C7A967D138
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132422   (700997) от 09.05.2017
+
+Samuel Laflamme - Outlast II (Original Game Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Origins of Murder Victim Jane Doe (01:33)
+02. Hide You in Ezekiel’s Blood (01:18)
+03. I Am the Chorus of Screams! (02:03)
+04. You Don’t Have to Hide (01:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926FF174363ACFAE1B1D390379C751C00094834B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132572   (701115) от 09.05.2017
+
+Divine Works - Soundtrack to the new millenium (1997) [FLAC|Lossless|tracks + .cue] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Divine Works I (3:18)
+02. Ancient Person Of My Heart (5:52)
+03. O'Ecclesia (3:35)
+04. Interlude I (1:46)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 00:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A76F53AEAE67879E5DD966EA714194E2B8E6BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132586   (701126) от 09.05.2017
 
 Timothy Wenzel - What We Hold Dear (2017) [MP3|320 Kbps] <New Age>
@@ -505,195 +694,6 @@ Brian Tyler - The Fate of the Furious / Форсаж 8 (Original Motion Picture 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00441794190AA492295EF805F23210862E3D5F47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131456   (706610) от 06.05.2017
-
-Cristobal Tapia de Veer - The Girl With All The Gifts / Новая эра Z (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gifted (Pimped Mix) (02:59)
-02. Pandora (01:49)
-03. Hunger (01:00)
-04. My Special Girl (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB5355700F40F79E758F546926F3CC83E3056EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131467   (706938) от 06.05.2017
-
-Bear McCreary - Colossal / Моя девушка – монстр (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colossal Prologue (02:21)
-02. A Monster Hypothesis (05:20)
-03. A Walk in the Park (02:19)
-04. Jealousy (03:13)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0065172329DF0BECD7D7631E439632CADB3D72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131469   (706945) от 06.05.2017
-
-Bear McCreary - Colossal / Моя девушка – монстр (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colossal Prologue (02:21)
-02. A Monster Hypothesis (05:20)
-03. A Walk in the Park (02:19)
-04. Jealousy (03:13)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C43CC723A831BC75C95FE94FF675C1DE23D2139F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131455   (706949) от 06.05.2017
-
-Cristobal Tapia de Veer - The Girl With All The Gifts / Новая эра Z (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gifted (Pimped Mix) (02:59)
-02. Pandora (01:49)
-03. Hunger (01:00)
-04. My Special Girl (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:293B7149ACBB9E998A4B29B3D6E5B13C371A31B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 328145   (706993) от 11.08.2020
-
-VA - Super Instrumental 25 (Vol. 23-25) (1996) [FLAC|Lossless|image, tracks + .cue] <Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armik - Sailing To Bimini (05:14)
-02. The Ventures - Blue Chateau (02:43)
-03. Hugo Strasser - Raindrops Keep Falling On My Head (02:30)
-04. Boris Zepyr - Fernando (04:25)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 03:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E66ABB2198EC3FA015AD9BA52933E092715E7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401575   (707521) от 11.08.2020
-
-The Pasadena Roof Orchestra - Breakaway (1991) [FLAC|Lossless|image + .cue] <Jazz>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707521.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Breakaway (03:17)
-2. Jeepers Creepers (02:50)
-3. Piccolo Pete (02:58)
-4. The Very Thought of You (03:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03124F4B4561E290135534CBAB846C826C3A7777
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025666   (707843) от 13.06.2016
-
-Jupiter Panic - Earth-like (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronica, Soundtrack, New Age>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening [00:04:08]
-02. Code 44 [00:04:32]
-03. The Arrival [00:02:50]
-04. Future Noir [00:03:25](   Читать дальше...   )Жанр: Electronica, Soundtrack, New Age, Synthwave, ElectroПродолжительность: 00:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01BEC82D45E9E399BA21BE16792621463BE9C7E1
 ```
 
 

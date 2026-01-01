@@ -1,3 +1,138 @@
+###  Публикация: 1365596   (929149) от 08.03.2020
+
+The Last One - Discography 3 Releases (2019) iM Electronica, opn g8s [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Drone, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avoiding The Lamps (10:41)
+ 02. The Abyss Does Not Exceed (10:29)
+ 03. Locomotive Horn (11:27)
+ 04. Foot Of The Tree (13:14)(   Читать дальше...   )Тип издания: WEBЖанр: Dark Ambient/Ambient/DroneПродолжительность: 03:54:16 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FEC4D4553C6F122FC23A3EE3FFA3C4069BA219F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986790   (929261) от 15.02.2016
+
+VA - Clubbers Guide Summer 2007 (2007) [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kim Sozzi - Break Up (2-4 Grooves remix) (4:03)
+02. SJB feat. Jane Wiedlin - Rush Hour (Fonzerelli Hot & Sexy remix) (3:30)
+03. Dada feat. Sandy Rivera & Trix - Lollipop (Jerry Ropero remix) (4:45)
+04. Haji & Emanuel feat. Robert Owens - If (3:45)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF1DFB379C19C771B4E354729235F6491F04819
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365341   (930281) от 07.03.2020
+
+VA - SF035 Raveskool Retrospective Vol 1 (2020) [MP3|320 Kbps] <Hardcore, UK Hardcore>
+
+>>Electronic
+>>Hardstyle, Jumpstyle, Hardcore
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dissy - Eventuality [05:39]
+02. The Vibe Controller - Raggahappy [06:09]
+03. Apogee Breaks - Snow In Chiba [05:55]
+04. Case 82 - Start Rockin [05:42](   Читать дальше...   )Жанр: Hardcore, UK HardcoreПродолжительность: 02:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C24B8E727F145116D3AD94AD94BBA9B9F0E148
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365254   (930403) от 07.03.2020
+
+Neelix - Let's Just Leave (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Progressive Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930403.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Neelix - Let's Just Leave (1:00:52)
+2. Neelix - Bam Bam (Let's Just Leave Cut) (3:26)
+3. Neelix - Sleep Tight Anna (Let's Just Leave Cut) (5:02)
+4. Neelix - Far Away (Let's Just Leave Cut) (4:56)(   Читать дальше...   )Жанр: Psy-Trance, Progressive Psy-TranceПродолжительность: 01:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C27C481896BF7EC92093BEAE63D18068A2D8F316
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986019   (930409) от 14.02.2016
+
+Didier Marouani Space - Greatest Hits (2008) 2CD [FLAC|Lossless|image + .cue] <Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930409.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Fasten Seat Belt (6:06)
+02. Just Blue (4:35)
+03. Magic Fly (4:24)(   Читать дальше...   )Жанр: ElectronicПродолжительность: CD1 - 01:19:24; CD2 - 01:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0EF64CC600C6C50FBB47CCB827B8F4C5C12B91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365350   (930545) от 07.03.2020
 
 VA - Miami 2020 Drum & Bass (2020) [MP3|320 Kbps] <Drum & Bass>
@@ -560,141 +695,6 @@ VA - Ministry Of Sound: Chilled House Session (2016) [MP3|320 кб/с] <Afro Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C1C89B4CDDBA7F890815F927DF85E89BB85F6E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093774   (932492) от 16.01.2017
-
-VA - Total Trance Selections Vol.01 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Indecent Noise - Blade Dancer (Extended Mix)  7:52
-02.  Rodrigo Deem - Lux (Extended Mix)  6:13
-03.  Lange - Hacktivist (Extended Mix)  6:23
-04.  Future Antics - Everything Is Nothing (Extended Mix)  7:31(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BA2D7A28C56A75DDFC557A73AF4653A375FE5F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093832   (932499) от 16.01.2017
-
-VA - Wind in the Field (Downtempo Series)  Vol.003 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Groofeo - Way (Original Mix)  4:09
-02.  The A.W. - With You (Original Mix)  3:25
-03.  Seventh - Nonexistent Instant Awe (Original Mix)  2:55
-04.  Golden Light Orchestra - Spellbound (Anair Remix)  3:43(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:27:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F1192BCA3ED7A3F9DE2B3833FEACB67CA30EEB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985926   (932572) от 13.02.2016
-
-Blank & Jones and Mark Reeder  ‎ - Reordered (2009) [FLAC|Lossless|tracks + .cue] <House, Electro, Synth-pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Forest (Schwarzwald Mix) (6:48)
-02. Heart Of Wax (Heart Of Crystal Mix) (6:27)
-03. Loneliness (Alone In The Dark Mix) (4:55)
-04. Consequences (Resultant Mix) (4:27)(   Читать дальше...   )Жанр: House, Electro, Synth-popПродолжительность: 01:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:888809ADADCA8BCEBFFDE85666471594376F9146
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986294   (932581) от 13.02.2016
-
-VA - Chillout And Lounge Ibiza Style (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932581.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Angelina Astle - Love Inversion [04:19]
-002. King Hookiss - After Midnight (Chillout Mix) [08:01]
-003. Emma Luna - Lunas [03:40]
-004. TRILLIAN - Angel Eyes [03:42](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:846405D21C80D7C0F1B77DB261E853BF09B11309
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364880   (933415) от 05.03.2020
-
-VA - Dark Archive (2020) [MP3|320 Kbps] <Techno>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Konstantinus - Aura [7:05]
-02. Austin Price - Loft [6:09]
-03. L-DMT - Darkness [6:25]
-04. Anomalous - Uncertain Nature [6:37](   Читать дальше...   )Жанр: TechnoПродолжительность: 00:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44513196252C4ECF0B299EA3EC0C9F60D89DF423
 ```
 
 

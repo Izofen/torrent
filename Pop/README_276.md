@@ -1,3 +1,165 @@
+###  Публикация: 1211217   (777785) от 06.03.2018
+
+VA - Disco 80's: Special Edition (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eddy Huntington - Physical Attraction (4:22)
+02. Eighth Wonder - I'm Not Scared (10'' Remix) (5:42)
+03. Fancy - Moscow Is Calling (5:13)
+04. Italian Boys - Forever Lovers (3:54)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275A496AAC431F084F775C93B817C97F7A709931
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211241   (777821) от 06.03.2018
+
+Plazma - Newer Again (2004) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Again (4:19)
+02. Power Of Your Spell (3:54)
+03. Boogie Red (3:16)
+04. You Know (My Recent Diserse) (4:00)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71597F02DCB9E88F908B5F2AD1D2991934B380EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211316   (777824) от 06.03.2018
+
+The Flirts - Calling All Boys (1982) Unidisc, LP [MP3|320 Kbps] <Pop, Hi NRG, Synth-Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777824.jpg" />
+</div>
+
+
+###  Подробнее
+
+С начала 80-х годов маленькая независимая компания "O"Records заняла лидирующие позиции на американском, а затем и европейском рынке популярной музыки. Записи звёзд "O"Records, таких как Divine и The Flirts спродюсированные Бобби Орландо (Bobby ORLANDO) пользовались хорошим спросом по обе стороны Атлантического океана. В это время танцевальная (   Читать дальше...   )01. Juke Box (Don't Put Another Dime) 3:44
+02. Boy Crazy 3:13
+03. On The Beach 3:03
+04. Passion 9:04(   Читать дальше...   )Жанр: Pop, Hi NRG, Synth-Pop, DiscoПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67149EDC443CD977E9A66830F78F817DF52AA567
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012966   (777840) от 03.05.2016
+
+VA - NRJ Hit Music Only [3CD] (2016) [FLAC|Lossless|tracks] <Pop, RnB, Indie>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777840.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Пpодолжительность:01:10:34
+
+01. Twenty One Pilots - Stressed Out 03:22(   Читать дальше...   )Жанр: Pop, RnB, IndieПродолжительность: 03:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71052B455690C1BE07E2E6E2EF6C1B8C5BE7BBEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211131   (777856) от 06.03.2018
+
+Amy Wadge - Keeping Faith (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faith's Song
+02. We Fall Down
+03. Here I Go Again
+04. Pain(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 00:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4E31803EFE249E8F3AD04A6107A7A8221B0047
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211305   (777869) от 06.03.2018
+
+The Flirts - 10c A Dance (1982) "O" Records, LP [MP3|320 Kbps] <Pop, Synth-Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777869.jpg" />
+</div>
+
+
+###  Подробнее
+
+С начала 80-х годов маленькая независимая компания "O"Records заняла лидирующие позиции на американском, а затем и европейском рынке популярной музыки. Записи звёзд "O"Records, таких как Divine и The Flirts спродюсированные Бобби Орландо (Bobby ORLANDO) пользовались хорошим спросом по обе стороны Атлантического океана. В это время танцевальная (   Читать дальше...   )01. Jukebox (Don't Put Another Dime) 3:48
+02. Boy Crazy 3:14
+03. On The Beach 3:05
+04. Passion 3:39(   Читать дальше...   )Жанр: Pop, Synth-Pop, DiscoПродолжительность: 00:29:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04D4FE4EB01138AEB52242A435FB7012F138C133
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013197   (777907) от 03.05.2016
 
 VA - 40 Best of 60s 70s 80s 90s Remixes (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance,  Electronic>
@@ -533,168 +695,6 @@ magnet:?xt=urn:btih:0BE605E43FD748BB1B62114805A0F4FA68A54B25
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABE24CD11D4EE8F67F145EB0BA9F56E3968B2669
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210754   (778511) от 04.03.2018
-
-ABBAcadabra - Revival. Flight One: Tribute to ABBA (1997) [APE|Lossless|image + .cue] <Pop, Dance, Hi-NRG>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.O.S. (Definitive Mix) (7:46)
-02. Voulez-Vous (7:08)
-03. Dancing Queen (Definitive Mix) (6:28)
-04. Fernando (Dean's Delicious Mix) (5:43)(   Читать дальше...   )Жанр: Pop, Dance, Hi-NRGПродолжительность: 01:05:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9893E44AE90C68D52BCC5438FF82A10080883AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210749   (778513) от 04.03.2018
-
-ABBAcadabra - Revival. Flight One: Tribute to ABBA (1997) [MP3|320 Kbps] <Pop, Dance, Hi-NRG>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.O.S. (Definitive Mix) (7:46)
-02. Voulez-Vous (7:08)
-03. Dancing Queen (Definitive Mix) (6:28)
-04. Fernando (Dean's Delicious Mix) (5:43)(   Читать дальше...   )Жанр: Pop, Dance, Hi-NRGПродолжительность: 01:05:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB4DA1EF4DE033F45088400AEDBDEDE4C6A83B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210796   (778563) от 04.03.2018
-
-Анi Лорак - Анi Лорак (2004) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мрiй про мене 3:32
-02. Моi бажання 3:21
-03. Анюта 3:30
-04. Шукаю я 3:22(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61DB9DD0B18A3220CBB4595B7346208D109C28D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210568   (778667) от 03.03.2018
-
-A-Teens - Pop 'Til You Drop! (2002) [MP3|320 Kbps] <Pop, Europop, Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Floorfiller (3:15)
-02. Can't Help Falling In Love (3:05)
-03. Let Your Heart Do All The Talking (3:25)
-04. Closer To Perfection (3:12)(   Читать дальше...   )Жанр: Pop, Europop, EurodanceПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:796A2A538C2E51887FB7528241B762A1772CEE95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210587   (778678) от 03.03.2018
-
-Балаган Лимитед - Счастливые (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Провинция (3:10)
-02. Счастливая (3:25)
-03. Полюби (3:46)
-04. Мама (feat. Стас Сорока) (3:25)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD1F9FB6FAC80880BA8CA5397A7D791452618DD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210551   (778722) от 03.03.2018
-
-Black Gorilla - 1 Album, 1 Single (1976, 1979) [MP3|320 Kbps] <Electronic, Disco,  Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интересный, но мало распространенный немецкий диско-поп-рок проект 1970-х годов. Основатели: Wolf-Ekkehardt Stein, Michael Holm, Rainer Pietsch and Bernd Dietrich.01. Don't Stop the Boogie Nights (3:08)
-02. Soul Dancer (2:58)
-03. Funky Jungle (2:55)
-04. Downtown Safari (3:31)(   Читать дальше...   )Жанр: Electronic, Disco,  Pop RockПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F3166854B49D7DB2D624932222CE1E5E985255D
 ```
 
 

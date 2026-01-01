@@ -1,3 +1,30 @@
+###  Публикация: 1509611   (794077) от 13.11.2021
+
+VA - Beatport Drum And Bass: Sound Pack #365 (2021) [MP3|320 Kbps] <D&B, Bassline, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794077.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aries, Kelvin - Dancehall
+002. Jon The Dentist - Seahorses Forever
+003. Jaguar Paw - Nastya
+004. Neman - Mistakes(   Читать дальше...   )Жанр: D&B, Bassline, ElectroПродолжительность: 08:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5952D47D8F3AF253093BAF892B3E3613F4C568E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274263   (794123) от 06.01.2019
 
 VA - Громкие новинки месяца Vol.20 (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -665,33 +692,6 @@ VA - Соль души Блатной суперсборник (2016) [MP3|256-3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F49DDA44C5C102C451F94BF7A2E36F1B3F9D33F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012233   (794728) от 30.04.2016
-
-VA - Beatport Top 100 April (2016) [MP3|320 кб/с] <House, Electro, Tech, Nu-Disco, Progressive, Tribal, Future House, Indie Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794728.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tujamo - Drop That Low (When I Dip) (Extended Mix) 04:31
-002. Lee Walker - Freak Like Me (DJ Deeon vs Lee Walker Remix) 05:47
-003. Lucas & Steve - Make It Right (Extended Mix) 04:09
-004. Dennis Cruz - See Line (Wade Remix) 06:16(   Читать дальше...   )Жанр: House, Electro, Tech, Nu-Disco, Progressive, Tribal, Future House, Indie DanceПродолжительность: 10:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1914DA0B31C0AE2F29D5194D26ABF24CC3A606
 ```
 
 

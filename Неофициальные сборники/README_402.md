@@ -1,3 +1,36 @@
+###  Публикация: 516548   (651945) от 29.06.2012
+
+VA - Лето Хитами Пропето! Party Music Love Radio 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651945.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Michel Telo – Ai Se Eu Te Pego (Nosa)
+002. Sara Oks & Иван Кит - Бой Без Правил
+003. Maroon 5 - One More Night
+004. Neoclubber - Ночь Жаркого Лета
+005. David Guetta Feat. Sia - Titanium
+006. MainstreaM One - Под Тёмными Очками
+007. Fly Project - Back In My Life (Radio Edit)
+008. Varda - Я Тебе Не Верю
+009. MC Yankoo vs. MlaDJa feat. Acero MC - Loca (Radio Edit)
+010. Размер Project - My Moscow Love(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6333D5B855B7B001E9FC393A0ECAF0F4E871EA03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516507   (651950) от 29.06.2012
 
 VA - Дискотека в ритме Карибских островов (2012) [MP3|320 кб/с]<Pop, Dance>
@@ -677,33 +710,6 @@ VA - Relevant Freak Future Massive (2016) [MP3|320 Kbps] <House, Electro House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00818734E28D77A6E02C2ABFBC6816233B7F3202
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031363   (652171) от 04.07.2016
-
-Timur Mingazov - MBS Mix #27 (Why Spring- - Deep House Apr `16) | (2016) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Music Born In Silence Intro
- 1.Yotto – Crosswalk
- 2.Kyle Watson – Moments
- 3.Sons Of Mafia – Chimera(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EFAE80FDD8DEC930819903DD23CA0019A695C58
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1289433   (686626) от 16.03.2019
+
+Rozalén - Cerrando Puntos Suspensivos (2018) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686626.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. 80 Veces (03:13)
+02. Comiendote a Besos (04:00)
+03. Las Hadas Existen (03:42)(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009509C70D6A003193454380CDE7DAA76907FC0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535381   (686703) от 06.03.2022
+
+Marc Anthony - Pa'lla Voy (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin, Salsa>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pa’lla Voy
+02. Yo Le Mentí
+03. No Se Quita
+04. Nada de Nada(   Читать дальше...   )Жанр: Pop, Latin, SalsaПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C88C12B3F66F148F6ED95B141717110D3DCAB7E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 505670   (689471) от 05.06.2012
 
 Kylie Minogue - The Best Of Kylie Minogue (2012) [FLAC|Lossless]<Pop>
@@ -643,60 +697,6 @@ Lara Fabian - Essential (2015) [FLAC|Lossless]<Pop, Classical Crossover>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5558150FCD5F39D76529CFE0FE42D5BB35A1D857
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287686   (701639) от 08.03.2019
-
-Cyndi Lauper - Time After Time (The Cyndi Lauper Collection) (2009) [FLAC|Lossless|tracks + .cue] <Pop Rock, Post-Punk, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girls Just Want To Have Fun (3:57)
- 02. Time After Time (4:01)
- 03. True Colors (3:47)
- 04. I Drove All Night (4:13)(   Читать дальше...   )Жанр: Pop Rock, Post-Punk, FolkПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357ED8B4C5A90B5AAAA921C1D45E779B6EAA0E35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402491   (701722) от 14.08.2020
-
-GASHI - 1984 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Retrowave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1984 (1:14)
- 02. Don't Kill Me (2:59)
- 03. Lies (4:09)
- 04. Mama (ft. Sting) (3:17)(   Читать дальше...   )Жанр: Pop, RetrowaveПродолжительность: 00:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD4152E0C04EEB19134D5C87D22FA3245535BF74
 ```
 
 

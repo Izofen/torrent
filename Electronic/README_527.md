@@ -1,3 +1,135 @@
+###  Публикация: 1442370   (1036633) от 25.01.2021
+
+Various Artists - Fast Soul Music 2 (2018) [FLAC|Lossless|tracks + .cue] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Drum & BassПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9645F2D9182AD33E350D17FF0B2A77703DC14270
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442371   (1036658) от 25.01.2021
+
+Various Artists - Chai (High Tea Music Presents) (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tapolsky, Vovking - Medicine (04:27)
+02. Stereotype - Somewhere (03:47)
+03. Fliwo - Gold (04:54)
+04. Dustkey - Always Do (05:07)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9399526FD0C7F3683CEC90980F90A5CC8CDE8AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442367   (1036660) от 25.01.2021
+
+Various Artists - High Tea Music: Vol. 6 (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indivision, Northern Zone - Immaculate (04:51)
+02. Tapolsky & VovKING - Still (04:00)
+03. Aperio, Kasger - Night Flight (04:32)
+04. Arch Origin - Future Life (03:45)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C501174D5DA3B29426715D7723890A0C52E2A2F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442366   (1036663) от 25.01.2021
+
+Various Artists - Caffeine Rush 2 (High Tea Music Presents) (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mountain - House (Dossa & Locuzzed Remix) (03:33)
+02. Rex Hooligan, Pillerin - Anywhere (04:20)
+03. Blooom - Reality (03:19)
+04. L.A.O.S. - I'm Alive (BLVCK CROWZ Remix) (05:32)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE2755B266325EA2DB10096673A2CE7827B817A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442653   (1036667) от 25.01.2021
+
+Gacha Bakradze - Western Arrogance (2020) Die Orakel [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Breaks, Acid, Techno>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Constant (06:29)
+ 02. Big Cabin (05:30)
+ 03. Western Arrogance (07:01)
+ 04. Inside (14:04)Жанр: Electro, IDM, Breaks, Acid, TechnoПродолжительность: 00:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD68CBBCD51CD29352850BF12B95B9E80B57E037
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616284   (1036675) от 01.03.2023
 
 Технология - Всё, Что Ты Хочешь (1991) Reissue, Remastered, 2003, JAM Group International [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
@@ -553,140 +685,6 @@ VA - Armin van Buuren & Ruben de Ronde - A State Of Trance 1000 (2021) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96824C1E9BEE91BD5EAA5DB755ECA687E0B4AA7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441605   (1037460) от 22.01.2021
-
-VA - Black Hole Trance Music 01-21 (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JES & Oliver Smith - Don't Let It End (Extended Mix)
-02. Will Atkinson - Rush (Extended Mix)
-03. Alexander Popov & Planet Perfecto - Bullet In The GunЖанр: TranceПродолжительность: 02:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E924FB914284B782920417EEA6869A3760EAA757
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441621   (1037466) от 22.01.2021
-
-VA - Coffee & Fireplace: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brazil Beat - Walk on By (02:50)
-02. Gabrielle Chiararo - Don't Know Why (03:16)
-03. Giacomo Bondi - Nothing Compares 2 U (04:11)
-04. Brazil Beat - Englishman in New York (03:52)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75AEFA13ED19420A17CEA05CE7F61DB355472FCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441661   (1037467) от 22.01.2021
-
-VA - Aly & Fila - FSOE Top 20: January (2021) [MP3|320 Kbps] <Trance, UpliftingTrance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ahmed Romel - Road To Vilna (Extended Mix)
-02. Sam Laxton - Waiting For The Sun (Extended Mix)
-03. David Forbes & Paul Denton - Out Of Order (Extended Mix)
-04. Assaf & Dave Neven - Transcend (Extended Mix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 02:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:288D7889831C1142E9BB0A6276F777C2B26A76A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441681   (1037513) от 22.01.2021
-
-VA - The Sound Of Christmas Gifts (2020) MixCult Records [FLAC|Lossless|WEB-DL|tracks] <Deep House, Deep Techno, Minimal, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anas M - Dubz (Im'pulse Remix) (07:28)
-02. Artyom Kozlov - Clouds (06:24)
-03. CGeorge - Unjustified Sadness (09:53)
-04. COR100 - Contact (Bolgarin Deep Mix) (24Bit) (08:54)(   Читать дальше...   )Жанр: Deep House, Deep Techno, Minimal, AmbientПродолжительность: 04:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E0F2FEEDA7ACE9405C8831C62331849C169D37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441606   (1037526) от 22.01.2021
-
-VA - Markus Schulz - Global DJ Broadcast - with guest Dennis Sheperd (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz  played:
-01 Omnia - Eternity
-02 Ilan Bluestone ft. Jan Burton - Rule The World
-03 Nikhil Prakash & Adrian Alexander - Whirlwind(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6016AF2A67498F2E2D5B718483FFC9C7CE21F350
 ```
 
 

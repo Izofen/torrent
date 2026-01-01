@@ -1,3 +1,189 @@
+###  Публикация: 908652   (632486) от 15.06.2015
+
+Sarah Cracknell - Red Kite (2015) [MP3|320 кб/с]<Indie Pop, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632486.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. On the Swings (3:50)
+2. Nothing Left to Talk About (feat. Nicky Wire) (2:51)
+3. In the Dark (3:53)
+4. Ragdoll (3:01)(   Читать дальше...   )Жанр: Indie Pop, SynthpopПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E92E625B51EEF49C83B54F95DE3377374A58ED85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908561   (632487) от 15.06.2015
+
+VA - Early Doors (2015) [MP3|320 кб/с]<Drum & Bass, JumpUp>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Callide - G.L. Allstars (05:27)
+02. Malfoy - Labyrinth (05:13)
+03. Cabbie - Drums At The Ready (04:30)
+04. Voltage - Ton A Bricks (05:14)(   Читать дальше...   )Жанр: Drum & Bass, JumpUpПродолжительность: 01:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA104322E4089D9F4F830AF0A462C3E813EFF3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908670   (632488) от 15.06.2015
+
+Ornette Coleman - New York Is Now! Vol. 1 (2014) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Garden Of Souls [14:03]
+02. Toy Dance [07:30]
+03. We Now Interrupt For A Commercial [03:25]
+04. Broad Way Blues [08:46](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F4B7EF7D521B76FE82D1A479F36BF573FC1F3A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908180   (632489) от 15.06.2015
+
+Genetix - Humanity EP (2015) [MP3|320 кб/с]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Humanity (06:04)
+02. Tokyo Rift (05:34)
+03. Haven't You (05:20)
+04. Hitman (05:20)Жанр: Drum & BassПродолжительность: 00:22:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF7CB0A359DBA8343B23816781AF5B92DFBBDCE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908694   (632490) от 15.06.2015
+
+Генри Уинстон | Стратегия борьбы черного населения. Критика новых теорий освобождения черных в США и Африке (1975) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемый советскому читателю труд «Стратегия борьбы черного населения» национального председателя Коммунистической партии Соединенных Штатов Америки, видного деятеля американского и международного коммунистического движения Генри Уинстона посвящен одной из важнейших проблем современности — проблеме национально-освободительной борьбы черного населения Американского (   Читать дальше...   )Жанр: история, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:469C126EB9F7A90481D2B11BFB8F4CAE57AFAC94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908762   (632491) от 15.06.2015
+
+Immension - In Vain (2015) [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632491.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. In Vain
+2. The Fantasy
+3. All That Remains
+4. Lost & Forgotten(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617792990E9A72DD38239CB152BC9803F34C6C84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908654   (632492) от 15.06.2015
+
+Embersland - Dark Ages (2015) [MP3|320 кб/с]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunrise (Part II) (09:17)
+02. Closer (04:26)
+03. Hope (05:10)
+04. WTF…Fuck Off! (04:04)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB774B6B0BDFEF0624F6FC5624583D9FFB035551
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908665   (632493) от 15.06.2015
 
 Bobby Hutcherson - Linger Lane (2012) [FLAC|Lossless]<Jazz, Post-Bop>
@@ -476,187 +662,6 @@ magnet:?xt=urn:btih:758E5C8FCD7D20E4897FCA55EC915ABCFBF809E0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:964F5824888AA8A67CB732A566A26AA1644F7272
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034848   (632512) от 14.07.2016
-
-Парикмахерская 3 / Barbershop: The Next Cut  (2016) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632512.jpg" />
-</div>
-
-
-###  Подробнее
-
-С момента событий, описанных во второй части картины прошло более 10 лет. Кэлвин и его верная команда все еще в деле, однако, сама парикмахерская претерпела множество изменений. И первое, что бросается в глаза - присутствие представительниц прекрасного пола в некогда исключительно мужской компании...Производство: США, Cube Vision, Metro-Goldwyn-Mayer (MGM)Жанр: комедияРежиссер: Малкольм Д. ЛиАктеры: Айс Кьюб, Ники Минаж, Энтони Андерсон, Реджина Холл, Коммон, Гарсель Бове, Трой Гэрити, Деон Коул, Майкл Рейни мл., Седрик «Развлекатель»Перевод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D1E2414961226312D187B901A6EAA003A8A2FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034965   (632513) от 14.07.2016
-
-Журнал | Детектив. Факты. Загадки. Версии №7 (2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632513.jpg" />
-</div>
-
-
-###  Подробнее
-
-В номере: исторические тайны, гипотезы и расследования.
-Данный журнал является специальным приложением к газете "Оракул".Жанр: История, криминалистика, детективФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B038E08EA6F621DBEB9F5158EBA5CA55505EAE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034775   (632514) от 14.07.2016
-
-VA - Deep Space Night Vol.4 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aashya - Deep Space Night Sofa Session
-02. Tim Engelhardt - Watching Swans
-03. Riccicomoto - La Nuit
-04. Nadja Lind - Ignore & Block (Terry Lee Brown Jr. dub)(   Читать дальше...   )Жанр: Deep House, Chill House, MinimalПродолжительность: 04:38.05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC16C72966FB22D85A6748A370B34713CE274F70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034788   (632515) от 14.07.2016
-
-Benny Benassi - Danceaholic (2016) [MP3|192 Kbps] <House, Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Benny Benassi -  Danceaholic 3:35
-02. Benny Benassi & Chris Brown -  Paradise (Radio Edit) 3:53
-03. Benny Benassi & MOGUAI -  Gangsta (Radio Edit) 3:21
-04. Benny Benassi -  Universe (feat. BullySongs) 3:21(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 00:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A88264035D728B9C15CEE38020FD2715784F6AE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034634   (632516) от 14.07.2016
-
-И. М. Ермаков | Социальные и гносеологические корни религии (1958) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научно-Атеистическая  пропаганда  —  один  из важнейших  участков  идеологической  работы  среди  трудящихся  города  и  деревни.  Она  является  неотъемлемой частью  нашей  борьбы  за  коммунистическое  воспитание  советского  человека  —  творца  и  преобразователя  жизни.  Без преодоления  религиозной  идеологии,  ее  влияния  на  отдельные  слои  населения  немыслимо  коммунистическое  воспитание (   Читать дальше...   )Жанр: История, религиоведение, политология, гносеология, социологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A429D2CFBD46432E4B3D0710A783CC4BFBE6784C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034989   (632517) от 14.07.2016
-
-Solid Stone - Introspection (2016) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solid Stone - Introspection (5:09)
-02. Solid Stone - Broken (6:28)
-03. Solid Stone & Wellenrausch - Ursa Major (7:21)
-04. Solid Stone - Profound (4:49)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61526094E2D10556B47BB07AB8C93A7C4A1CDC7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034798   (632518) от 14.07.2016
-
-Erika - Deaf Dumb & Blonde (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killer
-02. Heroes Of Heartbreak
-03. Suckerpunch
-04. Drama(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 0:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A045EDB24DD5CBD77A46D1D288341C2CB9596FB
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1009842   (808245) от 22.04.2016
+
+VA - Trance Maniacs Party -  Melody Of Heartbeat #162 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gal Abutbul & Sarah Russell - You Have Realised (Uplifting R 05:56
+02. Walsh & McAuley and Katty Heat - Wider Horizon (Azotti Remix) 06:18
+03. Matteo Marini & Ellie Lawson - Dreaming of a Better World (Ma 04:58
+04. Mike Saint-Jules Ft. Sandel - Broken Turn (Original Mix) 06:20(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1C72F37D97F4A8EC08227246B9E7706F32BAB10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383797   (808268) от 17.05.2020
 
 VA - Record Super Chart 636 (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ VA - Need For Speed (2016) [MP3|256-320 кб/с] <Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2B2C36949175897F93EB82C7D78CA00684B8131
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198197   (809590) от 10.01.2018
-
-VA - Deep House Collection Vol.152 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alessio Cala' - Free Life (Original Mix) 5:54
-02. Alexander Price - Waiting (Paramour Dub Mix) 7:19
-03. Alex Moiss - Tribute To Helly (BDTom Remix) 8:46
-04. Allies for Everyone - Conjure (Original Mix) 6:32(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8732BE5B9F5FD88285218609A3E000B39B7C8777
 ```
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1290658   (676581) от 21.03.2019
+
+Professor Tip Top - Hybrid Hymns (2019) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Psychedelic, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black HolesЖанр: Progressive Rock, Psychedelic, Space RockПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D77999CF56738BC662A4F18F75C59DFB57832EB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290766   (676597) от 21.03.2019
+
+Desert Planet - My Biggest Dream (2017) EP [FLAC|Lossless|tracks + .cue] <Hard Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Biggest Dream (5:27)
+ 02. I See How it is Now (5:34)
+ 03. Ash Wednesday (3:28)
+ 04. Crash (3:27)(   Читать дальше...   )Жанр: Hard Rock, Alternative RockПродолжительность: 00:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF88065630CA3A3DE33F080395683E44A396C2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290419   (678373) от 20.03.2019
+
+U137 - Chapter Two (2019) [FLAC|Lossless|WEB-DL|tracks] <Cinematic Post Rock, Epic Instrumentals, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What We Call Home (03:49)
+02. Raindrops (03:52)
+03. El Dorado (06:09)
+04. True (02:05)(   Читать дальше...   )Жанр: Cinematic Post Rock, Epic Instrumentals, Indie RockПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D15C38837877CCDF0999670A7B9E609D5C34BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290368   (678482) от 20.03.2019
 
 American Football - American Football (LP3) (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
@@ -608,87 +686,6 @@ The All-American Rejects - Kids in the Street (2012) Japan Edition [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D35195CC3FC94A92DC1E3E46212EE8E48C0A59E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134027   (689360) от 15.05.2017
-
-Dreamcar - Dreamcar (2017) [FLAC|Lossless|tracks] <Alternative Rock, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Участники No Doubt Тони Канал, Том Дюмон и Эдриан Янг объединили усилия с вокалистом AFI Дэйви Хавоком. Их целью было создание музыкального проекта, который мог бы зарифмовать творческие искания 80-х и настоящего времени. «Отсылки к эпохе «новой волны» вы найдете с легкостью, — рассказывал Канал в интервью RS. — Но от пластинки у вас наверняка будет свежее послевкусие. (   Читать дальше...   )01. After I Confessed
-02. Kill for Candy
-03. Born To Lie
-04. On The Charts(   Читать дальше...   )Жанр: Alternative Rock, New WaveПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:328748956EECBFEEC9E596738CCAC1ACECCC974A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403599   (690606) от 20.08.2020
-
-Bright Eyes - Down in the Weeds, Where the World Once Was (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pageturners Rag (03:57)
-02. Dance and Sing (04:30)
-03. Just Once in the World (03:28)
-04. Mariana Trench (03:41)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4BAE7D8F97187EAAAEC44BF0E98EDB496421DD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288492   (694186) от 12.03.2019
-
-The Faint - Egowerk (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694186.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Child Asleep 4:39
-2 Chameleon Nights 3:32
-3 Life’s a Joke 4:52
-4 Alien Angel 3:38(   Читать дальше...   )Жанр: Rock, Alternative Rock, IndieПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E821F6AF03FABD2524A5DB232CF78285E3DA27C5
 ```
 
 

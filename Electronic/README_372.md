@@ -1,3 +1,135 @@
+###  Публикация: 1217536   (742397) от 05.04.2018
+
+VA - Aly & Fila - Future Sound of Egypt 542 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.ID - ID
+02.Aly & Fila with HALIENE - Breathe Us To Life (ID Remix)
+03.Thomas Datt - Fluid Karma
+04.ID - ID(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76C56CB3F6435CF2034D7F7B027333412B0B934F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217508   (742403) от 05.04.2018
+
+Substak - Deeper Walk (2018) Sea of Clouds [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Early Walk (05:17)
+02. Late Walk (06:09)
+03. Outer Walk (08:38)
+04. Short Walk (05:24)(   Читать дальше...   )Жанр: Dub Techno, Ambient, TechnoПродолжительность: 00:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27607F682AEE826F5E4A1786FEDDC39111A922D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217669   (742404) от 05.04.2018
+
+VA - Voice Of Suanda Vol.6 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Milewska - Crystalized (Original Mix)
+02. Dennis Graft feat. Maria Milewska - Until (Extended Mix)
+03. Eranga feat. Maria Milewska - Up To You (Original Mix)
+04. NoMosk feat. Maria Milewska - Black Light (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D80D9AF5848CF1DAC1C97139C57A698F17CBD59B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217682   (742410) от 05.04.2018
+
+VA - Simple Ways (2016) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eric Norman - Nordic Beauty  5:52
+02. Boring Sax & Aba Abas - Bogota Party  5:57
+03. Spiridion - Unauthorized Discoveries  5:00
+04. Mephia - Wizard  5:29(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:24:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7065962F53CE4306507CA6FB89DDE1FB0A50ECF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183273   (742597) от 18.07.2020
+
+Phasenmensch - Discography 16 Releases (2009-2020) Hands Productions [FLAC|Lossless|tracks+.cue, tracks] <IDM, Experimental, Industrial, Psy-Trance, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RückzugТип издания: CD, WebЖанр: IDM, Experimental, Industrial, Psy-Trance, Ambient •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D10E3E760A2D2F5DD430014F00D49122075B4A12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396962   (742640) от 18.07.2020
 
 Keoki - Ego-Trip (1997) Moonshine Music [FLAC|Lossless|tracks+.cue] <Breaks, Electro>
@@ -557,141 +689,6 @@ Cult48 - Catalog 1 (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, IDM, Downte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D09D776A78C1E48210AF41ABB5C4D2A945FCB197
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396816   (744195) от 17.07.2020
-
-O-Wells - Ebecs (2020) Die Orakel [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Techno, Electro>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ectid (06:02)
- 02. Bbmore (04:30)
- 03. Exolite (05:24)
- 04. Culling Virus (05:44)(   Читать дальше...   )Жанр: IDM, Ambient, Techno, ElectroПродолжительность: 00:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A2DEACD0B88F3A7ACFDF8EEF66809E21C44783A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217218   (744624) от 03.04.2018
-
-Scandroid - Scandroid (2016) [MP3|320 Kbps] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2517 (4:39)
-02. Salvation Code (5:50)
-03. Aphelion (5:35)
-04. Shout (3:58)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5195092486F6EB2DFEB4A7E19B3B0662E4F5E480
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216876   (744627) от 03.04.2018
-
-Scandroid - Monochrome (2017) [MP3|320 Kbps] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2518 (1:48)
-02. Afterglow (5:23)
-03. Rendezvous (4:12)
-04. Thriller (5:52)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FFAB780F8779FC16209B5C64456201CCAC83CCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217115   (744872) от 03.04.2018
-
-The Soundlovers - People (1997) [MP3|320 Kbps] <Euro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run a Way (Intro) (1:16)
-02. People (3:31)
-03. She Hates Love (3:32)
-04. Murder in Berlin (4:53)(   Читать дальше...   )Жанр: Euro-HouseПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:804038E1388EBB67B4668605E8B26B97228EA0CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217195   (744881) от 03.04.2018
-
-Nym - Convex (2015) [MP3|320 Kbps] <Trip-Hop, Ambient, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We were never there 1:54
-02. Tall talk 3:30
-03. The face in the woods 4:13
-04. The unwatched bird 4:18(   Читать дальше...   )Жанр: Trip-Hop, Ambient, DowntempoПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E9995676F74AF21B2D0AAEE2F3E32D89941E4A
 ```
 
 

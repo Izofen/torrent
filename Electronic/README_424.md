@@ -1,3 +1,138 @@
+###  Публикация: 1199386   (801836) от 15.01.2018
+
+VA - Aly & Fila - Future Sound Of Egypt 530 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jorgio Kioris - Linda (Ziger Remix)
+02. Chris Llopis - Platonic Shower (Dmitry Molosh Remix)
+03. Chris Bekker - Klangstunde
+04. POok - Lola(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F2204A58F0CD0B742137B2AD5BCA669B28DC502
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199364   (801839) от 15.01.2018
+
+VA - Ori Uplift - Uplifting Only 257 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. illitheas - Levity (Intro Mix)
+02. PRE-RELEASE PICK: Eric Senn - Kharon (EXCLUSIVE PREMIERE)
+03. Ross Rayer - Memories (EXCLUSIVE PREMIERE)
+04. Jericho Frequency feat. Emma Chatt - Do You See Me? (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B04D9D274AA5142DD347E94B5428FFAEF310C66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198908   (801841) от 15.01.2018
+
+VA - Cosy Winter Lounge Vol.3 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Euphonic Traveller  -  NYC Christmas Lights 2017 (Acoustic Version With Band)  5:28
+02.  Van  -  I Remember (Original Mix)  9:44
+03.  Marc Hartman  -  The Awakening (Original Mix)  4:25
+04.  Matthew Daniel  -  Lose Your Smile (Original Mix)  2:02(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE217961DE2DC88F8C3D6A1CEDD1DE748DBCBA9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198945   (801843) от 15.01.2018
+
+Hed Kandi - World Series: Tokyo (2010) [FLAC|Lossless|tracks] <Progressive House, Vocal House, Funky House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hardrive - Deep Inside (Harry Choo Choo Romeros Fun in the Sun Remix Edit) (3:31)
+02. Dennis Ferrer - Hey Hey (DF's Attention Vocal Mix) (6:21)
+03. Simian Mobile Disco - Cruel Intentions (DJ Pierre Remix) (3:20)
+04. Ian Carey Feat. Michelle Shellers - Keep On Rising (Nicky Romero Remix) (4:20)(   Читать дальше...   )Жанр: Progressive House, Vocal House, Funky HouseПродолжительность: 02:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52DE1E66ECF4576ED783424D57F7882A62F31729
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120662   (802007) от 31.03.2017
+
+Ultrаnоire - Intrоnаut (2017) [FLAC|Lossless|image + .cue] <SynthPop, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Technicolor Lies (4:11)
+02. Playing Dead (4:37)
+03. Phantom (3:49)
+04. Poisoned (3:59)(   Читать дальше...   )Жанр: SynthPop, ElectronicПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31241E859D62C5D0A9F61725DC35CB4872B693E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120345   (802013) от 31.03.2017
 
 VA - Dream Minimal (2016) [FLAC|Lossless|WEB-DL|tracks] <Minimal, Tech House>
@@ -560,141 +695,6 @@ VA - Chilling Me Softly (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B731BB1047E41C2DD07FEDE2125970CBD6465045
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198837   (802959) от 14.01.2018
-
-VA - Best Of LW Tech House II (2018) [MP3|320 Kbps] <Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  CamelPhat  -  Under The Influence (Original Mix)  6:17
-02.  Charlie Hedges & Ashton Russell  -  These Feelings (Extended Mix)  5:46
-03.  Michael Bibi  -  Magic Carpet (Original Mix)  5:54
-04.  Tommy Vercetti  -  Don't Understand (Original Mix)  6:38(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 03:20:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883CAFE5C1FB0D033C587C0C90B61DCDCAFB047C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198766   (802961) от 14.01.2018
-
-VA - Black Hole House Music 01-18 (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roger Shah & Aisling Jarvis  -  Call Me Home (Extended Mix)  9:16
-02.  Reddfield  -  You’ll Feel Love (Original Mix)  6:48
-03.  Alain Ducroix & NotAndrew  -  Unstoppable (Extended Mix)  4:04
-04.  Kokaholla & Quinn Bates  -  Lucky Ones (Original Mix)  3:47(   Читать дальше...   )Жанр: HouseПродолжительность: 01:26:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3A7436D8080CA525FD73134484A35F84A79B0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009598   (803212) от 24.04.2016
-
-DJ Nike Twist - TranceWave 138 @ GTI Radio (21.04.2016) [MP3|320 кб/с] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803212.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mike Adams - Nine Worlds (Original Mix) (Alter Ego)
-2. Diher & R3dub - Lynx (Original Mix) (Alter Ego)
-3. Alan Morris - Lost In Space (Original Mix) (Transistic)
-4. Highforcer - Galaxy (Aldo Henrycho Remix) (OceanBlue)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8E648817B7C41E85B094E0A4C27C302FBC77B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120055   (803460) от 30.03.2017
-
-VA - Latin House Music Summer 2017 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carrilio - Samba De Janeiro (Markus D'ambrosi Remix) 04:44
-02. Cuba Club - Suavemente (Extended Mix) 04:37
-03. Gualbert Teran - Estoy Aqui 03:26
-04. Tommy Boccuto - Walking You (Max Marotto Remix) 07:22(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677109D83B316EDDA0A7AE30FFEDD51D58D61A9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120104   (803562) от 30.03.2017
-
-VA - The Golden Voyage of Disco, Vol. 1 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cool Million feat. Eugene Wilde – Back for More (DJ Friction Disco Mix) (6:14)
-02. Kraak & Smaak feat. Sam Duckworth – Good for the City (Moullinex Remix) (4:05)
-03. Retrospaction – Walk the Night (6:39)
-04. How2 Groove – Nu-Pride (5:41)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E0F14DBBA628C93C1D4C1C677A96162EA0A96B
 ```
 
 

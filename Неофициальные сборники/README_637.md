@@ -1,3 +1,30 @@
+###  Публикация: 976895   (967786) от 19.01.2016
+
+VA - Battle DJ (2016) [MP3|320 кб/с] <Dance, Club, House, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. IOWA - Бьёт Бит (Dj Andy Light & Dj O'Neill Sax Remix)
+02. Mike Candys feat. Evelyn & Tony T - Everybody (Tony Kart & Alexx Crown Remix)
+03. Ost Up - Про него (Dj MriD & Tony Kart Remix)
+04. Тимати feat. Рекорд Оркестр - Баклажан ( Viduta Remix )(   Читать дальше...   )Жанр: Dance, Club, House, TranceПродолжительность: 07:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E08E25BAD8F614A05E9AE5215737E3B95ACECBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 614745   (967804) от 16.02.2013
 
 VA- Dubstep Planet 4 (2013) [MP3|320 кб/с]<Dubstep>
@@ -714,33 +741,6 @@ VA - Top 100 Самые скачиваемые треки (2013) [MP3|256 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9B0B26F4DF8B4349249D22F0806B8AC0C0E2011
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357941   (970466) от 06.02.2020
-
-VA - 100 Greatest Guitar Solos (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970466.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Van Halen - Eruption
-002. Jimi Hendrix - All Along the Watchtower
-003. AC/DC - Thunderstruck
-004. Thin Lizzy - The Boys Are Back In Town(   Читать дальше...   )Жанр: RockПродолжительность: 08:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:721DD14AD990EDE89C3A5471961BB5B20573DD96
 ```
 
 

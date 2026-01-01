@@ -1,3 +1,178 @@
+###  Публикация: 284962   (935864) от 20.01.2011
+
+Silent Circle - Hits & More (2010) [MP3|320 kbps]<Disco, Dance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_935864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop The Rain In The Night (Maxi Version) (05:39)
+02. Touch In The Night (Original Radio Version) (03:43)
+03. I'm Your Believer (Maxi Version) (05:48)
+04. Highway Driver (04:28)
+05. Forget The Stranger (Remix) (05:03)
+06. Anywhere Tonight (03:21)
+07. Love Is Just A Word (Ragga Maxi Mix) (05:50)
+08. Shy Girl (03:40)
+09. Oh Don't Lose Your Heart (05:54)
+10. Hide Away - Man Is Coming (Special Maxi Mix) (05:14)(   Читать дальше...   )Жанр: Disco, Dance, PopПродолжительность: 01:16:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478FD08F5C1266BD8B59118FF0B64574CC778C6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364500   (936301) от 03.03.2020
+
+Владимир Маркин - Мои лучшие сбережения. Выпуски 3 и 4 (2008-2009) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_936301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тополя
+02. Авиатор
+03. Колыбельная
+04. От зари до зари(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06CBDDB9A4B779A2433C34AFC5F915B23B2C513E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 284435   (936803) от 19.01.2011
+
+Профессор Лебединский - 4 Альбома (1997 - 2007) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_936803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор Лебединский (Алексей Игоревич Лебединский) - певец, композитор, фотохудожник и артист. Говорят, что вызывая такси (не будучи ещё столь известным) он представлялся как Профессор Лебединский - отсюда и псевдоним.
+Сочинять начал, ещё учясь в средней школе. В 1996 году, после выхода собственной песни «Я убью тебя, лодочник» и совместного с группой «Русский (   Читать дальше...   )Альбомы:
+1997 - Хеллоу-Гудбай
+1998 - Смеяться Или Плакать
+2000 - Танцы-Шманцы, Кныш И Смородина(   Читать дальше...   )Жанр: PopПродолжительность: 03:25:58
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 283856   (936958) от 19.01.2011
+
+VA - Italo Disco Hits (collectors edition) vol. 1, vol. 2 (2010) [FLAC|Lossless]<Italo Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_936958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Jimmy & Susy - Come Back
+02. - Beat Band - Dancer Now
+03. - Mark Tower - Fall In Love
+04. - Tom Spencer - Ferrary
+05. - Garland - Heartbeat
+06. - Blue Russel - I Wanne Fly Away
+07. - Lala - Johnny
+08. - Paul Faber - Only One
+09. - Scorta - Pertini Dance
+10. - Laser Cowboys - The Final Conflict(   Читать дальше...)Жанр: Italo DiscoПродолжительность: 01:14:43
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092891   (937126) от 13.01.2017
+
+VA - White Dance: Winter (2017) [MP3|320 Kbps] <Club, Future House, Vocal, Nu Disco, Tropical>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep System - I Need You (Extended Mix) 04:32
+02. Dyana Dyà Shkendije - Paper Maché (Radio Mix) 02:49
+03. Joanna Rays - Close To Me (Lesamoor Deep House Remix) 05:20
+04. Dom Tufaro And Louis Inglese - Brand New Life (Dj Cheech Remix) (Feat. Tamara Wallace) 04:15(   Читать дальше...   )Жанр: Club, Future House, Vocal, Nu Disco, TropicalПродолжительность: 02:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7671247EAE01F30320526793ACD17B0CD551D4F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984483   (937151) от 10.02.2016
+
+Eric Serra - RXRA (1998) [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Howl [06:16]
+02. I Wanna Get Out Of Here [04:38]
+03. Thank Your God [03:42]
+04. Anybody Hello [07:11](   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE14C641D8904BE5B0DDD6FD2F617F06ABE42C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364397   (937768) от 02.03.2020
 
 VA - I Love Italo Dance (Best Hits 90's) (2020) [MP3|320 Kbps] <Euro Dance, Pop Dance>
@@ -539,168 +714,6 @@ magnet:?xt=urn:btih:F83EFC5DD6728884599BC206E9F52793709FBCE4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3355F91AEE4A2450AFCA8076DB860B239DD11ACA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363610   (940930) от 29.02.2020
-
-Лариса Черникова - Солнечный город (1999) [MP3|320 Kbps] <Pop, Europop, Euro House>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:42)
-02. Я Шура, ребёнок нежный (Original version) (3:07)
-03. Посмотри в мои глаза (4:30)
-04. Вспоминать и не надо (3:53)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 01:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A441985EB73066D86EFFC67A596BE3EEF91E1AF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363677   (940931) от 29.02.2020
-
-СтеклоVата - Острожно - хрупкое (2003) [MP3|320 Kbps] <Europop, Novelty, Chanson>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Февральский снег [03:34]
-02. 31 и 13 [03:59]
-03. Дневник [04:50]
-04. Кошка-луна [05:19](   Читать дальше...   )Жанр: Europop, Novelty, ChansonПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D940EC898A5DA425A1BA350168B8595D3CF250AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363625   (940933) от 29.02.2020
-
-Лика - Больше, чем любовь (1996) [MP3|320 Kbps] <Pop, Progressive House, Happy Hardcore>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Одинокая луна (Молитва) (Original Version) (4:17)
-02. Вспоминай (Original Version) (4:58)
-03. Танцуй со мной, мой мальчик (4:59)
-04. Би-би такси (Remix) (4:34)(   Читать дальше...   )Жанр: Pop, Progressive House, Happy HardcoreПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC31A4BE5CC053E1BC2F85BA9E750AD667610E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363674   (941011) от 29.02.2020
-
-СтеклоVата - Льдинкой по стеклу (2003) [MP3|320 Kbps] <Europop, Novelty, Chanson>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Стекловата [03:56]
-02. Просто Осень [04:28]
-03. Тает Снег [03:32]
-04. Прости [03:19](   Читать дальше...   )Жанр: Europop, Novelty, ChansonПродолжительность: 00:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35BCFA3867A995210FC9767EF590B6F3627BDFF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090690   (941308) от 10.01.2017
-
-VA - Radio Maxitalo Present: BCR Instrumental Versions Vol. 1-5 (2014-2016) [MP3|128-320 Kbps] <Italo-Disco, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Linda Skywalker - Don't Fly Away (Instrumental Version)
-02. Lady Fantasy - You And Me (Instrumental Version)
-03. Modern Boots - Tears Of A Broken Heart (Fast Instrumental Version)
-04. Alan Brando - Love Is Always On My Mind (Instrumental Version)(   Читать дальше...   )Жанр: Italo-Disco, InstrumentalПродолжительность: 07:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5ADEDBC765DDF8AF7C514E71EBF0F98FB651396
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091835   (941421) от 10.01.2017
-
-Rinder & Lewis - 2 Albums (1977, 1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Laurin Rinder & W. Michael Lewis (полные имена) - продюсерский дуэт из Лос-Анджелеса. Выпускал Disco продукцию под разными вывесками, включая наиболее известные: Amrakus, Discognosis, In Search Of Orchestra, Saint Tropez, El Coco, Cheetah, Le Pamplemousse... В историю же вошли их сольные предлагаемые альбомы, близкие по звучанию к европейскому космик-диско, а (   Читать дальше...   )01. Lust  (7:06)
-02. Sloth  (7:52)
-03. Gluttony  (7:07)
-04. Pride  (5:42)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:19:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F980C938659189BBFF5330DBFD980C85B6C0B474
 ```
 
 

@@ -1,3 +1,232 @@
+###  Публикация: 861136   (934778) от 20.01.2015
+
+Seda Bagcan - Sunrise (2014) [MP3|320 кб/с]<New age, Mantras, Vocal>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(07:10) 01. Wahe Guru Sat Nam
+(07:54) 02. Ra Ma Da Sa Sa Say So Hung
+(11:13) 03. Gobinde Mukande Udare Apare
+(10:33) 04. Guru Ram Das Guru
+(08:26) 05. Sa Ta Na Ma
+(07:16) 06. Ad Gurey Nameh
+(08:16) 07. Wahe Guru Wahe Jeeo
+(03:06) 08. Long Time SunЖанр: New age, Mantras, VocalПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03B878F535AF4F6F88201DBFCC0A6CE674083BBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628717   (934961) от 11.03.2013
+
+Metal Gear Rising: Revengeance - Vocal Tracks (2013) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Rules of Nature (Platinum Mix) 2:30
+02. The Only Thing I Know For Real (Maniac Agenda Mix) 2:26
+03. Dark Skies (Platinum Mix) 2:21
+04. I'm My Own Master Now (Platinum Mix) 2:10
+05. A Stranger I Remain (Maniac Agenda Mix) 2:25
+06. Return to Ashes (Platinum Mix) 2:15
+07. The Stains of Time (Maniac Agenda Mix) 2:10
+08. Red Sun (Maniac Agenda Mix) 2:13
+09. A Soul Can't Be Cut (Platinum Mix) 2:19
+10. Collective Consciousness (Maniac Agenda Mix) 2:38(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEB78E9D2102BEEF2ED8D4AE848839B73505513E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628290   (935083) от 11.03.2013
+
+Rurouni Kenshin - Original Soundtrack (2012) [MP3|320 кб/с]<Movie OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01	暁闇の戦い
+02	生生流転 ～新時代へ～
+03	観柳帝国 ～我執の猛～
+04	狂血
+05	邂逅 (壱)
+06	業の道
+07	人斬り抜刀斎 ～殺人剣～
+08	逆刃刀
+09	るろうに
+10	喧嘩上等!(   Читать дальше...   )Жанр: Movie OSTПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F93D9CC6B0CE4E2A4F2CF01548049588C9D71E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628202   (935090) от 11.03.2013
+
+VA - Magic of waltz (2CD) (2008) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+ 1. Dmitri Shostakovich - Waltz no.2 - (2:37)
+ 2. Aram Khachaturian - Waltz from masquerade suite - (4:07)
+ 3. Peter Tchaikovsky - Waltz from swan lake suite - (6:49)
+ 4. Johan Strauss - Voices of spring - (6:00)
+ 5. Leo Delibes - Waltz from coppelia - (2:00)
+ 6. Emile Waldteufel - The Skaters Waltz - (8:40)
+ 7. Charles Gounod - Waltz from Faust - (5:24)
+ 8. Peter Tchaikovsky - Waltz from the sleeping beauty - (5:04)
+ 9. Hector Berlioz - Valse: Allegro non troppo - (6:14)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:819061AB385CB59EB9A7A133924E774DC9810180
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 754088   (935175) от 06.02.2014
+
+You Can't Win, Charlie Brown - Diffraction/Refraction (2014) [FLAC|Lossless]<Indie, Baroque, Alternative>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. After December (03:37)
+ 02. Fall for You (04:44)
+ 03. Post Summer Silence (02:57)
+ 04. Be My World (04:22)
+ 05. I Wanna Be Your Fog (03:15)
+ 06. Shout (04:53)
+ 07. Natural Habitat (04:01)
+ 08. Heart (02:21)
+ 09. From Her Soothing Mouth (03:10)
+ 10. Under (04:10)(   Читать дальше...   )Жанр: Indie, Baroque, AlternativeПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6BB1632A7A9D28863B80947E85E46DD9CBF3EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628628   (935185) от 11.03.2013
+
+Ralph Dokin Orchester - Casatschok Party (1974) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Casatschoc
+02. Die Zigeunerkarawane
+03. Kalinka
+04. Moldavian – Casatschoc
+05. Bublitschki
+06. Kutscher -Treib Die Pierde Nicht
+07. Heja – Casatschoc
+08. Zwei Gitarren
+09. Metjeliza
+10. Kasbek(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A10436726C81C5BCA361A809692DF005905C083E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 627793   (935196) от 11.03.2013
+
+Richard Clayderman and Berdien Stenberg - Amour pour Amour (1989) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Amour Pour Amour
+ 02. Enfant Qui Parlait aux Oiseaux
+ 03. Orages de l'Ete
+ 04. Printemps du Coeur
+ 05. Il y Avait Aussi des Etoiles
+ 06. Nuit des Magiciens
+ 07. Bram Bogart Melody
+ 08. Oiseaux Tristes du Zuiderzee
+ 09. Seulement Se Parler
+ 10. Danseurs de Lune(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E8EAD25B8EBDC7AC693A914F2574ACD9589BCA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985187   (935269) от 11.02.2016
 
 Fausto Papetti - Oggi 4: Quarantaseiesima raccolta (1988) [FLAC|Lossless|tracks + .cue] <Easy Listening>
@@ -525,219 +754,6 @@ Jason Graves - Tomb Raider 2013 (2013) [MP3|128-320 кб/с]<Score, OST>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1C59C70AB5E76A3C0387EA07E4EE87A473244CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628714   (936977) от 10.03.2013
-
-Klaus Doldinger and Giorgio Moroder - The Neverending Story (1984) [MP3|128 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Neverending Story - Limahl
-2. Swamps Of Sadness
-3. Ivory Tower
-4. Ruined Landscape
-5. Sleepy Dragon
-6. Bastian´s Happy Flight
-7. Fantasia
-8. Atreju´s Quest
-9. Theme Of Sadness
-10. Atreju Meets Falkor(   Читать дальше...   )Жанр: OSTПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C43B18BDC75D8F1F32B27DDF08344D124177B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984815   (937154) от 10.02.2016
-
-VA - Бильядрная братия / The Rack Pack (Music From The Mition Picture) (2016) [MP3|128 кб/с] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Led Zeppelin - Black Dog (5:00)
-02. The Harry J. All Stars - The Liquidator (3:11)
-03. T. Rex - Jeepster (4:10)
-04. Ian Dury & The Blockheads - Hit Me With Your Rhythm Stick (3:42)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7CFE41EAA39230234D96B98C293045195F4CC0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 855052   (937171) от 18.01.2015
-
-VA - Valiant Hearts: The Great War - Original Game Soundtrack + Bonus (2014) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Original Sound Track
-01. Little Trinketry (2:57)
-02. Broken Wing (2:13)
-03. En avant la musique (1:30)
-04. Escape the Apocalypse (2:44)
-05. Never the Same (2:14)
-06. Masked Like the Night (2:41)
-07. For Catrin (3:19)
-08. Get Aboard (1:25)
-09. The Final Wait (2:20)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:59:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:669D3B09CA16116DAFF8B56A9BA6E295B54CBCDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092523   (937238) от 13.01.2017
-
-Giorgio Costantini - Dreamers (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Tesla [00:04:06]
-02 -  Flow [00:04:02]
-03 -  Anime Al Vento [00:02:25]
-04 -  Ninna Nanna Del 21° Secolo [00:03:03](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48DB9BB30646540EE5D7BFC02D4850A3B6CA1324
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628607   (937267) от 10.03.2013
-
-James Newton Howard - The Sixth Sense (1999) [MP3|80-170 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-[02:48] 01.Main Titles
-[02:47] 02.Vincent Gray
-[00:36] 03.Shoot Malcolm
-[01:20] 04.Run to the Church
-[02:24] 05.De Profundis
-[00:43] 06.Look at my face
-[01:02] 07.Going to school
-[02:44] 08.Mind Reading
-[00:53] 09.Photographs
-[02:54] 10.Upset Words(   Читать дальше...   )Жанр: OSTПродолжительность: 00:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F37D65CD2A261C310236AE66EBCF9CA9A0F13BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628276   (937277) от 10.03.2013
-
-Sound City -  Real to Reel (2013) [MP3|320 кб/с]<Alternative Rock>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Robert Levon Been, Dave Grohl & Peter Hayes - Heaven And All (5:28)
- 2. Chris Goss, Tim Commerford, Dave Grohl & Brad Wilk - Time Slowing Down (6:00)
- 3. Stevie Nicks, Dave Grohl, Taylor Hawkins & Rami Jaffee - You Can't Fix This (5:59)
- 4. Rick Springfield, Dave Grohl, Taylor Hawkins, Nate Mendel & Pat Smear - The Man That Never Was (3:26)
- 5. Lee Ving, Dave Grohl, Taylor Hawkins, Alain Johannes & Pat Smear - Your Wife Is Calling (3:22)
- 6. Corey Taylor, Dave Grohl, Rick Nielsen & Scott Reeder - From Can To Can't (4:53)
- 7. Joshua Homme, Chris Goss, Dave Grohl & Alain Johannes - Centipede (5:11)
- 8. Alain Johannes, Dave Grohl & Joshua Homme - A Trick With No Sleeve (4:58)
- 9. Paul McCartney, Dave Grohl, Krist Novoselic & Pat Smear - Cut Me Some Slack (4:40)
- 10. Dave Grohl, Jessy Greene, Rami Jaffee & Jim Keltner - If I Were Me (4:14)(   Читать дальше...   )Жанр: Rock, OSTПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB423D3F319951BE5F6A765AC994CABBF7378B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092727   (937321) от 13.01.2017
-
-Ethereal in E - Up. (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Raindrops from Heaven [00:04:15]
-02 -  Pitter Patter [00:03:19]
-03 -  Mystical E [00:02:00]
-04 -  Pondering Peacefulness [00:03:20](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE624EC82EC73EF4ABED21CB93F82EDB3421962
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1141350   (652457) от 09.06.2017
+
+The Human Case - Living library (2017) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Human Case & MushiMan - Embryo (06:14)
+02. Chella Kutty (06:34)
+03. Nova (05:53)
+04. Fragile (04:31)Жанр: Psybient, Ambient, DowntempoПродолжительность: 00:23:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FFE834C8DE6187DEFEC4202C51ECE6C2F4DD4DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540484   (652543) от 30.03.2022
+
+VA - Best Summer Hits 2022 - 2023 [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Krees Waves, Stan Kayh - We Came For Love (3:16)
+02. NIEL - Behind Me (3:46)
+03. Biggoose, DzenB - On Fire (3:38)
+04. Lost House Rhythms, Falcos Deejay - Runnin' (3:25)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:700F4FEB5F57014D2953A5710DD3055F42D81EEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141156   (652550) от 09.06.2017
+
+VA - Ibiza Club Session (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  GrooveLoop - Hyperspace (Final Version)  3:38
+02.  Mariusz Chodorek - Heroes (Mariusz Chodorek Remix)  9:02
+03.  Karadjov - Octagon (Ula Remix)  7:22
+04.  Tranc3plant - Euphoria (Uplifting Mix)  5:36(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 05:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90032A4732A948F5A76390E1188C75BC9C11A7B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141171   (652552) от 09.06.2017
 
 VA - Ori Uplift - Uplifting Only 226 (2017) [MP3|320 Kbps] <Uplifting Trance>
@@ -614,87 +695,6 @@ VA - Throwback EDM Tracks (2017) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:897C773B2F6C708F40D116C2647061F41EEE61BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140913   (654018) от 08.06.2017
-
-VA - Recoverworld Trance Sessions 17.03 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emad Ebeat - Goddess In The Rain (08:00)
-02. Soul Entity - Inside The Mountains (06:29)
-03. Ciro Visone - Someone Save Me (06:29)
-04. Madwave - Mayhem (07:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:757867BBF349015233CC7C6B0BFA7388C69C08C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140890   (654020) от 08.06.2017
-
-VA - Heavenly Tears (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Sura Quintet - I Won't Forget You  5:01
-02.  York - Burning Flame  6:46
-03.  Physical Dreams - Return To Innocence  5:13
-04.  VLVTG - Somebody  2:21(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:653D396065D18593DC586C3568ACB02B119B2285
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904455   (654316) от 03.06.2015
-
-Late Night Alumni - Eclipse (2015) [MP3|320 кб/с]<Deep, House, Chillout>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654316.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Another Word for Love (03:59)
-2. Joan of Arc (03:47)
-3. Runaway  (03:41)
-4. Drummer (04:28)(   Читать дальше...   )Жанр: Deep, House, ChilloutПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1306A7979A0F515CB7B86CA003577E7AB607798F
 ```
 
 

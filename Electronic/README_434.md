@@ -1,3 +1,138 @@
+###  Публикация: 1196297   (824241) от 02.01.2018
+
+VA - Calm Morning Vol.1 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dharma Frequency - Sense Of Serenity 06:00
+02. Sami Sivananda - Mental Journey 04:27
+03. Prana Tones - Eastern Piano 04:52
+04. Dharma Frequency - Bonzai Vibes 04:31(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 02:31:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BE6C9BCA465AAE254D784D3657F4DC8E4C9F27F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116195   (824439) от 19.03.2017
+
+VA - Nu Disco, Volume 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anton Ishutin - Devil In My Head (feat Irina Makosh) [06:25]
+02. Ffunk - About You [03:48]
+03. NekliFF/Mary SK - First Dot (Tosel & Hale remix) [05:58]
+04. Tunnelvision - Popping Candy (Monrabeatz & Black Birdz remix)[05:50](   Читать дальше...   )Жанр: Nu Disco, Deep HouseПродолжительность: 04:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5DFDFC7120E685318FD8112B747B6DD0F93A9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381235   (824473) от 08.05.2020
+
+VA - Mykonos Chillout Cafe - Feelings Del Mar, Vol. 1-5 (2007-2010) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824473.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Noise Boyz - With My Own Eyes (Keys of da Sea Mix) (5:30)
+2. Bay Area; Hela Delgado - Espiritu + Libertad (Viva Mix) (5:43)
+3. Mahoroba - Photo in My Mind (Great Memories Mix) (5:47)
+4. Orange Music; Mirjam - Islandlover (Monotonic Trip Mix) (6:22)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 07:25:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37326A472622DA10EFBE5E3D0F3E6E54BA020532
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115998   (824564) от 19.03.2017
+
+VA - Sirup Deep Anthems Miami (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nora En Pure - Better Off That Way 03:11
+02. Edx – Revered (Radio Mix) 03:14
+03. Croatia Squad – Going South (Radio Mix) 02:51
+04. Daniel Portman – Cahuenga 04:00(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:10:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA048BFB9EA1E17E58C9B888767E9DC1D73FE2CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381754   (824698) от 08.05.2020
+
+VA - Sweet & Tender Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - A Rose for You (Original Mix)
+02. Michael E - Tropic of Capricorn (Original Mix)
+03. Simon Le Grec - Romantique Part Un (Sensitive Mix)
+04. Mo'jardo, Tim Gelo - Midnight in Paris(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:190E205593DF97FD4B69D742CB822D82E878B7CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502862   (824843) от 16.10.2021
 
 Miss Monique - FGIX (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic Techno>
@@ -558,141 +693,6 @@ VA - I Love the Rain Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5E7495C0E21E057D3E4E93E2804220581ADC67E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115032   (827965) от 17.03.2017
-
-De/Vision - 13 (2016) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Am I (5:48)
- 02. Essence (5:01)
- 03. Starchild (4:54)
- 04. Where's The Light? (5:07)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF19EA474733FA77C3740EBCFB24C0F07ECEB1DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115261   (828048) от 17.03.2017
-
-Brooklyn Bounce - Best Of The 90s (2017) [MP3|320 Kbps] <House, Eurohouse, Hard House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Intro  1:03
-02.  The Theme (Of Progressive Attack) (Trip Mix (Radio Edit))  3:39
-03.  Take A Ride (Radio Mix)  3:40
-04.  The Real Bass (Radio Mix)  3:42(   Читать дальше...   )Жанр: House, Eurohouse, Hard HouseПродолжительность: 02:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B63EF4A181BC013958D9559A2945C82A56DB6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502464   (828234) от 14.10.2021
-
-MLO - Oumuamua (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MLO - Wimborne (9:19)
-02. MLO - Shadows Of Life And Thought (6:31)
-03. MLO - Ebb And Flow (3:24)
-04. MLO - On Dreams (3:19)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:23:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6774869FCDC377DCC3B7EA885A8471CDF1D275D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115187   (828250) от 17.03.2017
-
-VA - Melodic Trance Vol.2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sunset Present Symsonic & Lucid Blue - Desert Rain (Radio Edit)  4:18
-02.  Roman Messer - True (Temple One Remix)  6:41
-03.  Luke Terry & Paul Gibson - Achelous (Radio Edit)  3:09
-04.  NoMosk - Journey (Original Mix)  6:31(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:07:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ADBC2AC7524A0B37A957D9385FE468D42CC965D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115339   (828254) от 17.03.2017
-
-VA - Zen Tunes - Ibiza Sessions Vol 3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wilton De Grey - Premadhara - The Stream Of Love (Orchestral version) [00:03:44]
-02. Quincy Ortiz - Spanish Vibes [00:06:05]
-03. Guna Nada Das - Jaya Ganesha [00:07:36]
-04. Sunyata Project - Mystic Adventures (Oriental Chill mix) [00:03:11](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3720D5E7549EE60F328194DAF32B0D773E48AD1
 ```
 
 

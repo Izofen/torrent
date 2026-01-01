@@ -1,3 +1,138 @@
+###  Публикация: 1396816   (744195) от 17.07.2020
+
+O-Wells - Ebecs (2020) Die Orakel [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Techno, Electro>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ectid (06:02)
+ 02. Bbmore (04:30)
+ 03. Exolite (05:24)
+ 04. Culling Virus (05:44)(   Читать дальше...   )Жанр: IDM, Ambient, Techno, ElectroПродолжительность: 00:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2DEACD0B88F3A7ACFDF8EEF66809E21C44783A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217218   (744624) от 03.04.2018
+
+Scandroid - Scandroid (2016) [MP3|320 Kbps] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2517 (4:39)
+02. Salvation Code (5:50)
+03. Aphelion (5:35)
+04. Shout (3:58)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5195092486F6EB2DFEB4A7E19B3B0662E4F5E480
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216876   (744627) от 03.04.2018
+
+Scandroid - Monochrome (2017) [MP3|320 Kbps] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2518 (1:48)
+02. Afterglow (5:23)
+03. Rendezvous (4:12)
+04. Thriller (5:52)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FFAB780F8779FC16209B5C64456201CCAC83CCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217115   (744872) от 03.04.2018
+
+The Soundlovers - People (1997) [MP3|320 Kbps] <Euro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run a Way (Intro) (1:16)
+02. People (3:31)
+03. She Hates Love (3:32)
+04. Murder in Berlin (4:53)(   Читать дальше...   )Жанр: Euro-HouseПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:804038E1388EBB67B4668605E8B26B97228EA0CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217195   (744881) от 03.04.2018
+
+Nym - Convex (2015) [MP3|320 Kbps] <Trip-Hop, Ambient, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We were never there 1:54
+02. Tall talk 3:30
+03. The face in the woods 4:13
+04. The unwatched bird 4:18(   Читать дальше...   )Жанр: Trip-Hop, Ambient, DowntempoПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9E9995676F74AF21B2D0AAEE2F3E32D89941E4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524306   (745197) от 15.01.2022
 
 VA - Uplifting Trance Classics 2021 (2022) [MP3|320 Kbps] <Trance>
@@ -548,141 +683,6 @@ DAB / Digital Analog Band (ex resident of Cafe Del Mar) - Discography 3 Releases
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF6C8407E59A61D74BF589D55C99115C6FB41E22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217040   (746126) от 02.04.2018
-
-Sonar - Volt Revisited (2003) Hands Productions [FLAC|Lossless|Vinyl|tracks] <Rhythmic Noise, Industrial, Electro>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Is Always A Waste (Geistform Remix) (04:21)
- 02. Got The Message (Electronicat Remix) (08:32)
- 03. Hostage (Ah Cama-Sotz Remix) (04:44)
- 04. Tafoukt (Rotorik Remix) (05:04)(   Читать дальше...   )Жанр: Rhythmic Noise, Industrial, ElectroПродолжительность: 00:51:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC922B6CDCCA14A5CF6FB282498556C20072A9A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216927   (746127) от 02.04.2018
-
-VA - Love Nightlife, Vol. 1 The Lounge Room Grooves By Kolibri Musique (2017) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ministry of Da Funk - Juicy Beats (5:09)
-02. Dawn Ahenk - Don't Need Ya (4:10)
-03. #Mali - French Avenue (5:34)
-04. PhonkworX - Night Fever (Funky Deep Mix) (5:03)(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F39B19A0B4B1E9241AF53E22D5FF8870CF4ADF97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216932   (746131) от 02.04.2018
-
-VA - Love Nightlife, Vol. 2 The Lounge Room Grooves (2018) [MP3|320 Kbps] <House, Deep House, Downtempo>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Why Can’t We Live Together (T.B.C. Re-Edit) T.B.C. 5:46
-02 Walkman Castanea 5:20
-03 Sunshine Artem B1 4:07
-04 I Alt Kellini 5:28(   Читать дальше...   )Жанр: House, Deep House, DowntempoПродолжительность: 01:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3ED535529449756670775371C4985B42BEFF4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216982   (746237) от 02.04.2018
-
-VA - Einfach Nur Mugge 2018 [MP3|320 Kbps] <House, Deep House, Big Room>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manuel Baccano - Love Me Like You Never Did Before [2:55]
-02. Leines - The Grace [3:29]
-03. Yoshua - Lug Mich An (DBN Radio Edit) [3:14]
-04. Dj Soulstar - Bollywood (Radio Mix) [3:27](   Читать дальше...   )Жанр: House, Deep House, Big RoomПродолжительность: 02:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:294F43C3A2901011F327B8F59917B2CE99FD2B9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524143   (746521) от 14.01.2022
-
-Bonobo - Fragments (2022) [FLAC|Lossless|Web-DL|tracks] <Downtempo, Ambient, Deep House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Polyghost (feat. Miguel Atwood-Ferguson) (1:49)
-02. Shadows (feat. Jordan Rakei) (4:45)
-03. Rosewood (4:03)
-04. Otomo (feat. O’Flynn) (6:12)(   Читать дальше...   )Производство: Ninja Tune - ZENDNL279Жанр: Downtempo, Ambient, Deep HouseПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72DAF2FB63F16F88C53575716821C0B50DAE2383
 ```
 
 

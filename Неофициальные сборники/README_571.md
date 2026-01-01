@@ -1,3 +1,30 @@
+###  Публикация: 1497889   (859656) от 25.09.2021
+
+VA - Clubbing Electro House (Vol.05) (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859656.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dave Owens - Skyline
+002. Moroni feat. Corey Andrew - Super Lady
+003. Shutdown - It's All Inside You
+004. Jerem A - Real Time(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 08:22:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7721623A87F8938BA3B51E280D36970D279693AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376131   (859739) от 17.04.2020
 
 VA - Зайцев.нет Лучшие новинки Апреля (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ VA - I Love Ballads - Part III (2016) [MP3|256 кб/с] <Pop, Rock, Chanson>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D69B6CB4BEA5EDBCA229C6453BAB1B130F95EC5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999295   (862774) от 23.03.2016
-
-VA - Chill Out Blues (2014) [MP3|320 кб/с] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862774.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Clarence - What Am I Living For
-002. JJ Grey & Mofro - Tupelo Honey
-003. Koko Taylor - I'd Rather Go Blind
-004. Janiva Magness - Things Left Undone(   Читать дальше...   )Жанр: BluesПродолжительность: 02:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34812A4578DE5523EFB419168636C241251A54B7
 ```
 
 

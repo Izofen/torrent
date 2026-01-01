@@ -1,3 +1,30 @@
+###  Публикация: 1840088   (1047020) от 02.12.2025
+
+The Vegetarians - Uncle Meatless Favorite Recipes (2025) [MP3|320 Kbps] <Progressive Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1047020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm The Slime
+02. Wet T-Shirt Nite
+03. Elvis Has Just Left The Building
+04. Brown Shoes Don't Make It(   Читать дальше...   )Жанр: Progressive Rock, Classic RockПродолжительность: 01:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D089A503AF93768DBD1430AA7F40503252C0ED08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841655   (1048220) от 12.12.2025
 
 Pink Floyd - Wish You Were Here 50 (1975) 3xCD, 2025, Legacy Recordings [MP3|320 Kbps] <Progressive Rock>

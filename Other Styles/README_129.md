@@ -1,3 +1,192 @@
+###  Публикация: 1213318   (771934) от 16.03.2018
+
+Geoff McGarvey, Graeme Keavney - Dusk (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771934.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  McGarvey - Culburra
+2.  Keavney - Cow Bay
+3.  McGarvey - Pobblebonk
+4.  McGarvey - Ku-ring-gai(   Читать дальше...   )Жанр: Modern Classical, Ambient, New AgeПродолжительность: 01:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0A4DC83A98AE4BFE4B00E843D4EAA1393C0112
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213255   (771997) от 16.03.2018
+
+Graeme Keavney, Geoff McGarvey - Dawn (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771997.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. McGarvey - Pebble Beach
+2. McGarvey - Blue Mountain
+3. Keavney - Newport
+4. McGarvey - Salvation Creek(   Читать дальше...   )Жанр: Modern Classical, Ambient, New AgeПродолжительность: 01:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A081BFFD14C28D7B5DE9F5BD1DA0BEA66A51B7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016015   (772552) от 12.05.2016
+
+Hang Massive - Beats For Your Feet (2012) [FLAC|Lossless|tracks] < Folk, World, New Age>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Again (live)     06:04
+02. Skanegatan (live)    04:05
+03. Increasing Obviousness (live)    04:36
+04. Omat Odat (live)    06:14(   Читать дальше...   )Жанр: Folk, World, New Age,Продолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6425163A5582C8A217C49E3CB34629259719FB29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015741   (772555) от 12.05.2016
+
+Emir Kusturica & The No Smoking Orchestra - The Best Of... (2009) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Gypsy Punk, Balkan>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bubamara (Main Version)
+02. Kana O Del Barvarel
+03. Upside Down
+04. Unza Unza Time(   Читать дальше...   )Жанр: Folk-Rock, Gypsy Punk, BalkanПродолжительность: 01:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA5781B3ED5233A4E56D1ABE0986D7E9C64B074
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213214   (773084) от 15.03.2018
+
+Paul Mauriat - Piano Ballade & Remember (2016) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Ballade (1984)
+01. Hello
+02. A Chance for Heaven
+03. Only You(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:327ABDE9B798A4B27D93B2EF7FE9F61B6B1D9957
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213013   (773092) от 15.03.2018
+
+Robin Spielberg - Moonlight & Lovesongs (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soon Its Gonna Rain (from The Fantasticks)
+02. Dream, Dream, Dream
+03. Moonlight in Vermont
+04. Moon River (From Breakfast at Tiffanys)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2278F06D8E41251186F5AB935FC1D3F129F3E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213024   (773224) от 15.03.2018
+
+Michael E & Jirka - The Garden Of The Open Mind (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773224.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mantra (5:25)
+2. Beautiful Solitute (3:24)
+3. Tokyo Morning (5:19)
+4. Flight Over India (4:45)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70CDB81393B1651FA88EB453952D69671B7C92E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124843   (773390) от 13.04.2017
 
 Ewan Dobson - 12 String Guitar (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Acoustic guitar, Fingerstyle, Folk>
@@ -506,193 +695,6 @@ Brian Crain - Piano and Night (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C38DC252E66C4C8BCDCFA5C15C91D0DF6B663D8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014512   (776152) от 08.05.2016
-
-Deuter - Ocean Waves (2012) [FLAC|Lossless|tracks] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bali    16:58
-02. Cannes    15:33
-03. Lanzarote    12:57
-04. Nice    10:07(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F5B0FC45B147FA010726A6675790768A261E4CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014397   (776366) от 07.05.2016
-
-VA - Creed (Original Motion Picture Soundtrack) (2015) [FLAC|Lossless|Web-DL|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future - Last Breath (3:59)
-02. Meek Mill - Check (3:14)
-03. White Dave - Intolerant (3:34)
-04. The Roots - The Fire (feat. John Legend) (3:41)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AD15D4A8A38AC427F2B973CF41C12EF8BD93E7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014434   (776376) от 07.05.2016
-
-Mariza - Mundo (2015) [FLAC|Lossless|tracks  + .cue] <Folk, World, Country, Fado>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rio De Mágoa [03:17]
-02. Melhor De Mim [04:08]
-03. Alma [03:12]
-04. Saudade Solta [03:32](   Читать дальше...   )Жанр: Folk, World, Country, FadoПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F256B1DA70FDCB3AF5503A0B8BFB98DE039BE95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212168   (776390) от 10.03.2018
-
-Sade - Flower of the Universe (From Disney's "A Wrinkle in Time") (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flower of the Universe (3:49)
- 02. Flower of the Universe (No I.D. Remix) (4:07)Жанр: Pop, SoulПродолжительность: 00:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D99653503949DD44394FC1810920B7C1BE5B13D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014420   (776414) от 07.05.2016
-
-Cyndi Lauper - Detour (2016) [FLAC|Lossless|WEB-DL|tracks] <Country, Country Blues, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funnel Of Love (3:15)
-02. Detour (feat. Emmylou Harris) (2:55)
-03. Misty Blue (3:19)
-04. Walkin' After Midnight (2:16)(   Читать дальше...   )Жанр: Country, Country Blues, FolkПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2AFFE368A7BBE0611DF5C196BECFB947B418096
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212057   (776430) от 10.03.2018
-
-Жабъ - Гимны Болотному Троллю (2017) [MP3|320 Kbps] <folk,metal,rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пробуждения Жабъа (2:02)
-02. Жабъ и Крот (2:39)
-03. На Битву (3:55)
-04. Уж Следит За Хомяком (2:57)(   Читать дальше...   )Жанр: folk,metal,rockПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501FCE0AE24F73DD6691F51DC5E4AE2635A8AA8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014354   (776481) от 07.05.2016
-
-Wong Wai Ming - Romance On Violin (2013) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If (2:52)
-02. Song From Secret Garden (2:59)
-03. Make It With You (3:21)
-04. First Of May (4:05)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1102DD8B89D8DE35FBE2E6A695FBC8BADFB27E60
 ```
 
 

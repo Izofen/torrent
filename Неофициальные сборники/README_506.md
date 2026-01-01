@@ -1,3 +1,30 @@
+###  Публикация: 1390523   (782662) от 16.06.2020
+
+VA - Suspended Dreams: Weekend Picks Deep House (2020) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782662.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. I-Ly - Trip The Light Fantastic
+002. Gianni Serra - Dance With Me
+003. Gorgonoize - Tranquility (Original Mix)
+004. Green Pistaches - Cut It Out(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905D2C7DF5F830C6C82A120196423F436A3D8A02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390621   (782669) от 16.06.2020
 
 VA - не Громкие новинки недели 71 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Music News vol.19 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A893AD9B4553E83F7345BBA6244AC57BFE49EA75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390023   (783658) от 13.06.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 12.06.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mari Ferrari with M.Z.I & S-ELM feat. Vianne - Drop Dead 2:32
-02. NRD1 - All Good Things (Come To An End) 3:27
-03. Tiesto & Jonas Blue feat. Rita Ora - Ritual 3:19
-04. Cream Soda & ХЛЕБ - Плачу на техно 2:40(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:258421C335BED0EFC1FA9344C8C3511E0CBAE75B
 ```
 
 

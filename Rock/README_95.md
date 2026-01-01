@@ -1,3 +1,30 @@
+###  Публикация: 1473437   (1013725) от 29.05.2021
+
+Dunbarrow - Dunbarrow I-III (2017-2021)[MP3|320 Kbps] <Stoner, Heavy Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death That Never Dies [00:05:42]
+02. In My Heart [00:04:02]
+03. Worms of Winter [00:04:09]
+04. Turn in Your Grave [00:06:51](   Читать дальше...   )Жанр: Stoner, Heavy RockПродолжительность: 3CD, 01:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D973C0C15B99794531982BB5E9BD156507ABF61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472042   (1014640) от 23.05.2021
 
 Maneskin - Teatro d'ira - Vol. I (2021) [MP3|320 Kbps] <Hard Rock, Glam Rock>
@@ -668,33 +695,6 @@ Thomas Frank Hopper - Bloodstone (2021) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC940EC6F4C009FB9A4F020C34C8F0D57FB13065
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458632   (1023862) от 29.03.2021
-
-Snake Bite Whisky - Black Candy (2021) [MP3|320 Kbps] <Glam Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Thunderbird [00:02:27]
-02 - Raised in Hell [00:03:47]
-03 - Creep Show [00:03:43]
-04 - Choke [00:03:41](   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:223BD0DE77A8326B291A22921DD92B2636F5E660
 ```
 
 

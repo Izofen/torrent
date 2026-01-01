@@ -1,3 +1,111 @@
+###  Публикация: 980596   (956109) от 29.01.2016
+
+Ладушка - Солнцекараул (2015) [FLAC|Lossless|image + .cue] <Folk Metal, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956109.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Солнцекараул
+2. Неба Берега
+3. Друже Кубки
+4. Тихо Пел Горицвет(   Читать дальше...   )Жанр: Folk Metal, Folk RockПродолжительность: 00:29:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFD6586E04F84C0FBE97C2660187E31FF825810A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979939   (958183) от 27.01.2016
+
+Пикник - Большая игра (2015) 3CD [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_958183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Большая игра
+02. Нет берегов
+03. Египтянин
+04. Немного огня(   Читать дальше...   )Жанр: RockПродолжительность: 03:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF314B04BF40B7F5290089C059AE25F138BA4237
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979931   (958361) от 27.01.2016
+
+Нервы - Третье дыхание (2015) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_958361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я здесь!
+02. ЗТНБ
+03. На Луну
+04. Мы – Мир!(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0E0ACCE93EA3450248BF480F7F515F00546D5B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360706   (959299) от 16.02.2020
+
+Альянс - Космические сны (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Навстречу холодному свету
+02. Космические сны
+03. Эй, мен, супермен!
+04. Ночь сомнения(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA88DD613E8F29E00D56A722A9C18B59A7F44D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979130   (960762) от 25.01.2016
 
 Кино - Grand Collection. Часть 2 (2001) Compilation, 2005, Квадро-Диск [FLAC|Lossless|image + .cue] <Rock, Alternative Rock>
@@ -601,114 +709,6 @@ magnet:?xt=urn:btih:D5EADA6A7F0CB1C6E608E9F117301426C43B4510
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F0C5C5FFD47BC82B3C2DADCB67A9F1B76D36B56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356495   (978716) от 30.01.2020
-
-Нуки (Слот) - Волки смотрят в лес (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Холодно
-02. Пищевая цепочка
-03. 451
-04. Пожары(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A240FE3526B4A3F694F84D1FC4F12A36B36E3FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355764   (980499) от 29.01.2020
-
-VA - Мы не оставим города свои! Песни донбасской войны (2017) 2CD [FLAC|Lossless|image + .cue] <Alternative Rock, Hip-Hop>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980499.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Александр Ф. Скляр - Миллионы
-02. Зверобой - Едут-едут БТРы
-03. Чичерина - Рвать(   Читать дальше...   )Жанр: Alternative Rock, Hip-HopПродолжительность: 02:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5F1516DCA85F290D71AFDEDFC54A06874EF247B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972069   (981734) от 06.01.2016
-
-Александр Градский - Неформат (2011) [FLAC|image + .cue] <Rock, Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шансон
-02. Песня О Любви ('Кому-то Казалось…')
-03. Песня Об Иносказательности
-04. Галичу(   Читать дальше...   )Жанр: Rock, VocalПродолжительность: 00:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5355AA65E028F9B9F18C79FDA1FD0932D630D683
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972011   (981936) от 06.01.2016
-
-Blues Doctors - Electric Gentlemen (2014) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Man (04:30)
-02. My Manifesto (03:38)
-03. By Your Side (03:07)
-04. Heartbreak Radio (05:13)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:19:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96959A3282A3939F63DCDAE802899568872D485B
 ```
 
 

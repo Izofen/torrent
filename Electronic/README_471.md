@@ -1,3 +1,137 @@
+###  Публикация: 1096588   (919407) от 24.01.2017
+
+VA - Chill Party Chillout Fine Selection (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zero Feedback - Rien Ne Va Plus (Don Gorda Project Remix)  7:00
+02.  Don Gorda Project feat. Solanos - Festa Do Sol (Funk Edit)  4:47
+03.  Enrico Donner - The Place  6:17
+04.  Solanos - Infinite Fields  5:24(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:30:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA862FC6F744BDB75918B355E120D72EEE681C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096535   (919411) от 24.01.2017
+
+VA - Sun Emotions Vol.1 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Pantelis - That Summer (The Balearica Anthem)  4:16
+02.  Florito - A La Playa  5:29
+03.  DJ Quincy Ortiz - The Way Home  7:01
+04.  Todoroff - Lost Without You (feat. David Paul)  6:36(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD76BA7E58381B0FD7498FE130C8088000578BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366841   (920306) от 13.03.2020
+
+Boris Brejcha - Violet Pill (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920306.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Violet Pill (8:33)
+2. On His Way (9:00)
+3. Babamba (7:50)Жанр: Tech House, MinimalПродолжительность: 00:25:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2710AD6A5382532C8F8CE0C5C0D378F82C842840
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988473   (920432) от 20.02.2016
+
+Illenium - Ashes (2016) [MP3|320 кб/с] <Dubstep, Future Bass, MidTempo>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Reverie (feat. King Deco)
+02.Fortress (feat. Joni Fatora)
+03.With You (feat. Quinn XCII)
+04.Sleepwalker (feat. Joni Fatora)(   Читать дальше...   )Жанр: Dubstep, Future Bass, MidTempo, TrapПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B2457E1FDB94A70E57103BDB245A739C911A9D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366760   (920576) от 13.03.2020
+
+VA - Trance Legion Vol.1-4 (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Progressive Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_920576.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Active Limbic System - Point Of No Return (Original Mix) (7:32)
+2. Hit The Bass - Enlighten (Original Mix) (4:36)
+3. Chris Oblivion - New Romantic Poem (Original Mix) (7:42)
+4. Hi Profile; Mr.What? - Space Invaders (Original Mix) (8:21)(   Читать дальше...   )Жанр: Psy-Trance, Progressive Psy-TranceПродолжительность: 04:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A085A5E20FB892B19A5ACC231A773C0B0AE17A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366847   (920582) от 13.03.2020
 
 Adani & Wolf - Here Comes the Hero (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Jazz House, Dance, Bossa, Lounge>
@@ -560,146 +694,6 @@ VA - Psychill Blossom, Vol. 1 (Compiled by Dense) (2020) Cosmicleaf Records [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CC6BC2A764F43FEAB432FF8557D01D9F60087C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366539   (922465) от 12.03.2020
-
-ASOK - MISTRESS 14 (2020) Mistress Recordings [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Rockets (06:45)
- 02. Is Anyone (06:46)
- 03. Last Refuge (06:49)
- 04. The Alchemist (06:16)(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 00:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:491E5B65FA84F5EEC0B836A4555F10363B4BBC5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095911   (922526) от 22.01.2017
-
-Vitalic - Voyager (2017) [MP3|320 Kbps] <Electro House, Nu-Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Viaje (01:34)
-02. Waiting For The Stars (Feat. David Shaw) (03:52)
-03. Levitation (05:40)
-04. Hans Is Driving (Feat. Miss Kittin) (04:33)(   Читать дальше...   )Жанр: Electro House, Nu-DiscoПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1B9C3E613DFF27CC9A4F465E1ECD07A476ED99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288533   (922548) от 29.01.2011
-
-VA - United Colours Of Trance Vol. 1 (Compiled by Elektronick) (2010) [MP3|320 kbps] <Full On, Psytrance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922548.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - United Colours Of Trance Vol. 1 (Compiled by Elektronick) (2010)
-Год: 2010
-Жанр: Full On, Psytrance
-Лейбл: Beyond Logic Records
-Продолжительность: 01:14:21
-Кодек: MP3
-Битрейт: 320 kbps
-Тип битрейта: CBRТрек лист:
-01. Perplex Vs Michele Adamson - Keep Friends Meltdown (Indra Rmx) [06:54](   Читать дальше...)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E00CEE7222B807FBE3F3FA28C5D9146F9F258E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096065   (922588) от 22.01.2017
-
-VA - Into The Wildness (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Branzei - I'll Never Be Free (original mix) (07:05)
-02. Dogus Cabakcor - Trouble (original mix) (04:20)
-03. Love Vibes & Valentina - Show Me (Deepjack & Altaci remix) (05:52)
-04. Andrey Keyton & Chunkee - Want Your Love (original mix) (05:19)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6204121A48D37306307FECB1E3088D188CB692C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095952   (922639) от 22.01.2017
-
-Everything But The Girl - The Best Of (1996) Compilation [FLAC|Lossless|tracks + .cue] <Drum n Bass, Downtempo, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Missing (Todd Terry Remix) (3:55)
- 02. Driving (Todd Terry Remix) (5:25)
- 03. Old Friends (3:47)
- 04. One Place (5:01)(   Читать дальше...   )Жанр: Drum n Bass, Downtempo, HouseПродолжительность: 00:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B840F920E851920EDDDF3D04493D59040DC906AC
 ```
 
 

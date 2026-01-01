@@ -1,3 +1,30 @@
+###  Публикация: 1371400   (892038) от 30.03.2020
+
+VA - Beatport Bassline: Electro Sound Pack #41 (2020) [MP3|320 Kbps] <D&B, Bassline>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892038.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Artificial Intelligence - Savour
+002. Atmosis - Did You Know
+003. Black Barrel - Fabric
+004. Drumsound & Bassline Smith - Come With Me(   Читать дальше...   )Жанр: D&B, BasslineПродолжительность: 10:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B6E5DF584A76CE9BE660A40B4FA3D1625E1151
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493949   (892170) от 05.09.2021
 
 VA - Music News vol.129 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -668,39 +695,6 @@ VA - Отдыхаем душой на радио Шансон выпуск №2 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:059343BD4407EDB27E2E18EF3330038CBCC68C9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 639350   (893183) от 04.04.2013
-
-VA - Absolute Music 72 (2013) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893183.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01.Robin Stjernberg - You 03:02
-02.Passenger - Let Her Go 04:10
-03.Zara Larsson - Uncover 03:32
-04.Rihanna - Diamonds 03:43
-05.Kim Cesarion - Undressed 03:40
-06.Bruno Mars - Locked Out of Heaven 03:52
-07.Yohio - Heartbreak Hotel 03:04
-08.The Lumineers - Ho Hey 02:41
-09.Imagine Dragons - Radioactive 03:06(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:33:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E5F34B01B6B3D9FA9C6714CD019BBA3EF177495
 ```
 
 

@@ -583,6 +583,39 @@ magnet:?xt=urn:btih:87D7DCC881FFFB056D492F6107BF4A3204B26239
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 216310   (647592) от 06.07.2010
+
+Tom Petty And The Heartbreakers - Mojo (2010) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_647592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jefferson Jericho Blues 3:23
+02. First Flash Of Freedom 6:52
+03. Running Man's Bible 6:01
+04. The Trip To Pirate's Cove 4:59
+05. Candy 4:11
+06. No Reason To Cry 3:04
+07. I Should Have Known It 3:35
+08. U.S. 41 3:00
+09. Takin' My Time 4:21
+10. Let Yourself Go 3:22(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:50
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905851   (647824) от 07.06.2015
 
 Gandalf's Fist - Uprooted (2015) [MP3|320 кб/с]<Progressive Rock, Neo-Prog>
@@ -686,33 +719,6 @@ Neuschwander - Neuschwander (2015) [MP3|320 кб/с]<Progressive Rock, Psychedel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61460A1B676478D1FAE4478069053970CAE6F482
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032154   (647898) от 06.07.2016
-
-Stonerider - Hologram (2016) [MP3|320 Kbps] <Classic Rock, Psychedelic Rock, Timeless Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleepwalking Awake
-02. Hologram
-03. Dayrunner
-04. War, Traffic, and Blind Faith(   Читать дальше...   )Жанр: Classic Rock, Psychedelic Rock, Timeless RockПродолжительность: 00:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F769438B73CDD6876394FA139A77F839A8E09CAD
 ```
 
 

@@ -1,3 +1,192 @@
+###  Публикация: 1131456   (706610) от 06.05.2017
+
+Cristobal Tapia de Veer - The Girl With All The Gifts / Новая эра Z (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gifted (Pimped Mix) (02:59)
+02. Pandora (01:49)
+03. Hunger (01:00)
+04. My Special Girl (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB5355700F40F79E758F546926F3CC83E3056EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131467   (706938) от 06.05.2017
+
+Bear McCreary - Colossal / Моя девушка – монстр (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colossal Prologue (02:21)
+02. A Monster Hypothesis (05:20)
+03. A Walk in the Park (02:19)
+04. Jealousy (03:13)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F0065172329DF0BECD7D7631E439632CADB3D72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131469   (706945) от 06.05.2017
+
+Bear McCreary - Colossal / Моя девушка – монстр (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colossal Prologue (02:21)
+02. A Monster Hypothesis (05:20)
+03. A Walk in the Park (02:19)
+04. Jealousy (03:13)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C43CC723A831BC75C95FE94FF675C1DE23D2139F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131455   (706949) от 06.05.2017
+
+Cristobal Tapia de Veer - The Girl With All The Gifts / Новая эра Z (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gifted (Pimped Mix) (02:59)
+02. Pandora (01:49)
+03. Hunger (01:00)
+04. My Special Girl (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:293B7149ACBB9E998A4B29B3D6E5B13C371A31B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 328145   (706993) от 11.08.2020
+
+VA - Super Instrumental 25 (Vol. 23-25) (1996) [FLAC|Lossless|image, tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armik - Sailing To Bimini (05:14)
+02. The Ventures - Blue Chateau (02:43)
+03. Hugo Strasser - Raindrops Keep Falling On My Head (02:30)
+04. Boris Zepyr - Fernando (04:25)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 03:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E66ABB2198EC3FA015AD9BA52933E092715E7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401575   (707521) от 11.08.2020
+
+The Pasadena Roof Orchestra - Breakaway (1991) [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707521.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Breakaway (03:17)
+2. Jeepers Creepers (02:50)
+3. Piccolo Pete (02:58)
+4. The Very Thought of You (03:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03124F4B4561E290135534CBAB846C826C3A7777
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025666   (707843) от 13.06.2016
+
+Jupiter Panic - Earth-like (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronica, Soundtrack, New Age>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening [00:04:08]
+02. Code 44 [00:04:32]
+03. The Arrival [00:02:50]
+04. Future Noir [00:03:25](   Читать дальше...   )Жанр: Electronica, Soundtrack, New Age, Synthwave, ElectroПродолжительность: 00:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01BEC82D45E9E399BA21BE16792621463BE9C7E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025882   (707939) от 13.06.2016
 
 Blue Tribe - Deep Sentiment (2006-2011) (6 альбомов) [MP3|320 кб/с] <New Age, Enigmatic, World>
@@ -504,194 +693,6 @@ Toby Keith - Greatest Hits Volume One (1998) [FLAC|Lossless|tracks + .cue] <Folk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AD87F7878A3A3264DDD51D65BDCBD45E2D09E83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286727   (711297) от 03.03.2019
-
-Toby Keith - Pull My Chain (2001) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711297.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	I'm Just Talkin' About Tonight 	2:45
-2 	I Wanna Talk About Me 	3:04
-3 	I Can't Take You Anywhere 	3:33
-4 	You Leave Me Weak 	3:22(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66909DEEA2AD6F9A5C75D21B57758DAFAD3A2C05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286660   (711311) от 03.03.2019
-
-Vince Gill - Pocket Full Of Gold (1991) [FLAC|Lossless|tracks + .cue] <Folk, World, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711311.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	I Quit 	2:30
-2 	Look At Us 	3:59
-3 	Take Your Memory With You 	2:34
-4 	Pocket Full Of Gold 	4:04(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:32:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6608F27F61546E2142399D121DFEFEB87B340902
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219570   (711832) от 15.04.2018
-
-Ajeet Kaur - Shuniya: Healing Chants (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maha Mrityunjai (31:02)
-02. Adi Shakti - Bhakti Mantra (12:42)
-03. Ra Ma Da Sa (10:59)Жанр: New AgeПродолжительность: 00:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C43E63EB07CC0685BF251C89B5620378DC7880D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791733   (711938) от 01.06.2014
-
-VA - Pure... Country (2010) Box Set, 4 CD [FLAC|Lossless]<Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну что ж, общими усилиями мы продвигаемся к пополнению списка релизов под общим лейблом Pure... от Sony. Думаю, что уже сегодня в клубе наиболее полная коллекция этой серии. Здесь же представлен четырех-дисковый сет, посвященной музыке Country. И хотя в аннотации к сету пишется, что он охватывает множественные стили и эры кантри, на мой взгляд коллекция все-таки (   Читать дальше...   )01. Johnny Cash - I Walk the Line  (2:36)
-02. Willie Nelson - On the Road Again  (2:33)
-03. John Denver - Take Me Home, Country Roads  (3:12)
-04. Lynn Anderson - (I Never Promised You a) Rose Garden  (2:56)(   Читать дальше...   )Жанр: CountryПродолжительность: 03:31:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E360BB6FC01B37FA69994FEC54217B0C35AD6551
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130632   (712277) от 03.05.2017
-
-Kitaro - Sacred Journey of Ku-Kai, Volume 5 (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul From Ocean (5:57)
-02. Breath Of Light (6:31)
-03. Reflection Of The Heart (5:36)
-04. Wave Rotation (5:03)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED82BC411E27F4DA7446A4BA802AFAD68976260
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130588   (712678) от 03.05.2017
-
-VA - Your Own Personal Buddha: Cafe Ethnic Lounge (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Velvet - Shaking the Spirits - Mykonos Sunset Mix
-02. Milews - Cafe Del Mar Dreams - Tabla Buddha Ibiza Mix
-03. Moonflower - Buddha in the Lounge - Bar Cafe Night Mix
-04. Blue Crisp - African Skies - Sunset Del Mar Lounge Mix(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:25:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F85175B6874E57853AD25468FA5BD29CBA04400D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130740   (712685) от 03.05.2017
-
-Glenn Morrison - How We Are (Motion Picture Soundtrack) (2017) [MP3|320 Kbps] <Soundtracks>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712685.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. How We Are (04:06)
-2. Incessant (04:18)
-3. Dinosaur Vibrato (04:16)
-4. Apocalyptic Veil (07:44)(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC905047673007078EB4C748E4B2AE256A878873
 ```
 
 

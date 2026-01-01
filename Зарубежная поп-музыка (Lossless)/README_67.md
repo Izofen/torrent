@@ -1,3 +1,57 @@
+###  Публикация: 1284323   (728961) от 21.02.2019
+
+The Lemon Trees - Open Book (1993) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love The Sun
+02. Love Is In Your Eyes
+03. Everything I Want To Know
+04. Child Of Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E1A69E801C0E5F1ADE72BDECF20AE03736EA3A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022169   (729511) от 01.06.2016
+
+Supermax - The Magic Of Supermax (2015) [FLAC|Lossless|tracks + .cue] <Pop, Funk, Reggae>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lovemachine [08:37]
+02. Dance Dance Dance [03:43]
+03. African Blood [08:34]
+04. Hollywood [04:02](   Читать дальше...   )Жанр: Pop, Funk, ReggaeПродолжительность: 01:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6169D82607655412C1751EB6EA70A83F078762
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022201   (729526) от 01.06.2016
 
 The High Violets - Heroes and Halos (2016) [FLAC|Lossless|tracks] <Alternative Pop, Indie Pop, Dream Pop>
@@ -638,61 +692,6 @@ Les Humphries Singers - Mexico (1972) 2011, Warner [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28F95D0594EFE9AC16302BABB64FEAF16EF399CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 787181   (736673) от 17.05.2014
-
-VA - Pure... 60s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Soft Rock, Pop-Roc>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постепенно пополняется наша коллекция Pure... от Sony.
-Подоспели и 60-е годы. Этот щедрый набор с четырьмя дисками вобрал в себя почти 70 оригинальных записей хитов 60-х, включая песни Боба Дилана, Byrds, Элвиса Пресли и Джонни Кэша. Хотя, на мой взгляд, коллекция достаточно эклектичная, тем не менее, охватывая огромный пласт песен 60-х, она, бесспорно, даст представление (   Читать дальше...   )01. Bob Dylan - I Want You  (3:07)
-02. Van Morrison - Brown Eyed Girl  (3:03)
-03. Roy Orbison - Oh Pretty Woman  (2:58)
-04. Elvis Presley - Suspicious Minds  (4:34)(   Читать дальше...   )Жанр: Pop, Rock, Soft Rock, Pop-RocПродолжительность: 03:30:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D67AEC948C2DC63165A041FD5F3D995F3E054CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397898   (736685) от 24.07.2020
-
-Alekseev (Никита Алексеев) - 2 Альбома (2017 - 2019) [FLAC|Lossless|tracks + .cue]<Рор>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Моя звезда
-02. Так буває
-03. Целуй
-04. Как ты там(   Читать дальше...   )Жанр: РорПродолжительность: 01:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85ABAF18A145648F034AF33BD609E10E5E4D05A4
 ```
 
 

@@ -1,3 +1,166 @@
+###  Публикация: 1523609   (749790) от 12.01.2022
+
+VA - ZYX Italo Disco: Hits & Rarities Vol. 6 (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P. Lion - Dream (Vocal Version) (6:04)
+02. Ken Laszlo - Hey Hey Guy (US Remix) (5:50)
+03. Frank Tavaglione - Tumidanda (English Version) (5:48)
+04. Clock On 5 - Take It (Mayerling) (The ''One'' Remix) (6:23)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 01:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E3E68A0A3A029A8B9371C800B3B329052CEC10D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523606   (749798) от 12.01.2022
+
+VA - ZYX Italo Disco: Hits & Rarities Vol. 3 (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby's Gang - Challenger (5:19)
+02. Macho Gang - Naughty Boy (Long Mix) (5:27)
+03. Joe Yellow - Im Your Lover (12'' Vocal Version) (5:29)
+04. Biba - Top Model (Maxi Version) (5:19)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 01:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E13BC4E7AC483C47E9E1685FD8F625C778F0D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523608   (749799) от 12.01.2022
+
+VA - ZYX Italo Disco: Hits & Rarities Vol. 5 (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Authokino - Raszmatazz (Remix) (5:46)
+02. 'Lectric Workers - Robot Is Systematic (Vocal Version) (8:52)
+03. Stella Steevens - Butterfly (5:31)
+04. Phil Grant - Hey Girl (Vocal) (5:42)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 01:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6014EBE437EEA5881161671051604E3A44ECC63E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281713   (749816) от 09.02.2019
+
+Юрий Антонов - Юрий Антонов (1981) LP [MP3|320 Kbps] <Pop, Pop Rock, Chanson, Vocal>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я Вспоминаю (Sjecam Se) (5:44)
+02. Моё Богатство (Moje Bogatstvo) (2:34)
+03. Зеркало (Ogledalo) (3:38)
+04. Золотая Лестница (Zlatne Stepenice) (2:46)(   Читать дальше...   )Жанр: Pop, Pop Rock, Chanson, VocalПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A361A1F0F6792550B43C9714C2E61906FB53A5B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281801   (749826) от 09.02.2019
+
+Dua Lipa - Dua Lipa (2017) 2018, Reissue, 2CD, Complete Edition [FLAC|Lossless|tracks + .cue] <Synth-pop, Ballad, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749826.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+ 01. Genesis (3:27)
+ 02. Lost in Your Light (3:24)
+ 03. Hotter Than Hell (3:10)(   Читать дальше...   )Жанр: Synth-pop, Ballad, Pop RockПродолжительность: CD1 - 00:57:07
+CD2 - 00:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE65DF8EC5A93BFB63526783F9A93EE9743D7A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523648   (749890) от 12.01.2022
+
+VA - Venti Compilation 7 (2021) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miko Mission - Do You Wanna Dance (6:29)
+02. Torrevado - Heartbreaker (Disco Mix) (6:42)
+03. Love Kills - Touch Me (Special Remix) (6:16)
+04. Robert Camero - Autumn Love (Vocal Remix) (6:39)(   Читать дальше...   )Жанр: Italo-Disco, Disco, Hi-NRGПродолжительность: 02:20:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F32782E8577484666B5CCB398E7272D059C5F318
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281734   (750021) от 09.02.2019
 
 Rena Mason - Cherchez La Femme (1979) Reissue CD, 2013, EMI Electrola [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -533,164 +696,6 @@ Umberto Tozzi - 26 Albums (1976-2019) Collection [MP3|320 Kbps] <Pop, Pop Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:238544E8B4107B2C3F43CBA91E829A08D6CEDE61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 255332   (754840) от 06.02.2019
-
-Lara Fabian & Igor Krutoi - Mademoiselle Zhivago (2010) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demain N'existe Pas
-02. Toccami
-03. Llora
-04. Russian Fairy Tale(   Читать дальше...   )Жанр: PopПродолжительность: 58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CA0D9AB89BEDD41BE20B87034A5657BC6BFF61B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522874   (755295) от 09.01.2022
-
-Edgar Winter - The Edgar Winter Album (1979) LP [MP3|320 Kbps] <Electronic, Prog Rock, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Your Life To Live (5:31)
-02. Above And Beyond (5:04)
-03. Take It The Way It Is (4:26)
-04. Dying To Live (4:14)(   Читать дальше...   )Жанр: Electronic, Prog Rock, DiscoПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:606C9FF2BF7F2B1CA238485DF436A5FD3A8BF867
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395498   (755568) от 10.07.2020
-
-Alan Sorrenti - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, Pop, Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'unica Donna Per Me (3:45)
-02. Per Sempre Tu (4:35)
-03. Dancing In My Heart (2:54)
-04. Provaci (3:16)(   Читать дальше...   )Жанр: Electronic, Pop, Pop Rock, DiscoПродолжительность: 01:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6ED796CC383B83013594B943CDF93558E58D5D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 662927   (756234) от 30.05.2013
-
-VA - Суперхиты дискотеки 90-х... продолжение (2011) [FLAC|Lossless]<Pop, EuroDance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East 17 - It's Alright (4:43)
-02. E-Type - Set the World on Fire (3:46)
-03. Captain Hollywood - Over and Over (3:47)
-04. DJ BoBo - Take Control (3:48)(   Читать дальше...   )Жанр: Pop, EuroDanceПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 662885   (756235) от 30.05.2013
-
-Madonna - The Complete Studio Albums (1983-2008) Box Set, 11CD, 2012, Warner Bros. [FLAC|Lossless|image + .cue] <Pop, Dance, Electronic>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Dance, ElectronicПродолжительность: 00:56:19
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215811   (756601) от 27.03.2018
-
-Reflection - A Whiter Shade Of Pale (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Whiter Shade Of Pale (14:23)
-02. A Woman In Black (5:00)
-03. Hot Summer Night (7:17)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C53B7B74AA71D620261A0F1B9A8377890D742AC3
 ```
 
 

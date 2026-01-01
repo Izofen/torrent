@@ -1,3 +1,30 @@
+###  Публикация: 1473984   (1013364) от 31.05.2021
+
+VA - The Best Mother's Day Album In The World...Ever! (2021) [MP3|320 Kbps] <Pop, Rock, RnB>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bee Gees - More Than A Woman (From "Saturday Night Fever" Soundtrack)
+02. Calum Scott - You Are The Reason
+03. Lana Del Rey - Young And Beautiful
+04. Queen - Good Old-Fashioned Lover Boy (Remastered 2011)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 04:15:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5C8DF3184046117A52F4CD842CB78FA580CA4DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473569   (1013692) от 29.05.2021
 
 VA - German Top 100 Single Charts 28.05.2021 [MP3|320 Kbps] <Pop>
@@ -665,33 +692,6 @@ VA - National Pop Dance Music (Vol.15/1) (2021) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D5284BFB3BC0B865A6C24D2BE6F2DF9E637E25D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464368   (1019771) от 22.04.2021
-
-VA - Disco Is Alive 2 (2021) [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afric Simone - Casanova Africano (1978) (3:15)
-02. Arabesque - Once In A Blue Moon (1980) (3:19)
-03. Azoto - Anytime Or Place (1980) (6:15)
-04. Black Devil - No Regrets (1978) (5:07)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 05:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90A904259D601E2BC58DF7D83B6537134C5A5FB9
 ```
 
 

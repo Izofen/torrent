@@ -609,6 +609,39 @@ magnet:?xt=urn:btih:A60C6FFF37095B9D45FECE1990B3A4CDB23618D9
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517397   (642879) от 03.07.2012
+
+André Rieu - Dreaming (2002) [FLAC|Lossless]<Classic, Instrumental>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_642879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballade - A. Rieu / J. Tieu [04:13]
+02. Cavalleria Rusticana: Intermezzo Sinfonico - P. Mascagni [03:27]
+03. Air - J. S. Bach [05:01]
+04. The Gadfly: Romance - D. Dhostakovich [03:33]
+05. Romance In F - L. Van Beethoven [04:53]
+06. Send In The Clowns - S. Sondheim [04:05]
+07. La Traviata: Overture - G. Verdi [03:33]
+08. Carnival Of The Animals: The Swan - C. Saint-Saens [03:11]
+09. Peer Gynt Suite No.1 Opus 46: 1. Morning - E. Grieg [04:04]
+10. Salut D'Amour Opus 12 - E. Elgar [03:19](   Читать дальше...   )Жанр: Classic, InstrumentalПродолжительность: 01:17:06
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292775   (642932) от 31.03.2019
 
 Fabio Fabor - Strings And... (2019) [MP3|320 Kbps] <Classical>
@@ -692,33 +725,6 @@ Mirusia - Always and Forever (2010) [FLAC|Lossless]<Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA435659C4A7F950949878D196D2BCF9219D9BC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905691   (647319) от 07.06.2015
-
-Mozart - Concertos for 2 & 3 Pianos (Katia & Marielle Labeque, Semyon Bychkov & Berlin Philharmonic Orchestra) (1999) [FLAC|Lossless]<Classical, Classical Period, Concerto>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto for 2 pianos & orchestra in E flat major ("Concerto No. 10"), K. 365 (K. 316a)
-01. Allegro (10:03)
-02. Andante (08:04)
-03. Rondeaux (Allegro) (07:07)(   Читать дальше...   )Жанр: Classical, Classical Period, ConcertoПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93062EAE09A915FC69D476BF2897D1B3AE080A90
 ```
 
 

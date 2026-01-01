@@ -1,3 +1,165 @@
+###  Публикация: 1283898   (730942) от 19.02.2019
+
+VA - Car Songs: The Anthems (2019) 4CD [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730942.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Meat Loaf - Dead Ringer For Love
+02. Bonnie Tyler - Holding Out For A Hero
+03. Cyndi Lauper - I Drove All Night(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F8E54BA5E432D717E3D1A556A6404BDFD8D87D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022094   (730949) от 31.05.2016
+
+Arthur Beatrice - Working Out (2014) [FLAC|Lossless|tracks] <Alternative Pop, Indie Pop, Indie Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Councillor
+02. Late
+03. Midland
+04. Carter (Uncut)(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Indie RockПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767FA09EDC92632D9F030E6CAA48909A6A97EA7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021976   (730992) от 31.05.2016
+
+Omer Ozgur - We Are All the Same (2016) [MP3|320 кб/с] <Pop, Rock, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are All the Same
+02. In Maldives
+03. The Girl Who Knows Everything
+04. No Sign(   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F92FCAC3B93184DBECBD45D75A5E18215B6E53F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022007   (731078) от 31.05.2016
+
+Rachael Sage - Choreographic (2016) [MP3|320 кб/с] <Pop, Folk, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven (Is A Grocery Clerk)    04:03
+02. Loreena    03:52
+03. Try Try Try    04:00
+04. Home (Where I Am Now)    04:34(   Читать дальше...   )Жанр: Pop, Folk, RockПродолжительность: 00:56:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C961C810A8970E766EA9EC7ECD5CD0DD84AEAB09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283738   (731715) от 18.02.2019
+
+VA - 100 Hits - The Best 80s Album (2018) 5CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731715.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Bonnie Tyler - Holding Out For A Hero
+02. Cyndi Lauper - I Drove All Night
+03. Belinda Carlisle - Leave A Light On(   Читать дальше...   )Жанр: PopПродолжительность: 06:27:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896AD27518F9B7A664F48A6D9D9813AEE6673A9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127404   (731720) от 21.04.2017
+
+DJ BoBo - 25 Years (Greatest Hits) (2017) [MP3|320 Kbps] <Eurodance, Europop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Freedom  3:55
+02.  Everybody  3:50
+03.  Somebody Dance with Me  3:33
+04.  Pray  3:52(   Читать дальше...   )Жанр: Eurodance, EuropopПродолжительность: 02:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB769CF94E946D9D0F1021B57055507129971A8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127336   (731721) от 21.04.2017
 
 Bee Gees - Timeless: The All-Time Greatest Hits (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
@@ -533,168 +695,6 @@ Savage - Love And Rain (2020) [FLAC|Lossless|image + .cue] <Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7F98883B76FD7B53C7E4342ECDD217A62B2C764
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399178   (734304) от 29.07.2020
-
-Eclipse - Night And Day (1977) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Love (4:16)
-02. Born To Be Wild (3:28)
-03. Sunshine Superman (4:12)
-04. You Really Got Me (8:10)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53D107B50B3906A5401A723A19AC93758A730CA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399109   (734334) от 29.07.2020
-
-Natalie Cole - Unpredictable (1977) LP [MP3|320 Kbps] <Funk Soul, Rhythm & Blues, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Heart (4:09)
-02. Still In Love (3:46)
-03. Party Lights (4:09)
-04. I've Got Love On My Mind (4:20)(   Читать дальше...   )Жанр: Funk Soul, Rhythm & Blues, DiscoПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF59964FF362852A943C1A6908A69979A41AF367
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528491   (734454) от 02.02.2022
-
-VA - Valentine's Day 2022 [MP3|320 Kbps] <Pop, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Counting Crows - Accidentally In Love (From "Shrek 2" Soundtrack)
-02. Imagine Dragons - Not Today
-03. Frank Sinatra, Count Basie and his Orchestra - Fly Me To The Moon (2008 Remastered)
-04. K-Ci & JoJo - All My Life (Radio Edit)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 02:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD8DE6B3EA62DC2AD94E71509236004C36C24EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788202   (734659) от 21.05.2014
-
-VA - Pure... 70s (2013) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Soft Rock, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотя поп музыку 70-х не заслуженно называют "ширпотребом",  бокссет от Sony Music с четырьмя дисками показывает, что это десятилетие принесло ничто иное, как огромное разнообразие хитов. Хотелось бы обратить ваше внимание на таких исполнителей как O'Jays с его "Love Train," Bill Withers с замечательной "Lean on Me," Billy Paul с "Me (   Читать дальше...   )01. Jacksons - Show You The Way To Go  (5:29)
-02. Andrea True Connection - More More More  (3:08)
-03. Baccara - Yes Sir I Can Boogie  (4:32)
-04. Gladys Knight & The Pips - Baby Don't Change Your Mind  (3:07)(   Читать дальше...   )Жанр: Pop, Rock, Soft Rock, Pop-RocПродолжительность: 04:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E149DA7D06DCC3DA8562569A0B276DE0B2633553
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398896   (734692) от 28.07.2020
-
-VA - NOW That's What I Call Music! 106 (2020) 2 CD, UK Series [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734692.jpg" />
-</div>
-
-
-###  Подробнее
-
-И так, 24 июля 2020 года вышел летний сборник новинок из топов Великобритании и Ирландии. Не путайте с такой же серией из USA. Здесь действительно собрали всех тех исполнителей, которые занимали верхние строчки таблицы популярности на протяжении последних нескольких месяцев. Несколько видео к этому сборнику сможете посмотреть внизу. А теперь наслаждайтесь хорошей (   Читать дальше...   )CD1:
-01. Jawsh 685 x Jason Derulo - Savage Love (Laxed - Siren Beat)  (2:51)
-02. Harry Styles - Watermelon Sugar  (2:54)
-03. Dua Lipa - Break My Heart  (3:42)(   Читать дальше...   )Релиз состоялся: 24 июля 2020 годаЖанр: Pop, Rock, DanceПродолжительность: 02:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E66D0A4FE6D640F088A4499336296F41DB44F2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398957   (734765) от 28.07.2020
-
-The Galactic Force Band - Spaced Out Disco (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Conversation (Theme From Close Encounters Of The Third Kind (3:45)
-02. Theme From 2001 (4:58)
-03. Cantina Band (From Star Wars) (4:07)
-04. Space Dust (2:20)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:26:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98E33EB9218E746EBB015B0574D14246E67EB930
 ```
 
 

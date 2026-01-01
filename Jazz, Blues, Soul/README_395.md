@@ -1,3 +1,165 @@
+###  Публикация: 1142269   (644719) от 13.06.2017
+
+VA - Best Jazz Session Ever: Excellent Essence (2017) [MP3|320 Kbps] <Jazz, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Good Morning Jazz Academy - Best Jazz Session Ever  3:47
+02.  Background Music Masters - One Note (Cofee Break)  3:02
+03.  Instrumental Jazz Music Ambient - Burning Desire  3:30
+04.  Jazz Guitar Club - Relaxation Together  3:03(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 01:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CEC591950111C1C41D0D54E3A85D7833C5BA49D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541356   (644753) от 03.04.2022
+
+Angelique Francis - Long River (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Storms from My Eyes (4:55)
+02. Ashamed (4:45)
+03. Snow Rage (4:40)
+04. Long River (7:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB422412A1F983FA0815DD7C94C3CCDE51E7C7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541365   (644757) от 03.04.2022
+
+Bubba and the Big Bad Blues - Drifting (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want to Make Love to You Baby (4:23)
+02. Helping Hand (4:31)
+03. Drifting (6:10)
+04. Do What’s Right (3:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE589A2700C2B14CD670E91E6AB1FCF42525EFE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541361   (644762) от 03.04.2022
+
+B3 - New Songs, Old Socks (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Despair (6:06)
+02. Life Isn't That Hard (Old Socks Version) (4:12)
+03. So Tired (Old Socks Version) (6:10)
+04. Maria, Maria (Old Socks Version) (5:12)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:000575BF2837BF18C9749B98CB89BB82A9661D40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541354   (644765) от 03.04.2022
+
+Ade Wilding - Better Late Than Never (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pandemic (3:44)
+02. Crying To The Sky (4:17)
+03. Feel So Lonely (3:30)
+04. Hang On To Your Love (4:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FF5CC2AF6F7B957F03982CE940E516E0078EA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142216   (644863) от 13.06.2017
+
+Thierry Lang Trio - Serenity (2014) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ellen David [08:07]
+02. Overnight Train [04:58]
+03. Serenity [06:28]
+04. Mother [06:16](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CFFC1BB1727AFE6CC57D3427EE933329A4E0782
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227628   (644889) от 27.05.2018
 
 The Don Ellis Orchestra - Electric Bath (1967) 2016, Sony Music [FLAC|Lossless|image + .cue] <Post-Bop, Progressive Jazz, Experimental Big Band>
@@ -155,6 +317,63 @@ CD1 - Trumpeter:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0337554A4BF27E118639505A8E07F5BD1C11E52C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517265   (645367) от 02.07.2012
+
+Wynton Marsalis‎ - He And She (2009) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_645367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poem [00:12]
+02. School Boy [06:49]
+03. Poem [00:27]
+04. The Sun And The Moon [06:31]
+05. Poem [00:10]
+06. Sassy [05:17]
+07. Poem [00:17]
+08. Fears [03:32]
+09. Poem [00:16]
+10. The Razor Rim [12:05](   Читать дальше...   )Жанр: JazzФормат: *.flacПродолжительность: 01:15:15
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346141   (645508) от 05.06.2011
+
+SunnyLand Bluesband - 4 альбома (1997-2002) [MP3|320 kbps]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_645508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Blues-RockПродолжительность: 03:48:45
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -479,222 +698,6 @@ VA - Romantic and Erotic Jazz: Slow Smooth Jazz (2017) [MP3|320 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6382F3C66984A3608752616B32484B17EA9923D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141822   (646608) от 12.06.2017
-
-Aretha Franklin - The Real... Aretha Franklin (2014) 3CD [FLAC|Lossless|tracks + .cue] <Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulville
-02. Nobody Knows The Way I Feel This Morning
-03. Evil Gal Blues
-04. Make Someone Happy(   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 03:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31D0F03FA7BB1265CE48B04A686C7CBD67E7F6A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541022   (646645) от 02.04.2022
-
-Alex Thomas - Grave Mark (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Backdoor Man (00:04:58)
-02 - Grave Mark (00:04:29)
-03 - Flamenco Blues (00:04:11)
-04 - Por Fin Tengo Novia (00:04:25)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C3E17D56F6307F645E7306240201CA6D6B2C282
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141965   (646725) от 12.06.2017
-
-Jim Perry - I'm Still Thinkin' (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Makin' a Man Outta Me  (05:11) 
-02. I Think About You  (04:26) 
-03. My Baby's Bad (and that's good)  (05:35) 
-04. She's a Sweet Thang  (03:32) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D36C3DA77C298FD8E2E0582D4D70AA308946D573
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142039   (646728) от 12.06.2017
-
-Oli Brown - Heads I Win Tails You Lose (2010) [APE|Lossless|image + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Evil Soul  (04:28) 
-02.  Makes Me Wonder  (03:40) 
-03.  Keeping My Options Open  (04:25) 
-04.  Speechless  (04:30) (   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D98C6B706400284A674F096CD0061230AB7370A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292419   (646919) от 29.03.2019
-
-Mitsuaki Kishi & Hiro Minowa - Time For Life (2018) Swingbros [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Been a Long Long Time [3:37]
-02. As Time Goes By [8:11]
-03. Just in Time [5:54]
-04. This Time the Dreams on Me [5:10](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1086DA4EAC4A7278F5EF7EF42F3A1A969924EDA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292421   (646921) от 29.03.2019
-
-Dizzy Gillespie - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Algo Bueno (Woody 'n You) [3:02]
-02. Cool Breeze [2:47]
-03. Cubana Be [2:42]
-04. Cubana Bop [3:16](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 01:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77241668229A4C9263C0C972AAC78FCAF1BA1036
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227459   (646928) от 26.05.2018
-
-Alan Pasqua - Twin Bill: Two Piano Music of Bill Evans (2012) Challenge Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Very Early [7:54]
-02. Nardis [5:21]
-03. Time Remembered [5:33]
-04. Gloria's Step [6:54](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09A65E4CE3519F190108AC1219A981FF8B0DDCEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227464   (646930) от 26.05.2018
-
-Calvin Johnson Jr. - Native Son (2013) Alma Records [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buddy Bolden Stomp [4:04]
-02. Midnight in Moscow [3:17]
-03. Summertime [5:17]
-04. Royal Garden Blues [4:00](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8632FE6F7D12193CA5C1B8D707820ED1E957A1
 ```
 
 

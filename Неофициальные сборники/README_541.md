@@ -1,3 +1,30 @@
+###  Публикация: 1008864   (813803) от 19.04.2016
+
+VA - Elite Lounge: April Relax (2016) [MP3|320 кб/с] <Lounge, Chillout, Relax>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813803.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ajad Samskara - Byron Bay
+002. Don Gorda Project - Disambiguation
+003. Vedo - Beautiful Monster
+004. Blank & Jones - Nuits Blanches(   Читать дальше...   )Жанр: Lounge, Chillout, RelaxПродолжительность: 08:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0AD0B5250C2EEEDC05371BB1A7A11B86BADF1DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 711820   (813819) от 14.04.2014
 
 VA - Italo Super Hits vol. 1 - 17 (2014) Часть 1[MP3|171 - 320 кб/с]<Hi-NRG, Italo Disco, Synth-Pop,Spacesynth>
@@ -670,33 +697,6 @@ magnet:?xt=urn:btih:D8CB91FE4548C772DED474AD6A041EF057DBF5AD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28935FD51E43492D19091EBB537E5BCD395309CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008372   (815933) от 18.04.2016
-
-Александр Торчилин - Белый снег - Любимых никогда не выбирают (2005) [MP3|320 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815933.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. В эту ночь
-2. Белый снег
-3. Недавно это было
-4. Что ты делаешь со мной(   Читать дальше...   )Жанр: ShansonПродолжительность: 00:30:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA2B572333FC521ECCD522D9D0DF0A3A87191064
 ```
 
 

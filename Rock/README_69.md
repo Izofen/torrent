@@ -1,3 +1,36 @@
+###  Публикация: 214728   (675159) от 30.06.2010
+
+Del Shannon - 13 Albums + 3 Compilation + Singles, Alternative Versions & Bootlegs (1961-2004) [MP3|192-320 kbps] <Rock&Roll / Rock / Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runaway (intro) (01:07)
+02. Hot Love (feat. Jeff Lynne, single 1987) (03:19)
+03. Deadly Game (feat. Jeff Lynne, single 1973) (02:58)
+04. Distant Ghost (feat. Jeff Lynne, single 1973) (03:13)
+05. Cry Baby Cry (feat. Jeff Lynne, single 1975) (02:34)
+06. Alive But I'm Dead (feat. Jeff Lynne, bootleg 1974) (03:23)
+07. Raylene (feat. Jeff Lynne, bootleg 1974) (03:39)
+08. Nobody's Business (single 1984) (03:28)
+09. Beautiful Body (single 1984) (02:56)
+10. Show Me (1966) (02:20)(   Читать дальше...   )Жанр: Rock&Roll / Rock / Country Rock |Продолжительность: 01:11:25
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 509235   (676224) от 11.06.2012
 
 Frank Zappa - Discography 85 albums (1966-2010) [MP3|320 кб/с]<Progressive rock, Experimental rock, jazz fusion>
@@ -686,33 +719,6 @@ VA - Greatest Ever! Dad Rock (2016) 3CD [MP3|320 кб/с] <Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDAFA9ADDB1DB651313F0D065EFE541F9CE7FA0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289179   (690062) от 14.03.2019
-
-Echoes - Live From The Dark Side A Tribute To Pink Floyd (2019) [MP3|320 Kbps] <Psychedelic Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine on You Crazy Diamond Pt. I-V (Live)
-02. One of These Days (Live)
-03. Learning to Fly (Live)
-04. Wish You Were Here (Live)(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 02:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1462C91266CCE7F3FCD72C87A422F6A3D07A160
 ```
 
 

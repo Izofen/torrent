@@ -1,3 +1,57 @@
+###  Публикация: 1282409   (745313) от 12.02.2019
+
+Nelly Furtado - The Best Of Nelly Furtado (2010) Geffen Records [FLAC|Lossless|tracks + .cue] <Electronic, Pop, RnB, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Like A Bird (4:04)
+ 02. Turn Off The Light (4:36)
+ 03. Shit On The Radio (Remember The Days) (3:55)
+ 04. Fotografia (Duet with Juanes) (4:01)(   Читать дальше...   )Жанр: Electronic, Pop, RnB, LatinПродолжительность: 01:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E2830D38029B2D85427AE890679B20A1B295DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282455   (745322) от 12.02.2019
+
+Donna Summer - Live And More (1978) 1990, Reissue [FLAC|Lossless|tracks + .cue] <Disco, Soul, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Upon A Time (03:03)
+02. Fairy Tale High (02:20)
+03. Faster And Faster To Nowhere (02:09)
+04. Spring Affair (02:34)(   Читать дальше...   )Жанр: Disco, Soul, FunkПродолжительность: 01:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F125752368853F745C150B617A37D3A0FEC6AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396637   (745501) от 16.07.2020
 
 Тина Кароль - 4 Альбома (2006 - 2017)  [FLAC|Lossless|tracks + .cue]<Рор>
@@ -639,60 +693,6 @@ Bosson - RockStar (2004) [FLAC|Lossless|tracks + .cue] <Pop, Europop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8537E2BE63DCC3877AD03E86B54EE10EA675448E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279973   (763520) от 01.02.2019
-
-Bananarama - The Greatest Hits Collection (Collector Edition) (2017) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763520.jpg" />
-</div>
-
-
-###  Подробнее
-
-VOLUME 1:
-01. Venus (3:49)
-02. I Heard a Rumour (3:24)
-03. Love in the First Degree (3:31)(   Читать дальше...   )Жанр: Dance-pop, New WaveПродолжительность: 02:30:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E304EB086CAEE16657C5C4D4E131333D381881
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280090   (763522) от 01.02.2019
-
-The Beloved - Sweet Harmony: The Very Best of The Beloved (2011) 2CD, RM. [FLAC|Lossless|tracks + .cue] <Pop, Synthpop, House, 80s, 90s>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loving Feeling (3:44)
-02. Satellite (4:15)
-03. Ease the Pressure (4:20)
-04. Scarlet Beautiful (4:40)(   Читать дальше...   )Жанр: Pop, Synthpop, House, 80s, 90s |Продолжительность: 02:38:59 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED3A78B2ED87167D53AFF30641CD9514DC72D84
 ```
 
 

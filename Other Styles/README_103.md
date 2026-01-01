@@ -163,6 +163,33 @@ magnet:?xt=urn:btih:C8759147F85C68912011B754E2E21830175F5B84
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 146089   (637317) от 12.06.2015
+
+Буготак - Колёса должны вращаться (2009) [MP3|VBR~207 kbps]<сибирский этно-рок>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_637317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бас барчызы (1:22)
+02. Всё чо схочешь (3:54)
+03. Мы сибиряки (3:52)
+04. Молодой шаман возвращается домой после окончания мединститута (3:36)(   Читать дальше...   )Жанр: сибирский этно-рокПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519466   (637490) от 06.07.2012
 
 Лала Хоперъ и ансамбль Цыганская кибитка - Душа просит праздника !!! (2010) [MP3|256 кб/с]<Folk>
@@ -358,6 +385,39 @@ Cosmic Inc. (Cosmic Baby) - Futura (1994) [FLAC|Lossless|image + .cue]<Trance, A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDFFD21C3E67A247C59DD83F517F9AABF5753F33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519180   (639003) от 05.07.2012
+
+V.A. - Pedro Del Mar - The Perfect Lounge Collection (3CD) (2012) [FLAC|Lossless]<Chillout, Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_639003.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Продолжительность: 01:19:19
+
+01. Pedro Del Mar - Playa Del Lounge (intro mix)
+02. Pedro Del Mar & Blue Tente - You Left (Alexei Zakharov Ambient mix)
+03. The Movement - Rainmaker (Chillout mix)
+04. System F - Exhale (Tim Besamusca's Lounge mix)
+05. Steve Forte Rio - Blossom (Lounge mix)
+06. Hysteria - Talking Eyes (Chillout mix)
+07. Eximinds - I Feel You (Chillout mix)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 03:55:09
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -667,64 +727,6 @@ Mythos - The Best of Mythos Instrumentals (2014) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D1FAA59E722EDF8911584243FFEBAF7F9943C88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033073   (640113) от 10.07.2016
-
-Mike Howe - Lichens (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Acoustic Guitar>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Night [00:03:56]
-02. Remember [00:04:09]
-03. Joni [00:03:48]
-04. Plains [00:03:19](   Читать дальше...   )Жанр: New Age, Acoustic GuitarПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D956668F00BB0AE9E701240E309319F8B8FA3F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517590   (641160) от 04.07.2012
-
-VA - Песни бушменов (2012) [MP3|192 кб/с]<Этно>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Kolota
-02 Mambo
-03 Птичка щебечет в кустах
-04 Девичья зрелость
-05 Кустарниковая свинья
-06 Песня следопытов
-07 Песня о дожде
-08 Детская песняЖанр: ЭтноПродолжительность: 01:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B91C48FFFF372FC75F99F99C26B6ED6333E7F4A
 ```
 
 

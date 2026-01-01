@@ -1,3 +1,96 @@
+###  Публикация: 1105987   (874997) от 18.02.2017
+
+Electric Guest - Plural (2017) [FLAC|Lossless|tracks + .cue] <Indie, Rock, Synthpop, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zero (3:49)
+02. Glorious Warrior (4:03)
+03. Back & Forth (4:23)
+04. Dear To Me (4:01)(   Читать дальше...   )Жанр: Indie, Rock, Synthpop, ElectronicПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D3BD8389B9F2434AD70E29121FB525C2FECA4AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 642629   (877734) от 12.04.2013
+
+Capture The Crown - 'Til Death (2012) [FLAC|Lossless]<Post-Hardcore | Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+<<<
+------------------------------------------------------------------------
+01. The Arrival
+02. #OIMATEWTF (Feat. Denis Shaforostov)
+03. Fork Tongued
+04. Ladies & Gentlemen… I Give You Hell
+05. LAX
+06. You Call That A Knife? This Is A Knife!
+07. Storm In A Tea Cuo
+08. Help Me To Help You(   Читать дальше...   )Тип издания: АльбомЖанр: Post-Hardcore | ElectronicПродолжительность: 00:48:10
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765004   (878308) от 10.03.2014
+
+Anneke van Giersbergen & Danny Cavanagh - In Parallel (2009) [FLAC|Lossless]<Alternative, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Teardrop (5:01)
+02. You Learn About It (3:54)
+03. Temporary Peace (4:26)
+04. Yalin (3:17)
+05. Songbird (3:24)
+06. Big Love (3:08)
+07. The Blower's Daughter (4:36)
+08. One Last Goodbye (5:48)
+09. Are You There? (4:29)
+10. Day After Yesterday (3:56)(   Читать дальше...   )Жанр: Alternative, AcousticПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:112CA0772BEE2D9673843B3D0AB5F0F3076CD6F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996596   (879090) от 14.03.2016
 
 3 Doors Down - Us And The Night (2016) [FLAC|Lossless|image+.cue] <Alternative Rock, Post-Grunge>
@@ -661,93 +754,6 @@ R.E.M. - Reckoning (The I.R.S. Years) (1984) Reissue, 1992 [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70581604C8D2DA9DB882279B3C357D67A373C60F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371318   (890189) от 31.03.2020
-
-The No Ones - The Great Lost No Ones Album (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_890189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – No One Falls Alone
-02 – Going Back To Stockholm Syndrome
-03 – Clementine
-04 – Straight Into The Bridge(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D94B768293619ABBCC74B89C4FA0014957A1B294
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 762420   (890397) от 03.03.2014
-
-Daughtry - Baptized (2013) Deluxe Edition [FLAC|Lossless]<Alternative Rock, Pop-rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Baptized (3:12)
-02. Waiting For Superman (4:27)
-03. Battleships (3:52)
-04. I'll Fight (3:01)
-05. Wild Heart (3:51)
-06. Long Live Rock & Roll (3:36)
-07. The World We Knew (3:36)
-08. High Above The Ground (3:11)
-09. Broken Arrows (4:09)
-10. Witness (4:11)(   Читать дальше...   )Жанр: Alternative Rock, Pop-rockПродолжительность: 00:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D20FF0F6BB1CF3F4AA1032A2B0F56A70B20B57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102151   (890565) от 09.02.2017
-
-Nickelback - The Best Of Nickelback (Volume 1) (2013) Compilation [FLAC|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Photograph (4:20)
- 02. How You Remind Me (3:44)
- 03. Burn It to the Ground (3:31)
- 04. Rockstar (4:16)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:13:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A460733F140F2AE117408444B66E9A8CACF71A5A
 ```
 
 

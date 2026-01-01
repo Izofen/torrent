@@ -1,3 +1,138 @@
+###  Публикация: 1462708   (1020656) от 17.04.2021
+
+Front Line Assembly - Mechanical Soul (2021) [FLAC|Lossless|image + .cue] <Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purge 05:23
+02. Glass and Leather 06:03
+03. Unknown 05:06
+04. New World 05:07(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:57:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D58813C911A0DB0256DAD0EFB62ACB58F54CA88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463088   (1020657) от 17.04.2021
+
+VA - Synthwave Dreams, Vol. 13 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ionov - Spacewave (TELEGIMNASTIKA Remix) (5:13)
+02. #Mali - Okinawa (4:05)
+03. Born In '82 - Shadow Boxing (3:43)
+04. Microsha 89 - Soviet Union (TELEGIMNASTIKA Remix) (3:54)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC6003D57B5A603FD76AF5714B72E6057A3320A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463085   (1020678) от 17.04.2021
+
+Nickolay Fedorenko - Dance Planet (2014) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Dance, Trance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance Planet (3:03)
+02. Interstellar Flight (3:37)
+03. Dynamic Motion (3:47)
+04. Winter Dance (3:26)(   Читать дальше...   )Жанр: Spacesynth, Dance, TranceПродолжительность: 00:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1133E9BD79D1037D77DCEBFF791D561077AE8E7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062932   (1020737) от 16.04.2021
+
+Raul Jordan (Lab's Cloud, Psycho Abstract) - Discography 13 Releases (2010-2021) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Psy-Trance, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serenity 5am (06:21)
+ 02. Clear Up (06:36)
+ 03. Rising (08:15)
+ 04. Beyond A Secret (06:21)(   Читать дальше...   )Тип издания: WEBЖанр: Psybient, Downtempo, Ambient, Psy-Trance, Progressive Trance •Продолжительность: 11:05:29 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D65F41697B4B2CF5DACAD312B4FE45DCD83AB7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 735169   (1020741) от 16.04.2021
+
+Woob | Journeyman | Max & Harvey | w00b - Discography 51 Releases (1994-2021) Bigamoebasounds, em:t, Time Limited [FLAC|Lossless|tracks+.cue, tracks]<Ambient, Downtempo, Dub, Modern Classica ...
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Therapy (Hollywood Therapy Mix) (09:08)
+ 02. Space Therapy (Ambient Disaster Movie Mix) (16:10)
+ 03. Space Therapy (The To Be Continued Emporium Edit) (03:20)
+ 04. Space Therapy (Original Mix) (06:12)Тип издания: CD, Vinyl, WebЖанр: Ambient, Downtempo, Dub, Modern Classical •Продолжительность: 40:52:46 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D485784B79152AB6C9641E1255A83E2A3DA2D76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462883   (1020783) от 16.04.2021
 
 Scooter - God Save The Rave (2021) [FLAC|Lossless|WEB-DL|tracks] <Techno, Hardstyle, Dance>
@@ -557,137 +692,6 @@ Junior Boys - Collection 5 Releases (2004-2016) [FLAC|Lossless|tracks + .cue] <E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D94635C76D217AD37BE0626E813CE6B6F1812E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108211   (1021683) от 10.04.2021
-
-How To Disappear Completely (HTDC, FOG & HTDC) - Discography 33 Releases (2012-2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Post Rock, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Path To Perdition (Remixed By Sequences) (08:56)
- 02. Fractured (Wolf Maps Edit) (04:24)
- 03. Undone (Unearthed) (07:04)Тип издания: WEBЖанр: Ambient, Drone, Post Rock, Experimental •Продолжительность: 22:47:28 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EC91A72D92890AF1A5366358905AC1816A7EB13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982924   (1021699) от 10.04.2021
-
-Keef Baker | Nimon | Slipdrive - Discography 20 Releases (2004-2021) Ant-Zen, Hymen Records, n5MD [FLAC|Lossless|tracks+.cue, tracks] <IDM, Experimental, Ambient, Industrial, Breakcore>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Innovative Radiation Shielding Technologies (04:40)
- 02. Galactic Cannibalism (04:10)
- 03. The Abandoned Dyson Sphere Situated Around A Sun That Went Nova (03:44)
- 04. Galactic Cannibalism (a Closer Pass For More Detailed Scanning) (04:22)(   Читать дальше...   )Тип издания: CD, WEBЖанр: IDM, Experimental, Ambient, Industrial, Downtempo, Abstract, Breakcore •Продолжительность: 21:21:38 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E70E47BC5A3A27F36BFA399BFDC21B06E39F314
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 725831   (1021735) от 10.04.2021
-
-Melodium - Discography 36 Releases (2001-2021) Audio Dregs [FLAC|Lossless|tracks+.cue, tracks]<IDM, Ambient, Leftfield, Acoustic, Modern Classical>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Septentri (03:56)Тип издания: CD, WebЖанр: IDM, Ambient, Leftfield, Acoustic, Modern Classical •Продолжительность: 25:55:42 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F49293D09B79E2707334B70BD11B1BAD48E3BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461720   (1021750) от 10.04.2021
-
-Jean-Michel Jarre - Amazonia (2021) Columbia [FLAC|Lossless|tracks+.cue] <Ambient, Field Recording, Tribal, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amazonia Part 1 (07:43)
- 02. Amazonia Part 2 (10:00)
- 03. Amazonia Part 3 (08:10)
- 04. Amazonia Part 4 (03:17)(   Читать дальше...   )Жанр: Ambient, Field Recording, Tribal, ExperimentalПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F74CADFB0053AA0582B645E015AE4872EAB58606
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461691   (1021782) от 10.04.2021
-
-Armin van Buuren - One World Radio Armin's Weekend Kick-Off 100 (Extended Special) (2021-04-09) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren ft. Sharon Den Adel - In And Out Of Love (Ilan Bluestone & Maor Levi Remix)
-02. Armin van Buuren & AVIRA ft. Sam Martin - Mask
-03. Armin van Buuren & Avian Grays ft. Jordan Shaw - Something Real
-04. Above & Beyond ft. Zoë Johnston - There's Only You (Above & Beyond Club Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E15754FABB0DF33D7E0116AB6A0B1C644D114D
 ```
 
 

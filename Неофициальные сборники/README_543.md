@@ -1,3 +1,30 @@
+###  Публикация: 1117444   (817177) от 23.03.2017
+
+VA - German Top 100 Single Charts (17.03.) (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817177.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Ed Sheeran - Shape Of You  3:54
+002.  Kygo & Selena Gomez - It Ain't Me  3:41
+003.  Burak Yeter - Tuesday (feat. Danelle Sandoval)  4:02
+004.  The Chainsmokers & Coldplay - Something Just Like This  4:08(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A265754CD8BD90C1D1C6254A358F8A06FF3164F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117711   (817178) от 23.03.2017
 
 VA - Empire Records - ANDRS Parody 3 (2017) [MP3|320 Kbps] <Club, Dance>
@@ -668,33 +695,6 @@ VA - Созвездие весеннее - 3 (2016) [MP3|256 кб/с] <Pop, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:274855BF808A1A607598FB8751830B0CD5AF3663
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008057   (818101) от 17.04.2016
-
-VA - Sweet and Sexy 20 Amazing Lounge Anthems Vol.4 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Red Lounge - Vitale
-02. Raffika Dionisio - Perla
-03. Slow Motion Cafй - The Truth Hurts
-04. Caanall Groove - Around the Planet(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C5BBECF72935596A7B0B6C7D3F3C141717899F
 ```
 
 

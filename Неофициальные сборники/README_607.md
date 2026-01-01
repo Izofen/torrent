@@ -1,3 +1,30 @@
+###  Публикация: 1367704   (914040) от 17.03.2020
+
+VA - не Громкие новинки недели 59 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914040.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.СредиНас - Мёд (5:23)
+2.Say Long feat. Lirity & Lapatin - Вселенная (4:22)
+3.ANIKV feat. Saluki - Меня Не Будет (4:13)
+4.Евгений Путилов - Без Тебя (4:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADEE12FE9A6FE2C9A94ADC6CEAF2C0BD7214ACC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097394   (914162) от 27.01.2017
 
 VA - Chill Deep House: 1000 Shades Of Electro Music (2017) [MP3|320 Kbps] <Chill, Deep House>
@@ -668,33 +695,6 @@ VA - House Nation Volume 5 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0F5FFB379357DFE160EB4807D1F7DEFBCBEEDD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989586   (915833) от 23.02.2016
-
-VA - Sexy House, Vol. 1 (2016) [MP3|320 кб/с] <House, Tech House, Deep House, Electronic, Progressive, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915833.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Audio Jacker - By My Side (Anthem Mix) [07:05]
-2. Soul Power - No Diggity (Soul Power Classic Club Mix) [05:17]
-3. Martin Thomas - Love Has A Way (Original Mix) [07:00]
-4. Audio Jacker - Rotate (Original Mix) [05:39](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 01:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64ABFD221A5B935A19C02BBE7043E16E3D8A0601
 ```
 
 

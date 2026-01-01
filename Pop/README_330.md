@@ -1,3 +1,174 @@
+###  Публикация: 981781   (949827) от 02.02.2016
+
+Bloc Party - Hymns (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Dance, Indie Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Love Within
+02. Only He Can Heal Me
+03. So Real
+04. The Good News(   Читать дальше...   )Жанр: Alternative Dance, Indie Pop, ElectronicПродолжительность: 01:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8935C9BC1D6B5383D7D4C2702A6A112FB315E79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981907   (949988) от 02.02.2016
+
+Andrea Lindsay, Luc De Larochelliere - C'est d'l'amour ou c'est comme (2012) 2015 GSI Musique [FLAC|Lossless|WEB-DL|tracks] <French Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le problème avec toi
+02. C'est d'l'amour ou c'est comme
+03. Mad dogs and englishmen
+04. Comme(   Читать дальше...   )Жанр: French PopПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4230AC5AA5B6657F5EBA0E28A546286365299D25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 280954   (950340) от 10.01.2011
+
+Video Kids - The Invasion Of The Spacepeckers (1984) 2009, Break Records [APE|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do The Rap (3:34)
+02. Cartooney Tunes (Incl.Happy Birthday) (4:24)
+03. La Bamba (4:14)
+04. I'm A Rock And Rollpecker (2:28)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 280986   (950342) от 10.01.2011
+
+Ани Лорак - Танцы (2010) [MP3|128-320 kbps]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Танцы (3:24)
+02. Нежность рассвета (3:48 )
+03. Верни мою любовь (дуэт с Валерием Меладзе) (4:14)
+04. С первого взгляда (Neomaster DJ's) (3:11)
+05. Every time you touch me (дуэт с Сергеем Лазаревым) (3:59)
+06. Солнце (DJ Alex Prime Remix) (4:38 )
+07. Розкажи (4:02)
+08. Три звичних слова (3:54)
+09. Увлечение (дуэт с Тимуром Родригесом) (3:36)
+10. А дальше (3:26)(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309ABCA3F11BD7F644F594FC142E8C3C7BA3E636
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 624690   (950519) от 01.03.2013
+
+Dido - Girl Who Got Away (Deluxe Edition) (2013) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dido - Girl Who Got Away (Deluxe Edition) (2013)
+Год: 2013
+Жанр: Pop
+Продолжительность: 01:09:44
+Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:  (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28CC809EAED444FF6D3501D4E1874790A779BBBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089474   (950536) от 04.01.2017
+
+The Salsoul Orchestra - 8 Albums (1975-1982) Reissue [MP3|320 Kbps] <Funk-Soul, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из крупнейших в истории мировой музыки американский диско-биг-бэнд SALSOUL ORCHESTRA был организован в 1974 году человеком-легендой в популярной музыке, дирижером, композитором, аранжировщиком и барабанщиком Винсентом Монтаной-младшим (Vincent Montana-Jr.), первоначально входившим в состав легендарной филадельфийской группы MFSB. В Оркестр входило до 50 человек (   Читать дальше...   )Список альбомов:
+1975 - The Salsoul Orchestra (2012)
+1976 - Christmas Jollies
+1976 - Nice 'N' Naasty (2013)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 07:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7144F4BEB9ED30687C2209307BAC1965F3EBA64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089792   (950636) от 04.01.2017
 
 JohnnyM5 - Fantasy Of Love (2008) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
@@ -529,168 +700,6 @@ Sam Brown - April Moon (1990) [FLAC|Lossless|tracks + .cue] <Pop, Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D73E605F579499F4709FC3994C1472CB93F34696
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980826   (952970) от 31.01.2016
-
-Eleanor Friedberger - New View (2016) [FLAC|Lossless|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. He Didn't Mention His Mother 04:00
-02. Open Season 04:42
-03. Sweetest Girl 03:01
-04. Your Word 03:41(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:898587C55CA8B62433CCC3416703EA0B1CEBC9B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980693   (953030) от 31.01.2016
-
-VA - Rhythm of Life (1991) [FLAC|Lossless|tracks + .cue] <Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953030.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Stevie B. - Because I Love You (The Postman Song)
-2.Chimes, The - I Still Haven't Found What I'm Looking For
-3.DNA Featuring Suzanne Vega - Tom's Diner
-4.Beats International - Dub Be Good To Me(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F3274055EE478AEE6AD1D0F9A0CC16286C545F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981065   (953039) от 31.01.2016
-
-Monica Naranjo - Monica Naranjo (1994) Remastered, 2012, Sony Music [MP3|320 кб/с] <Latin, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953039.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	El Amor Coloca	4:01
-2	Sola	4:08
-3	Oyeme	4:58
-4	Supernatural	3:58(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6562F0E5E7B8D63C2A9BDA9104F83715A84CB7EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089193   (953751) от 02.01.2017
-
-Mark Ashley - Greatest Hits II (2013) [MP3|320 Kbps] <Disco,  Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are Not Alone
-02. It's All Over
-03. You Are My Paradise
-04. Destination Love(   Читать дальше...   )Жанр: Disco,  Euro-DiscoПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:133E9798AE41324B76CEF491062A743640D3CF03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361598   (954201) от 20.02.2020
-
-Moulin Rouge - Moulin Rouge (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Moulin Rouge была диско-проектом под руководством продюсера Майкла Загера. Они выпустили один одноименный альбом в 1979 году, который содержал исключительно диско-окрашенные кавер версии раннего материала Bee Gees.01. Holiday (5:34)
-02. Run To Me (5:48)
-03. Lonely Days (5:23)
-04. To Love Somebody (6:47)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF00E28F20BEFC731ECF8643F2E2697D18E0D439
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361675   (954213) от 20.02.2020
-
-Mouzon's Electric Band - Baby Come Back (1979) LP [MP3|320 Kbps] <Electronic, Disco, Jazz, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All My Loving (3:24)
-02. Everybody Get Down (4:34)
-03. I Want To Hold Your Hand (3:12)
-04. I Still Love You (3:52)(   Читать дальше...   )Жанр: Electronic, Disco, Jazz, Rock, PopПродолжительность: 00:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:911FC8F0FAA3A8EC2BA753BC3B74509170FDBF83
 ```
 
 

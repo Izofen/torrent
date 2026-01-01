@@ -1,3 +1,165 @@
+###  Публикация: 1014773   (776144) от 08.05.2016
+
+Billy (Tokio Hotel) - I'm not Ok (2016) EP [MP3|320 кб/с] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Don't Break Me
+02. Not Over You
+03. Odds Are Against Us
+04. California High(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:19:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED9B0951DC8F32CE8540E69F1BB75BAE100C9F8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014757   (776147) от 08.05.2016
+
+VA - The World Of Italo Pop Platinum (Special Edition For San Remo-50th) (2002) 4CD [MP3|320 кб/с] <Italo-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Marco Silenzi - Donne Sante Donne Assassine (04:02)
+02 Gianni Nazzarro - A Questora (03:43)
+03 Drupi - Piccola E Fragile (04:28)
+04 Paolo Mengoli - A Chi (03:22)(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 04:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A85DC9E4F1301564D8A493F93421D531797D9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014306   (776331) от 07.05.2016
+
+Любэ - Рассея (2005) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. От Волги До Енисея
+02. Русские
+03. Батька Махно
+04. Ясный Сокол(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F0079D15F42306778E2E3E4B501EAC96921E9A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212152   (776468) от 10.03.2018
+
+Гоша Куценко - Ду это! (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Капли (feat. Ёлка)
+02. Солнце (feat. Анжелика Варум)
+03. Люди летят (feat. Полина Гагарина)
+04. ONE/TWO (feat. IOWA)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FBAF7ECC60019E4C863747E46A7355FCFF4A9B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212026   (776472) от 10.03.2018
+
+Nadia Cassini - 3 Studio Albums (1978-1985) LP Discography [MP3|320 Kbps] <Electronic, Disco, Italo-Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Надя Кассини (итал. Nadia Cassini род. 2 января, 1949, Вудсток, США) - итало-американская актриса, певица и модель. Известна благодаря ролям в итальянских эротических комедиях 1970-1980 годов. Очень рано ушла из родительского дома. Работала певицей в ночном клубе, хористкой, была моделью. Близкие отношения связывали Надю Кассини с известным писателем Жоржем Сименоном. (   Читать дальше...   )Список альбомов:
+1978 - Encounters Of A Loving Kind
+1983 - Get Ready
+1985 - Dreams(   Читать дальше...   )Жанр: Electronic, Disco, Italo-Disco, Hi NRGПродолжительность: 01:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A8315782A386797E585789CE37DFA13737061A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014355   (776490) от 07.05.2016
+
+Steve Bender - We've Gotta Get Out Of This Place (1978) [MP3|320 кб/с] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкий певец, композитор, автор песен и музыкальный продюсер (1942 - 2006 гг.). Альбом выпущен за год до создания группы Чингиз Хан (Dschinghis Khan), где Стив Бендер стал больше известен как наголо остриженный участник.01. We've Gotta Get Out Of This Place   (4:51)
+02. Good Lovin', Good Feelin'   (4:47)
+03. The Final Thing   (5:40)
+04. Love Keeps Growin' On   (5:52)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46501A60856AE45CA701820E795FD057705E3E7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014104   (776816) от 06.05.2016
 
 Giorgio Moroder - Schlagermoroder, Vol. 1-2 (1965-1976) 4CD (2013) [MP3|320 кб/с] <Electronic, Pop>
@@ -535,168 +697,6 @@ magnet:?xt=urn:btih:D2391A076E473C4D0EB82257CB71BFF521B3DD0E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:778CDECD1AF6723E31B4CC2F24BDDAB14E42FA79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211217   (777785) от 06.03.2018
-
-VA - Disco 80's: Special Edition (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddy Huntington - Physical Attraction (4:22)
-02. Eighth Wonder - I'm Not Scared (10'' Remix) (5:42)
-03. Fancy - Moscow Is Calling (5:13)
-04. Italian Boys - Forever Lovers (3:54)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275A496AAC431F084F775C93B817C97F7A709931
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211241   (777821) от 06.03.2018
-
-Plazma - Newer Again (2004) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Again (4:19)
-02. Power Of Your Spell (3:54)
-03. Boogie Red (3:16)
-04. You Know (My Recent Diserse) (4:00)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71597F02DCB9E88F908B5F2AD1D2991934B380EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211316   (777824) от 06.03.2018
-
-The Flirts - Calling All Boys (1982) Unidisc, LP [MP3|320 Kbps] <Pop, Hi NRG, Synth-Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777824.jpg" />
-</div>
-
-
-###  Подробнее
-
-С начала 80-х годов маленькая независимая компания "O"Records заняла лидирующие позиции на американском, а затем и европейском рынке популярной музыки. Записи звёзд "O"Records, таких как Divine и The Flirts спродюсированные Бобби Орландо (Bobby ORLANDO) пользовались хорошим спросом по обе стороны Атлантического океана. В это время танцевальная (   Читать дальше...   )01. Juke Box (Don't Put Another Dime) 3:44
-02. Boy Crazy 3:13
-03. On The Beach 3:03
-04. Passion 9:04(   Читать дальше...   )Жанр: Pop, Hi NRG, Synth-Pop, DiscoПродолжительность: 00:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67149EDC443CD977E9A66830F78F817DF52AA567
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012966   (777840) от 03.05.2016
-
-VA - NRJ Hit Music Only [3CD] (2016) [FLAC|Lossless|tracks] <Pop, RnB, Indie>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777840.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-Пpодолжительность:01:10:34
-
-01. Twenty One Pilots - Stressed Out 03:22(   Читать дальше...   )Жанр: Pop, RnB, IndieПродолжительность: 03:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71052B455690C1BE07E2E6E2EF6C1B8C5BE7BBEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211131   (777856) от 06.03.2018
-
-Amy Wadge - Keeping Faith (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faith's Song
-02. We Fall Down
-03. Here I Go Again
-04. Pain(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 00:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4E31803EFE249E8F3AD04A6107A7A8221B0047
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211305   (777869) от 06.03.2018
-
-The Flirts - 10c A Dance (1982) "O" Records, LP [MP3|320 Kbps] <Pop, Synth-Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777869.jpg" />
-</div>
-
-
-###  Подробнее
-
-С начала 80-х годов маленькая независимая компания "O"Records заняла лидирующие позиции на американском, а затем и европейском рынке популярной музыки. Записи звёзд "O"Records, таких как Divine и The Flirts спродюсированные Бобби Орландо (Bobby ORLANDO) пользовались хорошим спросом по обе стороны Атлантического океана. В это время танцевальная (   Читать дальше...   )01. Jukebox (Don't Put Another Dime) 3:48
-02. Boy Crazy 3:14
-03. On The Beach 3:05
-04. Passion 3:39(   Читать дальше...   )Жанр: Pop, Synth-Pop, DiscoПродолжительность: 00:29:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04D4FE4EB01138AEB52242A435FB7012F138C133
 ```
 
 

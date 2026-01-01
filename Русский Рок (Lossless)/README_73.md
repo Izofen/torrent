@@ -1,3 +1,111 @@
+###  Публикация: 1356495   (978716) от 30.01.2020
+
+Нуки (Слот) - Волки смотрят в лес (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Холодно
+02. Пищевая цепочка
+03. 451
+04. Пожары(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A240FE3526B4A3F694F84D1FC4F12A36B36E3FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355764   (980499) от 29.01.2020
+
+VA - Мы не оставим города свои! Песни донбасской войны (2017) 2CD [FLAC|Lossless|image + .cue] <Alternative Rock, Hip-Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980499.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Александр Ф. Скляр - Миллионы
+02. Зверобой - Едут-едут БТРы
+03. Чичерина - Рвать(   Читать дальше...   )Жанр: Alternative Rock, Hip-HopПродолжительность: 02:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F1516DCA85F290D71AFDEDFC54A06874EF247B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972069   (981734) от 06.01.2016
+
+Александр Градский - Неформат (2011) [FLAC|image + .cue] <Rock, Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шансон
+02. Песня О Любви ('Кому-то Казалось…')
+03. Песня Об Иносказательности
+04. Галичу(   Читать дальше...   )Жанр: Rock, VocalПродолжительность: 00:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5355AA65E028F9B9F18C79FDA1FD0932D630D683
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972011   (981936) от 06.01.2016
+
+Blues Doctors - Electric Gentlemen (2014) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Man (04:30)
+02. My Manifesto (03:38)
+03. By Your Side (03:07)
+04. Heartbreak Radio (05:13)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:19:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96959A3282A3939F63DCDAE802899568872D485B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 235099   (982402) от 04.02.2013
 
 Собаки Качалова и Макс Ильин - 6 Альбомов (1994-2013) [FLAC|APE|Lossless]<Rock>
@@ -613,114 +721,6 @@ magnet:?xt=urn:btih:68EA8C606310AC6BAED3A67757139F35574A8D09
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:280CD79A1D5745DD84B7D7CBF9EAE8058DD3D52E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477088   (1011126) от 14.06.2021
-
-Dig Me No Grave - From Past Aeons (2011) Limited Edition, Reissue, 2016, Symbol Of Domination [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summoning (0:44)
-02. Forbidden (2:29)
-03. Dark Predictions (3:26)
-04. Mortician (2:56)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:24:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:485FB04261D26236E42CEDEDE0A8CA4027EAB045
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477084   (1011134) от 14.06.2021
-
-Dig Me No Grave - Immemorial Curse (2017) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:26)
-02. Ritual Slaughter (3:25)
-03. Initiation To Afterlife Disciplines (3:24)
-04. Cursed Acheron (3:49)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB4D7FD8F189C06F379F5B7650A0A365ACCF9655
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477087   (1011141) от 14.06.2021
-
-Dig Me No Grave - Cosmic Cult (2014) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Through The Gates (4:02)
-02. Reptile (3:20)
-03. In Oblivion (3:16)
-04. Cosmic Cult (2:45)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4AA07FF45171AD1A27A3AA956288E40F9F22B10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476538   (1011531) от 12.06.2021
-
-Ploho - Фантомные чувства (2021) [FLAC|Lossless|image + .cue] <Post-Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Между нами
-02. Прости
-03. Добрые люди
-04. Камни(   Читать дальше...   )Жанр: Post-Punk, New WaveПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CEDCB654BCE49F489C02749407F165C01420618
 ```
 
 

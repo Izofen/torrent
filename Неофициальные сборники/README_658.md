@@ -1,3 +1,30 @@
+###  Публикация: 1479253   (1009572) от 24.06.2021
+
+VA - Chillout Deep Sounds (2021) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009572.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Project Blue Sun - Lost In Your Eyes
+002. Amethystium - Nightfall
+003. Marshall Watson - A Door In The Sky
+004. Begin - Super Barrio(   Читать дальше...   )Жанр: Chillout, Ambient, Downtempo, LoungeПродолжительность: 12:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10BC4EF0A35A05DB7B108423A96414F4B35F92B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479534   (1009577) от 24.06.2021
 
 VA - Music News vol.110 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -668,33 +695,6 @@ Oystein Ramfjord - Music For Healing (2021) [MP3|320 Kbps] <New Age, Ambient, Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DDF7855FA45D8AD711867AE2D933D56508C03A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477626   (1010818) от 16.06.2021
-
-VA - Beatport Ethnic House: Sound Pack #298 (2021) [MP3|320 Kbps] <Ethnic, Funky House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luka  Rara Taxiqueen - Dance On A DJ
-02. Friend Within - Triceratops
-03. Luka, Jackie Queens - Liquid Love
-04. Timboletti - Gone Fishing(   Читать дальше...   )Жанр: Ethnic, Funky House, ElectroПродолжительность: 08:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70FBAE8EE4294B42CCC085302E4E643BBFBDA07A
 ```
 
 

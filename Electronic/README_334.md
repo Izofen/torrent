@@ -1,3 +1,138 @@
+###  Публикация: 1139682   (659080) от 03.06.2017
+
+VA - Buddha Gold Vol.1 – The Finest In Mystic Bar Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659080.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Le Voyage – African Daydreamer (Ethno mix) (05:55)
+2. DJ Maretimo – Cosmopolitan Cocktail (feat Cafe Americaine – mix La Nuit) (05:55)
+3. Cinematic – We Are Alone (After Sunset mix) (07:46)
+4. Panafrican Project – Talking Pyramids (Ethnix Space mix) (06:33)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 06:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7E5289990AE7397ED8346DB3C79BE8D08F1728
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139642   (659086) от 03.06.2017
+
+Blasterjaxx - XX Files (Festival Edition) (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  070 (Extended Mix) 3:45
+02.  Do Or Die (Extended Mix) (feat. Lara) 4:36
+03.  Savage (Extended Mix) 4:06
+04.  Seth (Extended Mix) 4:24(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A06CC6BA414EE4736AF855B96A1D0707E8DC92E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139322   (659099) от 03.06.2017
+
+VA - EPIC Ibiza: Trance Anthems Vol.1 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Digitalism - Second Chance (Capa Remix) 5:42
+02.  21street - Mind Bender 10:08
+03.  Marko Kantola - Valkyrie 7:16
+04.  Ejoop - Thrown 4:22(   Читать дальше...   )Жанр: TranceПродолжительность: 03:26:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D5CE1550013411615B2A772C5BA08CA4AA8869
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139558   (659104) от 03.06.2017
+
+Nightstop - Dancing Killer (2017) [MP3|320 Kbps] <Electronic, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flesh 04:19
+02. Dancing Killer 03:23
+03. Erotic Encounter 04:17
+04. The Cage 03:41(   Читать дальше...   )Жанр: Electronic, SynthwaveПродолжительность: 00:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD4DC43C74D8768F07CC1639C79C1F1A82D1015A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902744   (659166) от 30.05.2015
+
+VA - After Hours (The Sensuality Continues Vol 3) (2015) [MP3|320 кб/с]<Lounge, Chill Out, Jazzy>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659166.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mike McGuill - Bow City Blues (02:21)
+002. David Tick - The Truth (02:56)
+003. Wolftooth - Weighty (04:34)
+004. Tracing Arcs - Babydoll (Just Chillin' Mix) (06:18)(   Читать дальше...   )Производство: Musique SensuelleЖанр: Lounge, Chill Out, JazzyПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4B9107C4BCBC4D0A84DEBAA5410C0D9B2FF9259
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903134   (659227) от 30.05.2015
 
 VA - Soul & Lounge: Best Ibiza Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -560,141 +695,6 @@ Alesso - Forever (2015) Deluxe Edition [FLAC|Lossless|WEB-DL]<Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8757430E4EE93AB3448F350D40657B9C4668B7F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225514   (659843) от 16.05.2018
-
-Simian Mobile Disco - Murmurations (2018) Wichita [FLAC|Lossless|tracks+.cue] <Tech House, Ambient, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boids (04:33)
- 02. Caught In A Wave (feat. Deep Throat Choir) (06:44)
- 03. We Go (feat. Deep Throat Choir) (08:31)
- 04. Gliders (03:40)(   Читать дальше...   )Жанр: Tech House, Ambient, Deep HouseПродолжительность: 00:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FED1C19172861F5500B9704C584855FF0DCC1E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139299   (659907) от 02.06.2017
-
-VA - Drum&BassArena 2017 (2017) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dimension - Generator
- 02. Sub Focus - Nobody Knows
- 03. Friction - All Nite
- 04. The Upbeats - Say Go (feat. Mara TK)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 08:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F23863D7C7AE5756BFE60A771B728A7C9228814
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539095   (660083) от 23.03.2022
-
-Tensnake - L.A. Noir (2022) Mixed & Unmixed [FLAC|Lossless|WEB-DL|tracks] <EDM, Nu Disco, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightshift (Mixed) (Enduro Disco Noir Mix) (5:22)
- 02. Simpansi (Mixed) (Factory Sequences Noir Mix) (5:24)
- 03. Call Me (Mixed) (Tensnake Noir Mix) (4:31)
- 04. Antibodies (Mixed) (Street Player Noir Mix) (4:29)(   Читать дальше...   )Жанр: EDM, Nu Disco, Club HouseПродолжительность: 01:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2B227F425E1EDC6ED871A9B2AC805907B0C89BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139294   (660095) от 02.06.2017
-
-VA - Euphoric Trance (2017) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ana Criado - Still There's You (A.R.D.I. Remix) 6:22
-02.  Susana - Only Summer Knows (Original Mix) 7:24
-03.  ReOrder & Katty Heath - Love Again (Blue5even Remix) 7:21
-04.  Alan Morris & Elles De Graaf - Calm The Night (Ferrin & Morris Remix) 6:54(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 04:20:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36E7B98A1C14E8B16DCAF727F916F48C900F0960
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139323   (660204) от 02.06.2017
-
-VA - Electronic Chillout Instrumentals (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Excentric Cosmonauts - Inspiration Station
-02. Man Without Voice - Spring Time
-03. Earth Dream - Forest Stream
-04. Ambient Groovebox - Breaking Free(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AEB303596CF16F6B53A3A9EBCDEE0E84C377385
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1455112   (1025875) от 17.03.2021
+
+SKANKA88 | Обучение арбитражу Гемблинг, нутра, товарка. Facebook, Google (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обучение арбитражу от опытного практика SKANKA88:
+GOOGLE  UAC & KMC
+FACEBOOK | БЕЛОЕ НАПРАВЛЕНИЕ
+FACEBOOK | СЕРОЕ НАПРАВЛЕНИЕ(   Читать дальше...   )Производство: SKANKA88Жанр: Арбитраж траффикаПродолжительность: 10:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1F53A6354D81ED5BE0361CBA09401BAD9F167CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454867   (1025897) от 17.03.2021
 
 Udemy, BackSpace Academy | Amazon Web Services (AWS) Certified - 4 Certifications!   (2021) PCRec [En / En Sub]
@@ -621,33 +648,6 @@ Udemy, Maher Haddad | Network Automation on MikroTik using Python (2020) PCRec [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F55650E18861972C3EFE378B219C2AE255B9E0F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454159   (1026525) от 13.03.2021
-
-Udemy | MikroTik from Beginner to Expert (2018) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026525.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Введение
-2. Первый вход с WinBox, Webfig и CLI.
-3. Быстрая настройка
-4. Основные функции RouterOS(   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 00:30:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1521569E5D80E1AC91F63E35959BAA7C8F6A5E1B
 ```
 
 

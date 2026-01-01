@@ -1,3 +1,30 @@
+###  Публикация: 1225570   (659753) от 16.05.2018
+
+New England - Walking Wild (1981) Reissue, 1998, GB Music [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659753.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Walking Wild
+2. Holdin' Out On Me
+3. Don't Ever Let Me Go
+4. Love's Up In The Air(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD87A396F815F5E679B730D539C1DD06AB27E8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225551   (659755) от 16.05.2018
 
 New England - Explorer Suite (1980) Reissue, 2009,  Wounded Bird Records [MP3|320 Kbps] <Classic Rock>
@@ -668,39 +695,6 @@ VA - Absolute 70's (2007) 3CD [MP3|320 Kbps] <Rock, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D17EBE1CD555DFB5E9FEA13EED34AD2778B7A59E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 214728   (675159) от 30.06.2010
-
-Del Shannon - 13 Albums + 3 Compilation + Singles, Alternative Versions & Bootlegs (1961-2004) [MP3|192-320 kbps] <Rock&Roll / Rock / Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Runaway (intro) (01:07)
-02. Hot Love (feat. Jeff Lynne, single 1987) (03:19)
-03. Deadly Game (feat. Jeff Lynne, single 1973) (02:58)
-04. Distant Ghost (feat. Jeff Lynne, single 1973) (03:13)
-05. Cry Baby Cry (feat. Jeff Lynne, single 1975) (02:34)
-06. Alive But I'm Dead (feat. Jeff Lynne, bootleg 1974) (03:23)
-07. Raylene (feat. Jeff Lynne, bootleg 1974) (03:39)
-08. Nobody's Business (single 1984) (03:28)
-09. Beautiful Body (single 1984) (02:56)
-10. Show Me (1966) (02:20)(   Читать дальше...   )Жанр: Rock&Roll / Rock / Country Rock |Продолжительность: 01:11:25
-
-## Скачать торент
-```bash
-нет
 ```
 
 

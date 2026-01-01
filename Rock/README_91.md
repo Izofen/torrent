@@ -1,3 +1,30 @@
+###  Публикация: 1090772   (945977) от 07.01.2017
+
+Gov't Mule - 2016-12-31 The Beacon Theatre, New York, NY (2017) 3CD Live [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucky Man
+02. Hallelujah
+03. Bird On A Wire
+04. Angel Band(   Читать дальше...   )Жанр: RockПродолжительность: 03:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A4BBC11AE6468450E068F7E37DEE8AED6E20892
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982765   (946658) от 04.02.2016
 
 Elton John - Wonderful Crazy Night (2016) Deluxe Edition  [MP3|320 кб/с] <Pop Rock>
@@ -674,33 +701,6 @@ David Bowie - Blackstar (2016) [MP3|320 кб/с] <Art Rock, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18782E89C5609EECF0A350EB9F7407926E121C1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972918   (980700) от 07.01.2016
-
-Hinds - Leave Me Alone (2016) [MP3|256 кб/с] <Alternative Rock, Indie Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Garden
-02. Fat Calmed Kiddos
-03. Warts
-04. Easy(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Garage RockПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0111693442E5210166B927CB4E3FC4E442A814A
 ```
 
 

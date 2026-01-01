@@ -1,3 +1,134 @@
+###  Публикация: 1108211   (1021683) от 10.04.2021
+
+How To Disappear Completely (HTDC, FOG & HTDC) - Discography 33 Releases (2012-2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Post Rock, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Path To Perdition (Remixed By Sequences) (08:56)
+ 02. Fractured (Wolf Maps Edit) (04:24)
+ 03. Undone (Unearthed) (07:04)Тип издания: WEBЖанр: Ambient, Drone, Post Rock, Experimental •Продолжительность: 22:47:28 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EC91A72D92890AF1A5366358905AC1816A7EB13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982924   (1021699) от 10.04.2021
+
+Keef Baker | Nimon | Slipdrive - Discography 20 Releases (2004-2021) Ant-Zen, Hymen Records, n5MD [FLAC|Lossless|tracks+.cue, tracks] <IDM, Experimental, Ambient, Industrial, Breakcore>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innovative Radiation Shielding Technologies (04:40)
+ 02. Galactic Cannibalism (04:10)
+ 03. The Abandoned Dyson Sphere Situated Around A Sun That Went Nova (03:44)
+ 04. Galactic Cannibalism (a Closer Pass For More Detailed Scanning) (04:22)(   Читать дальше...   )Тип издания: CD, WEBЖанр: IDM, Experimental, Ambient, Industrial, Downtempo, Abstract, Breakcore •Продолжительность: 21:21:38 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E70E47BC5A3A27F36BFA399BFDC21B06E39F314
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 725831   (1021735) от 10.04.2021
+
+Melodium - Discography 36 Releases (2001-2021) Audio Dregs [FLAC|Lossless|tracks+.cue, tracks]<IDM, Ambient, Leftfield, Acoustic, Modern Classical>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Septentri (03:56)Тип издания: CD, WebЖанр: IDM, Ambient, Leftfield, Acoustic, Modern Classical •Продолжительность: 25:55:42 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F49293D09B79E2707334B70BD11B1BAD48E3BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461720   (1021750) от 10.04.2021
+
+Jean-Michel Jarre - Amazonia (2021) Columbia [FLAC|Lossless|tracks+.cue] <Ambient, Field Recording, Tribal, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amazonia Part 1 (07:43)
+ 02. Amazonia Part 2 (10:00)
+ 03. Amazonia Part 3 (08:10)
+ 04. Amazonia Part 4 (03:17)(   Читать дальше...   )Жанр: Ambient, Field Recording, Tribal, ExperimentalПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F74CADFB0053AA0582B645E015AE4872EAB58606
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461691   (1021782) от 10.04.2021
+
+Armin van Buuren - One World Radio Armin's Weekend Kick-Off 100 (Extended Special) (2021-04-09) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren ft. Sharon Den Adel - In And Out Of Love (Ilan Bluestone & Maor Levi Remix)
+02. Armin van Buuren & AVIRA ft. Sam Martin - Mask
+03. Armin van Buuren & Avian Grays ft. Jordan Shaw - Something Real
+04. Above & Beyond ft. Zoë Johnston - There's Only You (Above & Beyond Club Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E15754FABB0DF33D7E0116AB6A0B1C644D114D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461616   (1021793) от 10.04.2021
 
 VA - Forest Prog (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Forest>
@@ -557,141 +688,6 @@ Gradient - Discography Discography 17 Releases (2009-2021) U-Cover, Greyscale, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B4DF040D7F074E3A369893ED0265018946DA798
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460529   (1022446) от 06.04.2021
-
-Aviators - Dreams Of The Deep (2021) [MP3|320 Kbps] <Synthwave, Cinematic Rock>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wall Of Sleep [00:05:03]
-02. To The Grave [00:05:55]
-03. Black Roses [00:06:03]
-04. Dreams Of The Deep [00:08:21](   Читать дальше...   )Жанр: Synthwave, Cinematic RockПродолжительность: 01:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A300B38F8D1747849CA285EB5D0783F92735AE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411651   (1022448) от 06.04.2021
-
-REKT - 3 Albums (2020-2021) Point Source Electronic Arts [FLAC|Lossless|WEB-DL|tracks] <Experimental, IDM, Industrial>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Accipiter Nisus And Other Avifauna (Remix by Jfrank) (04:53)
- 02. Syntax Error (Freeze Mix by Symmdrome) (04:45)
- 03. Sparrowhawk (04:07)
- 04. Distribution And Habitat (Edit by The Fellow Passenger) (04:07)(   Читать дальше...   )Тип издания: WebЖанр: Experimental, IDM, Industrial •Продолжительность: 01:44:28 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6184742DBC7BB6F9EF5DD86E5C2A40A5640E9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460693   (1022462) от 06.04.2021
-
-ltfll - Deflect Trial (2021) Kaer'Uiks [FLAC 2.0|44.1/24|tracks] <IDM, Glitch, Abstract>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. two (ltfll DT1) (02:48)
- 02. three (Fausto Mercier DTRMX1) (03:29)
- 03. five (ltfll DT2) (03:59)
- 04. eight (ABADIR DTRMX2) (04:41)(   Читать дальше...   )Жанр: IDM, Glitch, AbstractПродолжительность: 00:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C4DC0227C2B272FCD6056ECAE4CFAC7374FA77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460694   (1022475) от 06.04.2021
-
-ltfll - Deflect Trial (2021) Kaer'Uiks [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Abstract>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. two (ltfll DT1) (02:48)
- 02. three (Fausto Mercier DTRMX1) (03:29)
- 03. five (ltfll DT2) (03:59)
- 04. eight (ABADIR DTRMX2) (04:41)(   Читать дальше...   )Жанр: IDM, Glitch, AbstractПродолжительность: 00:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C53E6AF2E54FDE7E777EB17A07B2CF9F889A1217
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375212   (1022549) от 05.04.2021
-
-Sounds From The Ground - Discography 28 Releases (1995-2021) Waveform Records, Upstream Records [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Dub, Downtempo, Trip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gather (06:11)
- 02. Treasure (07:20)
- 03. Move On (feat. Taz) (06:25)
- 04. Triangle (10:11)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, Dub, Downtempo, Trip Hop •Продолжительность: 25:48:10 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04437878360BCDC7FFFA792815F71BC190BA4BFE
 ```
 
 

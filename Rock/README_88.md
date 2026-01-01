@@ -1,3 +1,33 @@
+###  Публикация: 1492581   (900462) от 31.08.2021
+
+The Immediate Family - The Immediate Family (2021) [MP3|320 Kbps] <Classic Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Было две епишки, теперь полноформатный альбом и надо сказать отличный.
+The Players:
+Steve Postell - Guitars, Vocals
+Waddy Wachtel - Guitars, Vocals(   Читать дальше...   )01. Can't Stop Progress (04:28)
+ 02. Slippin' And Slidin' (03:55)
+ 03. Everything That's Broken (03:21)
+ 04. Damage (03:26)(   Читать дальше...   )Жанр: Classic Rock, BluesПродолжительность: 00:53:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E5DC2A9045C210D120357E3AFD8F920188AAAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992622   (900982) от 02.03.2016
 
 Hank Marvin - Marvin At The Movies (2000) [MP3|320 кб/с] <Rock, Pop Rock, Instrumental>
@@ -662,33 +692,6 @@ VA - I Love Rock Ballads (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92425B97E6A7C2FA7C36CF8418B5BCBEA177396B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989799   (915781) от 23.02.2016
-
-ME - Another Story High (2012) [MP3|320 кб/с] <Alternative, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпустив за годы деятельности этот mini- и полноценный альбом 2013 года, группа объявила о своём роспуске в начале 2016 года.01. Naked
-02. Insert Voice Here
-03. Dutch Medicine
-04. Slow Children Run(   Читать дальше...   )Жанр: Alternative, Progressive RockПродолжительность: 00:22:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3152A0D1F66EF4C53AADB339DEE5EDBFDB912AD1
 ```
 
 

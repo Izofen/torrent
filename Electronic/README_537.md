@@ -1,3 +1,138 @@
+###  Публикация: 1841594   (1048074) от 12.12.2025
+
+VA - Armin van Buuren - A State Of Trance 1255 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eugenio Tokarev – Runway 303
+02. Ruben de Ronde & Estiva pres. Ebenezer – Arena (Future Favorite)
+03. Innēr Sense – People Can Fly
+04. Armin van Buuren – ALIVE (Tim Bliss Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA2CCE3A60C0FF254A923DCD23FC19E2ED16299
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841597   (1048076) от 12.12.2025
+
+VA - Ori Uplift - Uplifting Only Episode 670 (Ori’s Top 50 Instrumental Uplifters of 2025  [Part 1]) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phil Dinner – Epic (Intro Mix)
+02. ADOVE – Lavender Field
+03. Blurrrsama – 18th (REX.W Remix)
+04. Illitheas – Golden Skies(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97552BBC6B201877BE3425BCE879FAA9D4A0D590
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841657   (1048089) от 12.12.2025
+
+VA - Black Hole House Music 12-25 (2025) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance Nation - Hold On (Extended Mix) 04:32
+02. Bt & Jan Johnston - Mercury & Solace (Little Foot Extended Remix) 05:45
+03. Manufactured Superstars & Vedic - Diva 03:12
+04. Fonzerelli, Jaki Nelson & H4lo - Edge Of Tomorrow (Extended Mix) 05:17(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:567E28DEE724A30F2C256DEDA0F75E6564B15AA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841601   (1048125) от 12.12.2025
+
+Depeche Mode - Memento Mori: Mexico City (2025) 2 x CD [FLAC|Lossless|tracks + .cue] <Synth-pop, Industrial, Alternative Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. Intro (Live in Mexico City) (02:17)
+02. My Cosmos Is Mine (Live in Mexico City) (04:59)
+03. Wagging Tongue (Live in Mexico City) (03:30)(   Читать дальше...   )Жанр: Synth-pop, Industrial, Alternative RockПродолжительность: 02:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B026364489099B613BD1A53A3E3C78F5CD89C4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841520   (1048155) от 11.12.2025
+
+VA - 100% Ibiza (The Late Night Club Closings 2025) (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francesco Diaz - Frequencies (Video Edit) 02:58
+02. Steen Thottrup & Kaia Mainz - Dreamers (Stefano Martiago Remix) 05:03
+03. Kornpluck - Tincture (Vocal Mix) 05:23
+04. Jacob Ireng - Contemplation (Radio Edit) 02:37(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:05:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC0CC44BD62372FCCA49FC3B73B2F739F38A1C58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841532   (1048163) от 11.12.2025
 
 VA - After Work Chill: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -556,141 +691,6 @@ VA - Armin van Buuren - A State Of Trance 1256 (Top 50 Of 2025) (2025) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6473BE1622A6DE2EBEFEA2372489ED297715BDBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843219   (1049244) от 19.12.2025
-
-VA - Ori Uplift - Uplifting Only Episode 671 (Ori’s Top 50 Instrumental Uplifters of 2025 [Part 2]) (2025) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cedric Paul – Harmonic Skies (Intro Mix)
-02. Phil Dinner – The Battle
-03. Ruslan Khatmullin – Romantic Wave
-04. Shadows&Nightmares – Hallucinogen(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1E56047820EFF0ABD10F12E60A49DAD552FB59B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843227   (1049245) от 19.12.2025
-
-VA - The Best Releases 2025 of Your Melodies (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D-J. Santos - La Locura De Amarte (Original Mix) [8:54]
-02. Deejay Tao - My Stars (Original Mix) [5:51]
-03. LR Uplift - Not Forever (Original Mix) [7:02]
-04. A L O N 3 L Y - Distant Love (Original Mix) [7:19](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A49DB27481618A6470AE0D036ABC0578319123C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843532   (1049300) от 20.12.2025
-
-VA - The Best Of Full On 140 Records 2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crisy - Domination (Extended Mix) 06:54
-02. Georgio Safo - The Things I Want To Do (Extended Mix) 04:54
-03. Spy, Simon Fischer & Peter Miethig - The Way Forward (Extended Mix) 06:32
-04. Speed DJ - Mystic (Extended Mix) 06:27(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8750A10EF131D3C36701919B7E516513B7588917
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843338   (1049363) от 20.12.2025
-
-VA - Monster Tunes Year Mix 2025 (Mixed By Exouler) (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aimoon - VHS [07:05]
-02. Forbidden Mind - Save Me [06:22]
-03. Mike Van Fabio, Ben Stone - My Liminal Space [07:07]
-04. Spy - Dynasty [06:47](   Читать дальше...   )Жанр: TranceПродолжительность: 03:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D4DFDA38A131327E7416B4A6FD4555BCD1318E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843448   (1049366) от 20.12.2025
-
-VA - This is Ablazing 2025 (Mixed and Selected by Rene Ablaze) (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rene Ablaze & Ren Faye - Reckless 03:06
-02. Claus Backslash - Mysterious Ways (Inrayzex Remix) 02:52
-03. Six Senses & Xposure - From The Heart (Extravagancesl Remix) 03:51
-04. Tp One & D'arcangel - Fly With Us 03:18(   Читать дальше...   )Жанр: TranceПродолжительность: 03:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DACC276B463615B8768BCD6F83CA6032073DD99
 ```
 
 

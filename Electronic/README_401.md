@@ -1,3 +1,138 @@
+###  Публикация: 1204639   (784675) от 06.02.2018
+
+VA - Love Hits Vol.3 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer feat. Roxanne Emery  -  Lullaby (Original Mix)  3:56
+02.  Aelyn  -  Water & Fire (Ruslan Radriges Extended Remix)  5:34
+03.  Frainbreeze feat. Vika  -  Better Day (Extended Mix)  5:47
+04.  LTN  -  Coconut Island (Extended Mix)  6:28(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1968271A92E1E76290E937C9D1D0338EBC8B9795
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204542   (784676) от 06.02.2018
+
+VA - Chillout Resonance: Melodies Of Vagabond Chillout Music For Relaxation and Peace (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Herman Albany - Foot Steps
+02. IV The Polymath - Organic
+03. Konstantin Klashtorni - One Hundred Ways
+04. NicD - Take A Ride(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3F119A9D5E1CAFB8886C9D93104EAD7253E60B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204489   (784677) от 06.02.2018
+
+VA - Debauchery Lounge: Luxury Lounge Music For Bars And Clubs (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NORone - No Matter
+02. Suchitra Lata - All The Way
+03. Big Prod Sounds - Bien Comme Ca
+04. Suchitra Lata - At The Bend(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0585E50CDB04A01C721BFE537B19D1542605A404
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204597   (784685) от 06.02.2018
+
+VA - Work That Body Vol.2 (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Andrey Exx feat. Diva Vocal & BSKF  -  Need To Feel Loved (Umid Remix)  7:54
+02.  BSKF  -  Up & Down (Original Mix)  5:01
+03.  DJ Wady & Yhago  -  Salvation (Simun Remix)  5:36
+04.  Masch + Yuko  -  My House (Original Mix)  6:49(   Читать дальше...   )Жанр: HouseПродолжительность: 02:26:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2217138359548BB5C42EFE6DAABD64BCE514F99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204657   (784686) от 06.02.2018
+
+The Essence - Its All About Music (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Can Save the Day 5:29
+ 02. Wonderland 5:19
+ 03. Aurora Borealis 4:17
+ 04. This World 4:29(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D9DBB478DA60305D2469FAFD9FE9B5E557BA453
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204633   (784687) от 06.02.2018
 
 VA - Open House Records Presents Vocal Sessions (2018) [MP3|320 Kbps] <House, Vocal House, Future House>
@@ -560,141 +695,6 @@ VA - Nothing But... The Future Of Trance Vol.11 (2019) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01BB8552C5F4E79130DDD14992A972FC8849C029
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277734   (785028) от 21.01.2019
-
-VA - Winter Music Top 1 (2019) [MP3|320 Kbps] <House, FutureHouse, Dubstep, Other>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Papaya - I'm Burning (Tech House Mix) 9:49
-02. DJ Papaya - I'm Burning (Tribal Mix) 9:18
-03. WILKKEN & JHON CHRISTIAN - Tche Ngolove (Original Mix) 5:36
-04. Gunball & CHIPS DOWN - Shake Down (Original Mix) 4:06(   Читать дальше...   )Жанр: House, FutureHouse, Dubstep, OtherПродолжительность: 02:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F4B9282ED5D28C1185C93F49C98D21C52278CE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277727   (785029) от 21.01.2019
-
-Feral - Climbing Himalaya: Part II (2018) Hypnus Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Dub Techno >
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pine Forest (08:43)
- 02. Rara Lake (05:52)
- 03. Mahakala Is Watching (05:51)
- 04. Descending (A Shaman's Dub) (06:38)Жанр: Techno, Dub TechnoПродолжительность: 00:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:361A9D8E1A7BB4877D16FE962CE4765F2E7EB778
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277680   (785032) от 21.01.2019
-
-VA - Various Artists pt.5 (2015) Etoka Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warmth - Crescent (09:34)
- 02. Alex Humann - Minze (06:46)
- 03. Adverb - Hyle (07:02)
- 04. Anton Lanski - Reckless In The Dark (04:56)Жанр: Dub Techno, Ambient, Deep TechnoПродолжительность: 00:28:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:611BBB3404686AE8C4E4C689B2A0435C5DD0FDFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388935   (785039) от 08.06.2020
-
-VA - Erotic Lounge Sensual Hot 2020 [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cut Groove - Yedeka (Chillout Cut Mix) 3:09
-02. Club Guys - Take My Breath (Massive Chill Mix) 3:14
-03. St. Martin - Garage DH (St. Peace Mix) 3:12
-04. Anthony Maserati feat. Lolla Gee - Beyond The Time (Anthony's Life Mix) 3:13(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F7E193CA8DE03AA146834A932D5BB45CAF13CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388881   (785153) от 08.06.2020
-
-VA - Bounce Showcase, Vol.1-2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785153.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dopamine Machine - On My Count (6:32)
-2. Magnifix - The Perfection (7:31)
-3. Phanatic - Mind Control (6:46)
-4. Exciter - Imagine (5:58)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA492D48E6E29BEC0C0C53D3DEB97ECF6D0C3A0
 ```
 
 

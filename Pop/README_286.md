@@ -1,3 +1,166 @@
+###  Публикация: 1387151   (792466) от 31.05.2020
+
+VA - Clubfete 90er: 60 Club & Party Hits Of The 90's Vol.2 (2020) [MP3|320 Kbps] <Club, Euro-House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snap! - The Power (7' Version) 3:47
+02. Music Instructor - Hymn (Single Edit) 3:50
+03. Charly Lownoise & Mental Theo - Stars (Video Mix) 3:37
+04. Scooter - How Much Is The Fish (Radio Edit) 3:46(   Читать дальше...   )Жанр: Club, Euro-House, EurodanceПродолжительность: 03:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC33F8CA51713B7952E7F4E44D5FFC72E811B4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387220   (792520) от 31.05.2020
+
+Icehouse - 9 Studio Albums (1981-1995) Collection [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Icehouse - это австралийский рок-проект, который сформирован в 1977. Первоначально назывались Flowers, играли паб-рок, позже перешли на pop rock и synthpop с элементами new wave. Добились успеха на мировом рынке, издали несколько десятков хитов в США и Европе. Основным творческим деятелем считается Ива Дэвис (Iva Davies), часто для записей нанимались сольные исполнители. (   Читать дальше...   )Список альбомов:
+1981 - Icehouse
+1982 - Primitive Man
+1984 - Sidewalk(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-popПродолжительность: 10:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8355A2BD36198782C5AE56347AFB7BF4B5668A36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123361   (792527) от 07.04.2017
+
+VA - Айсберг 5. Международный (2001) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Da Mutz - Wassup!
+02. 98 Degress - Gimme just one night (une noche)
+03. Point Break - Do we rock
+04. a-ha - Minor Earth, major sky (ATB club remix)(   Читать дальше...   )Жанр: Pop
+Издание: Iceberg Music - HH-34CD/01Продолжительность: 01:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CBED060A29E9737F1EAA43E94020D811FF90E51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387167   (792628) от 31.05.2020
+
+VA - Summer Hits of the 10s (2020) [MP3|320 Kbps] <Pop, Lyrics>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wynter Gordon - Dirty Talk
+02. Cody Simpson - La Da Dee
+03. Nickelback - When We Stand Together
+04. Guy Sebastian & Lupe Fiasco - Battle Scars(   Читать дальше...   )Жанр: Pop, LyricsПродолжительность: 01:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:555EDFFCF4EBFD03DB4768D2D1E004026DD52F58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387139   (792637) от 31.05.2020
+
+VA - DMC - Cool Grooves 61 (2020) [MP3|320 Kbps] < Electronic, Hip Hop, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AJ Tracey feat MoStack - Dinner Guest
+02. Akon & Wizkid - Escape
+03. Barry Upton - Isolated (Radio)
+04. Black Eyed Peas & Ozuna & J.Rey Soul - Mamacita (Clean)(   Читать дальше...   )Жанр: Electronic, Hip Hop, Latin, Funk / Soul, PopПродолжительность: 01:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8769DE3B99DC47B3352D06CC744BC2C539AAE9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387010   (792640) от 31.05.2020
+
+Пара Нормальных - Скандал во время рекламы (2010) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:37:03Трэклист: 01. Не улетай
+02. Поломана
+03. Ты не шаришь
+04. Скандал(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E68FCBD07CCCD1E3189CBFEC8A64437D8C8E731
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201468   (792699) от 24.01.2018
 
 VA - 2018 Grammy Nominees (2018) [FLAC|Lossless|tracks] <Pop, Hip Hop>
@@ -533,165 +696,6 @@ Hot Sauce - Baby Tenderness (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEE4B690E1A98CFD50C3AED5A0481316F8231974
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200999   (793802) от 23.01.2018
-
-Julio Iglesias - Se Tornassi... All The Hits (2013) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Manuela
-02. Un Giorno Tu Un Giorno Io
-03. Quando Si Ama Davvero(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 02:09:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD8368860AB57DF047DD11C3F263D2001FF59D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201104   (793809) от 23.01.2018
-
-Mylene Farmer  - Rolling Stone (2018) Single [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mylène Farmer - Rolling StoneЖанр: PopПродолжительность: 03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42E772B1CDEC0AA2B5DA567532496388BFEA2033
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201029   (793938) от 23.01.2018
-
-Ministry Of Beat - 100% Strength (2018) [MP3|320 Kbps] <Dance, Eurobeat, Electro>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – That’s Physical
-02 – Muscle Games
-03 – Lost In Your Mind
-04 – Adrenalin Love(   Читать дальше...   )Жанр: Dance, Eurobeat, ElectroПродолжительность: 03:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0721705A89DE81A9072554D7CFAAB8B61F5207A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201066   (793947) от 23.01.2018
-
-Ханна - Мысли. Часть 1 (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793947.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Не вернусь
-2. Глаза
-3. Буду
-4. Изучай меня(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFD4B50777F1EAEB85808488B8E31DB19E5DE19C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509495   (794029) от 13.11.2021
-
-Kylie Minogue - DISCO (2021) Guest List Edition [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic [00:04:10]
-02. Miss A Thing [00:03:56]
-03. Real Groove [00:03:14]
-04. Monday Blues [00:03:09](   Читать дальше...   )Жанр: Dance-pop, DiscoПродолжительность: 01:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A554A8019A6659A34AF83879194ADBA9BD47A61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200258   (794065) от 23.01.2018
-
-Eleven - 11 (2012) [MP3|320 Kbps] <Dance, Synthpop, Electro>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 11:11
-02. Love Comes from Yourself
-03. Hollow Earth
-04. Another Life(   Читать дальше...   )Жанр: Dance, Synthpop, ElectroПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBBB2BB65963DFB35DEB1DC4568B4F00A38E46FE
 ```
 
 

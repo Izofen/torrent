@@ -1,3 +1,138 @@
+###  Публикация: 1030092   (674268) от 30.06.2016
+
+All4tonic - Laika Messages (2016) [MP3|160 Kbps] <Electronic, Ambient, Dub>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insomnia
+02. Laika Messages
+03. Megamedicine
+04. Red Button(   Читать дальше...   )Жанр: Electronic, Ambient, Dub, EDMПродолжительность: 00:20:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E08ABA9D4BA37D31EFC9D5B1312B2C0B8687C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290849   (674330) от 22.03.2019
+
+VA - Relax Time (2019) [MP3|320 Kbps] <Downtempo, Meditation, Electronica>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music Is A Film - Back To The Start (Original Mix)
+02. Yoga & Meditacion - Rising Star (Yoga & Zen Meditation Version)
+03. Ressonnimo - Sol Naciente (Yoga & Meditation Version)
+04. Cinematic Meditation - Enough For Happiness (Original Mix)(   Читать дальше...   )Жанр: Downtempo, Meditation, ElectronicaПродолжительность: 01:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A590473AE6EAF8C5ADBAEB203ED31F42971324
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290762   (674335) от 22.03.2019
+
+VA - Trance Nation (2019) [MP3|320 Kbps] <Trance, Electronic, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alt & J - Emotion
+02. LekSin - Angels & Demons
+03. Simon Moon pres. JP Project - Madness (Arrakeen Arraknophobic Remix)
+04. Tecnomind - Non Stop Dreaming (Radio Edit)(   Читать дальше...   )Жанр: Trance, Electronic, ProgressiveПродолжительность: 04:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEBD82EC6D67E63A1F4EEB7B678C63C25A5EC00A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290888   (674341) от 22.03.2019
+
+VA - The Sweetest Taboo Vol.1 (Sexy Deep-House Candies) (2019) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antton - Soul Soup (Original Mix) 7:49
+02. The Boogeyman - Deep Forest (Original Mix) 5:06
+03. Skylab - For The Ones Gone (Original Mix) 5:44
+04. Jommes Tatze - Zirkus (C-Ro Remix) 7:23(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A57871B608F1B6C1BD45A39596F15582370684C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290850   (674344) от 22.03.2019
+
+VA - Markus Schulz - Global DJ Broadcast Top 20 March (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz feat. Christina Novelli - Symphony Of Stars (Solis & Sean Truby Extended Remix)
+02. Above & Beyond - Distorted Truth (Extended Mix)
+03. Cosmic Gate & Foret - Need To Feel Loved (Extended Mix)
+04. DT8 Project - The Edge (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2405033D703F692908DB289E3C03B9DC9D24F991
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030552   (674411) от 30.06.2016
 
 VA - Pornostar Sessions Ibiza Edition (2016) [MP3|320 Kbps] <House, Club House>
@@ -560,144 +695,6 @@ VA - Goa 2016 Vol.3 (2016) [MP3|320 Kbps] <Trance, Goa Trance, Psy>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF7DDE529908A8B0F568BC2718005A48AE91612D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030014   (676672) от 29.06.2016
-
-VA - Relaxation and Deep Sleep (2016) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Igge Scoce - Abyssal Voyage
-02. Jonathan Carlile - Ambient Uplifting
-03. David Hollandsworth - Artic Sun
-04. Emlyn Ellis Addison - Breaking Ground Ambient Soundbed(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 01:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D2EBF4F12B993AD76BCC20AB85D16C66ED6BBD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536376   (676686) от 11.03.2022
-
-Johan Tronestam - Best of Johan Tronestam 2010-2013 (2015) [FLAC|Lossless|WEB-DL|tracks] <Berlin-School, Space Music>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acceleration (6:40)
-02. I'm Already There (5:50)
-03. The Ancient Pulse Still Beats (6:24)
-04. Lake Vostok (6:24)(   Читать дальше...   )Жанр: Berlin-School, Space MusicПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB058A531AEF529C41535139E81EBBFDD4C232BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136048   (676721) от 21.05.2017
-
-Omnimar - Poison (2017) [MP3|320 Kbps] <Synth-pop, Synthwave, Darkwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Poison 1:40
-02	I Go On On My Own 4:06
-03	Out Of My Life 5:55
-04	I Wanna Know Now 4:15(   Читать дальше...   )Жанр: Synth-pop, Synthwave, DarkwaveПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82E09FE7EB4C189396D78ABD57C15A1E84249278
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135666   (676730) от 21.05.2017
-
-Erasure - World Be Gone (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New-Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676730.jpg" />
-</div>
-
-
-###  Подробнее
-
-17-й студийный альбом британского электронного дуэта ERASURE!
-«World Be Gone» следует за диском «The Violet Flame» (2014) и продолжает дальнейшее празднование 30-летия группы.
-Лонгплей включает 10 новых треков, написанных, исполненных и спродюсированных самими Erasure и сремикшированных Мэтти Грин (Matty Green).
-(   Читать дальше...   )01.  Love You To The Sky 4:26
-02.  Be Careful What You Wish For! 3:21
-03.  World Be Gone 3:40
-04.  A Bitter Parting 3:13(   Читать дальше...   )Жанр: Synthpop, New-WaveПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64AD2D11370ECFDD25E07DB9B07E1DC1E8DAF29D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030123   (676782) от 29.06.2016
-
-VA - Electrotastic Vol.22 (2016) [MP3|320 Kbps] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Louis -  Combustion 3:38
-02. Zeeza -  Right On (Extended Mix) 4:08
-03. Kid Massive & East Freaks -  Ready to Rock 5:23
-04. Tiefblau -  D.O.Y.S 4:38(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB466C1B4C4254E8E20AA07370673646F1927484
 ```
 
 

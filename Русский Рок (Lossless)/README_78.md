@@ -1,3 +1,111 @@
+###  Публикация: 1616418   (1036440) от 02.03.2023
+
+Гранитный цех - Нигилизм (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Таллий [00:03:08]
+02. След [00:02:38]
+03. Рок-н-ролл [00:03:16]
+04. Пора умирать [00:02:49](   Читать дальше...   )Жанр: Hard Rock, PunkПродолжительность: 00:21:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64AE74FB9D462B8B369211A17878FDCBE61B520B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616429   (1036451) от 02.03.2023
+
+Staple R - Remember The Young Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronicore, Hardcore punk, Trancecore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corpse Party [00:03:18]
+02. Bumblebee Cemetery [00:04:58]
+03. Pew Pew [00:02:50]
+04. Ryomou Versus Ryofu [00:03:21](   Читать дальше...   )Жанр: Electronicore, Hardcore punk, Trancecore, Metalcore, NintendocoreПродолжительность: 00:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C67717CACA4B7259089B174BC28D4386266A3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616214   (1036723) от 01.03.2023
+
+Rabies - Бестиарий (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Увертюра "Morion" [00:01:56]
+02. Бестиарий [00:03:52]
+03. На руинах твоих империй [00:04:06]
+04. Оборотень [00:04:51](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBC4359797FDC9145866791BCE2D7F9A1DAA3A94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442007   (1037180) от 23.01.2021
+
+Babooshka - Плюнь Дьяволу в лицо! (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Крепостное право [00:05:17]
+02. Православный ЕГЭ [00:03:59]
+03. Бьёт - значит любит [00:04:12]
+04. Pro Добро [00:03:50](   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B3E78F7BEF172772EECF922250740F8FC3F4997
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442040   (1037203) от 23.01.2021
 
 Grima - Rotten Garden (2021) [FLAC|Lossless|Web-DL|tracks] <Black Metal, Atmospheric Black Metal>
@@ -588,111 +696,6 @@ magnet:?xt=urn:btih:DB306AC60B0C405F54CD334E4025AC6FDD4099CB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:440857A109ED0845A4454E36A6680AF83395FA17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612339   (1040358) от 15.02.2023
-
-Обе-Рек - Персональный ад (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Персональный ад [00:04:33]
-02. Радость моя [00:05:01]
-03. Дом [00:04:15]
-04. Весна [00:05:49](   Читать дальше...   )Жанр: RockПродолжительность: 01:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDC4A650918A0B166989326D1B682B5F0C13794
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438895   (1040575) от 10.01.2021
-
-Павел Смеян - Коллекция  2CD, (2017-2020)   [FLAC|Lossless|tracks] <Рок, Рок-опера>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Рок, Рок-операПродолжительность: 01:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45F67BD9D7F06436BEA62537DE5A176B4E4031B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612042   (1040632) от 14.02.2023
-
-Инсайт - 1225 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Инсайт [00:04:09]
-02. Все с нуля [00:04:00]
-03. Другими глазами [00:04:27]
-04. Дай мне силы [00:04:07](   Читать дальше...   )Жанр: RockПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CDBB66BFB5F170F1FB91B89D6EBDB981DCF5220
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612034   (1040635) от 14.02.2023
-
-Dzen (Андрей Нагорный) - Глаза Анютины (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хинди [00:03:09]
-02. Элемент Криминала [00:03:44]
-03. Война и Мир [00:04:02]
-04. Аляска [00:03:44](   Читать дальше...   )Жанр: RockПродолжительность: 00:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EFCBF5637976109B4AB842582357EB60387231A
 ```
 
 

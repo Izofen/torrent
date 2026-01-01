@@ -1,3 +1,165 @@
+###  Публикация: 1101239   (896150) от 06.02.2017
+
+VA - Italian Style: Everlasting Italo Dance Compilation Vol.6 (2017) [MP3|320 Kbps] <Italo Disco, Euro-Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ken Martina - Another Melody (BCR Extended NRG Mix)  6:49
+02.  Ranger - Time (BCR Extended Smack Mix)  6:46
+03.  Modern Boots - Tears Of A Broken Heart (BCR Extended Airliner Version)  7:00
+04.  Dean Corporation - App Me (BCR Extended Fasten Mix)  5:24(   Читать дальше...   )Жанр: Italo Disco, Euro-Disco, Hi-NRGПродолжительность: 02:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87A9BF6B6D579198E6821B39DA3758825CA4AA0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370586   (896684) от 27.03.2020
+
+Леонид Агутин - TOP 30 (2015) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896684.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мир зелёного цвета
+2. На сиреневой луне
+3. Всё в твоих руках
+4. Аэропорты(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F47D0915190C978ADD5BC3E930FCE6F44E371E4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370441   (896698) от 27.03.2020
+
+Леонид Агутин - La Vida Cosmopolita (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_896698.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Funky Cha
+2. Quédate
+3. Y Quién Eres Tú
+4. Just a Rainy Day (feat. Al Di Meola)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:699F17460E1B894196CCCA3F1A093964DCD0910F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370442   (896842) от 27.03.2020
+
+Митя Фомин - Апрель (2020) EP [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896842.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ПятницаВечер
+2. Преступно
+3. Одиночество в толпе
+4. Надышаться тобой(   Читать дальше...   )Жанр: PopПродолжительность: 00:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B3A72203411BFD3DAF108AF0646808D491395B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370486   (896915) от 27.03.2020
+
+Little Dragon - New Me, Same Us (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold On (03:30)
+02. Rush (03:29)
+03. Another Lover (04:26)
+04. Kids (04:31)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D66D75B8CF5369C8DEABA8B2646D258F6EBE89E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370418   (897031) от 27.03.2020
+
+Branjo Sound - I Wanna Dance Bump (1978) LP [MP3|320 Kbps] <Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cock A Doodle Do (5:30)
+02. Thank You Baby (5:02)
+03. That's Good (4:21)
+04. I Wanna Dance Bump (4:08)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73C91F04E006F8DCCA52A7A3CF6993860362B6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 294605   (897416) от 12.02.2011
 
 Chilly - Ultimate Collection  Non-Stop (2010) [FLAC|Lossless]<Disco>
@@ -530,168 +692,6 @@ Army of Lovers - Master Series (1997) [FLAC|Lossless|image + .cue] < Disco, Euro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B92A14B03EADFEA8B8595E0EFC3724226BEB09B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369357   (903255) от 23.03.2020
-
-Dua Lipa - Future Nostalgia (2020) [MP3|320 Kbps] <Synthpop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Nostalgia
-02. Don't Start Now
-03. Cool
-04. Physical(   Читать дальше...   )Жанр: Synthpop, DanceПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0909C37CF5C99EA47CC914214207EF998DC1DA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369274   (903293) от 23.03.2020
-
-Dua Lipa - Future Nostalgia (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903293.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Future Nostalgia (03:04)
-2. Don't Start Now (03:03)
-3. Cool
-4. Physical (03:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AE3F7E234D2366E2414F29BBE36539F9D8646DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369536   (903356) от 23.03.2020
-
-Joy - 4 Albums (1986-2011) Collection 2LP+2CD [MP3|320 Kbps] <Electronic, Europop, Euro-Disco, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Joy (Джой, рус. радость) - австрийская англоязычная европоп/евродиско-группа. Образована в 1984 году. Наиболее известна своими синглами Touch By Touch, Valerie и Hello.Список альбомов:
-1986 - Hello
-1986 - Joy And Tears
-1989 - Joy(   Читать дальше...   )Жанр: Electronic, Europop, Euro-Disco, Synth-popПродолжительность: 02:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2491B514225E4A710CA5B1DA78A29FCFEF0359E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369211   (903531) от 23.03.2020
-
-VA - ZYX Italo Disco New Generation Vol. 16 (2020) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Italove - Burn This City (Flashback Ri-Mix) (6:22)
-02. Savage - Magic Carillon (Also Playable Mono Remix) (5:30)
-03. Carino Cat feat. Fred Ventura - The Carino Crew (4:57)
-04. Romantic Gladiators - Hero (Warrior Version) (5:24)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Nu-DiscoПродолжительность: 02:28:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:136E4008BEC31CE340F0FA9C49D547225DADEE56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369190   (903812) от 23.03.2020
-
-Bosson - Best of 11-Twelve (2013) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guardian Angel (3:40)
-02. Every Single Time (3:58)
-03. Baby I Believe In You (3:44)
-04. Loveshock (3:21)(   Читать дальше...   )Жанр: Dance-pop, EuropopПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89ADDCDB4244FB215D23CFACC4224D2A96B75414
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 867302   (904409) от 07.02.2015
-
-Дмитрий Маликов - Cafe "Safari" (2015) [FLAC|Lossless]<Pop, Instrumental>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Улыбка ангела
-02. Линия горизонта
-03. Медные небеса
-04. Кафе "Сафари"(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:363768EA3429AEE2EC8F813653F7F06991DD1915
 ```
 
 

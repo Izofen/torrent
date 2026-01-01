@@ -1,3 +1,135 @@
+###  Публикация: 660025   (1030438) от 19.02.2021
+
+VA - Dream Cafe (Chill Out Classics) (2004) Sony Music Media [FLAC|Lossless|tracks+.cue]<Downtempo, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hipkiss - Raw Love (Edit) 3:34
+02. Joe Weineck - Blue Lagoon 4:02
+03. Vox Mystica - Voxless 3:47
+04. Silent Voices - Turn Da Lights 2 Eternity (Original Mix) 4:55(   Читать дальше...   )Тип издания: CDЖанр: Downtempo, Ambient •Продолжительность: 03:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A85CDBEEB5002C0CFE95F011C67B719D367D109
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448870   (1030472) от 19.02.2021
+
+VA - Black Hole Trance Music 02-21 (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giuseppe Ottaviani - Spellbound (Extended Mix)
+02. Estuera - Umbra (Extended Mix)
+03. Dennis Sheperd x EKE - Playing With Fire (Extended Mix)
+04. Christina Novelli - Numb (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC791D2252BF86099E176D1C4F4D0942408D87BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448896   (1030473) от 19.02.2021
+
+VA - Global Trance Masters Vol.2 (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rafael Osmo - Into The Night (Original Mix)
+02. René Ablaze vs. Pluton & Alex Trinnity - Air Tones (Club Mix)
+03. Matt Skyer - Green (Rob Corbo Remix)
+04. André Visior - Moonraker (Alexander Popov & Broning Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9745F55E5364F3FD3726F7D73ADEDF9EA312D92E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448865   (1030474) от 19.02.2021
+
+AK & Dario Lessing - All You Need Is Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Lounge, UK Garage>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AK, Dario Lessing - All You Need Is Time (04:38)Жанр: Lounge, UK GarageПродолжительность: 00:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA553A3FA9623D070E791AB29814805337B1996
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448893   (1030475) от 19.02.2021
+
+VA - Global Trance Masters Vol.1 (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neo Kekkonen - Mirage (Intro Mix)
+02. Dirkie Coetzee & Corrie Theron - Engel (Original Mix)
+03. Feel-X & Robin Vane - Found Myself (A&M Remix)
+04. Chris SX - Go! (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D39C7862D00BBF2E643A59C144364A9BF48D649
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448899   (1030481) от 19.02.2021
 
 VA - The World Series Of Trance Vol.1 (2021) [MP3|320 Kbps] <Trance>
@@ -560,141 +692,6 @@ VA - Luxury Chillout Lounge (2021) [MP3|320 Kbps] <Lounge, Vocal, Chillwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F80AB503A6550621E4511079273B5D29BE476442
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447581   (1031657) от 14.02.2021
-
-VA - Magic Of Trance Vol 12 (Mixed by Vito Von Gert) (2021) [MP3|320 Kbps] <Trance, UpliftingTrance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vito Von Gert - Magic Of Trance Vol 12 (Continuous DJ Mix)
-02. Ithur - Mentor (Extended Mix)
-03. Roman Sand - Waterfalls (Original Mix)
-04. Catchfire - Falling Down (Original Mix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 02:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3DD5D7B3780A8A7D9112C1BFB8A257DD7E2F2FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447687   (1031661) от 14.02.2021
-
-Chris Wonderful - Music for Lovers, Vol. 2 (2017) Yoola, 2021 [FLAC|Lossless|WEB-DL|tracks] <Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alone with Nature (6:33)
-02. Magic Bansuri (4:16)
-03. Water Surface (7:17)
-04. Flying Above the Earth (5:41)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 01:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04ACC6834C370CC85F38DAF5638196FAA69C374A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447762   (1031684) от 14.02.2021
-
-Nicky Romero - Tomorrowland Friendship Mix (2021-02-11) [MP3|320 Kbps] <Progressive House, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicky Romero & Timmo Hendriks ft. David Shane - Into The Light
-02. Nicky Romero & Deniz Koyu ft. Alexander Tidebrink - Destiny
-03. Nicky Romero & SICK INDIVIDUALS ft. Xira - Only For You
-04. twocolors - Lovefool (Nicky Romero Remix)(   Читать дальше...   )Жанр: Progressive House, Big RoomПродолжительность: 00:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34290C64BE92BCED70BF3138F7AE5B6CDD104BAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 80964   (1031753) от 21.03.2023
-
-Haddaway - Best (1993) [FLAC|Lossless|tracks] <House, Europop, Euro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 What is love
-02 Another Day Without You
-03 Life (Everybody Needs Somebody To Love)
-04 Fly Away(   Читать дальше...   )Жанр: House, Europop, Euro HouseПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D11B23791A8F03644372EC6EC5B56052F9F0755D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 878524   (1031839) от 13.02.2021
-
-Field - Trespass (2003) Maxelect Records [FLAC|Lossless|WEB-DL]<Downtempo, IDM, Trip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Woods (05:40)
-02. April Sunday (04:47)
-03. Xile (04:43)
-04. This Place (05:38)(   Читать дальше...   )Жанр: Downtempo, IDM, Trip HopПродолжительность: 00:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCEF368AD35813510A9CD733B89D335C91827C58
 ```
 
 

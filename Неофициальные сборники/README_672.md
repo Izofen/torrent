@@ -1,3 +1,30 @@
+###  Публикация: 1455392   (1025650) от 19.03.2021
+
+VA - Soft House Lounge (2021) [MP3|320 Kbps] <Soft House, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Borneland, Falcon Punch, Line Gottsche - Night Time (6:09)
+02. Minako, Lovebirds, Larse - Delusions - Larse Mix (5:52)
+03. Matvey Emerson, Alex Hook, Gosha - Shine - Original Mix (5:44)
+04. Deep Deluxe - In Your Shadow (5:43)(   Читать дальше...   )Жанр: Soft House, LoungeПродолжительность: 06:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A01862E29E8BC8618F28779BCCCCE5C0F6B86CD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455081   (1025750) от 18.03.2021
 
 VA - Rock Music 2021 [MP3|320 Kbps] <Rock>
@@ -668,33 +695,6 @@ VA - Sexy Vocal Deep House (2021) [MP3|320 Kbps] <House, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DB5E1BF4CC0130298280A5CB0EBD0B367B055D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453384   (1026927) от 11.03.2021
-
-VA - Super Mashup Mix (2020) [MP3|320 Kbps] <Rock, Mashup>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wax Audio - Careless Rebel (George Michael + Billy Idol )
-02. Childish Gambino vs. Gorillaz - Bone Eastwood
-03. Wax Audio - Stayin' in Black (Bee Gees + AC/DC)
-04. Pulga - Adele vs. Linkin Park - Set Fire To The End(   Читать дальше...   )Жанр: Rock, MashupПродолжительность: 02:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33F568784BC41CBCC294A48C8934DAA63F66819
 ```
 
 

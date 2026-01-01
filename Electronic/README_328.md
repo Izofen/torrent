@@ -1,3 +1,84 @@
+###  Публикация: 1292185   (648739) от 28.03.2019
+
+Koan - Briar Rose Side B (2019) [MP3|320 Kbps] <Electronic, Downtempo, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Koan - Briar Rose (Radio Version) (4:17)
+02. Koan - My Personal Dark Knight (The Kiss of Dark Knight Version) (7:18)
+03. Koan - Dream in Kaiser Gardens (Radio Version) (3:51)
+04. Koan - The Star of Pytheas (7:44)(   Читать дальше...   )Жанр: Electronic, Downtempo, AmbientПродолжительность: 01:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C5F15972F4136FF09D184AC698C6A6B7861ABFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291935   (648740) от 28.03.2019
+
+Ioon Cosmic Downtempo - Brave New Breath (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Downbeat>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psilocymango (10:14)
+02. Soothe (9:05)
+03. Inemuri Extended (10:16)
+04. The Death of Capitalism (10:38)(   Читать дальше...   )Жанр: Psychill, Downtempo, DownbeatПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08AC53D2FDDC8135BAC99E5221793B849581842C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292028   (648743) от 28.03.2019
+
+VA - Prophet Collection Vol.6 by Manuel Defi (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Soulful, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J.M. Mantecon - Mama Africa (Original Mix) 3:07
+02. Mandarin Plaza - 2 23 AM (Original Mix) 5:42
+03. Yussi Wenger - Zen Prophesy (Original Mix) 4:00
+04. Sander Costanzi - Fede (Original Mix) 6:50(   Читать дальше...   )Жанр: Downtempo, ChillOut, Soulful, LoungeПродолжительность: 01:48:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70EBE0B66CBBC75CAE6B4E666DAEBD2B7D73B21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291768   (648744) от 28.03.2019
 
 Dense - Contact (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Psychill, Chillgressive, Downtempo>
@@ -612,87 +693,6 @@ VA - Ibiza Goes Deeper: A Unique Selection Of Deep House Tunes (2016) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:910E51EF39EF71CE04BA1756E38EA3A0E6B3548F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227079   (650379) от 24.05.2018
-
-VA - A State Of Trance (Mixed By Armin van Buuren) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren vs Shapov - The Last Dancer (Original Mix)
-02. Whiteout & Wilderness - Yalung (Original Mix)
-03. Tom Fall - Cyclone (Original Mix)
-04. Estiva - Bloom (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:54:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59764B7173F28FCE3C5DA1B47A809DD664D076DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227169   (650389) от 24.05.2018
-
-Sea Of Sin - Future Pulse (2018) [FLAC|Lossless|image + .cue] <ElectroPop, SynthPop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Live My Life
-02. Truth
-03. Hold On To Your Dreams
-04. Closer To Sin(   Читать дальше...   )Жанр: ElectroPop, SynthPopПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5B4C923AFF31EBEFB95AE64B588973FAE8B59DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141303   (650432) от 10.06.2017
-
-VA - 2017 Music for Massage Relaxation Chillout [MP3|320 Kbps] <Downtempo, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamans - Reach Heavens - Chillout Mix
-02. Seven24 - Behind the Sky - Chillout Mix
-03. Sad radio on Cassini - Clear Sky - Chillout Mix
-04. Georgy Om - Path - Chillout Mix(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 00:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA44DF45C3DD65009F5852B27BDD94E7515CC64D
 ```
 
 

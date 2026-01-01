@@ -1,3 +1,57 @@
+###  Публикация: 1840693   (1047473) от 07.12.2025
+
+VA - Hooked On a Feeling - 70s Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Björn Skifs, Blue Swede - Hooked On a Feeling - (02:53)
+ 02 Rod Stewart - Tonight's the Night (Gonna Be Alright) - (03:57)
+ 03 Fleetwood Mac - Dreams (2018 Remaster) - (04:17)
+ 04 Carly Simon - You're So Vain - (04:18)(   Читать дальше...   )Жанр: PopПродолжительность: 03:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1F8F9E95B7C21A8AF064A74954534E98C0F8782
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841603   (1048113) от 12.12.2025
+
+Infinite Coles - SweetFace Killah (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SweetFaceKillah [00:02:16]
+02. DMs [00:03:19]
+03. Boots (Ballroom C*NT mix) [00:03:42]
+04. Shoot [00:03:29](   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58E678354DC7B1308455BEB6BBA2AD67FA91F0D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843900   (1049694) от 22.12.2025
 
 Jessie Murph - Sex Hysteria (Deluxe) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -25,7 +79,7 @@ magnet:?xt=urn:btih:DD4E451AFC7000926F9089728D53A99697516528
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844539   (1050079) от 
+###  Публикация: 1844539   (1050079) от 27.12.2025
 
 Greater Vision - Perfect Candidate (2000) [FLAC|Lossless|tracks + .cue] <Gospel, Christian>
 

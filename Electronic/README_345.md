@@ -1,3 +1,144 @@
+###  Публикация: 507489   (683689) от 08.06.2012
+
+Alex Niggemann - Paranoid Funk (2012) [MP3|320 кб/с]<Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Wait (Extended Mix) (07:53)
+02.Street Therapy (09:37)
+03.Curious (07:21)
+04.Lovers feat. John Rydell (04:34)
+05.That Is...!? (Vinyl Cut) (07:38)
+06. Come Into My World (Vinyl Cut) (06:01)
+07.Parentless Child (Vinyl Cut) (06:32)
+08.Back 2 Basics feat. Benji (Vinyl Cut) (06:55)
+09.The Sweetest Thing feat. Daniel Solar (Vinyl Cut) (07:01)
+10.I Don't Care (Ride Mix Vinyl Cut) (06:21)(   Читать дальше...   )2012Жанр: Tech House, Deep HouseПродолжительность: 01:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A5C98D0A0A59773F88800B17E134065A131DF7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289735   (684132) от 17.03.2019
+
+VA - Arabian Nights (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Deep-house, Downtempo, Electronica>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elias Fassos & RisK (Gr) - Sunset in Ayia Napa
+02. Stanisha - Emina
+03. Nikos Kaponis - Gypsy Day
+04. Arona - Shawq(   Читать дальше...   )Жанр: Lounge, Deep-house, Downtempo, ElectronicaПродолжительность: 01:31:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:828D78666F674B3B6A016FB7D9E552823FF839EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289750   (684231) от 17.03.2019
+
+VA - I Love Hard Trance (2019) [MP3|320 Kbps] <Trance, PSY-Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Microbots — Cosmic Evolution (Scot Project Remix) 08:33
+02. Hanney Mackoll — Sexy Dance 05:17
+03. Heartworx — Circle of 5th 04:36
+04. Killer Emo — Dream About You 09:00(   Читать дальше...   )Жанр: Trance, PSY-TranceПродолжительность: 02:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2DF1D3F44B5E803A6E68C8EA5D54E8A869AF321
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404181   (684269) от 23.08.2020
+
+Midnight Danger - Chapter 2: Endless Nightmare (2020) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Darksynth, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Visions (1:49)
+02. The Eyes of Darkness (4:15)
+03. Back From the Dead (4:07)
+04. Night Escape (4:43)(   Читать дальше...   )Жанр: Retrowave, Darksynth, SynthwaveПродолжительность: 00:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F6343B130A06D868E9277E1648261A3AF1D60B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404179   (684278) от 23.08.2020
+
+VA - Discover Trance 3 (2020) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Holliday - San Antonio Bay (Original Mix) (6:39)
+02. Nexus 3 - State of Wonder (Original Mix) (8:41)
+03. Peetu S - Guide Me (Rush Edit) (6:45)
+04. Ian Betts - Under Below (Original Mix) (8:06)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F4C1BAFB1489D6A2374FFD7874B8BC9E4D8F84E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289743   (684332) от 17.03.2019
 
 VA - I Love Trance Ocean (2019) [MP3|320 Kbps] <Trance, UpliftingTrance, ProgressiveTrance>
@@ -565,138 +706,6 @@ VA - Club Session Pres. Ibiza Beach Clubbing 2012 (2012) [MP3|320 кб/с]<House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF44F666753EAE3A201E72D1DBC2EC687F271E08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505237   (686268) от 07.06.2012
-
-Ghosting Season - The Very Last Of The Saints (2012) [MP3|320 кб/с]<Deep House, Ambient, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Deep House, Ambient, ElectronicПродолжительность: 01:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A8350D325D953B52E998091A37DA51FDD1F3BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403894   (686321) от 22.08.2020
-
-Erasure - The Neon (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Now (Think I Got A Feeling)
-02. Nerves of Steel
-03. Fallen Angel
-04. No Point in Tripping(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3882F5567546F14CB01E7A86E8DCC53AD2445590
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403875   (686326) от 22.08.2020
-
-VA - Cafe del Mar 40th Anniversary (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beloved - The Sun Rising (Gentle Night) (2:46)
-02. Kinobe - Slip into Something More Comfortable (Stephen Hague 2016 Mix) (4:47)
-03. Ballistic Brothers - Portobello Café (5:48)
-04. 4hero - Morning Child (4:35)(   Читать дальше...   )Жанр: Easy Listening, ChilloutПродолжительность: 02:28:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3872CAD8044CA337CAC189F5B38BFC989910E6CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534634   (686573) от 06.03.2022
-
-Eisfabrik - Life Below Zero (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futurepop, EBM>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirror (4:19)
-02. Saving Shore (4:08)
-03. Eins mit dem Wind (4:37)
-04. Wait for a Sign (4:14)(   Читать дальше...   )Жанр: Synthpop, Futurepop, EBMПродолжительность: 01:23:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72D458C35AF8744E7783153DBCB87701C50247C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289498   (686632) от 16.03.2019
-
-VA - Sensual Nights Elegant Chillout Music for Sexy Time at Home (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stefano Profeta - Smooth fashion
-02. James Braddell - My Angel
-03. Don Taylor - Evening Swim
-04. Don Taylor - Burning Sun(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:22:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8348C570A7FF20717600D42D3D0A77AFDBF91B40
 ```
 
 

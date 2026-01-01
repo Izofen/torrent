@@ -1,3 +1,165 @@
+###  Публикация: 1114221   (833611) от 14.03.2017
+
+Steve McManus - First Kiss (2017) [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caddo Lake
+02. Loves First Kiss
+03. In my time of dying
+04. I Dream(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E30F681536066296579B436FD97B36319594313
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501784   (833749) от 11.10.2021
+
+Alex - Handle With Care (1977) LP [MP3|320 Kbps] <Pop Rock, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Listen To The Music (4:31)
+02. Funky Donkey (4:39)
+03. Only You Can Make Me Stronger (4:32)
+04. I Won't Hold You Down (3:12)(   Читать дальше...   )Жанр: Pop Rock, Funk, DiscoПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C495F6365E360E7FF61C91DFEC945248A55CB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005092   (834161) от 08.04.2016
+
+M83 - Junk (2016) [FLAC|Lossless|tracks + .cue] <Indie-Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do It, Try It (03:38)
+02. Go! (03:56)
+03. Walkway Blues (04:50)
+04. Bibi The Dog (03:54)(   Читать дальше...   )Жанр: Indie-Pop, ElectronicПродолжительность: 00:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD427C35ED402B2F7AF884A16CBEFD34D96B1699
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005091   (834263) от 08.04.2016
+
+M83 - Junk (2016) [MP3|320 кб/с] <Indie-Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do It, Try It (03:38)
+02. Go! (feat. Mai Lan) (03:56)
+03. Walkway Blues (feat. Jordan Lawlor) (04:50)
+04. Bibi the Dog (feat. Mai Lan) (03:55)(   Читать дальше...   )Жанр: Indie-Pop, ElectronicПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8405ACA5A8FFE6107D803F642933B9ED1034E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005150   (834369) от 08.04.2016
+
+Sabrina Carpenter - Eyes Wide Open (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eyes Wide Open (3:13)
+02. Can't Blame a Girl for Trying (2:49)
+03. The Middle of Starting Over (3:33)
+04. We'll Be The Stars (3:07)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A6CFA40982484828D3DEDBFF9C4F1B01DB63D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380286   (834770) от 02.05.2020
+
+VA - Best Radio Tracks, Vol. 19 (2020) [MP3|320 Kbps] <Dance, Pop, Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834770.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Леонид Руденко/АРИТМИЯ - Зачем такая любовь?
+2. Don Diablo/Элджей - UFO
+3. Slider & Magnit - Loneliness
+4. Junona Boys - Faded(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:259F940FF10BB2F34506F6DC9A5A77124DC2C15F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380214   (834804) от 02.05.2020
 
 VA - Русские народные песни. выпуск 1 (2004) [FLAC|Lossless|tracks + .cue]<Retro>
@@ -529,165 +691,6 @@ magnet:?xt=urn:btih:F50E2C6FB13F8D2B19A675E8D2504AF7E402017E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AAD53ADD511392A644292A2E39D331F8360DB58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 651813   (837262) от 03.05.2013
-
-VA - Кружатся диски - Популярные исполнители 70-х - 90-х годов [23 CD] (2013) [MP3|320 Kbps] <Retro>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ю.Антонов - У берез и сосен
-02. Е.Мартынов - Лебединая верность
-03. Маленький принц - Голос в ночи
-04. О.Анофриев - Есть только миг(   Читать дальше...   )Жанр: RetroПродолжительность: 30:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5D58F531EAA4DA05814A1DCB00810179A399413
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379650   (837385) от 30.04.2020
-
-Юрий Шатунов - Спасибо Тебе (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837385.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Спасибо ТебеЖанр: PopПродолжительность: 00:04:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A33BCF198FC1AAF7E4C1CF64ED86AE6FB5DAC645
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379821   (837459) от 30.04.2020
-
-Филипп Киркоров - Романы, Часть 2 (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837459.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Цвет настроения синий
-2. Ты
-3. Никогда
-4. За горизонты(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5247AE8A5FBF6634E4E1A72516EB07F3D3DAEE63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379823   (837557) от 30.04.2020
-
-Людмила Зыкина - Людмила Зыкина (2020) Remastered [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837557.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Что было, то было
-2. Ниточка
-3. Лирические попевки
-4. У мосточка возле броду(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:059C3AF8656ACD73B5C95FD00EC6D873CC621750
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379859   (837697) от 30.04.2020
-
-Eddy Grant - Walking On Sunshine (1978) LP [MP3|320 Kbps] <Electronic, Reggae, Funk Soul, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking On Sunshine (5:20)
-02. Living On The Frontline, The Frontline Symphony (13:19)
-03. My Love, My Love (4:32)
-04. Just Imagine I'm Loving You (6:34)(   Читать дальше...   )Жанр: Electronic, Reggae, Funk Soul, DiscoПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E9AF18DF031FDE5623DF68BF331D995BDC96228
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379682   (837699) от 30.04.2020
-
-Melophonia - Limelight Disco Symphony (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limelight Disco Symphony (11:33)
-02. The Frog And The Toad (4:01)
-03. Feeling Good (5:59)
-04. Love Is A Many Splendored Thing (3:48)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B39582E7B4DA952D6FA759EED5CAE1D89FB1123
 ```
 
 

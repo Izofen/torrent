@@ -1,3 +1,138 @@
+###  Публикация: 1460529   (1022446) от 06.04.2021
+
+Aviators - Dreams Of The Deep (2021) [MP3|320 Kbps] <Synthwave, Cinematic Rock>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wall Of Sleep [00:05:03]
+02. To The Grave [00:05:55]
+03. Black Roses [00:06:03]
+04. Dreams Of The Deep [00:08:21](   Читать дальше...   )Жанр: Synthwave, Cinematic RockПродолжительность: 01:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A300B38F8D1747849CA285EB5D0783F92735AE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411651   (1022448) от 06.04.2021
+
+REKT - 3 Albums (2020-2021) Point Source Electronic Arts [FLAC|Lossless|WEB-DL|tracks] <Experimental, IDM, Industrial>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Accipiter Nisus And Other Avifauna (Remix by Jfrank) (04:53)
+ 02. Syntax Error (Freeze Mix by Symmdrome) (04:45)
+ 03. Sparrowhawk (04:07)
+ 04. Distribution And Habitat (Edit by The Fellow Passenger) (04:07)(   Читать дальше...   )Тип издания: WebЖанр: Experimental, IDM, Industrial •Продолжительность: 01:44:28 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B6184742DBC7BB6F9EF5DD86E5C2A40A5640E9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460693   (1022462) от 06.04.2021
+
+ltfll - Deflect Trial (2021) Kaer'Uiks [FLAC 2.0|44.1/24|tracks] <IDM, Glitch, Abstract>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. two (ltfll DT1) (02:48)
+ 02. three (Fausto Mercier DTRMX1) (03:29)
+ 03. five (ltfll DT2) (03:59)
+ 04. eight (ABADIR DTRMX2) (04:41)(   Читать дальше...   )Жанр: IDM, Glitch, AbstractПродолжительность: 00:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C4DC0227C2B272FCD6056ECAE4CFAC7374FA77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460694   (1022475) от 06.04.2021
+
+ltfll - Deflect Trial (2021) Kaer'Uiks [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Abstract>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. two (ltfll DT1) (02:48)
+ 02. three (Fausto Mercier DTRMX1) (03:29)
+ 03. five (ltfll DT2) (03:59)
+ 04. eight (ABADIR DTRMX2) (04:41)(   Читать дальше...   )Жанр: IDM, Glitch, AbstractПродолжительность: 00:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C53E6AF2E54FDE7E777EB17A07B2CF9F889A1217
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375212   (1022549) от 05.04.2021
+
+Sounds From The Ground - Discography 28 Releases (1995-2021) Waveform Records, Upstream Records [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Dub, Downtempo, Trip Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gather (06:11)
+ 02. Treasure (07:20)
+ 03. Move On (feat. Taz) (06:25)
+ 04. Triangle (10:11)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, Dub, Downtempo, Trip Hop •Продолжительность: 25:48:10 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04437878360BCDC7FFFA792815F71BC190BA4BFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460448   (1022573) от 05.04.2021
 
 Savvas Kalt - Perceptions (2021) AstroPilot Music [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Progressive Trance>
@@ -555,138 +690,6 @@ edIT | エディット - Discography 7 Releases (2004-2021) Alpha Pup Records, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EAB5D8383CDB1E703D704BABA535091FE60A9B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457590   (1023795) от 29.03.2021
-
-VA - H25PITAL (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. makoto, Pete Simpson - Spread Love (05:53)
-02. Logistics - Jungle Music (DRS & Dynamite MC x Logistics Remix) (03:29)
-03. Cyantific, Diane Charlemagne - Don't Follow (Unglued Remix) (05:39)
-04. Netsky - Memory Lane (Flava D Remix) (03:51)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558F3DA928A77AD7CCBD2BD4726AFA3471EF6FCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378008   (1023820) от 29.03.2021
-
-Jeffrey van der Wielen | Fnord - Discography 8 Releases (2019-2021) Pro Audio Records [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Glitch, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UC1.01Тип издания: WebЖанр: IDM, Ambient, Glitch, Experimental •Продолжительность: 04:58:26 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3062C83059A5FD45F8B62B6E89571F978159BE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458603   (1023822) от 29.03.2021
-
-Lycoriscoris - Chiyu (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Organic House, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Senkai (5:30)
- 02. Shizumu (3:52)
- 03. Chiyu (4:56)
- 04. Omokage (5:23)(   Читать дальше...   )Жанр: Tech House, Deep House, Organic House, AmbientПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6BD2C46F3A877E449D1763E27802999C62E4B24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458639   (1023830) от 29.03.2021
-
-Surrogate - Mistress 15 (2021) Mistress Recordings [FLAC 2.0|44.1/24|tracks|WEB-DL] <Techno, Dub Techno>
-
->>Electronic
->>Trance, House, Techno (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saudade (05:34)
- 02. Alcantara (04:43)
- 03. Konsequenz (05:07)
- 04. Atlantico (05:04)(   Читать дальше...   )Жанр: Techno, Dub TechnoПродолжительность: 00:25:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D4B6F024B2712266C9D58182350A688BE4266B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458647   (1023861) от 29.03.2021
-
-Iiney - Emperor of Will (Remix Version) (2021) Liberty Rhythm [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chance (Aveorm Dub Flying Remix) (10:14)
- 02. Whiteness (Alex Zender Remix) (13:06)
- 03. Whiteness (R.Hz Remix) (10:05)
- 04. Snow (Specdub Remix) (09:08)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:10:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7716D80D7FCBB35A306273CB13BFE0802488783F
 ```
 
 

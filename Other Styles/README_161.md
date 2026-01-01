@@ -1,3 +1,198 @@
+###  Публикация: 1101863   (892929) от 08.02.2017
+
+Greg Maroney - Quiet Piano Improvisations, Vol. 2 (2017) [MP3|320 Kbps] <New Age. Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  My Everything [00:04:51]
+02 -  Melting Heart [00:05:02]
+03 -  Meditation [00:07:06]
+04 -  Daydream [00:06:37](   Читать дальше...   )Жанр: New Age. InstrumentalПродолжительность: 01:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E69C6D0BF856CB53F48CA4F29B293DDEE19BDAE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 762090   (892964) от 02.03.2014
+
+Enaid & Einalem - Celtic Nights (1996) [MP3|320 кб/с]<New age, Celtic, Nature sounds>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(5:17) 01. Hills of Myst
+(4:30) 02. Spring Faire
+(5:10) 03. Carry On
+(4:54) 04. Moon Dance
+(5:36) 05. Fields of Rain
+(4:33) 06. Prophecy
+(6:16) 07. Ancient Wisdom
+(5:14) 08. Cryof the Wind
+(5:00) 09. Celtic Nights
+(7:01) 10. Storm Across the Sea(   Читать дальше...   )Жанр: New age, Celtic, Nature soundsПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42520CC498AC40E3A89AB32BE920A5C3DEE580E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370945   (893353) от 29.03.2020
+
+VA - Super Instrumental Vol.1 (2001) Величайшие хиты XX века [FLAC|Lossless|tracks + .cue]<Instrumental, Pop>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G. Last - The Lonely Shepherd
+02. P. Mauriat - Love Is Blue
+03. F. Pourcel - A Paris
+04. P. Weekers - El Condor Pasa(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 01:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AA3881FA977DD2FB1D2AD79E0F3A54520B23BE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370935   (893406) от 29.03.2020
+
+VA - Ethnic Music The Indians' Collection (2013) [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sioux Company - Brandishing the Tomahawk
+02. Nazca - Ly-O-Lay Ale Loya (The Counterclockwise Circle Dance)
+03. Nazca; Wayra Rodriguez - Ancient Spirit
+04. Nazca; Wayra Rodriguez - Ceremony(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 04:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A36A54AB0989C9256FE9A754CE3D99DFED47652
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370936   (893415) от 29.03.2020
+
+Richard Clayderman & James Last - Together At Last (1991) [FLAC|Lossless|tracks + .cue]<Instrumental, Piano, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From A Distance
+02. ( Everything I Do ) I Do It For You
+03. Sacrifice
+04. Moonfire(   Читать дальше...   )Жанр: Instrumental, Piano, Easy ListeningПродолжительность: 00:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC58E2699462652A3241498D32FD2EC4E4E4EAC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370601   (893495) от 29.03.2020
+
+Cris Velasco & Sascha Dikiciyan - The Long Dark Soundtrack (2017) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893495.jpg" />
+</div>
+
+
+###  Подробнее
+
+2017 - SURVIVAL Mode Ambient & Exploration
+2017 - WINTERMUTE, Ambient & Exploration
+2017 - WINTERMUTE, Episode One: "Do Not Go Gentle
+2017 - WINTERMUTE, Episode Two: "Luminance FugueЖанр: SoundtrackПродолжительность: 01:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F2F6B62D08BDFC6C5DCB79A5380F80504174240
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993838   (893557) от 06.03.2016
+
+VA - Война (2002) [FLAC|Lossless|image + .cue] <Rock, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Любэ - Давай за
+02. 7Б - Молодые ветра
+03. Танцы Минус - Не меняй меня
+04. Тараканы! - Я смотрю на них(   Читать дальше...   )Жанр: Rock, SoundtrackПродолжительность: 01:17:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:053A0FF2DE26F1493B317278A9D9E73167CCD7D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993977   (893973) от 06.03.2016
 
 Stephen Rhodes - Indian Meditation (2016) [MP3|320 кб/с] <New age, Meditation>
@@ -531,195 +726,6 @@ magnet:?xt=urn:btih:BD517EC0733C1D79F889DBA5F3990655183D80F4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B9FABFA6C5ED42C021EA15E2EE58AE6F31FB787
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370048   (898533) от 26.03.2020
-
-Maurizio Filardo - Perfetti sconosciuti (Colonna sonora originale del film) (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Jazz>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maurizio Filardo - Non ci conosciamo (6:30)
-02. Maurizio Filardo - Arrivo (1:27)
-03. Maurizio Filardo - Sofia (2:07)
-04. Maurizio Filardo - Non ci conosciamo (Bianca version) (3:07)(   Читать дальше...   )Жанр: Ambient, JazzПродолжительность: 00:26:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90EE06A23E405EEFDC5CAACC0DBF1ACAFAD595C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 183008   (898667) от 14.03.2010
-
-VA - Give Ireland Back To The Irish (10 CD) (2000) [MP3|320 kbps]<Irish folk, traditional>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Irish folk, traditionalПродолжительность: 07:36:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992784   (899165) от 03.03.2016
-
-Spirit Of Africa - Sacred Verses And Tribal Chants Of Native Africa (1996) [MP3|320 кб/с] <New Age, Enigmatic, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dawn On The Plain (2:46)
-02. Song Of The Wild (Uma Uma) (5:15)
-03. Sacred Chant (Sinarah Pt. 1) (4:17)
-04. Sacred Chant (Sinarah Pt. 2) (3:21)(   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 00:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA65FACBA09C2CBC47A1450DA4C7EFB01F4D1338
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992788   (899214) от 03.03.2016
-
-Spirit Of Africa 2 - The Unforgettable Musical Journey Continues (2008) [MP3|320 кб/с] <New Age, Enigmatic, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tribal Celebration (2:48)
-02. Southern Lullaby (6:23)
-03. Call To The Dark Spirit (7:28)
-04. Traveller's Song (6:37)(   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 01:07:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:485039A198B3B42894C630CA2142D296B6A2AE6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284677   (899486) от 25.03.2020
-
-Звуки природы - Океанский прибой (1997) [FLAC|Lossless|image] <Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899486.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Океанский прибой (01:03:07)Жанр: RelaxПродолжительность: 01:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F0F1B3C0B59C7678DD024E6F1DC8CD72E55BC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100486   (899532) от 04.02.2017
-
-Klaus Back & Tini Beier - Enigma Of Faith (1995) [MP3|320 Kbps] <New Age, Enigmatic, Gregorianic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Works Of Charity (11:30)
-02. Love And Faith (9:25)
-03. Faith Is Bliss (9:03)
-04. Faith-Healing (8:49)(   Читать дальше...   )Жанр: New Age, Enigmatic, GregorianicПродолжительность: 00:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F17C56DBA6832868860B3DCDD866B4B24D7392
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637123   (899738) от 31.03.2013
-
-The Synthesizer Rock Orchestra - The Synthesizer Rock Orchestra plays The Beatles/ ABBA/ Queen/ Elton John (4CD) (1990) [MP3|320 кб/с]<Easy Listening, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-ABBAЖанр: Easy Listening, InstrumentalПродолжительность: 00:44:59
-
-1. The Long And Winding Road (3:53)
-2. All You Need Is Love (4:08)
-3. A Hard Day's Night (3:11)
-4. Hey Jude (5:47)
-5. Lady Madonna (2:20)
-6. Let It Be (3:58 )
-7. Love Me Do (2:36)
-8. Penny Lane (2:59)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:354C78FE2E39B91A5C4815019983540B109616D1
 ```
 
 

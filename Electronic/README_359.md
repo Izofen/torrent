@@ -1,3 +1,137 @@
+###  Публикация: 1219157   (715856) от 13.04.2018
+
+Simon Cummings - 間 (2018) Crónica [FLAC|Lossless|WEB-DL|tracks] <Abstract, Experimental, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. mightily forgetting all which will forget him (emptying our soul of emptiness) priming at every pore a deathless life with magic until peace outthunders silence (06:36)
+ 02. }rest{ (05:10)
+ 03. i see thee then ponder the tinsel part they let thee play (01:45)
+ 04. from Silence; of Nothing (16:00)(   Читать дальше...   )Жанр: Abstract, Experimental, AmbientПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C351D82482FEC52D01B894D74B130DE8AC90511
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219171   (715857) от 13.04.2018
+
+VA - Markus Schulz - Global DJ Broadcast: Top 20 April (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patrick White - Reason (Extended Mix)
+02. Arkham Knights - Existence (Extended Mix)
+03. Elevation - Meridian (Extended Mix)
+04. Dark Matter - Future Sight (Extended Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:22:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1690848766C9A76776ABEF20B59D540D23ADE141
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219281   (715858) от 13.04.2018
+
+Quirke - Whities 015 (2018) Whities [FLAC|Lossless|WEB-DL|tracks] <Techno, Illbient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vatied City (04:06)
+ 02. ttransport craving (03:58)
+ 03. Hydraulic Deer (05:28)Жанр: Techno, IllbientПродолжительность: 00:13:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B3B9268B72F9E25B23E22341CA1B801C5C96850
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130393   (716247) от 01.05.2017
+
+VA - Buddha-Bar - Clubbing (In Deep Session With DJ Ravin) (2017) [FLAC|Lossless|image + .cue] <House, Deep House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armen Miran - Precious Story
+02. Pochill - Francesca Road (DJ Pippi & Kenneth Bager Remix)
+03. Danny Darko - My Favourite (Ansen Remix)
+04. Calavera & Manya Feat. Maja Aleksic - Seta (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, DowntempoПродолжительность: 01:17:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC8FFBB068C9450DCB17FBC0D40FB403BB14243
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991083   (716360) от 28.02.2019
+
+CHVRCHES - 4 Альбома, 3 EP, 3 Сингла (2013-2018) [MP3|320 kbps]<Synthpop, Indietronica>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716360.jpg" />
+</div>
+
+
+###  Подробнее
+
+2013 - EP (Japanese Edition)
+2013 - The Bones Of What You Believe (EU Limited Edition)
+2015 - Tether (Eric Prydz vs. CHVRCHES, Single)
+2015 - Every Open Eye (EU Limited Deluxe Edition)(   Читать дальше...   )Жанр: Synthpop, IndietronicaПродолжительность: 05:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60FC1C408E0914952676EB0F684B51305A64F53D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130297   (716418) от 01.05.2017
 
 Frecvens - A New Day (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
@@ -554,141 +688,6 @@ Keosz - Ava (2017) [MP3|320 Kbps] <Ambient, Dark Ambient, Drone>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F50FDA4996676D1CE2F9A89ABBBC0F1AE944F882
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400212   (718874) от 05.08.2020
-
-VA - Retro Drive: The Soundtrack (2020) [MP3|320 Kbps] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fantom '87 - Select Start [02:03]
-02. Michael Oakley - Rabbit in the Headlights (Instrumental) [04:13]
-03. Highway Superstar - Formation Laps [01:48]
-04. Sunglasses Kid - Braking Distance [03:15](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA0C0F0FF86595E80D526BAC2A252B72BBB1E5B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129667   (718992) от 30.04.2017
-
-VA - Italo Dance Lignano Beach (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darius & Finlay - Can't Sleep (Club Mix) 04:24
-02. Adam Rise - Rocking To The Beat 04:29
-03. Carlos Martins - Lost Ones (Imagin8 & Erik Soto Remix) 02:48
-04. Baby Brown - Per Ty (Ldm Remix) 03:12(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DDDA52B46921A5B76B5A8FD63D94F9F4733E967
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129641   (718998) от 30.04.2017
-
-VA - Trance Maschine Vol.1 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Delta - Back In My Life (DJ Osip Radio Edit)  3:38
-02.  Wearealienss - Polar (Radio Cut)  3:08
-03.  Alizera - Fairy (Radio Edit)  3:30
-04.  Tranc Eye Presents Skull Crusher - Acidland (Radio Cut)  3:02(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3B3D1F02FBF85F4A3B0DD8D061F4D28C07B0444
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129656   (719000) от 30.04.2017
-
-VA - Urban Party Alarm 2 (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Crew 7 - Last Night A DJ Saved My Life (Coco Fay Edit)  3:17
-02.  Freaking Beats feat. Robbie G - Shining In The Lights (Radio Edit)  3:28
-03.  Edher Torres - If You Sexy (Radio Edit)  2:44
-04.  Sunloverz - Summer Of Love 2k13 (Sean Finn Edit)  3:23(   Читать дальше...   )Жанр: HouseПродолжительность: 02:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38CF31FEDF4016AD20429D2E23276960F4D591E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400199   (719009) от 05.08.2020
-
-VA - Night Abduction (2020) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neoid - Alone In The Dark [04:15]
-02. Units Beatz - Deformation of Planets [04:39]
-03. Ravenlore - Oh Yes [03:15]
-04. DJ Vantigo - Sexy Girl [04:28](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772595A57310A2AA00E90FBAFA37210BC01A0698
 ```
 
 

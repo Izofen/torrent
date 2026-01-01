@@ -1,3 +1,30 @@
+###  Публикация: 1486526   (1004596) от 01.08.2021
+
+VA - Beatport Drum And Bass: Sound Pack #324 (2021) [MP3|320 Kbps] <D&B, Bassline, Electro Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004596.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gьzi & Dreadnaught - All Units
+002. Funktion- Zwei - Time Complex
+003. Eschaton, Foci's Left - Latitudes
+004. Kela - On Head(   Читать дальше...   )Жанр: D&B, Bassline, Electro BassПродолжительность: 08:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:266356C1AB132ED2C367E30B48725EDA41DA7587
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486533   (1004599) от 01.08.2021
 
 VA - Beatport Electro House. Sound Pack #323 (2021) [MP3|320 Kbps] <House, Electro>
@@ -668,33 +695,6 @@ VA - Music Love: Romantic Sound Mix (2021) [MP3|320 Kbps] <Pop, Romantic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E47BD75A2234771E3ED647DD6AF2455A069EEBF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483101   (1007017) от 12.07.2021
-
-VA - Electro House: Late Night Party (2021) [MP3|320 Kbps] <House, Electro, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007017.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tuba Twooz - To Our Early Pioneers
-002. Bez - Nature
-003. The Golden Boys - The Class In Dallas
-004. Frank Schwarz - Waven(   Читать дальше...   )Жанр: House, Electro, Club, DanceПродолжительность: 10:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DA828DF16000DDE6387E580FAD5B844A9F8D841
 ```
 
 

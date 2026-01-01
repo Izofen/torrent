@@ -1,3 +1,138 @@
+###  Публикация: 1206243   (782543) от 13.02.2018
+
+VA - Cold Rush - Collected (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kaimo K & Cold Rush feat. Katty Heath  -  Here I Am (Original Mix)  6:43
+02.  Cold Rush & Kaimo K feat. Sarah Russell  -  Angel Fly (Original Mix)  6:46
+03.  Cold Rush & Mhammed El Alami  -  Seshego (Original Mix)  7:14
+04.  Cold Rush & Ion Blue feat. Danny Claire  -  Near You (Cold Rush Remix)  7:27(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 02:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FD4E008B5468ED056E7FF032CD0209DFFD33677
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206207   (782554) от 13.02.2018
+
+VA - Private Chilling Carnival (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pique Dame  -  Kips Bay (Original Mix)  5:47
+02.  Ripley & Jenson  -  A Few Minutes Now (Original Mix)  3:33
+03.  Performative Mode  -  In Secret (Original Mix)  5:49
+04.  Milaskan  -  Use To Be (Original Mix)  2:24(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A24E97D5D7B04A8A5C39EBC94DAE31628983A788
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206248   (782557) от 13.02.2018
+
+VA - Melodic Beats Vol.1 (2018) [MP3|320 Kbps] <House, Progressive House. Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Stan Kolev  -  Unravel Me (Rick Pier O'Neil Remix)  7:11
+02.  Ramon Bedoya  -  El Poema (Original Mix)  7:15
+03.  Anis Hachemi  -  Taurus (Original Mix)  8:55
+04.  Dani Llamas & Chris Main  -  Maresman (Original Mix)  7:07(   Читать дальше...   )Жанр: House, Progressive House. Deep HouseПродолжительность: 03:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B62B5608DAD069604B8BFED4C7F5D7716B91895A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206353   (782559) от 13.02.2018
+
+VA - Sunrise Mood Vol.11 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Twentyeight  -  Hope (Original Mix)  8:45
+02.  Marc Hartman  -  Become The Sky (Original Mix)  4:44
+03.  The Diventa Project  -  The Sun Goes Down (Original Mix)  3:34
+04.  Lazy Hammock  -  Deep Sunday Bliss (Original Mix)  4:42(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70C643EB5EBFD5966B124F58B7E5FC3410845BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206252   (782560) от 13.02.2018
+
+VA - Trance In Space 3 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sun Liquide  -  Celebrate The Light (Rene Ablaze Radio Edit)  3:57
+02.  TrancEye  -  Skylight (Radio Edit)  3:21
+03.  Opt-In  -  Zura (Radio Cut)  4:00
+04.  Maximal  -  Subject Lost (Radio Cut)  3:20(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B5EC6C21885EB8F791A354F2C11A4A6D47050E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206281   (782564) от 13.02.2018
 
 VA - Chillhouse Factory (Discover Deephouse Rhythms) (2018) [MP3|320 Kbps] <Chillhouse, Deep House>
@@ -559,141 +694,6 @@ Talamasca - The Experiment (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EC19C9026D98CDDBAB70FBB2617F9BC76BC3F6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390488   (783065) от 15.06.2020
-
-VA - Sea Cruising Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gary B - It Feels Like Summer (3:54)
-02. Eivissarts - Stoned Love (Original Mix) (5:29)
-03. Clelia Felix - Under the Moonlight (4:36)
-04. Schwarz & Funk - Dambes (Original MIx) (5:26)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C004BA1B93F6803D09E845884A2B3AD204027F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205737   (783196) от 11.02.2018
-
-Physical Dreams - Nature Sounds (2018) [MP3|320 Kbps] <Chillout, Ambient, Electronica>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Nature Sounds N1 (Original Mix)  9:01
-02.  Nature Sounds N2 (Original Mix)  8:45
-03.  Nature Sounds N3 (Original Mix)  10:08
-04.  Nature Sounds N4 (Original Mix)  9:20(   Читать дальше...   )Жанр: Chillout, Ambient, ElectronicaПродолжительность: 01:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD86C0C7DAFB092D255BC08686CBD6D6F934CD0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205836   (783197) от 11.02.2018
-
-Physical Dreams - Ancient Sounds (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ancient Sounds No1 19:58
-02. Ancient Sounds No2 20:14
-03. Ancient Sounds No3 23:12
-04. Ancient Sounds No4 13:40(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE51EFBB6E5C25BC4B9F62B2F2BDC1E3B6340BBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205842   (783207) от 11.02.2018
-
-VA - Jazz Bar Lounge (Chillout Your Mind) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - A Shade of Blue 4:00
-02. Pier-O - Dim Light 5:16
-03. Marie Therese - City Lights 4:00
-04. Svendaq - Blue Bossa 6:01(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F1A3BA4365EE54B755E8BD85489C5475D4288C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205843   (783222) от 11.02.2018
-
-VA - Clinique: The Best Of 2017 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Platunoff - Give Me (Solid Stone remix) (7:17)
-02. Dr Alfred - Kuiper Belt (original mix) (9:47)
-03. Monojoke - The Garden Of Eden (Dofamine remix) (9:32)
-04. Monojoke - La Bodega (Tim Aaron remix) (12:41)(   Читать дальше...   )Жанр: Progressive House, Tech House, Deep HouseПродолжительность: 09:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F06CAB83C94007AEAC080D5899E8641EFC98A72
 ```
 
 

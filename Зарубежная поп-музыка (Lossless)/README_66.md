@@ -1,3 +1,57 @@
+###  Публикация: 1129685   (720321) от 29.04.2017
+
+VA - 100 Hits Sunday Morning Songs (2017) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Dance, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну какой релиз публиковать субботним предпраздничным утром - конечно 100 Hits: Sunday Morning Songs. Этим сборником британский лейбл Demon Music Group продолжает серию боксетов для самых различных слушателей (ссылку на серию NNM-Club вы найдете в конце релиза). Сдесь собраны спокойные, светлые и умиротворяющие композиции со всего света. 100 мягких мелодий собраны (   Читать дальше...   )CD1:
+01. Kris Kristofferson - Sunday Morning Comin' Down  (4:33)
+02. Johny Cash - It Ain't Me Babe  (3:04)
+03. Lulu - The Man Who Sold The World  (3:51)(   Читать дальше...   )Релиз состоялся: 17 февраля 2017Жанр: Dance, Pop, RockПродолжительность: 06:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B187667912098D3F6F8FAD72AF6995110B2BC6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129834   (720338) от 29.04.2017
+
+VA - 538 Hitzone 81 (2017) 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Electronic, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boef - Habiba (3:35)
+02. Anne-Marie - Ciao Adios (3:19)
+03. Kensington - Bridges (3:38)
+04. Burak Yeter feat. Danelle Sandoval - Tuesday (3:59)(   Читать дальше...   )Жанр: Top 40, Pop, Rock, Indie, Electronic, R&B, Soul, Ballad, Hip Hop, Electronic, Dance, Dancepop, Trance, Electro, Pop Rock, Pop RapПродолжительность: 02:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C504A049E721CFEAD4ACCA3A2B7A7C1673F9B767
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129621   (720437) от 29.04.2017
 
 Dalida - 30 ans deja (2017) 2CD  [FLAC|Lossless|tracks] <Pop>
@@ -641,60 +695,6 @@ Jamelia - Superstar-The Hits (2007) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A2A586483DF2B5091A7B7D5227A6C8BCC6BEB32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284323   (728961) от 21.02.2019
-
-The Lemon Trees - Open Book (1993) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love The Sun
-02. Love Is In Your Eyes
-03. Everything I Want To Know
-04. Child Of Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E1A69E801C0E5F1ADE72BDECF20AE03736EA3A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022169   (729511) от 01.06.2016
-
-Supermax - The Magic Of Supermax (2015) [FLAC|Lossless|tracks + .cue] <Pop, Funk, Reggae>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lovemachine [08:37]
-02. Dance Dance Dance [03:43]
-03. African Blood [08:34]
-04. Hollywood [04:02](   Читать дальше...   )Жанр: Pop, Funk, ReggaeПродолжительность: 01:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6169D82607655412C1751EB6EA70A83F078762
 ```
 
 

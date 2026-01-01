@@ -1,3 +1,192 @@
+###  Публикация: 1210501   (778728) от 03.03.2018
+
+Hennie Bekker - Temba (1995) Holborne [MP3|320 Kbps] <New Age, Tribal, African>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. The Heart Of Africa 6:00
+02. Mystical Mother 5:11
+03. Kango Echoes 6:15
+04. Earthchild 5:35(   Читать дальше...   )Жанр: New Age, Tribal, AfricanПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B198E03C633F1CBF250FE4A0E8A8E69DCF41D50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210093   (778855) от 02.03.2018
+
+Lyn Avenue - Never Been to Nashville (2018) EP [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Never Been To Nashville (4:13)
+02 - Kentucky Bourbon (2:49)
+03 - Everyday Guardian Angel (4:32)
+04 - Whatever It Takes (To Bring Me Back To You) (3:38)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:23:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5D8C544E6E498959E91F4AC4B14DB1D0BE879A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209860   (778944) от 01.03.2018
+
+Ludwig Goransson - Чёрная пантера / Black Panther (Original Motion Picture Soundtrack) (2018) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wakanda Origins (01:44)
+02. Royal Talon Fighter (04:01)
+03. Wakanda (02:20)
+04. Warrior Falls (04:07)(   Читать дальше...   )Жанр: Soundtrack, scoreПродолжительность: 01:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E00662D5BDE3C9EA40A26C213C7EA797B3C911F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210044   (778987) от 01.03.2018
+
+David Arkenstone - Parisian Lounge (2018) [MP3|320 Kbps] <New Age, Chillout, Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Garden Of Eve (4:27)
+02. Last Tango In Paris (4:09)
+03. Fashion Week (4:33)
+04. Gnossiennes No. 1 (4:31)(   Читать дальше...   )Жанр: New Age, Chillout, LoungeПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1026EB0D724F4182BD38441EB71626DC1071FC98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209648   (779089) от 28.02.2018
+
+Ludwig Goransson - Black Panther / Чёрная пантера (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wakanda Origins (01:44)
+02. Royal Talon Fighter (04:01)
+03. Wakanda (02:20)
+04. Warrior Falls (04:07)(   Читать дальше...   )Жанр: Soundtrack, scoreПродолжительность: 01:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B386E49946407D2CAC2A9FD5CE600852152D165B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209214   (779125) от 28.02.2018
+
+Hitoshi Sakimoto, Masaharu Iwata, Mitsuhiro Kaneda - Odin Sphere Original Soundtrack (2007) [FLAC|Lossless|tracks + .cue] <Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. ODIN SPHERE's Theme [1:48]
+02. Opening Title [0:55]
+03. Attic Archive [3:15](   Читать дальше...   )Жанр: ScoreПродолжительность: 02:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2502ACAA8F3CE9D767C4A1681C3A3B7B34CDAB3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209910   (779128) от 28.02.2018
+
+Midori - The Healer (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779128.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Those Loving Hands (10:29)
+2. The Orbs (10:11)
+3. Light and Warmth (11:50)
+4. Gentle was the Moment (6:47)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B07D438DBA32E548A2E46D8AFF2A7476428048
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209189   (779259) от 27.02.2018
 
 Acoustic Garden - Concept Emotional (2018) [MP3|320 Kbps] <Country, Folk, Blues>
@@ -503,192 +692,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AC78F44E49625760960178C7CAB8559E7F3B3BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390760   (782253) от 17.06.2020
-
-Robert Wyatt - EPs (1974-1978) 1999 Box Set 5 CD, Compilation [FLAC|Lossless|tracks + .cue] <Jazz, Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роберт Уайатт (англ. Robert Wyatt; 28 января 1945, Бристоль) — британский музыкант, один из создателей влиятельной в прогрессивном роке группы Soft Machine. Женат на английской художнице и авторе песен Альфреде Бенж.01. Was a Friend (5:48)
-02. Maryan (6:46)
-03. A Sunday In Madrid (6:58)
-04. Free Will and Testament (4:33)Жанр: Jazz, Folk, World, & CountryПродолжительность: 00:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43DE6C0F10792791C640F8A64A7A8C0D4998697
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390696   (782673) от 16.06.2020
-
-Johnny Cash - Johnny Cash At San Quentin (1969) [FLAC|Lossless|tracks + .cue] <Rock,  Country Rock, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big River (1:56)
-02. I Still Miss Someone (1:52)
-03. Wreck Of The Old 97 (2:05)
-04. I Walk The Line (3:29)(   Читать дальше...   )Жанр: Rock,  Country Rock, FolkПродолжительность: 00:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9815A224C485AC5C83D7A49C5EC20D032BFE561
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390331   (782686) от 16.06.2020
-
-John Martyn - One World (1977) CD album, Reissue 1990 [FLAC|Lossless|tracks + .cue] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dealer (4:59)
-02. One World (4:10)
-03. Smiling Stranger (3:30)
-04. Big Muff (6:30)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C401800900FA31FDAE4E9733BED257631DD7DB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390677   (782694) от 16.06.2020
-
-The Byrds - Sweetheart Of The Rodeo (1968) Remastered 1997 [FLAC|Lossless|tracks + .cue] <Folk Rock, Country Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Ain't Going Nowhere (2:36)
-02. I Am A Pilgrim (3:41)
-03. The Christian Life (2:32)
-04. You Don't Miss Your Water (3:50)(   Читать дальше...   )Жанр: Folk Rock, Country RockПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5081507E256D1E395FDAF010760C23A627AD664F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205803   (782852) от 12.02.2018
-
-Armik - Discography (32CD) (1994/2018) [MP3|320 Kbps] <Nuevo Flamenco, Spanish Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Nuevo Flamenco, Spanish GuitarПродолжительность: 03:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB6714181B2F524AD5DA0CE9B42B1E5A11728630
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390368   (782990) от 15.06.2020
-
-Giorgio Costantini - Universound (432 Hz) (2012) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age, Modern Classical, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alba Mundi: The Sound of the Planets (432 Hz version) (3:07)
- 02. Life (432 Hz version) (2:46)
- 03. Stardust - (432 Hz version) (3:18)
- 04. Perdutamente (432 Hz version) (3:48)(   Читать дальше...   )Жанр: Electronic, New Age, Modern Classical, PianoПродолжительность: 00:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96EE87121340583ACD1DC4F37FD22243E75789CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205788   (783204) от 11.02.2018
-
-Valefim Planet - Oscillation (2018) [MP3|320 Kbps] <Chillout, Enigmatic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783204.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Amen
-2.Christe
-3.Oscillation
-4.Come With Me(   Читать дальше...   )Жанр: Chillout, Enigmatic, New AgeПродолжительность: 00:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E9EB6F2EFD482C6F41DE3A3375EF6C8B4560D7E
 ```
 
 

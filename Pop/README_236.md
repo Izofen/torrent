@@ -1,3 +1,54 @@
+###  Публикация: 1031946   (649333) от 05.07.2016
+
+Odyssey - Love Train (1994) [FLAC|Lossless|tracks] <Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Theme from Odyssey Part 1    03:24
+02.  Riding On A Train    04:06
+03.  Into The Light    04:20
+04.  Let Yourself Go!    03:22(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34B6BA15307CE6A8486B25A67DC070755E4D365
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031844   (649339) от 05.07.2016
+
+Игорь Николаев - Лучшие песни. Новая коллекция (2006) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. НезнакомкаЖанр: PopПродолжительность: 01:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30EF6467CC90379B4531C82DB2A315223397C9C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031879   (649348) от 05.07.2016
 
 Моя Мишель - Ты мне нравишься (2013) [FLAC|Lossless|image + .cue] <Pop-Rock>
@@ -404,6 +455,33 @@ magnet:?xt=urn:btih:FE7B85B3F1AA5445D09148C0A53BDB141510B41C
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 678670   (651607) от 12.07.2013
+
+Анжелика Варум - Сумасшедшая (2013) [FLAC|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_651607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сумасшедшая  [04:30]
+ 02. Настоящий ты [04:46]
+ 03. Я всегда с тобой [04:41]
+ 04. Нарисуй любовь [04:35](   Читать дальше...   )Жанр: PopПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905145   (651743) от 05.06.2015
 
 Will Young - 85% Proof (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
@@ -426,6 +504,30 @@ Will Young - 85% Proof (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8CBEF1F52BBEF98B57A4884D397EC2E864B96E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 678580   (651750) от 12.07.2013
+
+Dido - 3 альбома (2001-2005) [FLAC|Lossless]<Pop, Vocal, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_651750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Vocal, BalladФормат: track + cueПродолжительность: 00:58:48
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -588,120 +690,6 @@ magnet:?xt=urn:btih:F56A36C560C4D26A29D897485DB78739A1C17EEA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78281350DC01E1033E60F3E728B63DC83A7A6183
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904839   (652868) от 04.06.2015
-
-Скрябін (Скрябин) - Дякую люди (Останній запис) (2015) Live [MP3|320 кб/с]<Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пусти мене
-02. Train
-03. Модна країна
-04. Цукор(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 02:23:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41AF6D200DF1E3B71ED0D92EAA0CE2A39E7D209B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904412   (652872) от 04.06.2015
-
-Disco Giants - Volume 1-10 (2013) 20CD Box Set [FLAC|image+.cue]<Disco, Soul, Funk, Synth-Pop, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Overboard • Gladys Knight And The Pips 05:59
-02. Back & Forth • Cameo 06:25
-03. I Didn't Mean To Turn You On • Cherrelle 06:23
-04. Guilty • Yarbrough & Peoples 06:03(   Читать дальше...   )Жанр: Disco, Soul, Funk, Synth-Pop, ElectronicПродолжительность: 20:31:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32CF311A71B53D9C49FB8BA6B40CC4E8247C8A55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516329   (653117) от 28.06.2012
-
-Serebro - Mama Lover (2012) [MP3|320 кб/с]<Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paradise
-02. Like Mary Warner
-03. Song #1
-04. Angel Kiss
-05. Mama Lover
-06. Why?
-07. Gun
-08. Bastard
-09. Never Be Good
-10. Sexing You(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C779BF45E10CFCC1CCFBA69F0505D0429337E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226734   (653696) от 22.05.2018
-
-Вадим Казаченко - Глаза в глаза (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653696.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Глаза в глаза
-2. На волоске
-3. А мне не больно
-4. Не дай мне уйти(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AADC357476F733B3336AEAB8951358DDD957AD3
 ```
 
 

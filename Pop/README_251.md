@@ -1,3 +1,165 @@
+###  Публикация: 1402273   (701571) от 14.08.2020
+
+VA - From Russia With Italo Disco (2015) 10CD, Full Set Limited Edition [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco, Hi-NRG, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic System D.J. - I Wanna Touch Your Body Now (Extended Version) (6:44)
+02. Siberian Heat - Flute Cries (Maxi Version) (8:11)
+03. Dyva - Harsh Wind (Duro Mix) (7:01)
+04. Squash Gang - When I Close My Eyes (6:16)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Hi-NRG, SynthpopПродолжительность: 12:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17B878E52B2F937F472BE8995BBC0BCBFA24F843
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402460   (701585) от 14.08.2020
+
+VA - Euromania Vol. 1 (2001) Compilation [FLAC|Lossless|image + .cue] <Euro-Disco, Italo-Disco, Europop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Talking - Brother Louie (Remix) (6:59)
+02. Fancy - Gimme A Sign (3:32)
+03. Scotch - Disco Band (6:34)
+04. C.C. Catch - Heaven And Hell (6:28)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, EuropopПродолжительность: 01:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B79A1951678DDC5BDBFA01F188D11439247A84EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287761   (701637) от 08.03.2019
+
+Jackie Carter - 2 Albums LP (1976, 1979) ex. Silver Convention [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее имя Жаклин Неморин (Jacqueline Nemorin). Полная информация ниже.01. Treat Me Like A Woman (3:37)
+02. Ev'rytime It Rains (3:54)
+03. Just Like Lightning (2:54)
+04. Disco Star (3:29)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFD0E47C5E425B7284EF93552E7BBE78AA949997
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287686   (701639) от 08.03.2019
+
+Cyndi Lauper - Time After Time (The Cyndi Lauper Collection) (2009) [FLAC|Lossless|tracks + .cue] <Pop Rock, Post-Punk, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girls Just Want To Have Fun (3:57)
+ 02. Time After Time (4:01)
+ 03. True Colors (3:47)
+ 04. I Drove All Night (4:13)(   Читать дальше...   )Жанр: Pop Rock, Post-Punk, FolkПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:357ED8B4C5A90B5AAAA921C1D45E779B6EAA0E35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402491   (701722) от 14.08.2020
+
+GASHI - 1984 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Retrowave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1984 (1:14)
+ 02. Don't Kill Me (2:59)
+ 03. Lies (4:09)
+ 04. Mama (ft. Sting) (3:17)(   Читать дальше...   )Жанр: Pop, RetrowaveПродолжительность: 00:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD4152E0C04EEB19134D5C87D22FA3245535BF74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026646   (701723) от 16.06.2016
+
+Евгений Осин - Разлука (2016) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белая метель
+02. Любимая
+03. На тропинке
+04. Рыбацкая песня(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6DF6A3F148F324085FFC19254581EC1F5F8571
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401692   (701724) от 14.08.2020
 
 VA - Romantic Pop Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -531,168 +693,6 @@ Star Wars And Other Space Themes (1977):
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9618D69AE05D38B3B22C2FB276F5CA13C49C507F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220522   (704506) от 19.04.2018
-
-Pavel Panchenko - To the Stars (2017) [MP3|320 Kbps] <Disco, Hi-NRG, Nu Disco, Spacesynth>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To the Stars (3:31)
-02. Respite (3:40)
-03. The Sign (3:53)
-04. Project X (3:13)(   Читать дальше...   )Жанр: Disco, Hi-NRG, Nu Disco, SpacesynthПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F04757F56DA8A36AAE47903BAA2E1D9059920B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533379   (704854) от 24.02.2022
-
-VA - Greatest Classic Hits (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Police - Message In A Bottle (Remastered 2003) (4:50)
-02. The Who - Baba O'Riley (4:59)
-03. Sting - Englishman In New York (4:27)
-04. The Troggs - Wild Thing (2:35)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3FAE6FA0F7A5A81FDA5642070194DF81FD28CAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131998   (704938) от 07.05.2017
-
-Estimado - Here I Am (2016) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here I Am (Album Version) (6:04)
-02. Feelings For You (Extended Version) (7:43)
-03. Diamond Of Rain (Rain Of Love-Part Two) (Extended Version) (8:14)
-04. Yes You One (Extended Version) (8:32)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:15:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:733B153F4913B7D987912F7FF6E6EBF9134E5DA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287180   (705207) от 06.03.2019
-
-VA - Love 101 - 101 Ways To Say I Love You (2009) Box Set, 6 CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Folk, World>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Belinda Carlisle - I Get Weak
-02.	Chaka Khan - Through The Fire
-03.	George Michael - Jesus To A Child
-04.	The Pretenders - I'll Stand By You(   Читать дальше...   )Жанр: Pop, Folk, WorldПродолжительность: 06:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A647B9A271E3F28E545CF403B5E04F8BC6D5241
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132016   (705228) от 07.05.2017
-
-The Raes - Dancing Up A Storm (1979) LP [MP3|320 Kbps] <Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Little Lovin' (Keeps The Doctor Away) (7:08)
-02. I Only Want To Get Up And Dance (7:25)
-03. Gonna Burn My Boogie Shoes (2:57)
-04. Honest I Do (3:28)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F4FE1373EBB49DB8A10C8AB07A372EC385B3EA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131967   (705230) от 07.05.2017
-
-Daniel Grau - El Leon Bailarin (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Leon Bailarin (4:41)
-02. Con El Cielo En Tus Ojos (3:32)
-03. Apartate (6:40)
-04. Corre Caminos (4:32)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:282A1C0F078C797753DD8999B861BC554FD27D13
 ```
 
 

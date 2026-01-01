@@ -1,3 +1,165 @@
+###  Публикация: 1031378   (668499) от 03.07.2016
+
+VA - Radio Italia - Summer Hits (2016) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zucchero - Partigiano reggiano (3:00)
+02. Alessandra Amoroso - Vivere a colori (4:20)
+03. Vasco Rossi - Il blues della chitarra sola (3:07)
+04. Tiromancino - Piccoli miracoli (3:31)(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81BA1D1A178A5486C039544D84BDA73AE9587705
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031388   (668514) от 03.07.2016
+
+VA - Disco Tape Vol 2 (2016) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change - Change of Heart (U.S. 12 Long Version) (7:23)
+02. Video - Somebody (Hey Girl) (Vocal Version) (6:15)
+03. Time - Can't You Feel It (Vocal Version) (5:36)
+04. Peter Jacques Band - Drives Me Crazy (Original 12 Inch Mix) (6:32)(   Читать дальше...   )Производство: RLT RecordsЖанр: DiscoПродолжительность: 02:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20EBF297F53A594BDA430FE1E941B25BF295E536
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031327   (668519) от 03.07.2016
+
+Stacey Q - Better Than Heaven (1986) [FLAC|Lossless|image + .cue] <Pop, Synth-pop, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Of Hearts (07:14)
+02. We Connect (04:15)
+03. Insecurity (03:30)
+04. Better Than Heaven (03:31)(   Читать дальше...   )Жанр: Pop, Synth-pop, Hi-NRGПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B81ED3CBB1F0562AB3B47453B7C363480E229018
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031253   (668590) от 03.07.2016
+
+Book Of Love - MMXVI-The 30th Anniversary Collection (Remastered) (2016) [FLAC|Lossless|tracks] <Synth-Pop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boy (2016 Remastered)
+02. Book Of Love (2016 Remastered)
+03. I Touch Roses (2016 Remastered)
+04. You Make Me Feel So Good (2016 Remastered)(   Читать дальше...   )Жанр: Synth-Pop, PopПродолжительность: 01:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61239B44B885642A356364F89719EDF6B11EFFC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031265   (668599) от 03.07.2016
+
+The Pointer Sisters - Best Of The Pointer Sisters (1998) [APE|Lossless|image + .cue] <Pop, R'n'B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm So Excited
+02. Jump (For My Love)
+03. Automatic
+04. Neutron Dance(   Читать дальше...   )Жанр: Pop, R'n'B, SoulПродолжительность: 01:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5778584DE032F97E2C7F563DE7420AF2480EA7B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030988   (668650) от 03.07.2016
+
+Delta Goodrem - Wings Of The Wild (2016) Sony Music Entertainment [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feline [00:04:15]
+ 02. Wings [00:03:25]
+ 03. Dear Life [00:03:09]
+ 04. Just Call [00:04:01](   Читать дальше...   )Жанр: PopПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0864259794C98AC40F51B9012135D0C4D831510C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291572   (668671) от 25.03.2019
 
 VA - 100 Greatest Motivation Songs (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -533,168 +695,6 @@ Sugar - 2 Albums (1981, 1982) [MP3|320 Kbps] <Pop, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24E64AEA968239C28C6EFF6F00295BED21E52CAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291139   (670487) от 24.03.2019
-
-VA - Главные песни о старом (1998) [FLAC|Lossless|image + .cue]<Рор>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сладкая ягода ( Балаган Лимитед )
-02. Позвони мне ( Мурашки по телу )
-03. Комарово ( Призедент и Амазонка )
-04. В землянке ( Шиншиллы )(   Читать дальше...   )Жанр: РорПродолжительность: 01:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC55E0BA45BB428B5562CABA2266CE7EF9DFF282
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291351   (670489) от 24.03.2019
-
-VA - 60s Jukebox: The Ultimate Collection (2018) 5CD [FLAC|Lossless|tracks + .cue] <Pop, Soft Rock, Rock'n'Roll>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Troggs – Wild Thing
-02. The Spencer Davis Group – Keep On Running
-03. The Beach Boys – Good Vibrations
-04. The Mamas & the Papas – California Dreamin’(   Читать дальше...   )Жанр: Pop, Soft Rock, Rock'n'RollПродолжительность: 04:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B787A7319DE3798495D2E6E31CDC5FE3F02688F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291136   (670494) от 24.03.2019
-
-VA - Старые песни о главном 2 (1996) [FLAC|Lossless|image + .cue]<Рор>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Как провожают пароходы ( В. Сюткин )
-02. Стоят девчонки ( Л. Долина )
-03. Белый свет ( И. Аллегрова )
-04. Ямайка ( В. Меладзе )(   Читать дальше...   )Жанр: РорПродолжительность: 01:17:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3E39AA4D382B763CF505299AC31F1F060A9160
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291465   (670497) от 24.03.2019
-
-VA - 100 Greatest Acoustic Songs (2019) [MP3|320 Kbps] <Pop, Pop-Rock, Acoustic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670497.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Joni Mitchell - Big Yellow Taxi 2:15
-002. Jess Glynne - My Love (Acoustic) 3:03
-003. Coldplay feat. Seeb - The Scientist 5:10
-004. Dua Lipa - Be The One (Acoustic) 3:13(   Читать дальше...   )Жанр: Pop, Pop-Rock, AcousticПродолжительность: 06:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48F89CBF7B0F41297DB8E874A9BAF783559C82E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291485   (670565) от 24.03.2019
-
-Mia Martini - Io Sono La Mia Musica (2019) 4CD [FLAC|Lossless|tracks + .cue] <Pop, Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Padre Davvero...
-02. Lacrime Di Marzo
-03. Piccolo Uomo
-04. Donna Sola(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 04:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF8D416F88D22C93B3673E7C3A2DFD74B517D66C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291312   (670574) от 24.03.2019
-
-Le Angeli - The Singles Collection (1976-1982) [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bello, Bello, Bello (3:28)
-02. Un Giocattolo...Mai (3:49)
-03. C'est Si Bon (2:56)
-04. Let's Stay Together (3:52)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C01B77EE797573635701B4017020FB7BC8E887
 ```
 
 

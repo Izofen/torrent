@@ -1,3 +1,138 @@
+###  Публикация: 995199   (886151) от 10.03.2016
+
+Physical Dreams - Cosmos (2016) [MP3|320 кб/с] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Defcon 5
+02. Calima
+03. Nothing Is Forever
+04. Solar Stone(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A8C491FAEBE6D640B7D4B32F301D625F412F5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995225   (886154) от 10.03.2016
+
+Easily Embarrassed - EE4 (A/B/C) (2016) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Ambient, Dub,  Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. And to Start With (06:30)
+ 02. Find Her (04:02)
+ 03. The Organization (06:05)
+ 04. Lazy Mushroom (05:38)(   Читать дальше...   )Жанр: Psychill, Ambient, Dub,  Downtempo |Продолжительность: 00:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66836357B70F527CD18186A98E8B7F4DF4C778A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 232107   (886950) от 08.09.2021
+
+Stendeck - Discography 9 Releases (2002-2021) Geska Records, Tympanik Audio, Hymen Records [FLAC|Lossless|tracks+.cue, tracks]<IDM, Industrial, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somewhere Nobody Knows (05:57)
+ 02. Red Neon (Radio Edit) (03:48)
+ 03. Somewhere Nobody Knows (Synapscape Remix) (05:00)
+ 04. Red Neon (Sonic Area Remix) (04:47)(   Читать дальше...   )Тип издания: CDЖанр: IDM, Downtempo, Industrial, Ambient, Modern Classical •Продолжительность: 08:44:54 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C34EDE251C2E4D5A0EA65E7919BE6200A46780E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366828   (887192) от 08.09.2021
+
+VA - Lovely Mood Music presents: Chillaxing Time Series - 10 Releases (2013-2021) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887192.jpg" />
+</div>
+
+
+###  Подробнее
+
+2013 - Chillaxing Time (Finest Lounge Music)
+2019 - Chillaxing Time • Volume 2
+2020 - Chillaxing Time • Volume 3
+2020 - Chillaxing Time • Volume 4(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, Nu JazzПродолжительность: 13:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADAE6FD162FB067B86E73886842A2A646BE2422
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103030   (887336) от 11.02.2017
+
+VA - The Best Of 2016 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medway - Trauma (Donatello remix) [06:41]
+02. Imran Khan - Buenos Aires (original mix) [08:42]
+03. DP-6 - Reload (Rick Pier O'Neil remix) [06:35]
+04. Alfonso Muchacho - Until The End (original mix) [09:34](   Читать дальше...   )Жанр: Progressive House, Deep House, TechnoПродолжительность: 07:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19783AF607372BE7869BC5AEBE806C25F67F8184
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103188   (887575) от 11.02.2017
 
 Anugama - Shamanic Dream II (2000) [FLAC|Lossless|tracks + .cue] <New Age,Meditation,Relax>
@@ -556,141 +691,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:274E15DF66F2A8D0BC7EBA240918BAC9CBBD0E6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102899   (889319) от 10.02.2017
-
-Blank & Jones - #WhatWeDoAtNight (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. #WhatWeDoAtNight (9:19)
- 02. Nighttime (7:10)
- 03. COH (6:49)
- 04. Seven Souls (7:33)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D412E5DE99993041D41BC42C1B77D477B25F89BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102969   (889453) от 10.02.2017
-
-VA - Asana Yoga Session Vol.1 Music for Body and Mind (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kolby Wade - Mountain Taupe
-02. Five Seasons - One More Night
-03. Florito - Feel So Good
-04. Soap Bubbles - Cold Sun - Extended Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C03C0E27A0C100798D3A47F4EC40B577A07866E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102596   (889455) от 10.02.2017
-
-VA - Indie & Nu Disco 2017  [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Kristina Mailana - Forget Me Not  04:20
-02. Echo Boy - Get Do It  04:58
-03. Crystal Shakers - Stand Alone  04:49
-04. StepWalker - Days Go By  04:42(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:08:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED23634BD67320097471D17CE8CA4891819D009
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102711   (889472) от 10.02.2017
-
-VA - Enormous Deep (Sexy Deep House Tunes), Vol. 2 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tafubar - Thagroover (Lemongrass Funky Housenite Mix) 03:54
-02. Eva Pacifico - Caliente (Panda Sashimi Paradise Remix) 09:22
-03. Dub Mars - What's Sakin Bacon 05:32
-04. Clownfish - Loto 05:22(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:55:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C46B2CA8D08163F1D78AD973235DF16D8FECD694
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994586   (889514) от 08.03.2016
-
-The Qemists - Warrior Sound (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic Rock, Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our World
-02. Jungle (feat. Hacktivist)
-03. Run You
-04. Anger (feat. Kenta Koie of Crossfaith)(   Читать дальше...   )Жанр: Electronic Rock, Drum & BassПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62BB68B4A3468CBB6DD33C727AE9DF9B99B43E18
 ```
 
 

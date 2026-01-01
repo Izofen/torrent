@@ -1,3 +1,30 @@
+###  Публикация: 1095116   (926194) от 20.01.2017
+
+Point Blank - Point Blank (1976) Reissue, 2006, Wounded Bird Records [MP3|320 Kbps] <Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_926194.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Free Man
+2. Moving
+3. Wandering
+4. Bad Bees(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:32:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F54D4C810C781168F3D52191B8C77F9AB044AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489249   (927069) от 15.08.2021
 
 The Killers - Pressure Machine (2021) [MP3|320 Kbps] <Rock, Indie Rock>
@@ -679,33 +706,6 @@ David Bowie - No Plan (2017) EP [MP3|320 Kbps] <Art Rock, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46581492ACC497B293A3321AF55D371295C83129
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090772   (945977) от 07.01.2017
-
-Gov't Mule - 2016-12-31 The Beacon Theatre, New York, NY (2017) 3CD Live [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucky Man
-02. Hallelujah
-03. Bird On A Wire
-04. Angel Band(   Читать дальше...   )Жанр: RockПродолжительность: 03:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A4BBC11AE6468450E068F7E37DEE8AED6E20892
 ```
 
 

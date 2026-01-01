@@ -1,3 +1,138 @@
+###  Публикация: 1616627   (1036162) от 03.03.2023
+
+Osovets - Alive at Industrial Christmas (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, NDH, NRH>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эпилог (Live) [00:05:08]
+02. Табула Раса (Live) [00:04:08]
+03. Мощь (Live) [00:03:46]
+04. Дочь полнолуния (Live) [00:04:00](   Читать дальше...   )Жанр: Industrial Metal, NDH, NRHПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030B8375ED52719E84A4FB2E7D1638AA3EF5A1F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442846   (1036307) от 26.01.2021
+
+V.A. - Coffee Bar Lounge, Vol. 23 (2021) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirage Of Deep & Julia Vañó - Sun Sahdu (Original Mix)
+02. Lazy Hammock - Words Just Flow (Original Mix)
+03. Collioure - Sunrise, Sunset & Moonlight (Original Mix)
+04. Marc Hartman & Airily - Endless Summer (Shining Sun)(   Читать дальше...   )Жанр: Easy Listening, Lounge, DowntempoПродолжительность: 01:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C81BC194E93A9B8EB0A76659ACC5FCE410EDF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442711   (1036309) от 26.01.2021
+
+VA - Synthwave Dreams, Vol. 9 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PVLSX & Bronster Bridge feat. DJ Macron - Don't Stop And Dance (3:21)
+02. Aurolab - Yalta Nights (4:52)
+03. TELEGIMNASTIKA - Soyuz (3:39)
+04. Illuminum & Trudzer - Broken Memories (4:10)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5875E66D4718F325F7822D695DDA85CAF3152F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442713   (1036317) от 26.01.2021
+
+VA - Trance Vision (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindsoundscapes - Grasping Life (Radio Cut)
+02. Dreamy - Scar (Radio Cut)
+03. George Harrold - Ayuhuasca (Radio Cut)
+04. Artra & Holland - Mountains (Radio Edition)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28FEF86C7629C085B6AD43A055E0224BE9B365F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442689   (1036330) от 26.01.2021
+
+Various Artists - Hospitality House Party (2020) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hospital Records Compilation - We Had A Song (04:53)
+02. Flava D - Mesmerise (Bop x Subwave Remix) (04:57)
+03. S.P.Y - Come Back To Me (05:00)
+04. Urbandawn - Carnival Blues (04:42)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:24:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C098531DEF6269A666898C6689487E03D745EC06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442709   (1036331) от 26.01.2021
 
 VA - Synthwave Dreams, Vol. 7 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
@@ -557,138 +692,6 @@ Technimatic, A Little Sound - Lakota (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55DB71AC806273293E3AF46164107B11EAD22676
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442370   (1036633) от 25.01.2021
-
-Various Artists - Fast Soul Music 2 (2018) [FLAC|Lossless|tracks + .cue] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Drum & BassПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9645F2D9182AD33E350D17FF0B2A77703DC14270
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442371   (1036658) от 25.01.2021
-
-Various Artists - Chai (High Tea Music Presents) (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tapolsky, Vovking - Medicine (04:27)
-02. Stereotype - Somewhere (03:47)
-03. Fliwo - Gold (04:54)
-04. Dustkey - Always Do (05:07)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9399526FD0C7F3683CEC90980F90A5CC8CDE8AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442367   (1036660) от 25.01.2021
-
-Various Artists - High Tea Music: Vol. 6 (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indivision, Northern Zone - Immaculate (04:51)
-02. Tapolsky & VovKING - Still (04:00)
-03. Aperio, Kasger - Night Flight (04:32)
-04. Arch Origin - Future Life (03:45)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C501174D5DA3B29426715D7723890A0C52E2A2F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442366   (1036663) от 25.01.2021
-
-Various Artists - Caffeine Rush 2 (High Tea Music Presents) (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mountain - House (Dossa & Locuzzed Remix) (03:33)
-02. Rex Hooligan, Pillerin - Anywhere (04:20)
-03. Blooom - Reality (03:19)
-04. L.A.O.S. - I'm Alive (BLVCK CROWZ Remix) (05:32)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE2755B266325EA2DB10096673A2CE7827B817A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442653   (1036667) от 25.01.2021
-
-Gacha Bakradze - Western Arrogance (2020) Die Orakel [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Breaks, Acid, Techno>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Constant (06:29)
- 02. Big Cabin (05:30)
- 03. Western Arrogance (07:01)
- 04. Inside (14:04)Жанр: Electro, IDM, Breaks, Acid, TechnoПродолжительность: 00:33:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD68CBBCD51CD29352850BF12B95B9E80B57E037
 ```
 
 

@@ -1,3 +1,27 @@
+###  Публикация: 1029544   (678608) от 28.06.2016
+
+VA - Ultimate Workout Dance Player (2016) [MP3|256 кб/с] <Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678608.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Laidback Luke - Bae (Feat. Gina Turner)Жанр: Club, HouseПродолжительность: 08:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE0350C95819B587262A46C0C23D5D08E3E59148
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029816   (678611) от 28.06.2016
 
 VA - Global Sound Life Eclipse (2016) [MP3|320 Kbps] <House, Electro House, Future House>
@@ -683,30 +707,6 @@ VA - World Of Relax (2012) [MP3|320 кб/с]<Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F205921FE8E032D99174A9B1F67A8B431621E97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508696   (679688) от 10.06.2012
-
-VA - Sexy Music Compilation *Selected by Carlo Cavalli* (2012) [MP3|320 кб/с]<House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_679688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tease Me (feat. Mo-Man)Жанр: House, Deep HouseПродолжительность: 01:35:28
-
-## Скачать торент
-```bash
-нет
 ```
 
 

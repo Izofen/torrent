@@ -1,3 +1,30 @@
+###  Публикация: 1015495   (775080) от 10.05.2016
+
+VA - Luxury Chill House (2016) [MP3|320 кб/с] <Chillout, Downtempo, Chillhouse>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Kohlstedt - Ell (Christian Loffler Rework)
+02. Kiasmos - Looped
+03. Weus - For The Night
+04. Rodg - Life Is Life (Chill Mix)(   Читать дальше...   )Жанр: Chillout, Downtempo, ChillhouseПродолжительность: 03:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:432E9768B035E402DB8965203F4304136C835278
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212534   (775109) от 13.03.2018
 
 VA - Если Ты Меня Ждёшь: Сборник Авторской Песни (2018) [MP3|256-320 Kbps] <Шансон>
@@ -663,33 +690,6 @@ VA - Instrumental Piano: Neo Classical Collection (2018) [MP3|320 Kbps] <Instrum
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCE080B5E00C2A550C493B37F147C777F14101AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212354   (776007) от 11.03.2018
-
-VA - Women Blues (2000-2016) (2018) 2CD  [MP3|320 Kbps] <Blues, Blues-Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ana & Milton Popovic - Did Somebody Make A Fool Out Of You (4:36)
-02. Sarah Brown - Good Fella Robert (3:15)
-03. Maria Muldaur - I Done Made It Up In My Mind (4:10)
-04. Peter Karp & Sue Foley - Fine Love (2:59)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 02:11:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB1A27FBB4F8CF6D6F9267DBEDB5EF2CC6572BF8
 ```
 
 

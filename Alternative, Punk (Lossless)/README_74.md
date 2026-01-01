@@ -1,3 +1,84 @@
+###  Публикация: 1450310   (1029036) от 26.02.2021
+
+Architects (UK) - For Those That Wish To Exist (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Dream Of Armageddon? [00:01:38]
+02. Black Lungs [00:03:51]
+03. Giving Blood [00:03:32]
+04. Discourse Is Dead [00:03:46](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1DBB809115B942647F1B02AB2D8C680C1ECF8CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450486   (1029066) от 26.02.2021
+
+The Scarlet Letter - Friss Oder Stirb (1990) [FLAC|Lossless|image + .cue] <Gothic Rock,  New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friss Oder Stirb. (02:46)
+02. Tanz Der Vampire. (03:14)
+03. In Memoriam. (04:32)
+04. Nachtfrost. (03:28)(   Читать дальше...   )Жанр: Gothic Rock,  New WaveПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACE43CB78185ED5B06956FD7FB379CB7213C6537
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622627   (1030051) от 29.03.2023
+
+Senshi - Rise Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Reggae Metal, Rap Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fall [00:01:47]
+02. Rise Again (feat. Yuzu Natsumi) [00:03:26]
+03. Evil In Dem Eyes (feat. Bushi) [00:03:06]
+04. Chaos In My Soul (feat. Big Chocolate) [00:03:33](   Читать дальше...   )Жанр: Rapcore, Reggae Metal, Rap RockПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C89312356C1A0A340CB1037FDDCB6D0A4E6E7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621348   (1030995) от 25.03.2023
 
 August Burns Red - Death Below (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Post-Hardcore, Metalcore>
@@ -615,87 +696,6 @@ Goo Goo Dolls - It's Christmas All Over (2020) [FLAC|Lossless|tracks + .cue] <In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:517740B514A4D007C64146B329672F30B302E142
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442325   (1036942) от 24.01.2021
-
-Dream Wife - So When You Gonna... (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sports! (03:25)
-02. Hasta la Vista (03:42)
-03. Homesick (03:03)
-04. Validation (02:55)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69EB6E560D886DE3855148F7EC15E10792D97092
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615424   (1037586) от 26.02.2023
-
-The Brian Jonestown Massacre - The Future Is Your Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternative Rock, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do Rainbows Have Ends [00:03:23]
-02. Nothing Can Stop The Sound [00:03:29]
-03. The Light Is about To Change [00:04:25]
-04. Fudge [00:04:31](   Читать дальше...   )Жанр: Rock, Alternative Rock, IndieПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8B1C24B04C47B1BE45067A9635FC44C1505141
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614760   (1037819) от 25.02.2023
-
-Gorillaz - Cracker Island (2023) [FLAC|Lossless|tracks+.cue] <Trip-Hop, Leftfield, Electroniс>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cracker Island (Feat. Thundercat) [00:03:33]
-02. Oil (Feat. Stevie Nicks) [00:03:50]
-03. The Tired Influencer [00:03:31]
-04. Silent Running (Feat. Adeleye Omotayo) [00:04:26](   Читать дальше...   )Жанр: Trip-Hop, Leftfield, ElectroniсПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A6E916FD8FA12DA03DA57D0445B941D9E81CB2
 ```
 
 

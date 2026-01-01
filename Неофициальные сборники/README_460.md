@@ -1,3 +1,30 @@
+###  Публикация: 1218180   (725197) от 08.04.2018
+
+VA - Best Chillout Vol.37 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725197.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aash Mehta & Capelle & Gavin Garris - Say Goodnight  (Original Mix)
+002. Alankara - The Nature of the Human Being  (Alankara Orchestra)
+003. Alex Klingle ft. Linnea Schossow - I Run To You (Bryan Milton Remix)
+004. Alex Ferro & Catas - One Night (Original Mix)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 06:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:001F197EBF62A918F196EF726CDFEBDBCD662C68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218135   (725201) от 08.04.2018
 
 VA - Club Dance Ambience Vol.142 (2018) [MP3|320 Kbps] <Club House, Vocal House, Electro House>
@@ -670,33 +697,6 @@ VA - Record Super Chart 12.02.2022 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB0014F0D4BDF9E6BD1F0D34963BA63738DDF799
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530922   (726605) от 13.02.2022
-
-VA - Chillout Melodic Mixtape (2022) [MP3|320 Kbps] <Chillout, Relax, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незатейливая мелодия, легкое, атмосферное звучание, как будто авторы музыкальных произведений пытаются рассказать нам о том, что таится в уголках подсознания, о чем сомневаешься и в чём истинно уверился.001. Lafoliedamour - Lingering On
-002. Art Of Chill - One Day
-003. Marchillo - Nostalgia
-004. Mystericus - Gates Of Teotiuachan(   Читать дальше...   )Жанр: Chillout, Relax, DowntempoПродолжительность: 08:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF4F9C038672FA0977C5424BF04E9936F55E8BB
 ```
 
 

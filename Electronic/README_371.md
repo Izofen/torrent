@@ -1,3 +1,138 @@
+###  Публикация: 1126820   (741119) от 20.04.2017
+
+VA - Chriss Ronson - Focus: 003 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chriss Ronson - One Shot (original mix) (07:00)
+02. Onur Ozman - There's No Shame (Chriss Ronson's Cre8tion remix) (07:00)
+03. Chriss Ronson - Bamboo Basket (original mix) (06:41)
+04. Chriss Ronson - Razbora (original mix) (06:43)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B51F0236FFD8CBBFC6B5D4432282BCA0F6D583
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127041   (741120) от 20.04.2017
+
+VA - Calmness Sky Is The Limit Vol.1 (Waves Of Chill Out) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Velvet Dreamer - Forgotten Places  5:37
+02.  351 Lake Shore Drive - Frozen Heart  6:52
+03.  Inventors Of The Sun - Wonder Of Romance  5:19
+04.  Karen Gibson Roc - She Smiles  5:04(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F98FFEBC1DC1F5AE32EB6B9F88677B4053746FAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126972   (741122) от 20.04.2017
+
+VA - Chill out Nation Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L.O.B. Lord Of Beat - Deep Down - Original Mix
+02. Childboy - Atmo Evening - Original Mix
+03. D-Chill - Dusty Light - Original Mix
+04. Raviv - Good Together - Ahsnati Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CEA93DC230C18E81A04FD08502A4FBAE5D50846
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126724   (741125) от 20.04.2017
+
+VA - Chill Out Amsterdam (Lounge From The Lowlands) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Monte La Rue - Monsieur Mushroom  5:12
+02.  Faberge - Costa del Amstel  5:01
+03.  Da Vince - Nothing Is  4:58
+04.  Tom Urleena - Color My Pants  4:28(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D90CF5A2B9BF6F2B4D3EE650C953154531F46A0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127079   (741126) от 20.04.2017
+
+VA - Ori Uplift & Shimotsukei - Uplifting Only 218 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Ribeca - Amoroso
+02. illitheas - Alive
+03. Naeba & Soundfly - Love Is Out There
+04. FAN FAVORITE: Tycoos - Things We Left Behind(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D487A336AF48F2C1046351C8E4D78DA56FB7C7DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127233   (741127) от 20.04.2017
 
 VA - Suanda Classics Vol.1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
@@ -560,138 +695,6 @@ BlutEngel - Un:Gott (2019) 2CD [MP3|320 Kbps] <Darkwave, Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2806652EDA1790D565ED90B3D22FBEEF1799F786
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217536   (742397) от 05.04.2018
-
-VA - Aly & Fila - Future Sound of Egypt 542 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.ID - ID
-02.Aly & Fila with HALIENE - Breathe Us To Life (ID Remix)
-03.Thomas Datt - Fluid Karma
-04.ID - ID(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76C56CB3F6435CF2034D7F7B027333412B0B934F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217508   (742403) от 05.04.2018
-
-Substak - Deeper Walk (2018) Sea of Clouds [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Early Walk (05:17)
-02. Late Walk (06:09)
-03. Outer Walk (08:38)
-04. Short Walk (05:24)(   Читать дальше...   )Жанр: Dub Techno, Ambient, TechnoПродолжительность: 00:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27607F682AEE826F5E4A1786FEDDC39111A922D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217669   (742404) от 05.04.2018
-
-VA - Voice Of Suanda Vol.6 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria Milewska - Crystalized (Original Mix)
-02. Dennis Graft feat. Maria Milewska - Until (Extended Mix)
-03. Eranga feat. Maria Milewska - Up To You (Original Mix)
-04. NoMosk feat. Maria Milewska - Black Light (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D80D9AF5848CF1DAC1C97139C57A698F17CBD59B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217682   (742410) от 05.04.2018
-
-VA - Simple Ways (2016) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Norman - Nordic Beauty  5:52
-02. Boring Sax & Aba Abas - Bogota Party  5:57
-03. Spiridion - Unauthorized Discoveries  5:00
-04. Mephia - Wizard  5:29(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:24:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7065962F53CE4306507CA6FB89DDE1FB0A50ECF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183273   (742597) от 18.07.2020
-
-Phasenmensch - Discography 16 Releases (2009-2020) Hands Productions [FLAC|Lossless|tracks+.cue, tracks] <IDM, Experimental, Industrial, Psy-Trance, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RückzugТип издания: CD, WebЖанр: IDM, Experimental, Industrial, Psy-Trance, Ambient •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D10E3E760A2D2F5DD430014F00D49122075B4A12
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1199315   (801688) от 15.01.2018
+
+VA - Автозвук. Злючий Басс (Sound Clinic - Bass Edition) (2018) [MP3|320 Kbps] <Tech House, G-House, Bass House, Techno, Dark Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2nd Phase - Propel The Light (Original Mix)
+02. Above & Beyond, Zoe Johnston - No One On Earth (Gabriel & Dresden Remix)
+03. Acidbro - Yeah, Bosh! (Nopopstar Remix)
+04. Alex ll Martinenko - Eruption (Original Mix)(   Читать дальше...   )Жанр: Tech House, G-House, Bass House, Techno, Dark ProgressiveПродолжительность: 27:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE11A9425C3D5AE84497C5B68C80379DB2B0C32B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199172   (801699) от 15.01.2018
 
 VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0001  (2018)
@@ -668,33 +695,6 @@ VA - Record Super Chart #519 (2018) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5EDD777A8723DCEDC533325B0BA130E59C1C332
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505545   (802861) от 28.10.2021
-
-VA - Beatport Drum And Bass: Sound Pack #359 (2021) [MP3|320 Kbps] <D&B, Bassline, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802861.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kutlo - Machine Learning
-002. Disrupta - Like The Sun
-003. Dr.P - Jump Wid It
-004. Loudek - In My Mind U Are All(   Читать дальше...   )Жанр: D&B, Bassline, DubstepПродолжительность: 12:02:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC855E4D6116D4BF0DDBB33870E7FC258CA26B3
 ```
 
 

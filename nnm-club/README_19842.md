@@ -1,691 +1,661 @@
-###  Публикация: 1273785   (798767) от 04.01.2019
+###  Публикация: 1508687   (796932) от 09.11.2021
 
-Boston ‎– Walk On (1994) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
+VA - Airport Lounge, vol. 11 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798767.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796932.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Need Your Love (5:33)
-02. Surrender To Me (5:33)
-03. Livin' For You (4:57)
-Walk On Medley:(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:44:24
+01. Tapelapse - Skyline Coffee (2:20)
+02. Velvet Dreamer, Tim Gelo - Strange Passenger (Original Mix) (5:03)
+03. Jo Paciello - Central Park Lounge (Original Mix) (4:43)
+04. Tapelapse - Benztown Lo-Fi (3:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:21:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79A7B11CEEE2555BE6A75954039CCD3B70505986
+magnet:?xt=urn:btih:5ED30A144D8DFF4F234B93CF41CDF99B8FD95BB6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273833   (798768) от 04.01.2019
+###  Публикация: 1508663   (796933) от 09.11.2021
 
-Berlin Blondes - The Complete Recordings (1980-1981) Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Synthpop,New Wave>
+VA - Airport Lounge, vol. 4 (2014) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Lemmer - Rainy Day (Percussion Chill Mix) (3:00)
+02. Taron-Trekka - Lo-Fi Autumn (5:34)
+03. The Diventa Project - Say Goodbye (Surya Vox Mix) (3:34)
+04. Axel B. - Tomorrow (2:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A083349EBC3497E97D15798C24905B062721A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508666   (796934) от 09.11.2021
+
+VA - Airport Lounge, vol. 5 (2014) [AAC|~341 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B & W - Spirits (4:43)
+02. Daniele Soriani, Adriana Salvadori - Silk (D-Soriani Chilly Mix) (6:54)
+03. Ambiworx - Bamboo and Ebony (7:00)
+04. Alpha Centaury - Natale 2012 (1:07)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7564482CAD932CDCA23324BC7F7FD021262F550
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011302   (796935) от 27.04.2016
+
+Maria Callas - La Divina 3 (1986 - 1987/1995) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giordano: Andrea Chenier: La Mamma Morta, Atto III 04:56
+02. Spontini: La Vestale: O Nume Tutelar, Atto II 02:32
+03. Massenet: Manon: Je Ne Suis Que Faiblesse...Adieu, Notre Petite Table, Acte II 03:23
+04. Puccini: Manon Lescaut: Oh, saro la piu bella....Tu, tu amore?, Atto II 08:26(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E45301CB05F6DB3944589E2F9B714EFF5708F890
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010750   (796936) от 27.04.2016
+
+А.С. Дмитриев и др. | Генерация хаоса (2012) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Явление динамического хаоса, открытое в последней трети двадцатого века, широко распространено в природе и искусственных системах. Его необычные свойства буквально перевернули обычные представления о том, что малые возмущения или события могут приводить лишь к незначительным изменениям в будущем. Оказалось, что все может быть с точностью до наоборот ("эффект (   Читать дальше...   )Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:090A5789942A624C970A05F96C68D6EEB59835A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011403   (796937) от 27.04.2016
+
+SmartAlbums 2.0.12 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы: теперь легко
+SmartAlbums является революционным программным обеспечением, которое позволит создавать фотоальбомы быстро и весело! Простота установки, экономя время и творчество!
+
+Экспериментируйте с дизайном, перемешайте и размещайте фотографии ... Используйте готовые шаблоны или используйте возможность создать свой собственный. SmartAlbum, создан фотографами (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 апреля 2016Разработчик: PIXELLUПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13CB5C4E1849B6FB7CFB14CB56D0EA1A211DEBC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011505   (796938) от 27.04.2016
+
+Avast Clear 11.2.2738.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда невозможно полностью удалить антивирус Avast стандартным способом - с помощью компонента панели управления «Установка и удаление программ». В этом случае можно воспользоваться фирменной утилитой для удаления Avast.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C460B052DA66DE297B4611377501F9AF512DA7CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011433   (796939) от 27.04.2016
+
+Однажды в России (2016.04.24) WEB-DL [H.264/720p-LQ] (сезон 3, выпуск 2)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоу «Однажды в России», как и многие проекты ТНТ, имеет оригинальный формат. Это будет «реальный театр». То есть заранее написанный сценарий герой шоу «Однажды в России» постарается воплотить в повседневной жизни. А это совсем не так просто, как может показаться сначала, но зато очень смешно. Передача построена на чередовании скетчей. Создатели «Однажды в России» (   Читать дальше...   )Производство: РоссияТелекомпания: ТНТЖанр: Юмористическое тв-шоуСубтитры: ОтсутствуютПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5701D8A8C888400753AB47BE8AE0464BD5CCE8D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199997   (796941) от 19.01.2018
+
+VA - Intimate Piano - Body & Soul (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Henry Mancini & Orchestra - As Time Goes By (2:25)
+02. Gordon Langford & Orchestra - Body & Soul (2:37)
+03. Bill Synder - Cocktails for Two (2:52)
+04. Roger Williams - Dream a Little Dream of Me (3:12)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383AD32493426188965237095B41157FA79499D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200206   (796942) от 19.01.2018
+
+Бывший папа, бывший сын (1989) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соpокалетний Ярцев становится свидетелем ограбления собственного автомобиля. Ближе к судебному разбирательству выясняется, что воp есть никто иной, как его собственный сын от первого брака. Отец делает все возможное, чтобы не доводить дело до суда.Производство: СССРЖанр: ДрамаРежиссер: Николай СубботинАктеры: Рим Аюпов, Владимир Пучков, Ирина Малышева, Галина Яцкина, Николай Волков мл., Геннадий Корольков, Александр Клюквин, Владимир Бурлаков, Ольга СеменоваСубтитры: ОтсутствуютПродолжительность: 01:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A074C9B20C024F02595A6FACD4E15D4CCCD852BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011335   (796943) от 27.04.2016
+
+Расщепленные на атомы (2016) SATRip [H.264] [RUS, UKR]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страшная катастрофа на Чернобыльской атомной электростанции унесла тысячи человеческих жизней, а искалечила еще больше. Прошло 30 лет, а мы до сих пор боремся с ужасными последствиями этой техногенной катастрофы мирового масштаба. Очевидцы тех событий в далеком 1986 году еще живы, мы так мало знаем о них, о том, как та ночь на 26 апреля изменила их жизни.
+Документальная (   Читать дальше...   )Телекомпания: 1+1Жанр: ДокументальныйПродолжительность: 02:17:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:555E7B0A48CC789F0C9116479D57CA44CCD933DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200113   (796944) от 19.01.2018
+
+VA - Prismatic Perceptions Vol 1 (Compiled by Axell Astrid) (2018) [MP3|320 Kbps] <Psy-Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798768.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796944.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.	Framework
-02.	Astro
-03.	Science
-04.	Romance(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:15:43
+01. Mobitex - Mark of the Unicorn
+02. Akoustik & E-Mov - International Mantra
+03. Skull Rabbit - Fractal
+04. Vuchur - Force of Life(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:31:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43F001235C255C719EE87F8C0CC0ED080D193EE7
+magnet:?xt=urn:btih:E71AAF1D23512F101017511AEFD6F067B38723B3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273794   (798769) от 04.01.2019
+###  Публикация: 1011265   (796945) от 27.04.2016
 
-Lizard - Half-Live (2018) [FLAC|Lossless|tracks + .cue] <Prog Rock>
+Журнал | Гастрономъ №5-6 (май-июнь 2016) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798769.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796945.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Half-Live I (19:49)
-02. Half-Live II (24:03)Жанр: Prog RockПродолжительность: 00:43:53
+Первый отечественный кулинарный журнал европейского уровня. "Гастрономъ" - журнал не только о "здоровой и вкусной пище". Это еще масса полезной и увлекательной информации о новых продуктах, о правилах этикета, о диетах и системах правильного питания, о ресторанах и шеф-поварах. Это интервью со звездами и их фирменные рецепты, рассказы о кулинарных (   Читать дальше...   )Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:321FEA39A00BEA155013DC14E70163EA88FEFB74
+magnet:?xt=urn:btih:D77BC4FAF9525A38FBF50686D6F1408B9C2F9532
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273840   (798770) от 04.01.2019
+###  Публикация: 1200129   (796946) от 19.01.2018
 
-Azrael - Moonchild (2018) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Power Metal>
+Charlotte Gainsbourg - IRM (2009) Limited Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, French Pop-Rock>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798770.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796946.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Birth Of The Universe (Instrumental) [01:40]
-2. Moonchild [04:50]
-3. Surveillance Society [04:39]
-4. Fly Till The End Of Time [04:48](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:56:18
+01. Master's Hand (2:49)
+ 02. Irm (2:35)
+ 04. In The End (2:00)
+ 05. Heaven Can Wait (2:41)(   Читать дальше...   )Жанр: Indie Pop, French Pop-RockПродолжительность: 00:40:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1E41790FFB9BBEDABBB290F4B3556B6E8FD6FE8
+magnet:?xt=urn:btih:67CC754DD081866DD8C24A44597AFFDE111AA1AF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273837   (798771) от 04.01.2019
+###  Публикация: 1011127   (796947) от 27.04.2016
 
-Saba - Care For Me (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz Hop>
+Эдмунд Купер | Транзит (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одинокий учитель живописи Ричард Авери живет лишь настоящим и продолжает вспоминать то, что у него было в таком недалеком прошлом. Была женщина, которую он любил, и тогда он с удовольствием жил и работал. Теперь он просто плывет по течению.
+На прогулке в лондонском парке он замечает на земле какие-то блестящие кристаллы и наклоняется, чтобы получше их рассмотреть... (   Читать дальше...   )Жанр: Научная фантастикаПродолжительность: 07:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E689C6E1E92D128307B4DA1968AE6B83D4CBF0C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011215   (796948) от 27.04.2016
+
+Картинки - Чудесная природа 2560x1600 - 6700x4459 30шт часть 4 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чудесная природа на ваш стол, приятного просмотра!)Формат: JPGРазрешение файлов: 2560x1600 - 6700x4459
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13F9299C582B5689624CF33902B9C446D487D88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200008   (796949) от 19.01.2018
+
+Журнал | Сад своими руками №2 (февраль 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущее российское издание о саде. Рассказывает о том, как без помощи специалистов создать свой, неповторимый сад, как ухаживать за растениями, как своими руками построить беседку, сделать дорожки, забор, водоем и многое другое. В каждом номере журнала представлены проекты садов и «энциклопедии» растений, что поможет вам собрать коллекцию практических решений для (   Читать дальше...   )Жанр: СадоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F29B4FA1E68FB9325AD6D8A2101BC000300A5092
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200111   (796950) от 19.01.2018
+
+Анна Петровна (1989) TVRip (серии 1-2 из 2)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многое пережила в своей жизни Анна Петровна: тяжелые годы гражданской войны, гибель мужа, смерть дочери, а теперь — равнодушие и цинизм внучки. Неожиданно выясняется, что кольцо, единственное украшение Анны Петровны, имеет большую ценность. Этот факт становится причиной драматических событий в семье.Производство: СССРЖанр: ДрамаРежиссер: Инесса СелезнёваАктеры: Елена Юнгер, Лариса Гузеева, Валерий Хромушкин, Владимир Князев, Степан Старчиков, Андрей Степанов, Елена Адрузова, Геннадий Храпунков, Юрий Шлыков, Лидия СавченкоСубтитры: ОтсутствуютПродолжительность: 01:06:08 + 01:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ED4298DFB36655790DD46575CAA380184CCA65E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011256   (796951) от 27.04.2016
+
+Наталья Жирмунская | Практическая ботаника: Сорняки на садовом участке (2012) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жирмунская Наталия Михайловна - кандидат биологических наук, специалист по экологическому и
+биодинамическому садоводству.
+Основное отличие эко сада заключается в том, что в нем создается среда максимально приближенная к естественным условиям. В соответствие с этим плодородие и биологическая активность почвы поддерживаются на высоком уровне за счет органического удобрения (   Читать дальше...   )Жанр: Научно-познавательная литератураПродолжительность: 03:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2154963A800B73026B658A581F702356BDC9EA4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200177   (796952) от 19.01.2018
+
+VA - Best of Tigerskin \ Dub Taylor (2017) [MP3|192-320 Kbps] <Deep House, Tech House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tigerskin - Carlos Thoughts [7:39]
+02. Tigerskin - Voodoo [7:38]
+03. Tigerskin - The Nite People [4:58]
+04. Ronald Christoph feat. Idvet - Say You Want Me Now (Tigerskin remix) [7:57](   Читать дальше...   )Жанр: Deep House, Tech House, Chill HouseПродолжительность: 05:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40DAE3ED01A9300558ED7368B1C6323F668497E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 818245   (796953) от 27.04.2016
+
+Percussion Bullet - Future Accommodation (2006) [FLAC|Lossless]<Progressive Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798771.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Busy / Sirens (feat. theMIND) (5:29)
-02. Broken Girls (4:37)
-03. Life (3:48)
-04. Calligraphy (3:04)(   Читать дальше...   )Производство: Saba Pivot LLC - 843357130095Жанр: Hip-Hop, Jazz HopПродолжительность: 00:42:41
+01. Transparent Thought (7:06)
+02. Wool Gather (7:22)
+03. Music Is Our Future (7:15)
+04. Project (Remix for Iraklis and Dimitri) (6:46)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:12:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA250E295F4DC3D1742FDFBBB1D62B6E44AF53BA
+magnet:?xt=urn:btih:97C5CACD64B8FC526DC604E8991345D98C5F1CE1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273856   (798772) от 04.01.2019
+###  Публикация: 1200012   (796954) от 19.01.2018
 
-Oren Ambarchi - Grapes From The Estate (2004) Touch [FLAC|Lossless|tracks+.cue] <Glitch, Ambient, Minimal, Acoustic>
+Журнал | Золотые рецепты наших читателей №1 (январь 2018) [PDF]
 
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798772.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796954.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Corkscrew (09:43)
- 02. Girl With The Silver Eyes (09:40)
- 03. Remedios The Beauty (15:37)
- 04. Stars Aligned, Webs Spun (20:41)Жанр: Glitch, Ambient, Minimal, AcousticПродолжительность: 00:55:41
+Популярное кулинарное издание, созданное исключительно на основе писем читателей — профессиональных поваров, кондитеров и домашних кулинаров. Все рецепты подкреплены качественными фотографиями блюд и их авторов, что позволяет заранее оценить конечный результат. Часть рецептов опробована на редакционной кухне. Важно, что для публикации редакция отбирает простые, доступные (   Читать дальше...   )Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E53F14BC86A1B4A71DD6B9486BC2096B36833686
+magnet:?xt=urn:btih:ADA0E273D0DCED96DD6263B34F4BAF1CB063306F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273919   (798773) от 04.01.2019
+###  Публикация: 1011090   (796956) от 27.04.2016
 
-Kryder - Kryteria Radio 167 (Best Of 2018) 2019-01-02 [MP3|192 Kbps] <House, Tech House, Tribal House>
+Ричард Старк | Паркер (Книга 05). Ограбление (2016) [MP3, Сергей Пухов]
 
->>Архив торрентов
->>Архив Музыки
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798773.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796956.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. FISHER - Losing It (Dave Winnel For The Win Remix)
-02. Safri Duo - Played A Live (The Bongo Song) (Massivedrum 2K18 Remix)
-03. Agent Greg & Dim Chord - RYDM
-04. Sunnery James & Ryan Marciano x Nicola Fasano & Adam Clay - Born Again (Babylonia) (Festival Mix)(   Читать дальше...   )Жанр: House, Tech House, Tribal HouseПродолжительность: 01:37:21
+Совершить дерзкое ограбление, захватив при этом целый город — в таком деле профессиональному вору Паркеру участвовать еще не приходилось. Он вносит коррективы в предложенный план налета, сокращает количество участников, закупает оружие и транспорт. Операция идет успешно, но за полчаса до ее окончания неожиданно раздаются взрывы, гибнут люди, начинается пожар...Жанр: ДетективИздательство: Аудиокнига своими рукамиПродолжительность: 06:34:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6C1CF086F91EF876445226F8EF1C8C4BA5E41BB
+magnet:?xt=urn:btih:341208BDABE2D4BA0C9813C94C73F673AB102A3B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273986   (798774) от 04.01.2019
+###  Публикация: 828674   (796957) от 19.01.2018
 
-Kritical Audio - Katacomb (2011) Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, IDM, Electro, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bugsmasher (04:50)
- 02. Katacomb (05:43)
- 03. Oceans 1300 (05:59)
- 04. Taipei (05:22)Жанр: Breakbeat, IDM, Electro, AcidПродолжительность: 00:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E1F4FB8CE808F4B3C601E0283ECDD460023E187
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273912   (798775) от 04.01.2019
-
-They Might Be Giants - The Escape Team (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+Virulent - 3 Альбома (2012-2017) [MP3|320 кб/с]<Progressive Deathcore, Djent, Experimental>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798775.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796957.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jackie the Clipper
-02. Chip the CHiP
-03. Burnice
-04. Dr. Sy Fly(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:23:48
+2012 - The Great Destroyer
+2014 - Empire
+2017 - New PlaguesЖанр: Progressive Deathcore, Djent, ExperimentalПродолжительность: 02:06:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:156B1E65B9D325CF9BB185526C76172BE5A1DDFC
+magnet:?xt=urn:btih:BEF6BA62BEAA18DCB28F6C0B1A0CC3D02B293C85
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273970   (798776) от 04.01.2019
+###  Публикация: 1199996   (796958) от 19.01.2018
 
-310 - SMoKE DoGS (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Experimental, Ambient, Future Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SMoKE DoGS Theme (04:33)
-02. Put Down That Phone (03:27)
-03. Amaroq (05:00)
-04. Chin Music (04:27)(   Читать дальше...   )Жанр: Downtempo, Experimental, Ambient, Future JazzПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159738922D44D124668A8BC4D13FE402B156FC86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273977   (798777) от 04.01.2019
-
-Kritical Audio - Krupp EP (2006) Chillosophy Music [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, Electro, Broken Beat, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Krupp (04:17)
- 02. Spring Break (05:18)
- 03. Krupp (Minilogue Remix) (09:45)Жанр: Breakbeat, Electro, Broken Beat, Tech HouseПродолжительность: 00:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:274FD0335A5CF9986690552CBA074D3A910608D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273827   (798778) от 04.01.2019
-
-It Hugs Back - Inside Your Guitar (2009) [FLAC|Lossless|tracks + .cue] <Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798778.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Q 4:32
-2. Work Day 2:59
-3. Don't Know 3:42
-4. Forgotten Song 4:01(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:654024265AC7B8B69B59E902E007288F14D84731
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273892   (798779) от 04.01.2019
-
-Johnny Frigo - Summer Me!: Live at Battle Ground (1986 - 1997) 2008, Log Cabin Records [FLAC|Lossless|image + .cue] <Swing, Violin Jazz>
+Kev Spencer - .​.​. For Reasons Unknown (2018) [MP3|320 Kbps] <Blues Rock>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798779.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796958.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Quando, Quando, Quando [4:26]
-02. The Song Is You [5:15]
-03. Polka Dots and Moonbeams [4:25]
-04. Czardas [4:19](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 01:17:18
+01. Wicked Ways (03:02)
+02. Bluesman (04:07)
+03. They Call It The Blues (03:14)
+04. Funky Kinda Stride (03:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72681D539205A13B685345986C8EDAFCA4DA5FE9
+magnet:?xt=urn:btih:85B419E53196F83ABD525201D10C39F5533940E9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273865   (798780) от 04.01.2019
+###  Публикация: 1011273   (796959) от 27.04.2016
 
-VA - Tribe Vibe 2018 (2018) [MP3|320 Kbps] <Soulful House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nathan Adams, Sabrina Joy-Yourself (Sean McCabe Main Vocal Mix)
-02. Zepherin Saint, Miranda Nicole-Butterflies (Live Mix)
-03. Vanco, Zano-Ms Jailer (feat. Zano)
-04. Gino Brown, Nonny D - Time No Dey (feat. Nonny D)(   Читать дальше...   )Жанр: Soulful HouseПродолжительность: 01:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2B9584C8DC3C5B59083442A1A40355CC3A2EF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507141   (798781) от 03.11.2021
-
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''F'. Тур 4. Аталанта (Италия) - Манчестер Юнайтед (Англия) (03.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''F''. Тур 4. Аталанта (Италия) -  Манчестер Юнайтед (Англия)(03.11.2021)
-СУДЬЯ Винчич Славко (Словения)
-Судья на линии 1: Кланчник Томаш (Словения)
-Судья на линии 2: Ковачич Андраж (Словения)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF90CBB5B9226528FFF98D94D2740DF37775704E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507142   (798782) от 03.11.2021
-
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''E''. Тур 4. Бавария (Германия) - Бенфика (Португалия) (03.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''E''. Тур 4. Бавария (Германия) - Бенфика (Португалия)(03.11.2021)
-СУДЬЯ Марциняк Шимон (Плоцк, Польша)
-Судья на линии 1: Сокольницкий Павел (Польша)
-Судья на линии 2: Листкевич Томаш (Польша)(   Читать дальше...   )Телекомпания: Матч! Футбол 3Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C654F72DC58E24080576E79CF0874BD527D192D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507097   (798783) от 03.11.2021
-
-VA - Florence Orange: Urban Chillout Music (2020) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giacomo Bondi - Beleza Pura (Instrumental) (5:52)
-02. Marga Sol - Temple of Love (Original Mix) (6:43)
-03. Francesca Gramegna - What Is Love (3:38)
-04. Brass - Wind of Summer (3:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA1F2606A49A7682D662009DC39A6D993C35DB6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507111   (798784) от 03.11.2021
-
-VA - Strasbourg Orange: Urban Chillout Music (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airily - That's What I Want (Seaside Remix) (4:19)
-02. Ibiza Chilled - Sunset Salinas (Original Mix) (7:06)
-03. Living Room - Slow Motion Sunset (Original Mix) (5:22)
-04. Deeparture - Dream On (Original Mix) (5:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D258BC3B75E92A7BDEA8D5D1C2B19E55CBD43C48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507238   (798785) от 03.11.2021
-
-4K Video Downloader 4.18.3 [Multi/Ru]
+Cyberfox 46.0 for AMD + Portable [Ru/En]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798785.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796959.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.10.2021Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+Одна из лучших версий веб-браузера Firefox, имеющая 64-разрядную архитектуру, что делает ее быстрее, надежнее и стабильнее. Cyberfox использует Windows 8 SDK и оптимизирован под процессоры AMD. Браузер поддерживает дополнения и работает со своим профилем, отдельным от Firefox - это дает возможность использовать собственные закладки и историю.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E14F34AFD50C815B5D991B7C663EDE8122EBBB00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507286   (798786) от 03.11.2021
-
-ColoFolXS 2.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компактное приложение для раскрашивания папок.
-Основные шаги очень просты:
-1. Запустите ColoFolXS.
-2. Перетащите папку в цветную ячейку.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2021Разработчик: TrollinПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47458E0DA6572BBF5E4B8C5385480000B8AAD24A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507185   (798787) от 03.11.2021
-
-Draconicon - Dark Side of Magic (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Symphonic Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Principium Tenebris
-02. Fiery Rage
-03. Dark Side of Magic
-04. Blackfire(   Читать дальше...   )Жанр: Power Metal, Symphonic Folk MetalПродолжительность: 00:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B6DAAD5C460DC760F7183A2948703E107471D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507202   (798788) от 03.11.2021
-
-Nightivity - Deathsurrection (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Male Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:29)
-02. The Curse (05:48)
-03. Annabelle (04:37)
-04. Ouija (04:03)(   Читать дальше...   )Жанр: Heavy Metal, Male Female VocalПродолжительность: 00:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FBB2DB1D25A82BF18035F945641C376689167E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507122   (798789) от 03.11.2021
-
-Aldo Romano - Threesome (2004) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abruzzi [6:02]
-02. Ghost Spell [4:58]
-03. Fleeting [8:47]
-04. Blues for Nougaro [6:33](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91069904F52CB29CFCB40A62DA8D1174AE67CC27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507109   (798790) от 03.11.2021
-
-VA - Eivissa Orange: Urban Chillout Music (2020) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Sol, Florito, Martine - Love Finds You (Ibiza Lounge Mix) (4:21)
-02. STJ, Liba - She Believes (Radio Version) (3:42)
-03. Chillson, Marc Hartman - Free as a Bird (Original Mix) (4:38)
-04. Marga Sol - Sandwalk (Original Mix) (4:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1380386169A6B796433C7044A89CEA6BE25BC527
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507103   (798791) от 03.11.2021
-
-VA - New Orleans Orange: Urban Chillout Music (2021) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris le Blanc, Leo Zabarella - Melville Sings the Blues (Album Mix) (3:35)
-02. Schwarz & Funk - Take Me Home (Original Mix) (5:54)
-03. Soul Trend - Sunday Morning (4:27)
-04. Sandro Gibellini Trio, Sandro Gibellini - Walk on By (2:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A60ED0AA6E551562225EE56DF39C8FFB0306FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507247   (798792) от 03.11.2021
-
-Permute 3 v3.7.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 03.11.2021Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21718B635985A699E5CED86CC48BCCA3299EE958
+magnet:?xt=urn:btih:EF05DE9861DB18EF396BBF9B464D1D5EED935E9E
 ```
 
 

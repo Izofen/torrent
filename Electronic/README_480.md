@@ -1,3 +1,136 @@
+###  Публикация: 1363002   (942597) от 28.02.2020
+
+Omar S - You Want (2020) [FLAC|Lossless|tracks + .cue] <House, Deep House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Want The Best
+02. A Toast To Momma Rose (Crowd Claps Jacked By Norm Talley)
+03. That's Lil'Boy (feat. Ian Finkelstein)
+04. Second Life (feat. John FM)(   Читать дальше...   )Жанр: House, Deep House, TechnoПродолжительность: 01:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2985362EC37186928860F82E53112C1C4B47C51E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363454   (942601) от 28.02.2020
+
+Tim Dash - Afterlight 001 (2020) [FLAC|Lossless|image + .cue] <Deep Techno, Progressive House, Melodic Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Novakk - Hela (Ivory Hypnotic Treatment) (5:40)
+02. Booka Shade - Atlantic Beam (5:56)
+03. Enamour & Nox Vahn - Sleep Paralysis (5:39)
+04. Nico Morano & Radeckt - Resilio (Night Talk Remix) (6:44)(   Читать дальше...   )Жанр: Deep Techno, Progressive House, Melodic TechnoПродолжительность: 01:07:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D76BD224A4A37445A75F70F271EC286AFAE0C3BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363650   (942610) от 28.02.2020
+
+Cold Blue - Live @ Crystal Forest Medellin, Colombia 2020-02-22 [MP3|256 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Blue - Golden Leaves
+02. Cold Blue - Once In Time
+03. Cold Blue - Dreamland
+04. Cold Blue - Simplicity(   Читать дальше...   )Жанр: TranceПродолжительность: 02:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF1F9D2D8D6340B49DF6C2DCB1A85138CE1FF94E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362706   (942617) от 28.02.2020
+
+Dj Бинокль - Housemission (2000) [MP3|320 Kbps] <House, Speed Garage, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942617.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Summer Dream (29:12)
+2. Mirrow In My Mind (29:40)Жанр: House, Speed Garage, Progressive HouseПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842AEA254D8612717DFB29489539C6ECB680BCED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362733   (942627) от 28.02.2020
+
+VA - Dj Бинокль - Love and Tears (2003) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funk Bandit - Crazy Love (Crazy Acapella)
+02. Indigo Feat Elisabeth Troy - Real Love (Reprise & Grant Nelson Dub Mix)
+03. Bad Cabbage - Your Rude (Get Fucked) (Fuckapella)
+04. J Haystax - Still In Luv With You (Full Vocal Dub)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4234879A799923E57DC4DF57BECFAE5646C3C54D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362711   (942637) от 28.02.2020
 
 Dj Бинокль - Dnepro House (2001) [MP3|320 Kbps] <House, Euro House>
@@ -562,141 +695,6 @@ VA - Goa Vol.62 (Compiled by Champa) (2017) [MP3|320 Kbps] <Trance, Goa Trance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F0C27BE3717475A32D3024D116C731B34F16C26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090694   (946093) от 07.01.2017
-
-VA - Winter 2017: Best Of Inception (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Julian Wess – Switch (Original Mix) 07:30
-02. Chriss V – Sunfall Tale (Nerutto Remix) 05:32
-03. Nistirenko – Summer in the Future (Original Mix) 05:40
-04. Niklas Grosswald – The Blueprint (Not Okay Remix) 06:47(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F5D1573D5EF97193735F58A0ED5622E23152BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090563   (946115) от 07.01.2017
-
-VA - Music For SPA: Relaxing Chill Out Music For SPA (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Maa - Elasia  4:38
-02.  Suntise - Erotic Wav (Chillout Mix)  2:45
-03.  Moonnight - To Save Love (Chillout Mix)  3:40
-04.  DJ Rostej - Minutes of Stories (Chillout Mix)  2:46(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76B58C103B470919D8FEC4DF755C98C4753CB808
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090539   (946137) от 07.01.2017
-
-VA - Armada Deep Top 10. January (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juliette Claire - Somebody Else's Lover
-02. Cheney - All About You
-03. Tai - Paradise
-04. Richard Judge - Wide Awake(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E328B6DEA8C8F638DFD2CC467B8A41C7F7C392
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 173579   (946225) от 10.02.2010
-
-Puff Dragon - Sazanami (2005) [MP3|320 kbps]<Dub, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sazanami
-02. Qi Gong
-03. Chinese Radio (Beijing Taxi Version)
-04. Marine Drive(   Читать дальше...   )Жанр: Dub, AmbientПродолжительность: 01:05:09
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362898   (946513) от 25.02.2020
-
-V.A. - Vintage Cafe: Lounge & Jazz Blends Vol. 16 (Special Selection) (2020) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazzystics & Apollinare Rossi - Riders on the Storm
-02. Jamie Lancaster - Take It Easy
-03. Michelle Simonal - Reminiscing
-04. STEREO DUB & Karen Souza - Back Down South (Bossa Nova Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20ADE4F5C909CF354130AD536C8D8084327F44FE
 ```
 
 

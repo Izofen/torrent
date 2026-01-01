@@ -1,3 +1,84 @@
+###  Публикация: 1442325   (1036942) от 24.01.2021
+
+Dream Wife - So When You Gonna... (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sports! (03:25)
+02. Hasta la Vista (03:42)
+03. Homesick (03:03)
+04. Validation (02:55)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69EB6E560D886DE3855148F7EC15E10792D97092
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615424   (1037586) от 26.02.2023
+
+The Brian Jonestown Massacre - The Future Is Your Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternative Rock, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do Rainbows Have Ends [00:03:23]
+02. Nothing Can Stop The Sound [00:03:29]
+03. The Light Is about To Change [00:04:25]
+04. Fudge [00:04:31](   Читать дальше...   )Жанр: Rock, Alternative Rock, IndieПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8B1C24B04C47B1BE45067A9635FC44C1505141
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614760   (1037819) от 25.02.2023
+
+Gorillaz - Cracker Island (2023) [FLAC|Lossless|tracks+.cue] <Trip-Hop, Leftfield, Electroniс>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cracker Island (Feat. Thundercat) [00:03:33]
+02. Oil (Feat. Stevie Nicks) [00:03:50]
+03. The Tired Influencer [00:03:31]
+04. Silent Running (Feat. Adeleye Omotayo) [00:04:26](   Читать дальше...   )Жанр: Trip-Hop, Leftfield, ElectroniсПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A6E916FD8FA12DA03DA57D0445B941D9E81CB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441134   (1037982) от 20.01.2021
 
 Foo Fighters - Medicine at Midnight (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Punk, Alternative>
@@ -586,6 +667,33 @@ Stone Sour— американская метал-группа, образова
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21383AA6237FA1210979BC72758D80A1E2FEE1EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844588   (1050364) от 29.12.2025
+
+Linkin Park - Reanimation (2002) U.S., 9 48326-2, 2011+ [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal, Experimental, Electronic, Industrial Hip Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening (1:08)
+02. Pts.Of.Athrty // Jay Gordon (3:46)
+03. Enth E Nd // Kutmasta Kurt Featuring Motion Man (4:00)
+04.Тип издания: DigipakЖанр: Alternative / Nu-Metal, Experimental, Electronic, Industrial Hip HopПродолжительность: 01:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB51174410C1016C9D7FD389CC677A11F1206CC
 ```
 
 

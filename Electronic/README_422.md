@@ -1,3 +1,138 @@
+###  Публикация: 1121710   (799677) от 03.04.2017
+
+VA - Soft Chill House Beach Lounge Vol.2 (2017) [MP3|320 Kbps] <Chillhouse, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Clemens Rumpf - Feel So Good (Disco Blend Mix)  6:45
+02.  Bastixs - Muzik  5:17
+03.  Discey - Ashram (Vocal Edit)  7:04
+04.  Ritmo Fatalismo - Sangria After Midnight  6:00(   Читать дальше...   )Жанр: Chillhouse, LoungeПродолжительность: 02:28:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDED694E11B1269093C3EDDF9D580084F186AFD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121717   (799680) от 03.04.2017
+
+VA - Vinyl Lounge Set (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirotures — Displace (Jazzing Cut)
+02. Shangly Joe — Elements Stunt (Main Mix)
+03. Rawback — Stand Alone (Deep Version)
+04. Monowork — Seem (Chillmix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:06:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DECDDAC778C19A1B7639473C6AB74BF49E95D236
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273405   (799766) от 02.01.2019
+
+ScAnDroid Experiment's - Rhythms of Nature (2019) Авторская раздача [MP3|320 Kbps] <Experimental Electronic, Downtempo, Easy Melody>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhythms of Nature (Intro)
+02. Almost New Year Thoughts
+03. On The Neighbor's Cart (Original Mix)
+04. Ipsa Vetus Fabula (Original Mix)(   Читать дальше...   )Жанр: Experimental Electronic, Downtempo, Easy MelodyПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B1F8107F6228C401E936059F7C8C633FCC89CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273449   (799776) от 02.01.2019
+
+Paul Kalkbrenner - Parts of Life (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part Eleven (03:27)
+02. Part Three (03:48)
+03. Part Fourteen (04:50)
+04. Part Seven (03:24)(   Читать дальше...   )Жанр: Electronic, Tech House, TechnoПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ED11472E59961CF47CCFA7578E88E987C12E7F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273604   (799778) от 02.01.2019
+
+VA - We Chill Series: Top Tracks of 100 % Relaxing Cafe / Bar / Lounge / Chillout Music - 8 Releases (2012-2017) [MP3|320 Kbps] <Chillout, Lounge, Ambient, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799778.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012 - We Chill (Top 40 Chill Out Tracks)
+2013 - We Chill • Vol. 1 (Top 50 - Best Of Chillout / Lounge / Cafe / Bar)
+2014 - We Chill • Del Mar. Vol. 2 (50 Top Tracks of 100 % Relaxing Cafe / Bar / Lounge / Chillout Music)
+2014 - We Chill • Del Mar. Vol. 3 (50 Top Tracks of 100 % Relaxing Cafe / Bar / Lounge / Chillout Music)(   Читать дальше...   )Жанр: Chillout, Lounge, Ambient, DowntempoПродолжительность: 30:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63496519F17C763060588392EDC278A366E41DDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273636   (799780) от 02.01.2019
 
 Cafe del Mar - Cafe del Mar Dreams X (2018) [MP3|320 Kbps] <Lounge, Chill Out>
@@ -560,139 +695,6 @@ VA - Charming Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F4820814685E4927E0C9D52795DC86B1847C003
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121579   (800488) от 02.04.2017
-
-Dawid Jurzyk - Mysterious Forest (2017)Single [MP3|320 Kbps] <Progressive Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Mysterious Forest (Original Mix) [07:17]
-02 Mysterious Forest (Stream Noize Remix) [06:39]Жанр: Progressive Trance, Uplifting TranceПродолжительность: 00:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C198D04EDCC0208E8CA967F2FA7DF83C7B3C0DE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121382   (800509) от 02.04.2017
-
-VA - Schneeweiss VII (Presented By Oliver Koletzki) - 2017 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aparde - Elias
-02. Marc Holstege - Sonorous
-03. Joachim Pastor - Millenium
-04. Reinier Zonneveld - Abstinence (Oliver Koletzki remix)(   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 03:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D2585241383F17BB56553D6810F7FAFDBA72A1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121422   (800544) от 02.04.2017
-
-VA - 1001 Oriental Nights, Chill Out Ethnic Cafe Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dune Raiders - Sahara - Oriental String Orchestra Mix
-02. Khalil Omar - On the Fence - Oriental Orchestra Mix
-03. Bangralution Hippies - The Last Chill Resort - Singh Space Night Mix
-04. Maksum Blank - Darbuka Sunset Del Mar - Kelly Jones Relax Cafe Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17EDAD9D4D1D7D259F43EF3FD51EFE11774651E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121444   (800611) от 02.04.2017
-
-VA - 1001 Chillout Nights (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ms. Jones and the Fireflies — Inception of Life — Birdy Monster People Mix
-02. Peacefull Souls — 1001 Nights — Harder But No Punk Mix
-03. Skyraiders — Diamonds of India — Lost and Found Mix
-04. Dairy of Dreams — Infinity (Part 1) — Punk Is Rolling Deep in the Sky Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:11:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB9652BBAFAE4F02024FCBBF4E4A521A9AAB42E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121259   (800642) от 02.04.2017
-
-VA - Luxury Chill out Deluxe: The Worlds Rich and Famous Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atrium – Praise for the Beach – Radio Edit
-02. Eliane Davis – In the Sun – Chillout Do Brazil Mix
-03. Lounge Lotion – Dawn of Light – Balearic Extended Mix
-04. Club Salinero – Shade in the Sun – Ibiza Chillout Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D5994F72B3434FDAF19BD4B5A563470596020EF
 ```
 
 

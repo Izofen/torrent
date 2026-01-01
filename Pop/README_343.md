@@ -1,3 +1,164 @@
+###  Публикация: 1349849   (1004060) от 03.01.2020
+
+Chyp-Notic - Nothing Compares 2 U (1990) [FLAC|Lossless|image + .cue] <Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing Compares 2 U (The Ultimate Dance-Version) 6:32
+02. Nothing Compares 2 U (The Techno Mix) 5:09
+03. 1-4-U 5:32Жанр: Euro HouseПродолжительность: 00:17:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84DD6D14CB61619C3A56D4C8E0CDEE78B8A03949
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349870   (1004069) от 03.01.2020
+
+Estimado - The Escape to Heaven (2017) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I’m Dancing On My Own 5:19
+02. Faster 7:08
+03. Believe In Me 7:45
+04. I Want You Heaven 6:48(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E27CD7C56529450EB4E6C65B82E033268F4920E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349866   (1004072) от 03.01.2020
+
+Rewind Feat. Madame Denise - Video Killed The Radio Star (1993) [FLAC|Lossless|image + .cue] <Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Video Killed The Radio Star (Radio Edit) 4:03
+02. Video Killed The Radio Star (With An Eye 2 Techno) 5:02
+03. Video Killed The Radio Star (Mother's Day) 4:15
+04. Kaleidoscope (Coming Soon) 2:17Жанр: Euro HouseПродолжительность: 00:15:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3836DC8A1172890128170394F2A99FAC8A1E9AFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348794   (1004229) от 02.01.2020
+
+VA - Ibiza Day & Night (2010 - 2012) 6 CD [FLAC|Lossless|tracks + .cue]<Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Musikk VS. Chiris Montana - Summer Lovin' ( Acapella )
+02. Martin Villeneuve - Come On Over ( Up Jeet Remix )
+03. Rio Dela Duna & Dani Cohiba - El Cubano ( Martin Villeneuve Remix )
+04. Do Santos - Noti Verisi(   Читать дальше...   )Жанр: EurodanceПродолжительность: 02:26:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91AB6704CF234239FE618AFEB5F1CDA26429AEE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349675   (1004266) от 02.01.2020
+
+Robbie Williams - The Christmas Present (2019) 2CD [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. Winter Wonderland
+02. Merry Xmas Everybody (feat. Jamie Cullum)
+03. Let It Snow! Let It Snow! Let It Snow!(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C657B23E6469EB3409219C3F5D6D7CEE10B2085
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486823   (1004329) от 02.08.2021
+
+Новые Самоцветы - Вся жизнь впереди, надейся и жги! (2014) [FLAC|Lossless|WEB-DL|tracks] <Pop, Retro-Schlager>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:30)
+ 02. Вся жизнь впереди (3:36)
+ 03. Не повторяется такое никогда (3:49)
+ 04. В последний раз (2:58)(   Читать дальше...   )Жанр: Pop, Retro-SchlagerПродолжительность: 01:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA8886548003D7835F180A82F9B5DE6EDCB3862
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486647   (1004609) от 01.08.2021
 
 VA - Girl Power (2021) [MP3|320 Kbps] <Pop>
@@ -534,168 +695,6 @@ VA - Beautiful and Chilled Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E8FAEFE9A616ABDBF3A4216C047C6E485F8374A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482401   (1007587) от 08.07.2021
-
-ABBA - International (1988) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007587.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ring Ring (German Version) (03:10)
-2. Intermezzo No. 1 (03:46)
-3. Waterloo (French Version) (02:44)
-4. Take A Chance On Me (04:24)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D7CEE710F1A8BE86EF9138F481A904B137E9372
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482267   (1007768) от 07.07.2021
-
-Brass Construction - Attitudes (1982) Remaster, 2010,  Think! Records [FLAC|Lossless|tracks + .cue] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007768.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Can You See The Light 5:18
-2 Funtimes 4:51
-3 Attitude 6:43
-4 Do That Thang 5:31(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA5DB8C25A14088BA5EE0CBA440CC6B34FF84127
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482019   (1007906) от 06.07.2021
-
-Tata Vega - 2 Albums (1978, 1980) LP [MP3|320 Kbps] <Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тата Вега (урожденная Кармен Роза Вега 7 октября 1951 года на Ямайке, Куинс, Лонг-Айленд,Нью-Йорк) - вокалистка, чья карьера охватывает театр, кино и различные музыкальные жанры.01. Come On And Try My Love (3:26)
-02. I Need You Now (3:35)
-03. Get It Up For Love (6:09)
-04. If Love Must Go (4:12)(   Читать дальше...   )Жанр: Disco, Funk SoulПродолжительность: 01:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20223ADFC432666EA4BB37BF3DB608A89DFEA2C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481855   (1008029) от 05.07.2021
-
-Estrak Lancios - Cosmopolitan Wave (1979) LP [MP3|320 Kbps] <Electronic, Leftfield, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmopolitan Wave (17:19)
--Red Wave
--Violet Wave
--Blue Wave(   Читать дальше...   )Жанр: Electronic, Leftfield, DiscoПродолжительность: 00:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53557F84FBF239610B83B40DF21371E6D97C394
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481563   (1008075) от 04.07.2021
-
-Modern Talking - Collection (1985-2011) 109 CD [FLAC|Lossless|image + .cue] <EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Modern Talking - немецкий англоязычный музыкальный дуэт, исполнявший танцевальную музыку в стиле диско и состоявший из Томаса Андерса и Дитера Болена. В конце своего существования дуэт развился в до сих пор коммерчески самую успешную немецкую поп-формацию. Образован в 1984 г.Список альбомов:
-1985.The First Album
-1985.Let's Talk About Love (The 2nd Album)
-1986.Ready For Romance (The 3rd Album)(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 03:12:21:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D6ACCD42235592DC8174DB7E337305117915E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481739   (1008168) от 04.07.2021
-
-VA - Calming Acoustic Playlist (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shannon & Keast - Lost (03:41)
-02. Karizma Duo - Moonlight Shadow (02:48)
-03. John Burnsby - Easy (03:29)
-04. Meg Birch - Falling (Acoustic Version) (03:39)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76C0E22A6CED72501502A41ADDCD262A1C95623C
 ```
 
 

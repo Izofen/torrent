@@ -1,3 +1,165 @@
+###  Публикация: 1441506   (1037791) от 21.01.2021
+
+Rhye - Home (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie-Pop, RnB, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:30)
+02. Come In Closer (03:36)
+03. Beautiful (04:21)
+04. Safeword (02:54)(   Читать дальше...   )Жанр: Indie-Pop, RnB, DowntempoПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1896B0E3A93CB12F8706641456A82A806F1EC30E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441333   (1037797) от 21.01.2021
+
+Mighty Pope - Sway (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sway (5:03)
+02. In-A-Gadda-Da-Vida (7:26)
+03. New Orleans (5:51)
+04. Becauce The Night (5:29)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:31:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0249590B92940B2FEC317F887D6479A0A9356526
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441453   (1037803) от 21.01.2021
+
+Eva Kaufmann - Was ich fuehl (2016) [FLAC|Lossless|image + .cue] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037803.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Was ich fühl
+2. Ohne Dich
+3. War das Alles
+4. Wo stehn wir(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8333A122288C149B09CA457BEA3B55C31F645CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615279   (1037859) от 25.02.2023
+
+Adam Lambert - High Drama (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holding Out for a Hero (03:50)
+02. Chandelier (03:44)
+03. Ordinary World (03:20)
+04. Getting Older (04:24)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6EB9698B2326DE5A727D114645F9BCF92CC762
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441166   (1038056) от 20.01.2021
+
+Flower - Heat (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Dancing (6:46)
+02. Classical Love (9:42)
+03. Our Never Ending Love (7:03)
+04. How (9:05)Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DA325915AA5915700A3D5E0C8402B3D288BB8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441226   (1038062) от 20.01.2021
+
+Kilo - Kilo (1979) LP [MP3|320 Kbps] <Electronic, Rock, Disco, Funk Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Days (3:55)
+02. Devil's Eye (4:05)
+03. Be Mine (3:57)
+04. You, You, You (4:31)(   Читать дальше...   )Жанр: Electronic, Rock, Disco, Funk SoulПродолжительность: 00:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82EC1DC1674689BD93920A5C7E185AA499DE2CAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441072   (1038063) от 20.01.2021
 
 Caviar - Come To L.A. (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
@@ -530,168 +692,6 @@ Barry Gibb and Friends - Greenfields: The Gibb Brothers' Songbook (Vol. 1) (2021
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:291AA5AB817A6A9756AD310ED9C4ACE6E6360421
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612805   (1039807) от 17.02.2023
-
-VA - Romantic Collection. Diva Mystic (2000) [OGG Vorbis|480 Kbps] <Electronic, Pop, 	New Age>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cecilia-Daughter Of The Midnight Sun
-02. Sally Oldfield-Flaming Star
-03. Marie Frediriksson-Det Regnar Igen
-04. Ofra Haza-Give Me A Sign(   Читать дальше...   )Жанр: Electronic, Pop, 	New AgeПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C614E185028DE11A6546A540A5F7141BF450EE49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439351   (1040079) от 12.01.2021
-
-Ric Perilano's Disco Sound Band - Sound Of The 80s (Instrumental) (2010) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-Disco, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dallas (4:25)
-02. Imagination (3:38)
-03. I'm Alive (3:06)
-04. L'lama L'amor (3:55)(   Читать дальше...   )Жанр: Eurodance, Euro-Disco, InstrumentalПродолжительность: 00:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF78A8A7060A3B606A1BADA62A4D6FC2374E039
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612579   (1040091) от 16.02.2023
-
-VA - Romantic Collection. Country (2000) [OGG Vorbis|480 Kbps] <Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean-Luc Ponty - New Country
-02. John Fogerty - Big Train
-03. Reba McFutire - Cumb That Mountain High
-04. S.Buono - Ode To 33(   Читать дальше...   )Жанр: CountryПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E456539FF880938B616BD058999FE62D83A9EEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612182   (1040283) от 15.02.2023
-
-VA - Romantic Collection. Black and Beautiful (2000) [OGG Vorbis|480 Kbps] <Pop, R&B, Hip-Hop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TLC - Dear Lie (Album Version)
-02. The Roots ft. Erykah Badu - You Got Me
-03. LL Cool J - Hey Lover
-04. Cedric Ceballos with Warren G - La Conecta(   Читать дальше...   )Жанр: Pop, R&B, Hip-HopПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F5D1E4340C7EDD48E6A85D5CCD335A17003A1A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439146   (1040335) от 11.01.2021
-
-A La Carte - The Ultimate Best of Album (2016) Remastered [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimmy Gimme Reggae (Remastered) (3:01)
-02. When the Boys Come Home (Remastered) (4:06)
-03. You Get Me on the Run (Remastered) (3:22)
-04. Viva Torero (Remastered) (3:56)(   Читать дальше...   )Жанр: Euro-Disco, EuropopПродолжительность: 02:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C86EB2D4832DEBCF38B7F5E375E3286A8FB374EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438978   (1040337) от 11.01.2021
-
-Alan Barry - Greatest Hits & Remixes (2019) 2CD, Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Vibrations (Radio Version) (3:43)
-02. Come On (Radio Version) (3:55)
-03. Ring The Bell (Radio Version) (4:21)
-04. Tell Me The Reason (ZYX Edit) (3:27)(   Читать дальше...   )Жанр: Italo-Disco, EurobeatПродолжительность: 01:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6F3DE489D2715BFACD9317273072E573828F26
 ```
 
 

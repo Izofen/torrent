@@ -1,3 +1,144 @@
+###  Публикация: 1539711   (657218) от 26.03.2022
+
+Nickolay Fedorenko - Magic Multiverse: Best of 2011-2017 (2022) [MP3|320 Kbps] <Spacesynth, Spacedisco>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revolution (3:03)
+02. Liftoff (3:41)
+03. Mikroumlaufbahnen (feat. Vortex Mechanic) (4:41)
+04. Space Falcon (3:16)(   Читать дальше...   )Жанр: Spacesynth, SpacediscoПродолжительность: 01:02:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E75A725841827B87D82932E4C4A22E5B009AC42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902729   (657572) от 31.05.2015
+
+Major Lazer - Peace Is the Mission (2015) [FLAC|Lossless|WEB-DL]<Trap, FutureBass, DutchHouse, ElectroHouse, Moombahton, Carnival>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657572.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Be Together (feat. Wild Belle) [3:53]
+2. Too Original (feat. Elliphant & Jovi Rockwell) [3:27]
+3. Blaze Up the Fire (feat. Chronixx) [3:34]
+4. Lean On (feat. MO & DJ Snake) [2:56](   Читать дальше...   )Жанр: Trap, FutureBass, DutchHouse, ElectroHouse, Moombahton, CarnivalПродолжительность: 00:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72F0828A9AFDA09146783225408229C6509892DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514568   (657754) от 24.06.2012
+
+Example - Playing In The Shadows (2011) [FLAC|Lossless]<Electro House/ Electro Hip-Hop/Dubstep>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_657754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Example - Playing In The Shadows (2011)
+
+Год: 2011
+Жанр: Electro House/ Electro Hip-Hop/Dubstep
+Продолжительность: 00:52:39
+Страна: UK
+Лейбл: Ministry Of Sound
+Каталог №:  MOSART2
+Сканы: Комплект
+Кодек: FLAC(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902917   (657868) от 31.05.2015
+
+VA - Paul Oakenfold - DJ Box: June (2015) [MP3|320 кб/с]<Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657868.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fehrplay - Lotus (Original Mix) (07:04)
+002. Paul Oakenfold feat. J Hart - Surrender (Rei Remix) (03:31)
+003. Max Freegrant - Secret Weapon (Original Mix) (05:38)
+004. Canberra & Astrid Suryanto - UP (Mike Saint-Jules Radio Edit) (03:45)(   Читать дальше...   )Производство: PerfectoЖанр: TranceПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96DB7575D59F1C02A7DC2537D2F227D30501B231
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903531   (657873) от 31.05.2015
+
+VA - Chill Bar Essential Lounge (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657873.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bobby Deep - Dream Away (07:05)
+002. Artifact - Deep Inside (04:10)
+003. DJ Cattail - Vista Point (02:05)
+004. Lo Seen - Moons (04:48)(   Читать дальше...   )Производство: ABPЖанр: Downtempo, Lounge, Chill OutПродолжительность: 01:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A528F268292F1D7D87D2C3FA6885599525E93ADF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225845   (657956) от 18.05.2018
 
 DAVI - Boarding Call (2018) Maxi Single & EP [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House>
@@ -563,141 +704,6 @@ DJ Smash - Smash World (2017) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21BCB5843BC9E39F02133B12243E50B51065B839
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139682   (659080) от 03.06.2017
-
-VA - Buddha Gold Vol.1 – The Finest In Mystic Bar Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659080.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Le Voyage – African Daydreamer (Ethno mix) (05:55)
-2. DJ Maretimo – Cosmopolitan Cocktail (feat Cafe Americaine – mix La Nuit) (05:55)
-3. Cinematic – We Are Alone (After Sunset mix) (07:46)
-4. Panafrican Project – Talking Pyramids (Ethnix Space mix) (06:33)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 06:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7E5289990AE7397ED8346DB3C79BE8D08F1728
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139642   (659086) от 03.06.2017
-
-Blasterjaxx - XX Files (Festival Edition) (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  070 (Extended Mix) 3:45
-02.  Do Or Die (Extended Mix) (feat. Lara) 4:36
-03.  Savage (Extended Mix) 4:06
-04.  Seth (Extended Mix) 4:24(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 00:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A06CC6BA414EE4736AF855B96A1D0707E8DC92E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139322   (659099) от 03.06.2017
-
-VA - EPIC Ibiza: Trance Anthems Vol.1 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Digitalism - Second Chance (Capa Remix) 5:42
-02.  21street - Mind Bender 10:08
-03.  Marko Kantola - Valkyrie 7:16
-04.  Ejoop - Thrown 4:22(   Читать дальше...   )Жанр: TranceПродолжительность: 03:26:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03D5CE1550013411615B2A772C5BA08CA4AA8869
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139558   (659104) от 03.06.2017
-
-Nightstop - Dancing Killer (2017) [MP3|320 Kbps] <Electronic, Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flesh 04:19
-02. Dancing Killer 03:23
-03. Erotic Encounter 04:17
-04. The Cage 03:41(   Читать дальше...   )Жанр: Electronic, SynthwaveПродолжительность: 00:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD4DC43C74D8768F07CC1639C79C1F1A82D1015A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902744   (659166) от 30.05.2015
-
-VA - After Hours (The Sensuality Continues Vol 3) (2015) [MP3|320 кб/с]<Lounge, Chill Out, Jazzy>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659166.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mike McGuill - Bow City Blues (02:21)
-002. David Tick - The Truth (02:56)
-003. Wolftooth - Weighty (04:34)
-004. Tracing Arcs - Babydoll (Just Chillin' Mix) (06:18)(   Читать дальше...   )Производство: Musique SensuelleЖанр: Lounge, Chill Out, JazzyПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4B9107C4BCBC4D0A84DEBAA5410C0D9B2FF9259
 ```
 
 

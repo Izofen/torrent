@@ -1,3 +1,30 @@
+###  Публикация: 1203519   (788238) от 02.02.2018
+
+VA - Progressive Psychodelic Trance Vol.2 (Exlusive Tracks) (2018) [MP3|320 Kbps] <Psy Trance, Psychodelic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cosmic Tone  -  Spirit Technology (Original Mix)  7:28
+02.  Static Movement & Mindwave  -  Sources (Original Mix)  8:14
+03.  Arunarush  -  Reactivate (Original Mix)  7:28
+04.  Juiced  -  Under The Rain (Original Mix)  5:20(   Читать дальше...   )Жанр: Psy Trance, PsychodelicПродолжительность: 03:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AE25AEC2000311EFFD72F7D465726EEBAF3A98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511859   (788373) от 22.11.2021
 
 Rolling Stones - Atlantic City '89 (feat. E. Clapton, J. Lee Hooker, Axl & Izzy)(1990) Bootleg 3cd-box [MP3|320 Kbps] <Rock>
@@ -665,33 +692,6 @@ VA - Progressive Psychodelic Trance (Exlusive Tracks) (2018) [MP3|320 Kbps] <Psy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:036985501846AC7F92637E93C1794A2C680FCDCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511122   (789248) от 20.11.2021
-
-VA - Soft Chill House (2021) [MP3|320 Kbps] <Chill, Deep House, Relax Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789248.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jay Haze & Blu.A - Chango
-002. Monodeluxe - All I Need
-003. Lezcano - Blood Is In The Air
-004. Karemba - Sublime Epiphany(   Читать дальше...   )Жанр: Chill, Deep House, Relax ElectroПродолжительность: 10:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60AEFD5114EDAAA262B97847A365B539F05FFC98
 ```
 
 

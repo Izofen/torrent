@@ -1,3 +1,30 @@
+###  Публикация: 1505946   (801734) от 29.10.2021
+
+The Motors - 3 Albums (1977 - 1980) [MP3|320 Kbps] <Pub Rock, Power Pop, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801734.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Motors - британская группа новой волны, образованная в 1977 году в Лондоне, Англия, бывшими участниками Ducks Deluxe Ником Гарвеем и Энди Макмастером (с гитаристом Брэмом Чайковски и ударником Рики Слотером). The Motors, исполнявшие отмеченный технически точными, размашистыми аранжировками поп-рок с элементами паб- и панк-рока, получили известность благодаря (   Читать дальше...   )Список альбомов:
+1977 - 1
+1978 - Approved By The Motors
+1980 - Tenement Steps(   Читать дальше...   )Жанр: Pub Rock, Power Pop, New WaveПродолжительность: 02:25:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B4AB89F2C58FA566B0DB008A7BE4B4E014226A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120714   (801798) от 31.03.2017
 
 The Beatles - Abbey Road And Beyond (2016) 6CD Box Set [MP3|320 Kbps] <Pop, Rock>
@@ -662,33 +689,6 @@ The 69 Eyes - Universal Monsters (2016) [MP3|320 кб/с] <Gothic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:823F2295BC1F11813D255CCBEB41D1B2D2477B23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504497   (812210) от 23.10.2021
-
-The Rolling Stones - Tattoo You (1981) 40th Anniversary, Super Deluxe Edition, Remastered, 2021, Promotone B.V. [MP3|320 Kbps] <Hard-Rock, Rock-n-Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under My Thumb [00:03:53]
-02. When The Whip Comes Down [00:04:33]
-03. Let's Spend The Night Together [00:04:22]
-04. Shattered [00:04:41](   Читать дальше...   )Жанр: Hard-Rock, Rock-n-RollПродолжительность: 3CD, 03:27:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C59573B8E3FBF314B53532DD9D58F4A1E58130A
 ```
 
 

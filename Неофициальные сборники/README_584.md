@@ -1,3 +1,30 @@
+###  Публикация: 1495295   (880716) от 12.09.2021
+
+VA - Beatport Techno: Sound Pack #345 (2021) [MP3|320 Kbps] <Techno, Tech House, Minimal, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880716.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Di Saronnojohnick - Instant Coffee
+002. Rondon - Lost In Da Pond Rd
+003. Pvlsx - Drvmvlator
+004. Sir Vee The Great - A Feeling(   Читать дальше...   )Жанр: Techno, Tech House, Minimal, ElectroПродолжительность: 11:23:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3D080E318CF390C124C3F5FC349EFA3A5AB35C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495300   (880717) от 12.09.2021
 
 VA - Beatport Deep House: Sound Pack #346 (2021) [MP3|320 Kbps] <Deep House, Electro>
@@ -656,33 +683,6 @@ VA - German Top 100 Single Charts 03.04.2020 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E860BA541196E93BAD3AD025C0DBF2D848EC9CF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372769   (882148) от 05.04.2020
-
-VA - The Official UK Top 40 Singles Chart 03.04.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights
-02. SAINt JHN - Roses (Imanbek Remix)
-03. Dua Lipa - Physical
-04. Dua Lipa - Don't Start Now(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C30BE7FB8E6194A6FEA7C2A8BB1B4050B1BF411A
 ```
 
 

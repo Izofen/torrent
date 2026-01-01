@@ -1,3 +1,138 @@
+###  Публикация: 999969   (862546) от 23.03.2016
+
+VA - 538 Dance Smash 2016 Vol.1 (2016) [FLAC|Lossless|image + .cue] <House, Pop, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862546.jpg" />
+</div>
+
+
+###  Подробнее
+
+На трекере часто появляется релизы из этой серии и всегда они пользуются неизменным успехом у членов клуба. Вот совсем свежий выпуск предлагается Вашему вниманию. А остальные релизы сможете найти по ссылке внизу.01. Mike Posner - I Took A Pill In Ibiza (Seeb Remix)  (3:12)
+02. Major Lazer feat. Nyla & Fuse ODG - Light It Up (Remix)  (2:45)
+03. Alan Walker - Faded  (3:28)
+04. Armin van Buuren feat. Kensington - Heading Up High  (3:48)(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 01:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991C47F092364E0B867ED222AAC078E165786300
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999333   (862763) от 23.03.2016
+
+VA - Vintage Chic 100 - Part Three (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge, Lo-Fi>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862763.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Scubba - The Sweetest Taboo
+002. James Farrelli - King
+003. Mo'Nique - Tempted
+004. Dinah Eastwood - Crazy(   Читать дальше...   )Жанр: Downtempo, Chillout, Lounge, Lo-FiПродолжительность: 06:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4097C1A20B36C3EE814BE01CCD5532DD10A52B2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497725   (862982) от 23.09.2021
+
+Ben Bohmer (Ben Böhmer) - Begin Again (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Begin Again (2:42)
+ 02. Beyond Beliefs (5:14)
+ 03. Home (feat. Jonah) (3:34)
+ 04. Erase (feat. lau.ra) (4:13)(   Читать дальше...   )Жанр: EDM, Deep Progressive HouseПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7422FC71BF1426EED5E0C3FF0C9764E1ED06BDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999716   (863053) от 23.03.2016
+
+Stefan Gubatz - Distanz (2012) [FLAC|Lossless|tracks + .cue] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Byte And Scratch (10:49)
+02. Cologne (11:19)
+03. Villa Nicht (10:38)
+04. Vitamin (07:09)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC72A0BC943F9FB4B65B82FAB394A6D2AFA14F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999707   (863141) от 23.03.2016
+
+VA - Telrae Vinyl Mix by Salz (2012) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salz - Telrae Vinyl Mix by Salz (Continuous Mix) (01:17:40)
+02. Stefan Gubatz - An (08:20)
+03. Riley Reinhold - Get A Splash (Salz Dub-O-Lution Remix) (06:54)
+04. Martin Schulte - Killer (08:02)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 03:09:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF486AA6904EA2DBC4274667C2894BC33C298C44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375744   (863603) от 15.04.2020
 
 NeoSpace - Revelation Tour (2020) Limited Edition [FLAC|Lossless|tracks + .cue] <Spacesynth, Synthwave>
@@ -560,141 +695,6 @@ VA - Whenever Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCCF4DDD268ECE36678912210F2A15582AB93BBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108354   (864836) от 24.02.2017
-
-VA - Chillout Room (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864836.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Robien M - Amour 5:58
-002. Victima - Silent Scream 5:49
-003. Sad radio on Cassini - Northern Wind 5:47
-004. MBogdanov - Atmosphere 5:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53D16B36665B5007610B28CFF7933F4372E56093
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497562   (864882) от 22.09.2021
-
-VA - Live @ Supersonic Festival (2021) [MP3|320 Kbps] <Electro House, Progressive House, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zedd @ Supersonic, Japan 2021-09-18:
-
-01. Zedd ft. Matthew Koma - Spectrum (Intro Edit) w/Zedd ft. Bahari - Addicted To A Memory
-02. Swedish House Mafia - It Gets Better (David Guetta & Zedd Remix)(   Читать дальше...   )Жанр: Electro House, Progressive House, Big RoomПродолжительность: 03:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B0FF67B5964843BC872D2727845E5EDCADD512
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497313   (864946) от 22.09.2021
-
-Trance Wax - Live @ Atlantis Ibiza, Spain (2021-09-16) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane ft. Moya Brennan - Saltwater (AVIRA Remix)
-02. Energy 52 - Cafe Del Mar (Tale Of Us Renaissance Remix)
-03. ID - ID
-04. Above & Beyond - Far From In Love (Trance Wax Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:27:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:851852A93D8E28F10EAC337053D9D711A31973E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014577   (865239) от 14.04.2020
-
-Iketa - Discography 14 Releases (2011-2020) Visionary Mind Records [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Glitch, UK Garage, Modern Classical, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fields (02:00)
- 02. Light (02:48)
- 03. Tempest (03:23)
- 04. Elm (02:35)(   Читать дальше...   )Жанр: IDM, Downtempo, Glitch, UK Garage, Modern Classical, Ambient •Продолжительность: 00:21:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865F9020E7BB24498A4BE69EBE94679A8D266EF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375351   (865395) от 14.04.2020
-
-VA - Satin Love (Luxury Jazz Music For Fine Dine & Lounge) (2018) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Easy Listening, Smooth Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865395.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Fabrice Mogini - Dinner In Style (Original Mix) (3:20)
-2.Riaan Nieuwenhuis - In The Light (Original Mix) (4:33)
-3.Vocalatti - Parisienne Chill (Original Mix) (3:14)
-4.Alexandre Molodkov - Awash Yacht (Original Mix) (3:27)(   Читать дальше...   )Жанр: Lounge, Easy Listening, Smooth JazzПродолжительность: 01:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37EBBDAAE35D47679FB4F38DA1ADAB1B09349A7B
 ```
 
 

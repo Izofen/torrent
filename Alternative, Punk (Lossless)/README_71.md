@@ -1,3 +1,84 @@
+###  Публикация: 587310   (987696) от 22.01.2020
+
+Nickelback - Greatest Hits (2012) 2CD [FLAC|Lossless]<Alternative Rock, Post Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Means War [3:23]
+02. Shakin' Hands [3:42]
+03. Side Of A Bullet [3:03]
+04. Flat On The Floor [2:05](   Читать дальше...   )Жанр: Alternative Rock, Post Grunge •Продолжительность: 01:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F7BFD7284B6F26C2BB8B9C1269E9D2A46247A26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354588   (988009) от 22.01.2020
+
+Wolf Parade - Thin Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Glass (03:21)
+02. Julia Take Your Man Home (04:35)
+03. Forest Green (05:04)
+04. Out of Control (04:20)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7112221A530CBE84C1F4080AD21C36754DF5A6F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354591   (988057) от 22.01.2020
+
+Gemma Ray - Psychogeology (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blossom Crawls (03:34)
+02. Death Tapes (03:14)
+03. It's Only Loneliness (04:31)
+04. In Colour (04:22)(   Читать дальше...   )Жанр: Indie Pop, Indie RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49B78EB417D1FFA7ADB3FFD08FE4AEDED00C907
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 432812   (988719) от 08.01.2012
 
 Muse - Absolution (2003) [FLAC|Lossless]<Alternative Rock>
@@ -668,86 +749,6 @@ Triple J Hottest 100 - ежегодный музыкальный сборник,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CADF5255AB02994F6EEB45A81240B5313C91623
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350861   (1003009) от 07.01.2020
-
-Thurston Moore - Spirit Counsel (2019) 3CD BoxSet [FLAC|Lossless|tracks + .cue] <Art Rock, Experimental, Avangarde>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003009.jpg" />
-</div>
-
-
-###  Подробнее
-
-SPIRIT COUNSEL is a collection of three extended compositions recorded between 2018-19. This collection represents a period of reflection on spiritual matters, collective musical friendships, and a time and space universally, without words or languages to distract from meditation.CD1 - Alice Moki Jayne
-CD2 - 8 Spring Street
-CD3 - GalaxiesПроизводство: The Daydream Library Series – DLS 004CDЖанр: Alternative Rock, Art Rock, Experimental, AvangardeПродолжительность: 02:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC21E963ABEBC1603A12DAB650AC173BEE176DCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487593   (1003351) от 06.08.2021
-
-Insolence - Revolution (2001) [FLAC|Lossless|image + .cue] <Hardcore, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death Threat [3:49]
-02. Head 2 Head [3:38]
-03. Poison Well [3:30]
-04. Natural High [3:22](   Читать дальше...   )Жанр: Hardcore, Nu MetalПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF7EBC23CED2B94D63F6CEFEC8583205005786E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349504   (1004269) от 02.01.2020
-
-Bring Me the Horizon - Music to listen to~/.../~GO TO (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Trip-Hop, Ambient, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steal Something. (10:12)
- 02. Candy Truck / You Expected: LAB Your Result: Green (7:15)
- 03. A Devastating Liberation (4:40)
- 04. ¿ (5:13)(   Читать дальше...   )Жанр: Alternative Rock, Trip-Hop, Ambient, MetalcoreПродолжительность: 01:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2E6BC38BE6043D435985600829C4812EF79ADA
 ```
 
 

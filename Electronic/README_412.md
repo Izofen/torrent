@@ -1,3 +1,138 @@
+###  Публикация: 1510409   (791467) от 16.11.2021
+
+Factor B - Theatre of the Mind (2021) [FLAC|Lossless|WEB|tracks] <Trance, Progressive House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Factor B & Highlandr - Fading Into You (5:45)
+02. Factor B, Highlandr & Susie Ledge - Don't Hide (6:21)
+03. Factor B & Highlandr - Feel Surreal (6:45)
+04. Factor B & Arielle Maren - Connected (Highlandr's Sunday Morning Mix) (6:18)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 02:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31621F0C2ECFEB10A4140D55106F102574AF76EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510379   (791468) от 16.11.2021
+
+VA - Trance Pioneers (2021) [FLAC|Lossless|WEB|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Askew - Bad Apple (Original Mix) (7:32)
+02. John Askew - Z List Uber Star (Reaky Remix) (6:21)
+03. John Askew & John O'Callaghan - Game Over (John O'Callaghan Remix) (9:05)
+04. Manuel Le Saux - Reflex (Activa Intro Rework) (6:17)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87AF016A1243BE2110210FD7E521432DFB322E75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510362   (791521) от 16.11.2021
+
+Activa - Origins (2021) [FLAC|Lossless|WEB|tracks|image] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Activa - For Emily (Album Mix) (3:38)
+02. Activa & Lo - Leave a Light On (Album Mix) (6:25)
+03. Activa & Rolo Green - Reach Out (feat. Julie Harrington) (Album Mix) (6:03)
+04. Activa - Z21 (Activa’s ‘Origins' Album Mix) (5:05)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8988A2229E8DAA3BB63B7B41A98949AC57EBF0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201573   (791570) от 26.01.2018
+
+VA - Ministry Of Sound: Piano House Classics (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alison Limerick  -  Where Love Lives (Radio Edit)  3:48
+02.  Bizarre Inc.  -  Playing with Knives  3:18
+03.  Black Box  -  Ride On Time  4:32
+04.  K.Klass  -  Let Me Show You  3:35(   Читать дальше...   )Жанр: HouseПродолжительность: 07:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52D47BCC4DAA18952C98C213EFB02A6DAF1C44C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201761   (791622) от 26.01.2018
+
+VA - Workout Hits 2018. 40 Essential Hits For The Practice Of Your Favorite Sport (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic - Show Me The Money (Radio Edit)
+02. Maarten Van Larsen - Woodoorave (Harlie & Charper Remix Edit)
+03. SuperFitness - Titanium (Workout Mix Edit 134 bpm)
+04. Geo Da Silva - Disco Inferno 2K18 (Stephan F Remix Edit)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:15:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E63DB4751A78E1A4403E23233032CB9151FE53F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201745   (791673) от 26.01.2018
 
 Jono Mccleery - Seeds Of A Dandelion (2018) [MP3|320 Kbps] <Chillout, Soul, Downtempo>
@@ -557,140 +692,6 @@ Peter Pearson - Hearts and Flowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Baleari
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B03D3F2E1BCA0F5145E852746ED02B9CF19F4C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201530   (792169) от 25.01.2018
-
-VA - Ministry Of Sound: The Biggest Dance Hits Of All Time (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fatboy Slim  -  Right Here Right Now  3:56
-02.  Armand Van Helden  -  You Don't Know Me (feat. Duane Harden)  4:01
-03.  Fedde le Grand  -  Put Your Hands Up For Detroit  6:34
-04.  Benny Benassi & The Biz  -  Satisfaction  4:45(   Читать дальше...   )Жанр: HouseПродолжительность: 01:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63941DDA0BF9B26C8260B85E7C904674EEDC8179
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201498   (792233) от 25.01.2018
-
-DJ Koze - Seeing Aliens (2018) EP [FLAC|Lossless|WEB-DL|tracks] <House, Deep>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seeing Aliens (04:52)
-02. Seeing Aliens (extended Breakthrough Listen) (08:17)
-03. Nein König Nein (07:18)Жанр: House, DeepПродолжительность: 00:20:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0FFE07039F1D54321802BCA2B62E42C9F2C972C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274832   (792247) от 08.01.2019
-
-VA - Power Workout: Pump Up Music 2019 [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - Animal (Original Mix) 04:14
-02. FLGTT - Por Que No 2K19 (Radio Edit) 03:26
-03. Teknova - Rhythm Is A Dancer 2K19 (Melbourne Bounce Mix) 03:36
-04. MaxRiven - Welcome To The Jungle (Original Mix) 03:00(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C3903320CA202ACA622A4719A6DF215769F32A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274740   (792251) от 08.01.2019
-
-VA - Fitness Unlimited 2018: Made For Workout & Running (2018) [MP3|320 Kbps] <House, Dance, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MaxRiven - The Riddle (Original Mix) 3:15
-02. Michael Fall & Charlie Atom - Jammin' (Original Mix) 3:48
-03. Dan Bass - Dance (Extended Mix) 4:16
-04. Deja & Spikaa - Home (Extended Mix) 4:14(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 02:08:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83FDEAF876C67EE94A84A43B8082563A494601D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274716   (792253) от 08.01.2019
-
-Dark Strands - Unknown Truths (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Disco, Experimental, Space Rock, Krautrock>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Drive (06:13)
-02. Cold Turkey (05:37)
-03. Will Last Forever (06:40)
-04. Unknown Truths (05:09)(   Читать дальше...   )Жанр: Deep House, Disco, Experimental, Space Rock, KrautrockПродолжительность: 00:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB05825B0909C87E09240FEDE9FCE1A0347A925
 ```
 
 

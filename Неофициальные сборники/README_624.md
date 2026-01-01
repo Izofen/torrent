@@ -1,3 +1,30 @@
+###  Публикация: 1091485   (942906) от 09.01.2017
+
+VA - Empire Records - Chill Out 8 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Late Night Alumni - Empty Streets (Dj Villain Remix)
+02. Deeperise - Make Me Alive (Original Mix)
+03. Anton Ishutin feat. Leusin - Waves (Nick Motion Remix)(Accoustic Version)
+04. Alok & Bruno Martini feat. Zeeba - Hear Me Now (Original Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38356B7A852E66AA3B18C46499D7B84707587DE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091571   (942923) от 09.01.2017
 
 VA - Record Super Chart #469 (2017) [MP3|320 Kbps] <House, Club, Dance>
@@ -668,33 +695,6 @@ VA - Beatport Trance: Electro Sound Pack #14 (2020) [MP3|192-320 Kbps] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:209C0B7AD19CEEC74A5839A0212A9FDFA1529EE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363289   (943707) от 27.02.2020
-
-VA - City Life: Extended Trance Party (2020) [MP3|320 Kbps] <Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943707.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alter Future - Air (Original Mix)
-002. Dustin Husain & Rinaly - Hypernova (Extended Mix)
-003. Nadi Sunrise & Kimberly Hale - With My Heart (Extended Mix)
-004. Artento Divini - Overall Phased(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 13:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5940D27B296F18E36A2EF0EEE577415A026FE6
 ```
 
 

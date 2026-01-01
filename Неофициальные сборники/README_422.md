@@ -1,3 +1,30 @@
+###  Публикация: 1030128   (676525) от 29.06.2016
+
+VA - Зарубежная Дискотека ХХ Века - 27 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boys Next Door - Lady Of The Night ( 1987 )
+02. Video Kids - Satellite ( Reprise 1987 )
+03. Denise - You Belong To Me ( 1997 )
+04. Lazarus - Wait ( 1989 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4624AF3BDD64EB46B589410C60C7C25C72C64827
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030164   (676534) от 29.06.2016
 
 VA - Ultimate Power Workout (2016) [MP3|256-320 Kbps] <Dance>
@@ -683,33 +710,6 @@ VA - YR Best Chillout Vol.38 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:323DA300B372035F1942E7ADFC8715397C37696B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290596   (678252) от 20.03.2019
-
-VA - Running Workout 2019 [MP3|320 Kbps] <House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flo Rida - GDFR (feat. Sage The Gemini & Lookas)
-02. Galantis - Peanut Butter Jelly
-03. Clean Bandit - Solo (feat. Demi Lovato)
-04. Anne-Marie - 2002(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A9CB36CC58C5F5437B23B1BB66BFF931C8D1EE
 ```
 
 

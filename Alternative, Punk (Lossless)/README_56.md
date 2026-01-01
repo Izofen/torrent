@@ -1,3 +1,84 @@
+###  Публикация: 1280840   (756971) от 05.02.2019
+
+Broods - Don't Feed the Pop Monster (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sucker (03:58)
+02. Why Do You Believe Me? (03:41)
+03. Peach (04:15)
+04. Falling Apart (04:21)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905665E84F9BB05AE055D6EB471B8E68A2A10275
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018041   (757551) от 19.05.2016
+
+Rialto - Night On Earth (2001) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Brit Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London Crawling
+02. Anything Could Happen
+03. Anyone Out There?
+04. Catherine's Wheel(   Читать дальше...   )Жанр: Alternative Rock, Brit PopПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13BF7A70ECFBC89E6B5AF1BA0FA9356165EC9402
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018025   (757634) от 19.05.2016
+
+Rialto - Rialto (1998) [APE|Lossless|image + .cue] <Alternative Rock, Brit Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Monday Morning 5:19	[04:50]
+02.	Dream Another Dream	[03:30]
+03.	Broken Barbie Doll	[04:19]
+04.	Summer's Over	[04:39](   Читать дальше...   )Жанр: Alternative Rock, Brit PopПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDF389FD2F360F04148230F3ED2EC71E7178D3A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215620   (757782) от 26.03.2018
 
 Three Days Grace - Outsider (2018) [FLAC|Lossless|tracks + .cue] <Post-Grunge, Alternative Rock>
@@ -614,87 +695,6 @@ Maroon 5 - Songs About Jane (2002) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:385A3D4D9224B7EF384C05E6AFF132F86EE62146
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278253   (772838) от 24.01.2019
-
-Bring Me The Horizon - amo (2019) RCA Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. i apologise if you feel something (2:20)
- 02. MANTRA (3:53)
- 03. nihilist blues (feat. Grimes) (5:26)
- 04. in the dark (4:31)(   Читать дальше...   )Жанр: Alternative Rock, MetalcoreПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AC5DD49A2C52BBFB5DCBCBFAD23F3888EFC5E25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278334   (773167) от 24.01.2019
-
-Weezer - Weezer (Teal Album) (2019) [FLAC|Lossless|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Africa (Toto cover) (03:58)
-02. Everybody Wants to Rule the World (Tears for Fears cover) (04:04)
-03. Sweet Dreams (Are Made of This) (Eurythmics cover) (03:34)
-04. Take on Me (a-ha cover) (03:43)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A40D5679B0F848DEB1192A9A6986712EA62AC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278173   (773180) от 24.01.2019
-
-Lorelle Meets The Obsolete - De Facto (2019) [FLAC|Lossless|tracks + .cue] <Dream Pop, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ana (05:24)
-02. Líneas En Hojas (03:29)
-03. Acción – Vaciar (03:30)
-04. Unificado (09:11)(   Читать дальше...   )Жанр: Dream Pop, Psychedelic RockПродолжительность: 00:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11F3D2D3510276B943FE367765A04BF3817BCB06
 ```
 
 

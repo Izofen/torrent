@@ -1,3 +1,57 @@
+###  Публикация: 1391496   (781016) от 20.06.2020
+
+Andrew Jasinski - Embracing the Universe (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Neo-Classical, Instrumental, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_781016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Embracing the Universe (6:22)
+02. Transforming Fire (13:24)
+03. Moon Bear (14:10)
+04. Immersion (3:54)Жанр: Modern Classical, Neo-Classical, Instrumental, PianoПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C19181F0487815A9E0062DED546570E38A11D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206194   (782511) от 13.02.2018
+
+Tom Parker Featuring Berdien Stenberg & Jaap van Zweden - Bach - The Brandenburgs - The Concertos 1, 2 & 3 (A Tom Parker Project) (1995) 1997 [FLAC|Lossless|image + .cue] <Classical, Neo ...
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto No. 1
+1	Allegro	4:37
+2	Adagio	3:36
+3	Allegro	5:10(   Читать дальше...   )Жанр: Classical, Neo-ClassicalПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED3AC30438511152F62343156AF34CE27B50DF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205369   (783464) от 10.02.2018
 
 Yann Tiersen - EUSA (2016) [FLAC|Lossless|tracks + .cue] <Neoclassical, Contemporary, Piano>
@@ -639,60 +693,6 @@ Riccardo Muti & Wiener Philharmoniker - New Year's Concert 2018 (2018) 2CD [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:473F470FDAB6C2BBFC0F28F3D7642BB0CA0B4D75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506102   (800830) от 30.10.2021
-
-VA - Best of Classical Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. London Philharmonic Choir - Carmina Burana, Fortuna Imperatrix Mundi No. 1, O Fortuna (2:42)
-02. London Philharmonic Orchestra - Orchestral Suite No. 3 in D Major, BWV 1068 II. Air (4:14)
-03. Finghin Collins - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight I. Adagio sostenuto (5:36)
-04. SWR Symphony Orchestra - Symphony No. 41 in C Major, K. 551 (   Читать дальше...   )Жанр: Classical, InstrumentalПродолжительность: 08:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE039306EA458C00B994C0AA3F6865201229F5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506366   (800892) от 30.10.2021
-
-Secret Garden - Sacred Night - The Christmas Album (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Folk>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Million Stars (3:51)
-02. Ave Maria (4:30)
-03. Sacred Night (4:08)
-04. Sagnet om julerosen (3:43)(   Читать дальше...   )Жанр: Classical, FolkПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AF41F5D9431AB4158D8A139996E05BC8BC73A8A
 ```
 
 

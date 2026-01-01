@@ -1,3 +1,136 @@
+###  Публикация: 1121579   (800488) от 02.04.2017
+
+Dawid Jurzyk - Mysterious Forest (2017)Single [MP3|320 Kbps] <Progressive Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Mysterious Forest (Original Mix) [07:17]
+02 Mysterious Forest (Stream Noize Remix) [06:39]Жанр: Progressive Trance, Uplifting TranceПродолжительность: 00:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C198D04EDCC0208E8CA967F2FA7DF83C7B3C0DE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121382   (800509) от 02.04.2017
+
+VA - Schneeweiss VII (Presented By Oliver Koletzki) - 2017 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aparde - Elias
+02. Marc Holstege - Sonorous
+03. Joachim Pastor - Millenium
+04. Reinier Zonneveld - Abstinence (Oliver Koletzki remix)(   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 03:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D2585241383F17BB56553D6810F7FAFDBA72A1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121422   (800544) от 02.04.2017
+
+VA - 1001 Oriental Nights, Chill Out Ethnic Cafe Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dune Raiders - Sahara - Oriental String Orchestra Mix
+02. Khalil Omar - On the Fence - Oriental Orchestra Mix
+03. Bangralution Hippies - The Last Chill Resort - Singh Space Night Mix
+04. Maksum Blank - Darbuka Sunset Del Mar - Kelly Jones Relax Cafe Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17EDAD9D4D1D7D259F43EF3FD51EFE11774651E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121444   (800611) от 02.04.2017
+
+VA - 1001 Chillout Nights (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ms. Jones and the Fireflies — Inception of Life — Birdy Monster People Mix
+02. Peacefull Souls — 1001 Nights — Harder But No Punk Mix
+03. Skyraiders — Diamonds of India — Lost and Found Mix
+04. Dairy of Dreams — Infinity (Part 1) — Punk Is Rolling Deep in the Sky Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:11:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB9652BBAFAE4F02024FCBBF4E4A521A9AAB42E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121259   (800642) от 02.04.2017
+
+VA - Luxury Chill out Deluxe: The Worlds Rich and Famous Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atrium – Praise for the Beach – Radio Edit
+02. Eliane Davis – In the Sun – Chillout Do Brazil Mix
+03. Lounge Lotion – Dawn of Light – Balearic Extended Mix
+04. Club Salinero – Shade in the Sun – Ibiza Chillout Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D5994F72B3434FDAF19BD4B5A563470596020EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120879   (800644) от 02.04.2017
 
 VA - Trance In Space 5 (2017) [MP3|320 Kbps] <Trance>
@@ -560,141 +693,6 @@ VA - Future Sounds. EDM (2018) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDACB54FC357EDFB94A76021935E40462056DE64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199386   (801836) от 15.01.2018
-
-VA - Aly & Fila - Future Sound Of Egypt 530 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jorgio Kioris - Linda (Ziger Remix)
-02. Chris Llopis - Platonic Shower (Dmitry Molosh Remix)
-03. Chris Bekker - Klangstunde
-04. POok - Lola(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F2204A58F0CD0B742137B2AD5BCA669B28DC502
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199364   (801839) от 15.01.2018
-
-VA - Ori Uplift - Uplifting Only 257 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. illitheas - Levity (Intro Mix)
-02. PRE-RELEASE PICK: Eric Senn - Kharon (EXCLUSIVE PREMIERE)
-03. Ross Rayer - Memories (EXCLUSIVE PREMIERE)
-04. Jericho Frequency feat. Emma Chatt - Do You See Me? (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B04D9D274AA5142DD347E94B5428FFAEF310C66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198908   (801841) от 15.01.2018
-
-VA - Cosy Winter Lounge Vol.3 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Euphonic Traveller  -  NYC Christmas Lights 2017 (Acoustic Version With Band)  5:28
-02.  Van  -  I Remember (Original Mix)  9:44
-03.  Marc Hartman  -  The Awakening (Original Mix)  4:25
-04.  Matthew Daniel  -  Lose Your Smile (Original Mix)  2:02(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE217961DE2DC88F8C3D6A1CEDD1DE748DBCBA9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198945   (801843) от 15.01.2018
-
-Hed Kandi - World Series: Tokyo (2010) [FLAC|Lossless|tracks] <Progressive House, Vocal House, Funky House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hardrive - Deep Inside (Harry Choo Choo Romeros Fun in the Sun Remix Edit) (3:31)
-02. Dennis Ferrer - Hey Hey (DF's Attention Vocal Mix) (6:21)
-03. Simian Mobile Disco - Cruel Intentions (DJ Pierre Remix) (3:20)
-04. Ian Carey Feat. Michelle Shellers - Keep On Rising (Nicky Romero Remix) (4:20)(   Читать дальше...   )Жанр: Progressive House, Vocal House, Funky HouseПродолжительность: 02:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52DE1E66ECF4576ED783424D57F7882A62F31729
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120662   (802007) от 31.03.2017
-
-Ultrаnоire - Intrоnаut (2017) [FLAC|Lossless|image + .cue] <SynthPop, Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Technicolor Lies (4:11)
-02. Playing Dead (4:37)
-03. Phantom (3:49)
-04. Poisoned (3:59)(   Читать дальше...   )Жанр: SynthPop, ElectronicПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31241E859D62C5D0A9F61725DC35CB4872B693E3
 ```
 
 

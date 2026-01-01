@@ -79,6 +79,30 @@ magnet:?xt=urn:btih:FE7B85B3F1AA5445D09148C0A53BDB141510B41C
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 678580   (651750) от 12.07.2013
+
+Dido - 3 альбома (2001-2005) [FLAC|Lossless]<Pop, Vocal, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_651750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Vocal, BalladФормат: track + cueПродолжительность: 00:58:48
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141194   (652128) от 09.06.2017
 
 Katy Perry - Witness (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -101,6 +125,33 @@ Katy Perry - Witness (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D644671AEA8EAEB4B545731ED6863B103BDDB2E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514269   (653419) от 28.06.2012
+
+VA - Absolute Dance Summer (2012) [FLAC|Lossless]<Pop, Rok, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_653419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год: 20121. Panetoz - Dansa pausa 2:58
+2. Michel Telу - Ai se eu te pego (Nousa nousa) (A class floor mix) 3:38
+3. Tacabro - Tacata' 3:30
+4. David Lindgren - Shout it out (WeSmile & Alexie Divello radio edit) 3:47(   Читать дальше...   )Жанр: Pop, Rok, R&BПродолжительность: 02:35:53
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -643,60 +694,6 @@ VA - Spring Hits 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39F79A18FB470249B9E8355054A4C7213105700E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137568   (667880) от 26.05.2017
-
-Вelindа Сarlislе - The Соlleсtiоn (2002) Japanese Edition [WV|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven Is A Place On Earth (4:07)
-02. I Get Weak (4:52)
-03. World Without You (4:42)
-04. Runaway Horses (4:42)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308B4EBF2ED4C5AC40DBDF82D4D8B451D0433D81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224128   (668106) от 08.05.2018
-
-West End Players and Singers - Highlights from Grease (2000) [FLAC|Lossless|image + .cue] <Musical, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Grease
-02.	Summer Nights
-03.	Hopelessly Devoted To You
-04.	You're The One That I Want(   Читать дальше...   )Жанр: Musical, PopПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD52C0EEA786807C365E7A9FCC0D6A6ABE8F896
 ```
 
 

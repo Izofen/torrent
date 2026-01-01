@@ -1,3 +1,30 @@
+###  Публикация: 1607240   (1044080) от 26.01.2023
+
+Silent Hope - Silent Hope (2023) [MP3|320 Kbps] <Gothic Rock, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sealed with Sorrow [00:04:06]
+02 - Different Pain [00:03:17]
+03 - Safer in the Shadows [00:04:14]
+04 - Never Wanted to Be Alone [00:04:58](   Читать дальше...   )Жанр: Gothic Rock, Gothic MetalПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9E646C61268CC06BDC53652C00980CFD5D13A1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607245   (1044084) от 26.01.2023
 
 Silt - The Hazmat Game (2022) [MP3|320 Kbps] <Gothic Rock>
@@ -668,33 +695,6 @@ Caravela Escarlate - 3 Albums (2016-2023) [MP3|320 Kbps] <Progressive Rock, Symp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA62529CFBC5AC44B459A304835A75A14F19159A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840088   (1047020) от 02.12.2025
-
-The Vegetarians - Uncle Meatless Favorite Recipes (2025) [MP3|320 Kbps] <Progressive Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1047020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm The Slime
-02. Wet T-Shirt Nite
-03. Elvis Has Just Left The Building
-04. Brown Shoes Don't Make It(   Читать дальше...   )Жанр: Progressive Rock, Classic RockПродолжительность: 01:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D089A503AF93768DBD1430AA7F40503252C0ED08
 ```
 
 

@@ -1,3 +1,162 @@
+###  Публикация: 987260   (927453) от 16.02.2016
+
+Валерий Ободзинский - Всё сбудется. Избранное (2003) [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эти глаза напротив (3:33)
+02. Девушка (3:45)
+03. Настоящая любовь (3:01)
+04. Встреча (3:09)(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BED94E266801A5D5EC53BE23BC445B27FACBC19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987347   (927545) от 16.02.2016
+
+Иванушки International - Конечно Он (1996) [FLAC|Lossless|image + .cue] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Тучи 04:11
+02. 	Этажи 04:01
+03. 	Вселенная 03:42
+04. 	Малина 04:09(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E261D4240B135A66977031AFF5CC69736B2231E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095030   (927560) от 19.01.2017
+
+Руки Вверх! - Забери ключи (2017) Single [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Забери ключиЖанр: PopПродолжительность: 00:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FEDE1A14B22EAAAE90EBFAD73869FF8946D613E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987155   (927805) от 16.02.2016
+
+Animal Collective - Painting With (2016) [MP3|320 кб/с] <Psychedelic pop, Indie Rock, Experimental>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FloriDada (04:06)
+02. Hocus Pocus (03:17)
+03. Vertical (04:15)
+04. Lying in the Grass (03:35)(   Читать дальше...   )Жанр: Psychedelic pop, Indie Rock, ExperimentalПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7B224475E34C1232CB23C6C915C832497F1535
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 755412   (927918) от 10.02.2014
+
+Bad Boys Blue - Bad Boys Best (2007) [FLAC|Lossless|image + .cue]<Synth-pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  You're A Woman   (3:55)
+02.  Back To The Future   (3:45)
+03.  L.O.V.E. In My Car   (3:32)
+04.  Jungle In My Heart   (3:41)(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 01:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED72348D9F811BFDECB80559DC09CCE2A9534C7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986871   (928788) от 15.02.2016
+
+VA - KuschelRock: Lovesongs Of The 90's (2016) Special Edition [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_928788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sinéad O'Connor - Nothing Compares 2 U (1990) - 5:09
+02. Oasis - Wonderwall (1995) - 4:13
+03. Faith No More - Easy (1992) - 3:06
+04. Extreme - More Than Words (Single Version) (1991) - 4:00(   Читать дальше...   )Жанр: Top 40, Ballad, Pop, Soul, Rock, Alternative Rock, Pop Rock, Soft Rock, R&B, Reggae Pop, Stage & Screen, VocalПродолжительность: 02:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332159396F66FCD27B14BDADCC1634994B8AA624
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365546   (928817) от 08.03.2020
 
 VA - Новые хиты (Зима 2019) (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
@@ -530,169 +689,6 @@ magnet:?xt=urn:btih:1D609EB6848F9619BB688D0FDD9719E1F7032108
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68F7A000073D6A3C1ACC5C4DC71EB7D7D42821D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093880   (932272) от 16.01.2017
-
-Red Box - The Circle & The Square (1986) Reissue, 2008, Cherry Pop [APE|Lossless|image + .cue] <Alternative Pop, New Wave, World Music>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932272.jpg" />
-</div>
-
-
-###  Подробнее
-
-На мой взгляд (и не только) шедевр 80-ых во многом опередивший своё время и, возможно поэтому, недостаточно оцененный современниками.01. For America
-02. Heart Of The Sun
-03. Billy's Line
-04. Bantu(   Читать дальше...   )Жанр: Alternative Pop, New Wave, Choral, Orchestral, Art Rock, World MusicПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BBC1C8608F6F00960313B1202057FAADD2B5CAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093836   (932366) от 16.01.2017
-
-VA - The Disco Sessions (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discotron - Disco Power (Original Mix) 04:49
-02. Audio Jacker - You Say (Original Mix) 06:17
-03. Boogie Freaks - The Mean Green (Original Mix) 07:02
-04. Discotron - I Got This (Original Mix) 06:13(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD95F75A2DE4F71C38F1899CC5E4E520E76A6F84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986008   (932474) от 13.02.2016
-
-Ирина Климова - Я так устала ждать.. (1998) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я так устала ждать...
-02. Детский сон
-03. Ветер любви
-04. Далеко(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3CEE83B1963325EC6742045A3C635C2D6B5E42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985864   (932522) от 13.02.2016
-
-Ronan Keating - Time of My Life (2016) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Me Love You (03:15)
-02. As Long as We're in Love (03:01)
-03. Breathe (03:07)
-04. She Knows Me (03:16)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BD138989DA6331DF0BB0F177728CDA5D586D53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985641   (932531) от 13.02.2016
-
-VA - EGB: La musica de una generacion (2014) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Bowie - Let's Dance (3:58)
-02. Joe Cocker - You Can Leave Your Hat On (4:09)
-03. Gloria Gaynor - I Will Survive (3:43)
-04. Wham! - Wake Me Up Before You Go Go (3:47)(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 01:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A11C62BD53BB7CF10E70D207627D7983F1ECFB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 861850   (933046) от 21.01.2015
-
-VA - GRAMMY 2015 Nominees Album (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933046.jpg" />
-</div>
-
-
-###  Подробнее
-
-По традиции музыкальная академия в начале года выпускает диск с треками номинантов на премию Гремми.
-Grammy — музыкальная премия Американской академии звукозаписи, была учреждена Ассоциацией звукозаписывающих компаний США 14 марта 1958 года. В этом году премия будет присуждаться по 78 номинациям.01. Taylor Swift - Shake It Off  (3:40)
-02. Iggy Azalea ft. Charli XCX - Fancy  (3:18)
-03. Ed Sheeran - Sing  (3:54)
-04. Ariana Grande ft. Iggy Azalea - Problem  (3:14)(   Читать дальше...   )Жанр: Pop, MusicПродолжительность: 01:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A993C4EC3367F5C8ABE459ED64E69B365E214E1F
 ```
 
 

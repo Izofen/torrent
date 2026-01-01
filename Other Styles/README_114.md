@@ -1,3 +1,192 @@
+###  Публикация: 215845   (691919) от 19.08.2020
+
+VA - Beautiful Moments (1991, 1994) 2 CD [APE|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691919.jpg" />
+</div>
+
+
+###  Подробнее
+
+1991 -  Beautiful Moment
+01. Leif Strand - Taurus    		(04:37)
+02. Kit Watkins - Moon Watching Me    	(03:30)
+03. Quiet Force - Listen To The Music   (04:15)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:22:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063693CCBA35BCAB211422F4B5892F946ADB6900
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 851794   (692081) от 19.08.2020
+
+Inkuyo - Window to the Andes (1998) [FLAC|Lossless|image + .cue] <New Age, Folk, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692081.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Cumbres Andinas (Andean Peaks)	4:19
+2.	En Solidaridad (In Solidarity)	5:32
+3.	Brisca Tropical (Tropical Breeze)	3:56
+4.	Huari Vicuna (Wild Vicuna)	3:08(   Читать дальше...   )Жанр: New Age, Folk, WorldПродолжительность: 00:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB0741F796A07CE54BD08F589B7F7044BE998BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027967   (692757) от 21.06.2016
+
+Power Glove - Trials Of The Blood Dragon (Original Game Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vietnam War IV (01:41)
+02. Trials of the Blood Dragon (03:37)
+03. Bullet Proof (01:51)
+04. Punch! (02:59)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5778E878E013AE1F84588F108EF4562F755BDEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028206   (692960) от 21.06.2016
+
+Jupiter Panic - Distant Tomorrow (2016) [MP3|320 кб/с] <Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Distant Tomorrow Part 1
+02. Distant Tomorrow Part 2
+03. Descension
+04. Anti-Gravity(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19563F5FF36B82E55A07B5C646BEE6619C3E2906
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027961   (692964) от 21.06.2016
+
+Power Glove - Trials Of The Blood Dragon (Original Game Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vietnam War IV (01:41)
+02. Trials of the Blood Dragon (03:37)
+03. Bullet Proof (01:51)
+04. Punch! (02:59)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4154764632BE58EDD4AF5ABACB35180B625C5C00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221154   (692993) от 25.04.2018
+
+George Toward - Red Fantasies - Rhythms of Pure Romance (2018) [MP3|256 Kbps] <Instrumental, Jazz, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romantic Compilation (3:22)
+02. Open Your Heart (3:23)
+03. Slow Seduction (2:55)
+04. Champagne (3:25)(   Читать дальше...   )Жанр: Instrumental, Jazz, Easy ListeningПродолжительность: 00:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FD9C9D76DC0573E0F90404A1FE25CCFF4F2C1DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221131   (692994) от 25.04.2018
+
+David Osborne - Best of David Osborne: Solo Piano Performances (2018) [MP3|320 Kbps] <Instrumental, Piano, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Listen to Your Heart
+02. On the Wings of Love
+03. When I Was Your Man
+04. To Where You Are(   Читать дальше...   )Жанр: Instrumental, Piano, Easy ListeningПродолжительность: 00:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D560EF3C1693AA3DB845E156C4E04E8F8D0CF9D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027678   (694052) от 20.06.2016
 
 Brad Fiedel - The Terminator / Терминатор (Original MGM Motion Picture Soundtrack) (1984) (Remastered 2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -509,195 +698,6 @@ Parijat - Blessings (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A3B98262CF4D2E8651C9D81210569BFE474F962
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132887   (696991) от 11.05.2017
-
-Peru - Constellations (1989) [FLAC|Lossless|tracks + .cue] <New Age, Synth-pop>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out of Time  (09:05) 
-02. Utopie  (12:58) 
-03. Deja Vu  (07:21) 
-04. Constellations  (04:49) (   Читать дальше...   )Жанр: New Age, Synth-popПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF285F95A3C80E5E43C03D919501AB9CD51A0AF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025747   (697694) от 18.06.2016
-
-OST - Mick Gordon - DOOM (2016) [MP3|320 кб/с] <Electronic / Progressive Metal>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697694.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Main Menu (05:05)
-02. You Will Be Worse (05:15)
-03. The Beginning (07:40)(   Читать дальше...   )Жанр: Electronic / Progressive MetalПродолжительность: 05:20:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E87C6BE7954A4749352712D37FE98C41E888F59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287946   (697761) от 10.03.2019
-
-Cris Velasco - Clive Barker's Jericho (2007) Soundtrack [MP3|~245 Kbps (V0)] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крис Веласко хорошо известен по его совместными саундтреками с Сашей Дикисияном, например Dark Messiah, John Woo's Stranglehold, Hellgate: London и многими другими. Но когда у Криса подворачивается возможность написать что-либо без своего лучшего друга, он пытается воспользоваться ею сполна (правда, всё равно приходится просить его о помощи). Самостоятельно он написал (   Читать дальше...   )1. Legend of the Firstborn (1:57)
-2. The Coloseum (2:55)
-3. Lichthammer (1:50)
-4. Path of the Righteous (2:19)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:29:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F75E737FFDDFD727EB7564C784B0F89F819C364D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288140   (697766) от 10.03.2019
-
-Pam Tillis - Homeward Looking Angel (1992) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697766.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	How Gone Is Goodbye 	3:15
-2 	Shake The Sugar Tree 	3:09
-3 	Do You Know Where Your Man Is 	3:46
-4 	Cleopatra, Queen Of Denial 	3:12(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8920FEFA2BD2335C89DB4242852CAE6E62DDEACD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027169   (697914) от 18.06.2016
-
-Hans Zimmer & Junkie XL - Batman v Superman: Dawn Of Justice / Бэтмен против Супермена: На заре справедливости (2016) [FLAC|24/44.1|WEB-DL|Lossless]<Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood of My Blood (04:31)
-02. Vigilante (04:02)
-03. May I Help You, Mr. Wayne?(03:34)
-04. They Were Hunters (02:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9DE33AA3018E7306E791535A573B88BBE885392
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027103   (698122) от 18.06.2016
-
-Thomas Newman - Finding Dory / В поисках Дори (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kelpcake (00:46)
-02. Finding Dory (Main Title) (00:55)
-03. Lost at Sea (01:36)
-04. One Year Later (02:24)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C728B895B0797A921083FB96EE41D8716E8B43C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027190   (698242) от 18.06.2016
-
-John Ottman & David Buckley - The Nice Guys / Славные парни (Original Motion Picture Score) (2016) [FLAC|Lossless|WEB-DL|tracks]<Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme From "The Nice Guys" (02:01)
-02. Kids Today (03:23)
-03. Disco Party Fight (04:00)
-04. To the Car Show / Amelia? (01:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C3E580776AB4719E290A3672AA33D9CA439196
 ```
 
 

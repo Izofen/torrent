@@ -1,3 +1,57 @@
+###  Публикация: 1032111   (647524) от 06.07.2016
+
+Фристайл - И новое и лучшее (1994) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Измученное сердце 4:20
+02. Соседка 4:01
+03. Обидно мне до слёз 3:49
+04. Последняя ночь 4:15(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B74724DA49B66E5DF42C8BDFC4D08A142B9CA207
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032171   (647526) от 06.07.2016
+
+Guru Groove Foundation - Over You (2016) EP [MP3|320 Kbps] <Dancepop, Funk, Neo Soul>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bomb
+02. Over You
+03. As Much As You Say
+04. When HeЖанр: Dancepop, Funk, Neo SoulПродолжительность: 00:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423727F6458B7D8B3CEA82BF18836B14461E94CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516847   (647529) от 01.07.2012
 
 Joe Dassin - Septemberwind - Seine größten Erfolge (1991) [MP3|320 кб/с]<Pop>
@@ -656,57 +710,6 @@ magnet:?xt=urn:btih:8809C5510774C8059F513D65F3C124314FE22F02
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10B13376EF8FDF2EC7950C1E3FBA78FC30D7E86C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031946   (649333) от 05.07.2016
-
-Odyssey - Love Train (1994) [FLAC|Lossless|tracks] <Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Theme from Odyssey Part 1    03:24
-02.  Riding On A Train    04:06
-03.  Into The Light    04:20
-04.  Let Yourself Go!    03:22(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34B6BA15307CE6A8486B25A67DC070755E4D365
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031844   (649339) от 05.07.2016
-
-Игорь Николаев - Лучшие песни. Новая коллекция (2006) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. НезнакомкаЖанр: PopПродолжительность: 01:09:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30EF6467CC90379B4531C82DB2A315223397C9C9
 ```
 
 

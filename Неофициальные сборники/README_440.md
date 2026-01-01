@@ -1,3 +1,30 @@
+###  Публикация: 1287708   (701214) от 08.03.2019
+
+VA - EuroHit Top 40 - 100 лучших песен XX века (2019) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701214.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Roy Orbison - You got it (3:30)
+002. PRINCE & The Revolution - Purple rain (4:02)
+003. БРАВО - Верю я (3:03)
+004. Bob Marley & The Wailers - I shot the sheriff (3:46)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 06:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB8EB2FF7F316253CA2EB2496FDD56E9F7CD888
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132380   (701250) от 09.05.2017
 
 VA - Midnight In Blue: Original House Mix (2017) [MP3|320 Kbps] <House, Electro House>
@@ -667,33 +694,6 @@ VA - 90's Eurodance (2017) [MP3|320 Kbps] <Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2B052CA50DB7F14F05B776C6649395DF3007F98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131945   (702594) от 08.05.2017
-
-VA - Радио Энерджи ТОП 30 Май (2017) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ed Sheeran - Shape Of You  3:54
-02.  Dave Ramone feat. Minelli - Love On Repeat  4:49
-03.  Consoul Trainin - Take Me To Infinity  6:10
-04.  Sean Paul feat. Dua Lipa - No Lie  3:41(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:250C0B9CAE4149E79E3085BA8903329CB0E2036B
 ```
 
 

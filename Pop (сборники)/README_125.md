@@ -1,3 +1,36 @@
+###  Публикация: 605226   (995863) от 19.01.2013
+
+VA - Шевели Попой 3 (Зарубежный выпуск) (2013) [MP3|128 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_995863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chuckie & Promise Land ft. Amanda Wilson - Breaking Up (Radio Edit) (02:26)
+02. Nicole Scherzinger - Erotica Revolution (02:33)
+03. Dash Berlin ft. Chris Madin - Silence In Your Heart (Radio Edit) (02:40)
+04. Bingo Players & Far East Movement - Get Up (Rattle) (02:45)
+05. DJane Housekat ft. Rameez - My Party (Groove Coverage Edit) (02:46)
+06. Mike Candys ft. Evelyn & Patrick Miller - 2012 (If The World Would End) (02:47)
+07. Sandro Silva & Quintino - Epic (02:47)
+08. Mike Candys ft. Sandra Wild - Sunshine (Fly So High) (Ibiza Radio Mix) (02:48)
+09. Radio Project - Celebration (02:49)
+10. Jack Holiday ft. Jasmin Paan & Big Reggie - Back In Miami (Mike Candys Radio Mix) (02:50)(   Читать дальше...   )Жанр: PopПродолжительность: 34:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF6AB9B0BDDA8D6DCBB91DB6071C80741065403
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604639   (996163) от 18.01.2013
 
 VA-Зарубежный Свежачок (2013) [MP3|320 кб/с]<Pop>
@@ -797,33 +830,6 @@ VA - The Best Caucasian Hits (Presents Elgujakviso) (2019) [MP3|320 Kbps] <Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:980F887C24C56DD097AC75D703344133D18AE4B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350499   (1003194) от 06.01.2020
-
-Teach In - Bye Bye Bye (2020) (2 CD Compilation) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Friend Goodbye
-02. Sing Your Song
-03. My Rock And Roll Song
-04. Get On Board(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A05C604B2D688024D1F35742FB09D15C3A2C0C0
 ```
 
 

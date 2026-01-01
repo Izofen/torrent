@@ -1,3 +1,30 @@
+###  Публикация: 972838   (980682) от 07.01.2016
+
+VA - (OST) Scarface Лицо Со Шрамом (1983) [MP3|320 кб/с]
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scarface (Push it to the limit)
+02. Rush Rush
+03. Turn out the light
+04. Vamos a Bailar(   Читать дальше...   )Жанр: OSTПродолжительность: 00:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D0FD5DABCE16FD5CB3F4E92A23C8C16EF105740
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973167   (980684) от 07.01.2016
 
 VA - Зимний Hit-Mix (2016) [MP3|256-320 кб/с] <Pop, Dance, Electro House, Progressive House>
@@ -692,39 +719,6 @@ VA - Top 50 Progressive Trance (Paradise) (2015) [MP3|320 кб/с] <Progressive 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:741EE4A2C1D32D04A8AEEE4F2C3AE69B9B652F76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612840   (982501) от 04.02.2013
-
-VA - Лучшие танцевальные шлягеры 50х-60-х, [4 CD] (2003-2004) [MP3|320 kbps]<Retro, pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982501.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Peanuts - Vacation of love (2:42)
-2. Vico Torriani - Domino (2:47)
-3. The Coasters - Charlie Brown (2:25)
-4. Maunie Siren - Maia (2:36)
-5. Marino Marini - Guaglione (3:16)
-6. Los Panchos - Siboney (2:55)
-7. Ray Coniff Orchestra - Hello Dolly (2:50)
-8. Enrico Macias - Sans voir le jour (3:20)
-9. The Platters - Only You (2:34)
-10. Milva - Mamaluk (2:28)(   Читать дальше...   )Жанр: Retro, popПродолжительность: 00:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A389A6C90DFCDFAF293DBDABAC932592897917
 ```
 
 

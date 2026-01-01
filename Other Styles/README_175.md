@@ -1,3 +1,192 @@
+###  Публикация: 1362554   (948306) от 24.02.2020
+
+Paul Haslinger - Exit Ghost (2020) [FLAC|Lossless|WEB-DL|tracks]<Electronic, Contemporary Instrumental, Ambient>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948306.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:45| 01. The Faltering Sky
+|03:14| 02. Intrinsic
+|03:28| 03. Room 3
+|01:58| 04. Exit Ghost(   Читать дальше...   )Жанр: Electronic, Contemporary Instrumental, AmbientПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98AB0676DCE48632C0486039DEC1C4880A161AA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362553   (948307) от 24.02.2020
+
+Paul Haslinger - Exit Ghost (2020) [MP3|320 кб/с]<Electronic, Contemporary Instrumental, Ambient>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948307.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:45| 01. The Faltering Sky
+|03:14| 02. Intrinsic
+|03:28| 03. Room 3
+|01:58| 04. Exit Ghost(   Читать дальше...   )Жанр: Electronic, Contemporary Instrumental, AmbientПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15EC90E5876BDC4DBD6BA470565D8349F36B4E7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362545   (948312) от 24.02.2020
+
+Marcus Paus - Mortal (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948312.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:08| 01. Mortal
+|03:15| 02. Ecce Eric
+|04:12| 03. The Interrogation Scene
+|03:44| 04. Christine's Introduction(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DBE38861C41240D2E667EC150F66772745A6F07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362577   (948313) от 24.02.2020
+
+Rob (Robin Coudert) - Revenge / Выжившая (Bande Originale du Film) (2017) [FLAC|Lossless|CD|tracks + cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948313.jpg" />
+</div>
+
+
+###  Подробнее
+
+|06:03| 01. Revenge
+|01:17| 02. Peyotl
+|00:48| 03. Apple Bikini
+|03:12| 04. Rape Part 1(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2FF1B17202D524551BBAC56D9B40B6D6F180400
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362576   (948315) от 24.02.2020
+
+Rob (Robin Coudert) - Revenge / Выжившая (Bande Originale du Film) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948315.jpg" />
+</div>
+
+
+###  Подробнее
+
+|06:03| 01. Revenge
+|01:17| 02. Peyotl
+|00:48| 03. Apple Bikini
+|03:12| 04. Rape Part 1(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803CCEF48A563603C206C085A4320D222D70AACE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362585   (948411) от 24.02.2020
+
+Rob (Robin Coudert) - Maniac / Маньяк (Original Motion Picture Soundtrack) (2013) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Synthwawe>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948411.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:47| 01. Doll
+|03:41| 02. Haunted
+|01:02| 03. Double Trouble
+|02:46| 04. Bells(   Читать дальше...   )Жанр: Soundtrack, Score, SynthwaweПродолжительность: 00:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B73ABD9399CA6E710DB48C15E530FC587E2744DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362643   (948413) от 24.02.2020
+
+The Cactus Blossoms - Easy Way (2019) [FLAC|Lossless|WEB-DL|tracks] <Country>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desperado
+02. I’m Calling You
+03. Please Don’t Call Me Crazy
+04. Got A Lotta Love(   Читать дальше...   )Жанр: CountryПродолжительность: 00:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55590E52FFD1283F045DADF5F12784EB30FFF747
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362584   (948416) от 24.02.2020
 
 Rob (Robin Coudert) - Maniac / Маньяк (Original Motion Picture Soundtrack) (2013) [MP3|320 кб/с]<Soundtrack, Synthwawe>
@@ -509,195 +698,6 @@ VA, Joby Talbot - Sing / Зверопой: Original Score + Original Soundtrack 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4692ED12A9D7D08E9BE075026E3DE87FDE15FF36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089484   (950321) от 04.01.2017
-
-Alan Silvestri - Allied / Союзники (Music from the Motion Picture) (2016) [FLAC|Lossless|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Silvestri - Essaouira Desert/ Main Title (05:22)
-02. Alan Silvestri - "What Are Our Odds?" (02:47)
-03. Alan Silvestri - German Embassy (02:10)
-04. Alan Silvestri - "It's A Girl" (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB69310BE0C74A99C86C53CF1B775BFEB0AAE270
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089482   (950492) от 04.01.2017
-
-Alan Silvestri - Allied / Союзники (Music from the Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Silvestri - Essaouira Desert/ Main Title (05:22)
-02. Alan Silvestri - "What Are Our Odds?" (02:47)
-03. Alan Silvestri - German Embassy (02:10)
-04. Alan Silvestri - "It's A Girl" (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072F75372AFC5DB22AAEC1FD163BD3E39563C0D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362211   (950715) от 22.02.2020
-
-VA - Лёд 2 (саундтрек к фильму) (2020) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950715.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Татьяна Романченко, Александр Петров, Moscow Gospel Team, Юрий Медяник & Pluri Art Orchestra - Аллилуйя любви
-2. Александр Петров, Юрий Медяник & Pluri Art Orchestra - Тополиный пух
-3. Виталия Корниенко, Юрий Медяник & Pluri Art Orchestra - Прекрасное далёко
-4. Настя Сычёва - Кружит(   Читать дальше...   )Жанр: OSTПродолжительность: 00:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3DFAB380246B6B3813E695051AF0309219D1821
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981320   (951408) от 01.02.2016
-
-VA - Los clasicos argentinos Tango - Vol.07 (1996) [MP3|128 кб/с] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carlos Gardel - Silencio
-02. Floreal Ruiz - Despues del carnaval
-03. Raul Beron - Tristezas de la calle Corrientes
-04. Mariano Mores - Tanguera(   Читать дальше...   )Жанр: TangoПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D1D769FE7012D5628EE6B05131145D106958A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980530   (951571) от 01.02.2016
-
-Sacred Earth - The Way Home (2008) [MP3|320 кб/с] <New age, Meditative, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Om Namaha Shivviya 08:52
-02. Hare Krishna Govinda 08:23
-03. Ganesha Om 10:08
-04. Sita Ram 09:00(   Читать дальше...   )Жанр: New age, Meditative, AmbientПродолжительность: 01:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C9C2F03C59A486E78A2B99AEB590B9D5AE48B60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088430   (951610) от 03.01.2017
-
-VA - Ла-Ла Ленд / La La Land (Original Motion Picture Soundtrack) (2016) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.La La Land Cast - Another Day of Sun (3:48)
-02.Emma Stone, Callie Hernandez, Sonoya Mizuno, Jessica Rothe - Someone in the Crowd (4:20)
-03.Justin Hurwitz - Mia & Sebastian’s Theme (1:38)
-04.Ryan Gosling, Emma Stone - A Lovely Night (3:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A31A63E644C7940BEDBED17A0A46A938FF164727
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088964   (951614) от 03.01.2017
-
-VA & Justin Hurwitz - La La Land  / Ла-Ла Ленд (Original Score) + (Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Score, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La La Land Cast - Another Day of Sun (03:48)
-02. Emma Stone, Callie Hernandez, Sonoya Mizuno, Jessica Rothe - Someone in the Crowd (04:20)
-03. Justin Hurwitz - Mia & Sebastian’s Theme (01:38)
-04. Ryan Gosling, Emma Stone - A Lovely Night (03:57)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:42:54 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80133D11D829C899D32AF40F8378CECFABDB1F3
 ```
 
 

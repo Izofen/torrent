@@ -1,3 +1,138 @@
+###  Публикация: 1476817   (1011479) от 12.06.2021
+
+Marvel83' - Atlantis (2021) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Retrowave, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:20)
+02. Entering The Stratosphere (2:02)
+03. Beautiful Blue (4:40)
+04. On & On (6:01)(   Читать дальше...   )Жанр: Dreamwave, Retrowave, SynthwaveПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A47FD35419193EF3448F05F15C153D2FE1864A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476579   (1011504) от 12.06.2021
+
+Cold Cave - Fate In Seven Lessons (2021) [MP3|320 Kbps] <Synthpop, Darkwave, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prayer From Nowhere [00:05:03]
+02. Night Light [00:04:29]
+03. Psalm 23 [00:04:10]
+04. Love Is All [00:04:34](   Читать дальше...   )Жанр: Synthpop, Darkwave, ElectronicПродолжительность: 00:32:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3EBBC20371F178015C472C7EC16BEB6A3A9B959
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476822   (1011515) от 12.06.2021
+
+Monolink - Under Darkening Skies (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Organic House, Downbeat>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laura (7:20)
+ 02. The Prey (4:12)
+ 03. We Don't Sleep (4:59)
+ 04. Harlem River (4:38)(   Читать дальше...   )Жанр: Electronic, Deep House, Organic House, DownbeatПродолжительность: 01:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC20D3176EB8CEEDA068FD139A867FECA6A71FB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 898093   (1011572) от 11.06.2021
+
+Melorman - Discography 22 Releases (2006-2021) Sun Sea Sky Productions, Synesthesia Media [FLAC|Lossless]<IDM, Downtempo, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melorman - Digital Twilight (04:47)
+ 02. Melorman - Exelon (02:44)
+ 03. Melorman - Ninety (03:58)
+ 04. Mokhov - Sea Dream (03:35)(   Читать дальше...   )Жанр: IDM, Downtempo, Ambient •Продолжительность: 11:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4981A99AFD6D00925B9255292ABF2B713F8EBD8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476485   (1011634) от 11.06.2021
+
+Inhmost - Everything Is New (2020) La Luna [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, IDM, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurulia (05:35)
+ 02. Break Down (04:50)
+ 03. Deeper Thoughts (05:17)
+ 04. Everything Is New (06:55)(   Читать дальше...   )Жанр: Ambient, IDM, DowntempoПродолжительность: 01:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8CE52E2AFEC4DF0DC2FE89A45E5D1BCC7990715
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476427   (1011682) от 11.06.2021
 
 Spiro And Wix - Save The Robot Two (2001) KPM Music [FLAC|Lossless|tracks+.cue] <Downtempo, Ambient, Trip Hop, Leftfield>
@@ -559,141 +694,6 @@ Lårry (Larry) - Nines (2021) Awkwardly Social [FLAC|Lossless|WEB-DL|tracks] <El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09D5F268E027926EE61DD1CE50169D6E4C2751FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473227   (1013825) от 28.05.2021
-
-Solomun - Nobody Is Not Loved (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ocean (feat. Jamie Foxx) (3:38)
- 02. Home (3:41)
- 03. Your Love Gives Me Gravity (feat. Planningtorock) (4:40)
- 04. The Center Will Not Hold (3:50)(   Читать дальше...   )Жанр: EDM, Tech House, Deep HouseПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BE39FB11307E6B0DD9FC35474BAEC7F4DEA9A4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473057   (1013867) от 28.05.2021
-
-Laidback Luke - Tomorrowland Friendship Mix (2021-05-20) [MP3|320 Kbps] <House, Electro House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bleu Clair & Ootoro - Beat Like This
-02. ID - ID
-03. Laidback Luke & TUJAMO - S.A.X. w/Diplo & SIDEPIECE - On My Mind
-04. DJ Huguito - Tsunami w/ID - ID(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D8EC0DED0F9BF6C368B1AE7488023DEDAC3159
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472627   (1014166) от 26.05.2021
-
-VA - Armada Record Box - REMIXED I (2021) [MP3|320 Kbps] <Deep House, Progressive House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kidnap feat. Leo Stannard - Moments (Ben Bohmer & Nils Hoffmann Extended Remix)
-02. Lifelike & Kris Menace - Discopolis 2.0 (MEDUZA Extended Remix)
-03. Sian Evans - Hide U (Tinlicker Extended Remix)
-04. Morgan Page feat. Lissie - The Longest Road (deadmau5 Extended Remix)(   Читать дальше...   )Жанр: Deep House, Progressive House, ElectronicПродолжительность: 04:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9E5DEE33CF067115863943EB521C3A2F3027C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472532   (1014362) от 25.05.2021
-
-VA - Synthwave Dreams, Vol. 16 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born In '82 - Goodbye Synthwave (4:18)
-02. TELEGIMNASTIKA - MIR (Ruslan Mustafin 'zero gravity' remix) (6:06)
-03. Aurolab - Anna (The Vermins Remix) (4:13)
-04. Bingo Wode - Black T-Shirts No More (6:21)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87EC2D3F737C3B17F25D0B67089982F12E3C6AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472015   (1014513) от 24.05.2021
-
-Temple - The Ashes Belong To You (feat. Grant Bissett) (2021) [MP3|320 Kbps] <Dark Ambient, Drone, Lo-Fi>
-
->>Electronic
->>Ambient, Experimental, Modern Classical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Random Tunnel (feat. Grant Bissett) [00:20:13]
-02 - Apophenia (feat. Grant Bissett) [00:18:33]
-03 - Near Perfect Horses (feat. Grant Bissett) [00:15:43]
-04 - Ephemeral (feat. Grant Bissett) [00:17:16](   Читать дальше...   )Жанр: Dark Ambient, Drone, Lo-FiПродолжительность: 01:23:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65554687F5FDEFBCC2F92BF81945BA772C0E6C4B
 ```
 
 

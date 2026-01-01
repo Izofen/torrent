@@ -1,3 +1,30 @@
+###  Публикация: 1030781   (672167) от 01.07.2016
+
+VA - 100% Hits 90s (2016) [MP3|320 Kbps] <Dance-rock, Synthpop, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toni Braxton - Unbreak My Heart 04:30
+02. Annie Lennox - No More I Love You 04:49
+03. Joe Cocker - Night Calls 03:26
+04. The Pretenders - I'll Stand By You 03:49(   Читать дальше...   )Жанр: Dance-rock, Synthpop, DiscoПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A6AD9EF7E545B2BA2183F00075368D2E9E84BA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030592   (672173) от 01.07.2016
 
 VA - Running Hits & EDM (Non-Stop for Fitness & Workout) (2016) [MP3|320 Kbps] <House, Club, Dance>
@@ -683,39 +710,6 @@ VA - Beatport Techno: Sound Pack #503 (2022) [MP3|320 Kbps] <Techno, Electro, Mi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA9973B49B544B501F062F6B0663A64895BCD97F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509664   (672816) от 13.06.2012
-
-VA - Deep Line. Erotic Lounge (2012) [MP3|320 kbps]<Downtempo|Lounge|Chillout>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antennasia - Lost
-02. Melody Gardot - So Long
-03. Sow Keng Poon - Lover's Tears
-04. Van - The Beauty Of The East
-05. Haley - I Remember
-06. Sophie Zelmani - The Years
-07. Sugar Brownie - Facing The World - Soul 2 Lounge Mix
-08. Wolf Myer Orchestra Ft. Lylit - Soulgate
-09. Depeche Mode - Goodnight Lovers
-10. Etro Anime - Let It Go(   Читать дальше...   )2012Жанр: Downtempo|Lounge|ChilloutПродолжительность: 03:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A35477E67B98F7323883AF6423C38AFA3342718B
 ```
 
 

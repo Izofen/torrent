@@ -1,3 +1,27 @@
+###  Публикация: 508696   (679688) от 10.06.2012
+
+VA - Sexy Music Compilation *Selected by Carlo Cavalli* (2012) [MP3|320 кб/с]<House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_679688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tease Me (feat. Mo-Man)Жанр: House, Deep HouseПродолжительность: 01:35:28
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290379   (679822) от 19.03.2019
 
 Silent Circle - Touch In The Night (2018) Remix [MP3|320 Kbps] <Club, Dance>
@@ -684,33 +708,6 @@ VA - Empire Records - Strip 2 (2019) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6D30396348FD31A08D7B09FC5151CBA61771E1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029530   (681955) от 26.06.2016
-
-VA - Hits of My Soul Vol. 02 (2016) [MP3|320 кб/с]<House, Electronic, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond Feat. Zoe Johnston - We're All We Need (Album Mix) (04:23)
-02. Russell G & Shadow Of Two - Neon (Original Mix) (05:45)
-03. Worakls - When The Birds Go In The Wrong Way (06:55)
-04. Bryan Milton ft. Ana Criado - Afterglow (Original Mix) (06:04)(   Читать дальше...   )Жанр: House, Electronic, DanceПродолжительность: 03:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7F6B2B8F94AB5AE12060593406A254728A3D47E
 ```
 
 

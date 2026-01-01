@@ -1,3 +1,138 @@
+###  Публикация: 1281247   (790018) от 04.06.2020
+
+Gerard Hanson (Convextion, E.R.P., Time Light Curve, T/O/L) - Discography 33 Releases (1995-2019) [FLAC|Lossless|tracks .cue, tracks] <Electro, Techno, Minimal, Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Light Curve - Magnetite (06:35)
+ 02. Time Light Curve - Acidlab (05:42)
+ 03. Headnoaks - Planet Constellations (04:23)
+ 04. Headnoaks - Promise Land (05:36)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Electro/AcidПродолжительность: 14:05:33 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65D7F18F09560CF3DF950C69FABFE963D37B7BBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 658403   (790026) от 04.06.2020
+
+Zandoz Corp. - Personal Apocalypse (2013) Signifier [Lossless|WEB-DL|tracks]<Rhythmic Noise, Breakcore, Industrial, IDM, Noise>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Connective Consciousness (4:47)
+ 02. Hostile Adaptation (5:04)
+ 03. Requiem For Matter And Feelings (4:12)
+ 04. Hidden Wings (5:01)(   Читать дальше...   )Жанр: Rhythmic Noise, Breakcore, Industrial, IDM, NoiseПродолжительность: 01:09:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057FBCD0C42AA18EB86D398BC14331EA2F59C3FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388092   (790123) от 04.06.2020
+
+VA - The Flatline Compilation 1 & 2 (1998-1999) Flatline Records [FLAC|Lossless|tracks+.cue] <Rhythmic Noise, IDM, Electro, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790123.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+ 01. The Galan Pixs - Pearl Necklace (03:55)
+ 02. Cleen - Freak (Pumpin' Trash Mix) (06:03)
+ 03. Individual Totem - Reflexion (04:31)(   Читать дальше...   )Тип издания: CDЖанр: Rhythmic Noise/IDM/Electro/IndustrialПродолжительность: 04:49:06 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:754623B59EDA27DDD421FE21FBC7A276783146A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510793   (790328) от 18.11.2021
+
+Vangarde feat. XXL - The Best Of Lounge: Buddha Lounge (2001) [MP3|320 Kbps] <Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 2 Tango (4:12)
+02. Club Zero (5:52)
+03. Pure Magic (4:11)
+04. Love Attack (4:12)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 00:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE741F8E06916A15B79E7775E5E650693081D9D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510789   (790339) от 18.11.2021
+
+Vangarde & Louis Sandoro - The Best Of Lounge: Jazz Lounge (2001) [MP3|320 Kbps] <Lounge, Latin Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vangarde - Another Romance (4:45)
+02. Vangarde - Find The Best In Time (5:18)
+03. Vangarde - Walk Of The Lion (4:20)
+04. Vangarde - Don't Forget About Me (4:35)(   Читать дальше...   )Жанр: Lounge, Latin JazzПродолжительность: 01:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2EBA22FAF96F2089C46AF13024036BF0392EF96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100033   (790424) от 28.01.2018
 
 D.M.T. Records - 23 Releases (2014-2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Experimental, Dark Ambient>
@@ -556,141 +691,6 @@ VA - Trance 100 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FE81B8D567A281AEFA1C5CC1B3EB517C4770483
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275121   (791008) от 10.01.2019
-
-VA - A State of Trance: Year Mix (Mixed by Armin van Buuren)2CD (2018) [FLAC|Lossless|tracks + .cue] <Trance,House, Progressive House>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren - A State of Trance: Year Mix 2018 (Intro: License To DJ)
-02. Omnia - Cyberpunk (Original Mix)
-03. Andrew Bayer feat. Alison May - Immortal Lover (In My Next Life Mix)
-04. Audien feat. Cecilia - Higher (Original Mix)(   Читать дальше...   )Жанр: Trance,House, Progressive HouseПродолжительность: 02:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D1FC3705A7D9D3474F05D8B456EAF0172F5832
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201932   (791010) от 27.01.2018
-
-Hidden Orchestra - Dawn Chorus Remixes (2018) Tru Thoughts [FLAC|Lossless|WEB-DL|tracks] <Leftfield, Downtempo, Techno, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alyth (Nuage Remix) (05:03)
- 02. Wingbeats (Max Cooper Remix) (10:06)
- 03. Still (Floex Remix) (06:27)
- 04. Western Isles (Throwing Snow Remix) (08:22)(   Читать дальше...   )Жанр: Leftfield, Downtempo, Techno, ElectroПродолжительность: 01:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C3144A671580DFC6F3CDD7AD3EFED4DB593E6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202118   (791018) от 27.01.2018
-
-VA - Work & Study Ambient Music Vol. 2 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seigo Aoyama – Things Like We Are 5:16
-02. Debris Of Theia – Back To The Mothership (Goa Epic Edit) 3:49
-03. E – Verformung – X-Fade 2:48
-04. Fm.Tronica – Embryo Calling 6:35(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6BF1C6C8F7FF19BD7F78DA52EBFCBDEA726C6AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201964   (791019) от 27.01.2018
-
-Brambles - Charcoal (Special Edition) (2014) Serein [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Speak Of Solitude (04:21)
-02. Such Owls As You (05:30)
-03. In The Androgynous Dark (04:43)
-04. Salt Photographs (06:54)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79AF81D59D2986598855FDA6A72AE161FE9FDAD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201981   (791024) от 27.01.2018
-
-VA - Aly & Fila - Future Sound of Egypt 532 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FSOE Radio — Future Sound of Egypt 532 Radio Intro
-02. Way Out West — Lullaby Horizon (Ben Bohmer Remix)
-03. Dee Montero — In The Wild (Original Mix)
-04. Padai — Spaceman (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28F4D7337F9DFE3EB7F9BD2CED2B5A4E110921F
 ```
 
 

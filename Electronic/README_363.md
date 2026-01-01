@@ -1,3 +1,138 @@
+###  Публикация: 1077827   (724459) от 24.02.2019
+
+m² (m2, Squaremeter) - Discography 13 Releases (2000-2010) Ant-Zen, Hands Productions [FLAC|Lossless|tracks+.cue, tracks] <Experimental, IDM, Glitch, Dark Ambient, Industrial>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Priests (09:00)
+ 02. Winds & Ruins (05:52)
+ 03. Heliogabal I (03:42)
+ 04. Relics Of The Undefeated Guard (05:32)(   Читать дальше...   )Тип издания: CD, VinylЖанр: Dark Ambient/IndustrialПродолжительность: 01:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AC5C9EF0D47320770DA7DA0B323AD28F422BB9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023561   (724540) от 05.06.2016
+
+VA - Vamos A la Playa: Eivissa (2016) [MP3|320 кб/с] <Deep House, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saalim - Snowfall Tribe Yin (Feelin' Alright) (Acos CoolKAs Remix) (7:50)
+02. Katzbatz - Chateau Brisanz (1983 Version) (6:22)
+03. Erdinc Erdogdu - Enjoy the Silence (5:02)
+04. Deepjack - Don't Look Back (Trav & Volta Remix) (7:48)(   Читать дальше...   )Производство: Eivissa RecordingsЖанр: Deep House, Nu DiscoПродолжительность: 02:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BEC3B37BBA758B8267D0DE6F2DCD6BDC6D62C3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023605   (724542) от 05.06.2016
+
+Zoon Politicon - Black In White (2016) 2CD [MP3|320 кб/с] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724542.jpg" />
+</div>
+
+
+###  Подробнее
+
+После первых двух альбомов 1997 и 1998гг, группа берет перерыв - но они не разлучались и теперь вернулись, выпустив 03.06.2016 этот альбом!CD 1 - Black In White:
+01. Run Forever ( 6:06)
+02. Mercy ( 4:22)
+03. Moments (Album Version) ( 4:21)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D86ED78716B9F58DD33EB16ECC8F80B8E5B1F29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023482   (724556) от 05.06.2016
+
+VA - Trip to the Sea Vol.2: Chill Lounge del Mar (2016) [MP3|320 кб/с] <Downtempo, Lounge, ChillOut, Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazzy System - Space Cowboy (Guitar Chillout Mix)
+02. Jean Mare - To the Balearic and Back (Lounge Flight Mix)
+03. Velvet Dreamer - Sunset Chill
+04. Soundset City - Lounge Whispers (Cool Groove Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOut, Easy ListeningПродолжительность: 01:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A65401E0A116778D783EC07B9ACF64304C91FCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531123   (724568) от 14.02.2022
+
+VA - Valentine's Day Classics: 30 Greatest Love Songs (2022) [MP3|320 Kbps] <Pop, Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fish & Chips - Call Me (4:03)
+02. Lesley Gore - (Your Love Keeps Lifting Me) Higher and Higher (2:58)
+03. Touch Of Class - Love Means Everything (5:15)
+04. Mary Wells - If You Really Love Me (3:07)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 01:49:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43FE81391D21B8BF35D4705998FC2F74177A926A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285146   (724609) от 24.02.2019
 
 VA - Workout Beats EDM 2019 Power And Workout Motivation Music [MP3|320 Kbps] <House, BigRoom, Dance>
@@ -557,141 +692,6 @@ VA - Lounge Escapades (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEFD04BAF54EA85F804825FCD542F160E4B6DC2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022936   (726615) от 04.06.2016
-
-VA - Armada Chill (2016) [MP3|320 кб/с] <Chillout, Lounge, Deep>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Schulz & J.U.D.G.E. - Show Me Love (Acoustic Version) (4:15)
-02. Boom Jinx & Ashley Tomberlin - Secrets (3:56)
-03. CHINAH - Colder (3:25)
-04. Aly & Fila - Rosaires (Chill Out Mix) (3:54)(   Читать дальше...   )Производство: Armada Music B.V.Жанр: Chillout, Lounge, DeepПродолжительность: 02:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20BD646FF09B8B6D9B449DB11144B5D75A71493A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023266   (726617) от 04.06.2016
-
-VA - We Like Running Vol 1 (House & Deep-House Tunes For The Perfect Drill) (2016) [MP3|320 кб/с] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Variety Surf - Aragon (House Theory Mix) (3:08)
-02. Progressive Color - Silky Day (Sonik Mix) (2:58)
-03. Platinum Squirrel - Monday Happy Hour (M. H. J. Mix) (3:05)
-04. Pong Developers - Old Erectus (Jeff Collins Mix) (3:25)(   Читать дальше...   )Производство: Run & FitЖанр: House, Deep HouseПродолжительность: 01:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D3B77B3F570BE86D72FCFCD69196C9881AD4599
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128852   (726633) от 26.04.2017
-
-Aly & Fila - Future Sound Of Egypt 493 (Live from Open To Close, Panama Amsterdam, Netherlands) (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Thrillseekers - ID
-02. M.I.K.E Push - ID
-03. Sean Tyas - ID
-04. Stoneface & Terminal - lD(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE7438A4199A97215D3610AB91EE501DBE9510A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128732   (726634) от 26.04.2017
-
-Saint Of Sin - Skychild (2016) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skychild-Intro & Amadeus
-02. Divination
-03. Aftermath Of Joy
-04. Skychilds Call(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B6992BBB7155928904294E39AE9233AD6EB5E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128484   (726635) от 26.04.2017
-
-VA - Dark Uplifting Vol.1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Solis & Sean Truby presents S&ST - Roots (Original Mix)  3:24
-02.  Photographer - Infinity (Radio Edit)  3:46
-03.  Farhad Mahdavi & Kiran M Sajeev - Higher (Radio Edit)  3:50
-04.  CubeTonic - So Strong (feat. Dilara Gadel) (Saad Ayub Radio Edit)  3:40(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D045E839C9A4DA400686D5A8A66ACFA501AC9823
 ```
 
 

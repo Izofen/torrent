@@ -1,3 +1,30 @@
+###  Публикация: 1113951   (835094) от 13.03.2017
+
+Chris Bell - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Jobs
+02. Ain't Seen Nothing
+03. Cold-Hearted Woman
+04. Deli Man(   Читать дальше...   )Жанр: BluesПродолжительность: 02:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A40C66424303404EA549397902990E1065462EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501151   (835116) от 10.10.2021
 
 VA - The Ambient Atmosphere: Relax Musical Collection (2021) [MP3|320 Kbps] <Ambient, Relax, Meditation, New Age>
@@ -668,33 +695,6 @@ The Alan Parsons Project - 100% Alan Parsons (2020) [MP3|320 Kbps] <Progressive 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C297192629DA256534432B5C006633DB0D42EE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112929   (837486) от 11.03.2017
-
-VA - В Современной Обработке. Mega Дискотека 80-90-х. Версия № 2 (2017) [MP3|256-320 Kbps] <Pop, Dance, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837486.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. B-Sound - Stay With Me (V.Bashmakov Remix) 3:51
-002. Antares - Ride On A Meteorite (Roazt Remix) 3:12
-003. Basic Element - Leave It Behind (DI Serzh Remix) 4:49
-004. Bonnie Tyler & With Blutonium Boy feat. Van Snyder - Holding Out For A Hero  (Van Snyder Remix) 3:34(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 08:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C64B73AB6CDAADBB8DEA3D29F639B3B1448FAC
 ```
 
 

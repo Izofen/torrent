@@ -1,3 +1,136 @@
+###  Публикация: 1616593   (1035583) от 05.03.2023
+
+VA - By the Way...Sounds Good, Size Two (2023) [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Monkey - No Faxxx (Extended Mix) (3:03)
+02. Mea - Scream (Extended Mix) (4:39)
+03. JORDVN PRINCE - VLL VBOUT (Extended Mix) (2:50)
+04. Joey Antonelli - Melody (Extended Mix) (3:18)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AEE7E4ACA264AEBE8644C3B36DE49E14D88F236
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015689   (1035601) от 28.01.2021
+
+Empusae - Discography 19 Releases (2002-2020) Ant-Zen, Hands [FLAC|Lossless|tracks+.cue, tracks] <Dark Ambient, Rhythmic Noise, Tribal, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asok (05:14)
+ 02. Obsidian (07:10)Тип издания: CD, Vinyl, WebЖанр: Dark Ambient, Rhythmic Noise, Tribal, Industrial •Продолжительность: 15:20:42 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A26848AB5878A7C9257F4F3A48924F190E18E71F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616879   (1035610) от 05.03.2023
+
+VA - Alternative EDM Party 2023 (2023) [MP3|320 Kbps] <Dance, Electronic, Club, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Naksi, Erik Ray & Iwaro - Only You (02:33)
+02. Mattia falchi - Under the Stars (Extended) (03:41)
+03. Jon + Larsen - Dream (Club Radio Edit) (03:23)
+04. John David - Break of Dawn (03:14)(   Читать дальше...   )Жанр: Dance, Electronic, Club, HouseПродолжительность: 01:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:950475DD1F0B2AA500DA1391B20304B8B4923587
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099327   (1035659) от 28.01.2021
+
+SNTS - Discography 17 Releases (2012-2020) [FLAC|Lossless|tracks] <Techno, Industrial, Ambient, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Era Of Absurdity (01:43)
+ 02. Bacchanalia (05:24)
+ 03. Temporary Pleasure (05:05)
+ 04. Defence Mechanisms (05:23)(   Читать дальше...   )Тип издания: Web, Vinyl •Жанр: TechnoПродолжительность: 08:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19934BAC7F4967DFDA97B0E63F3E8610A5530F41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 882692   (1035693) от 28.01.2021
+
+Fix8:Sed8 (Fïx8:Sëd8) - Discography 6 Releases (2005-2009) Dependent [FLAC|Lossless|WEB|tracks]<EBM, Electro, IDM, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enigma (07:13)
+ 02. Prognosis (06:17)
+ 03. Human Harvest (05:13)
+ 04. Tremors (feat. Emke) (04:57)(   Читать дальше...   )Тип издания: WebЖанр: EBM, Electro, IDM, Industrial •Продолжительность: 06:57:08 • Источник: bandcamp
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4FBDAAFA1C55ACC9D5A082100228DE4C256421
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443175   (1035705) от 28.01.2021
 
 VA - The Best of Vocal Deep House Music Mix 2021 [FLAC|Lossless|WEB-DL|tracks] <House>
@@ -554,141 +687,6 @@ Late Night Alumni - The B-Sides (2012) Compilation [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03AEDF2C5E080732770ECEA5BA962D8EEA03C6BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616627   (1036162) от 03.03.2023
-
-Osovets - Alive at Industrial Christmas (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, NDH, NRH>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эпилог (Live) [00:05:08]
-02. Табула Раса (Live) [00:04:08]
-03. Мощь (Live) [00:03:46]
-04. Дочь полнолуния (Live) [00:04:00](   Читать дальше...   )Жанр: Industrial Metal, NDH, NRHПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030B8375ED52719E84A4FB2E7D1638AA3EF5A1F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442846   (1036307) от 26.01.2021
-
-V.A. - Coffee Bar Lounge, Vol. 23 (2021) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirage Of Deep & Julia Vañó - Sun Sahdu (Original Mix)
-02. Lazy Hammock - Words Just Flow (Original Mix)
-03. Collioure - Sunrise, Sunset & Moonlight (Original Mix)
-04. Marc Hartman & Airily - Endless Summer (Shining Sun)(   Читать дальше...   )Жанр: Easy Listening, Lounge, DowntempoПродолжительность: 01:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C81BC194E93A9B8EB0A76659ACC5FCE410EDF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442711   (1036309) от 26.01.2021
-
-VA - Synthwave Dreams, Vol. 9 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PVLSX & Bronster Bridge feat. DJ Macron - Don't Stop And Dance (3:21)
-02. Aurolab - Yalta Nights (4:52)
-03. TELEGIMNASTIKA - Soyuz (3:39)
-04. Illuminum & Trudzer - Broken Memories (4:10)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5875E66D4718F325F7822D695DDA85CAF3152F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442713   (1036317) от 26.01.2021
-
-VA - Trance Vision (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mindsoundscapes - Grasping Life (Radio Cut)
-02. Dreamy - Scar (Radio Cut)
-03. George Harrold - Ayuhuasca (Radio Cut)
-04. Artra & Holland - Mountains (Radio Edition)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28FEF86C7629C085B6AD43A055E0224BE9B365F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442689   (1036330) от 26.01.2021
-
-Various Artists - Hospitality House Party (2020) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hospital Records Compilation - We Had A Song (04:53)
-02. Flava D - Mesmerise (Bop x Subwave Remix) (04:57)
-03. S.P.Y - Come Back To Me (05:00)
-04. Urbandawn - Carnival Blues (04:42)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:24:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C098531DEF6269A666898C6689487E03D745EC06
 ```
 
 

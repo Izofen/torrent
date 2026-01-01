@@ -1,3 +1,30 @@
+###  Публикация: 1499646   (847598) от 02.10.2021
+
+VA - Music News vol.137 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847598.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. PlayingTheAngel feat. Rory - Доверяй Мне (02:52)
+ 002. Adam Maniac & Melissa - Танцевать (03:04)
+ 003. Aikko feat. ЮККИ - Лучше Всех (02:31)
+ 004. AKVA - Аспирин (02:16)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 07:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF75BD33D633F5924BBE65CF83F3136A9F40E55A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498737   (847678) от 02.10.2021
 
 VA - I Can See Through You: 60s Psychedelic Rock & Garage Beat Rarities Vol.3 (2021) [MP3|320 Kbps] <Rock, Funk, Garage Rock, Soul>
@@ -668,33 +695,6 @@ VA - Healing Meditation Zone (2016) [MP3|320 кб/с] <Relax, Meditation, Downte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50A6A28DB8488FBDE85A8F17C490FC2FC80CC772
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002244   (848900) от 31.03.2016
-
-VA - Pure 90s Time Garden (2016) [MP3|320 кб/с] <Euro, Disco, Pop Rock, R&B, Alternative, Grunge, Folk, Country>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ozzy Osbourne - I Just Want You 04:56
-02. The Wallflowers - Three Marlenas 04:59
-03. Nirvana - Heart Shaped Box 04:41
-04. Bon Jovi - Keep The Faith 05:44(   Читать дальше...   )Жанр: Euro, Disco, Pop Rock, R&B, Alternative, Grunge, Folk, CountryПродолжительность: 08:28:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F729B3570A0478AD1B4E09EB2CDC44EFDCFCE796
 ```
 
 

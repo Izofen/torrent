@@ -1,3 +1,84 @@
+###  Публикация: 1358751   (967425) от 09.02.2020
+
+Serch. - Concept (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little God                                                            [04:59]
+02. Strangers with Nothing to Lose                                        [04:48]
+03. Lonely Man                                                            [03:36]
+04. Pure Child                                                            [04:02](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1837C9DF366459EE42FD242A330DC0DBED63837
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358581   (967498) от 09.02.2020
+
+Asgeir (Ásgeir) - Afterglow (2017) 2CD [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterglow (Alternative Version) (Bonus Track) (04:49)
+02. Unbound (Alternative Version) (Bonus Track) (03:52)
+03. Where Is My Mind? (Bonus Track) (04:06)
+04. Trust (Bonus Track) (03:11)Жанр: Indie PopПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CF2F275B1E8C7478954F0617DAE5C3E138F920
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 428789   (968435) от 08.02.2020
+
+Mando Diao - 11 альбомов (2002 - 2019) [FLAC|Lossless|tracks + .cue]<Indie Rock, Garage>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mando Diao - шведская рок-группа, история котрой начинается в 1999 году в Бурленге. Название группы, по словам самих музыкантов, не имеет определённого смысла, однажды лидеру банды Бьорну Диксгорду приснился странный человек, который бежал ему навстречу и кричал "Мандо Диао". Дебютный альбом Bring 'Em In, вышедший в сентябре 2002 года получил хорошую критику, (   Читать дальше...   )Список альбомов:
+2002 - Bring 'Em In
+2004 - Hurricane Bar
+2006 - Ode To OchrasyЖанр: Indie Rock, GarageПродолжительность: Кодек: FLAC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F31EB36219E440B478BA1EFAD7FE555CC4F0F12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357747   (970741) от 06.02.2020
 
 Bombay Bicycle Club - Everything Else Has Gone Wrong (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Indie Pop>
@@ -677,87 +758,6 @@ Jolly Goods - Slowlife (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F802D9BE2D8826B1B1E8B85E5AF5F7E6240582A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587310   (987696) от 22.01.2020
-
-Nickelback - Greatest Hits (2012) 2CD [FLAC|Lossless]<Alternative Rock, Post Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Means War [3:23]
-02. Shakin' Hands [3:42]
-03. Side Of A Bullet [3:03]
-04. Flat On The Floor [2:05](   Читать дальше...   )Жанр: Alternative Rock, Post Grunge •Продолжительность: 01:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F7BFD7284B6F26C2BB8B9C1269E9D2A46247A26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354588   (988009) от 22.01.2020
-
-Wolf Parade - Thin Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under Glass (03:21)
-02. Julia Take Your Man Home (04:35)
-03. Forest Green (05:04)
-04. Out of Control (04:20)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7112221A530CBE84C1F4080AD21C36754DF5A6F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354591   (988057) от 22.01.2020
-
-Gemma Ray - Psychogeology (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blossom Crawls (03:34)
-02. Death Tapes (03:14)
-03. It's Only Loneliness (04:31)
-04. In Colour (04:22)(   Читать дальше...   )Жанр: Indie Pop, Indie RockПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49B78EB417D1FFA7ADB3FFD08FE4AEDED00C907
 ```
 
 

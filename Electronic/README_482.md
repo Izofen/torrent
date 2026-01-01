@@ -1,3 +1,138 @@
+###  Публикация: 1090245   (947690) от 06.01.2017
+
+VA - Deep House Christmas Selection (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pirupa - I Can C through U (Original Mix) 6:17
+02.  Luca Elle - Tormento 5:58
+03.  Barbara Tucker - You Want Me Back (Paolo Madzone Zampetti 2015 Vibe Rmx) 6:41
+04.  Dennis Cialella - Don't Stop Movin' (feat. Andrea Carnell) (Vinnie Campisi Minimal Mix) 7:42(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF5DB3452FCABE5D21BAE451F6286F5105EC46DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090292   (947698) от 06.01.2017
+
+VA - Ibiza Chillout Songs: Best Of 2017 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lofty Right - Lazy (Urban Lounge Instrumental Mix) 4:28
+02.  r.f.n. - Bell Hotline (Whip It Version) 4:16
+03.  Amar Lidan - Arabic World (Buzuq Edit) 4:26
+04.  Dalia - Sorrow And Joy (Pulse Version) 4:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:14:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7CF4FDF5D0E70B8DC54FD66132A5905A169453
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090488   (947720) от 06.01.2017
+
+VA - Urban Lounge Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Gorda Project - Greenwood 5:35
+02.  Enrico Donner - Wind Of The Spirit 6:33
+03.  Cane Garden Quartet - Chillaxinґ 5:13
+04.  Baghira - Nightbeat 5:58(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5067ABC750D05D1C840E2E149FC823B094BB17B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362555   (948231) от 24.02.2020
+
+Paul Haslinger - Exit Ghost (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Electronic, Contemporary Instrumental, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948231.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:45| 01. The Faltering Sky
+|03:14| 02. Intrinsic
+|03:28| 03. Room 3
+|01:58| 04. Exit Ghost(   Читать дальше...   )Жанр: Electronic, Contemporary Instrumental, AmbientПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:393432FFC698C8C2DC893B39311D5381CA064D18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982184   (948356) от 03.02.2016
+
+VA - Erotic Hush Moments: Best of Intimate Downbeat Moments and Relaxation (2016) [MP3|320 кб/с] <Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symbol Chains - Hotel Del Mar - Relaxed Waves Mix
+02. The Platternes - Magnets (You and Me) - Intimate Sex Machine Mix
+03. Spectral Analyzer - Deja Vu - Easy Listening Lounge Medition Mix
+04. The Ex-Factor - Aloha from the Stars - Down Beat City Big Pad Mix(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D7EA6176CB45CA24CC5AF046567DC0EA19936C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982148   (948429) от 03.02.2016
 
 Daniel Masson - Ten Particles (2015) [MP3|320 кб/с] <Downtempo, Chillout, Acoustic Guitar>
@@ -554,141 +689,6 @@ VA - If House Like To Party (2017) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:519E81750EF90AC136D84617AED045024A4A1C34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089271   (950760) от 04.01.2017
-
-VA - 6 Years Of CibiCaldi Records (2017) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandro S - Just My Beat 07:53
-02. Sandro S, Mr Few - Walking On Hands 07:37
-03. Klaudio Greco - Italians Do It Better 05:50
-04. Sandro S - Reset Hall (Ozen Nouse) 07:33(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 04:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF1242F61C1BFB26E6398D7DA4DE9E41B744EF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089610   (950772) от 04.01.2017
-
-VA - Chill In The Summer: Chillout Collection (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zero Feedback - Rien Ne Va Plus  (Don Gorda Project Remix) 7:00
-02. Don Gorda Project - Dreamscape 6:12
-03. Joop & Aurelio - Macaracas 5:03
-04. Enrico Donner - Time Stands Still 4:44(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42357AE81CED6E8809ADE4884091F46CA5E71CF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089539   (950774) от 04.01.2017
-
-VA - Just Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Julio Marquez Ensamble - Ritmo de Copa Cabana (06:55)
-02. Lorenzo Casanova - Vila Mimosa (Make Love Not War Boogie Version) (04:47)
-03. Sombra Modos - Shared Happiness (06:05)
-04. Digital Orchestra Berlin - Into the Desert (Cafe Marrakesh Mix) (05:07)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98EAC45182F1CE4E0AE666A044E0AFEF7D49029C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089415   (950786) от 04.01.2017
-
-VA - Christmas Chill (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Area Code 51 - Ships 3:45
-02. Koolsax - Strange Night 4:44
-03. Larry Scottish - Porcelain (Extended Mix) 6:43
-04. Kornpluck - Proper (Extended Mix) 6:36(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9848130A230F0DD87ABCF8112D8C00FC9ABE7AC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089596   (950787) от 04.01.2017
-
-VA - Atmosfera Records Best Of 2016 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Decline - Lunge (Original Mix) [4:23]
-02. Sentencia - Above The Sky (Original Mix) [4:30]
-03. Dmitry Kostyuchenko - Heaven Love (Original Mix) [7:39]
-04. Yuri Pike - 21 (Original Mix) [6:19](   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:730889C090C28D327B2E1B4F93E31870BC5BFAD5
 ```
 
 

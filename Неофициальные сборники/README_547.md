@@ -1,3 +1,30 @@
+###  Публикация: 1006395   (823392) от 14.04.2016
+
+VA - Interkosmos (Compiled by Breeeze) (2016) [MP3|128-320 кб/с] <Cosmic Disco, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amberflame - Ultra Violet (05:23)
+02. Kim & Buran - Running On The Waves (05:38)
+03. Anton Romezz - Marzipan World (06:53)
+04. D-Pulse - Lazy Sun (Live At Bubble Bar) (07:23)(   Читать дальше...   )Жанр: Cosmic Disco, Nu DiscoПродолжительность: 01:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA6BD27AB044DB66237D27261F376BE4B791AA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007020   (823484) от 14.04.2016
 
 VA - La Noche Piano: y Dulces Atmosferas Musica Clasica (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
@@ -668,33 +695,6 @@ VA - Лирика шансона (2014) [MP3|320 кб/с]<Шансон, Авто
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:209F0157D11F1BD334BD97854339F753DB276838
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006697   (825585) от 13.04.2016
-
-VA - Happy Feeling Vol.3 (2016) [MP3|320 кб/с] <House, Progressive, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yuriy Pilin - Dream (Original Mix) 04:31
-02. Soundmare - Digital Sunlight (Original Mix) 06:14
-03. Alex Tasty - Double Senses (Original Mix) 06:19
-04. Romashin - A Cold Winter Sun (Original Mix) 09:51(   Читать дальше...   )Жанр: House, Progressive, TranceПродолжительность: 01:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1374A38842E753A93C9E538DE7EEAA1ED509D28A
 ```
 
 

@@ -1,3 +1,110 @@
+###  Публикация: 1376259   (860383) от 17.04.2020
+
+VA - Спидола 2 (2005) [FLAC|Lossless|tracks + .cue] <Rock'n'Roll, Blues, Twist>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пижоны - Блюз моря 3Ж54
+02. Ил. Моисеенко и Короли твиста - Два билета на юг 3:08
+03. Runaways - Мы не забудем 2:07
+04. Алиби - Люба из клуба 3:58(   Читать дальше...   )Жанр: Rock'n'Roll, Blues, TwistПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4222192C224A479C5A9A2092E48F6989055D09E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376008   (862039) от 16.04.2020
+
+Мастер - Мастер Времени (2020) [FLAC|Lossless|image + .cue] <Heavy/Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Старик
+02. Миротворец
+03. Магия
+04. Злой Век(   Читать дальше...   )Жанр: Heavy/Thrash MetalПродолжительность: 00:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B0DC5ADD5B8951B5D777612698C0CD7FD496A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376048   (862172) от 16.04.2020
+
+Ауткаст - 3 Singles (2019-2020) [FLAC|Lossless|tracks] <Alternative, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862172.jpg" />
+</div>
+
+
+###  Подробнее
+
+(2019) Пустота (Single)
+(2019) Феникс (Single)
+(2020) Один из нас (Single)Жанр: Alternative, Nu-MetalПродолжительность: 00:10:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7375B4FD102FE2A1D1E43C4E5156079AC60F5F86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999928   (862548) от 23.03.2016
+
+Евгений Маргулис - Пой как Маргулис. Лучшее (2016) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мой друг лучше всех играет блюз
+02. Шанхай-блюз
+03. Дороги наши разошлись
+04. Старые песни(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714BB71BF26512E8557FE4DDA668506D4CD20314
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999181   (864080) от 22.03.2016
 
 Би-2 - Би-2 (2000) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
@@ -581,112 +688,6 @@ magnet:?xt=urn:btih:130438CFB8C878BF30700719AD482D75F9612F08
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54C254B7A9BD5B27E1161A5EAE41B4461FCF20BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373704   (878440) от 07.04.2020
-
-Чичерина - #Войнаимир (2017) [FLAC|Lossless|image + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878440.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Жара
-2. Рвать
-3. Пожарные
-4. На передовой(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:15:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C9FA67C8EDAC0E125FE6B1F06F664671C68845B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 641824   (878743) от 11.04.2013
-
-Amatory - 5 альбомов (2003-2010) Дискография [FLAC|Lossless]<Alternative Rock|Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative Rock / Nu-MetalПродолжительность: 00:44:11
-Сквозь Закрытые Веки
-Стеклянные Люди
-Империя Зла(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114198   (880145) от 06.04.2020
-
-Arcane Grail - Mysteries Of The Ancient Charnel (2006) [FLAC|Lossless|image + .cue] <Symphonic Black Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foreword [00:48]
-02.Жанр: Symphonic Black Metal, Melodic Death MetalПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7497148A1A85E7F7FDE982D2797FD7CABB752E46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495490   (880810) от 12.09.2021
-
-Башаков Band - #ПатроновДоХрена (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Патроны - Сергей Галанин, Сергей Чиграков, Евгений Маргулис, Алексей Романов (04:28)
-02. Быть знаменитым - Сергей Чиграков (03:45)
-03. Богиня - Алексей Романов (04:43)
-04. Карман - Сергей Галанин (05:44)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B10ADFBE9B6247674BB5EBB2754D72B5C481C2C
 ```
 
 

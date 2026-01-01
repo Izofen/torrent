@@ -1,3 +1,192 @@
+###  Публикация: 1387464   (791834) от 01.06.2020
+
+Krzysztof Kowal & Grzegorz Michalak - 112 Operator Soundtrack (2020) [FLAC|Lossless|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What's your emergency?
+02. 911 Management theme
+03. S&R Management theme
+04. S&R Trailer theme(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E26D91C6F1EB970C5A491AF023DAA343FECDB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201489   (792099) от 25.01.2018
+
+Greg Maroney - Winter (2018) [MP3|320 Kbps] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792099.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Winter Grey
+2. Grandmother's Quilt
+3. January
+4. Hearthfire(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB6D4075A8D05E51E85C677A686C83A26C32F64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201484   (792113) от 25.01.2018
+
+VA - Discover Celtic Music (2018) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Bailey - Turas Domhsa chon na Galldachd
+02. Aryeh Frankfurter - The Morning Dew
+03. Golden Bough - The Wren Boys - Gavin's Hornpipe - Honeysuckle
+04. Scots Guards - Happy Hour(   Читать дальше...   )Жанр: Celtic, FolkПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B97082D7CA25ABAD09A525120B4D396341AFADCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201263   (792170) от 25.01.2018
+
+Aryeh Frankfurter - Celtic Whispers (2018) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Moved Through the Fair
+02. Ae Fond Kiss
+03. Aye Waulkin O'
+04. The Sandpit(   Читать дальше...   )Жанр: Celtic, FolkПродолжительность: 01:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B281BFBD4B038E1D582693E1CFBE5DD8EC7706E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274846   (792238) от 08.01.2019
+
+Trent Reznor & Atticus Ross - Bird Box (2019) The Null Corporation [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Dark Ambient, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outside (12:42)
+ 02. Undercurrents (04:03)
+ 03. Looking Forwards And Backwards (09:00)
+ 04. What Isn't Anymore (07:49)(   Читать дальше...   )Жанр: Ambient, Modern Classical, Dark Ambient, ScoreПродолжительность: 01:05:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023655D2D13D5166E92EA7489F9ABA2E01D02D9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274187   (792250) от 08.01.2019
+
+Philip Wesley - Dark Night of the Soul (2008) [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Solo Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears of the East (5:48)
+ 02. Racing Against the Sunset (4:53)
+ 03. The Approaching Night (6:40)
+ 04. Darkness Falls (4:42)(   Читать дальше...   )Жанр: Modern Classical, Ambient, Solo PianoПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC52A6863772248A7446855DF2D2A62C35195EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201009   (792778) от 24.01.2018
+
+Ernesto Cortazar - Legend Of The Sea (2009) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/10. Message In A Bottle  (2:47)
+ 02/10. As The Sun Rises (4:12)
+ 03/10. Legend Of The Sea (4:33)
+ 04/10. Dancing Waves (4:09)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B081DFDF5B1E1B0212D643238099E64E1D0C2F38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274529   (792989) от 07.01.2019
 
 Deuter - Mirage (2019) [MP3|320 Kbps] <New Age>
@@ -506,195 +695,6 @@ John Fluker - 11:11 (2016) [MP3|320 кб/с] <New Age, Neoclassical, Solo Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C9906B8B007DF3B26D9020DBCFE0B411B060C42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386608   (793578) от 30.05.2020
-
-Fred Neil - Fred Neil (1967) Reissue 2006 [FLAC|Lossless|tracks] <Rock & Roll, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fred Neil является вторым альбомом от Фреда Нила. Альбом имеет более непринужденный звук чем его дебют, и содержит его самые известные песни: "Everybody's Talkin" и "The Dolphins". Он был переиздан в 1969 году под названием Everybody's Talkin в ответ на международный успех саундтрека к фильму "Полуночный ковбой" (Midnight Cowboy), который (   Читать дальше...   )01. The Dolphins (4:06)
-02. I've Got A Secret (Didn't We Shake Sugaree) (4:41)
-03. That's The Bag I'm In (3:37)
-04. Badi-da (3:40)Жанр: Rock & Roll, FolkПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A408C20A973602E3A95E32B2761E516ED16BF0AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386598   (793628) от 30.05.2020
-
-Bert Jansch - Bert Jansch (1965) Remastered 2001 [FLAC|Lossless|tracks] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793628.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вовсе не обязательно тратить жизнь на то, чтобы убеждать мир в том, что ты - гений. Когда я захожу в паб, то не хочу, чтобы окружающие знали, что я – Берт Дженш».01. Strolling Down The Highway (3:07)
-02. Smokey River (2:56)
-03. Oh How Your Love Is Strong (3:40)
-04. I Have No Time (3:09)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80A3B7328D0D27DA0E1EFC1E853E91F563DC08D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012483   (793648) от 01.05.2016
-
-Douglas Blue Feather - Cosmic Visions (2016) [MP3|320 кб/с] <New Age, Native American, Flute>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch the Stars
-02. Deep Space
-03. Caves of Mars
-04. Orion's Belt(   Читать дальше...   )Жанр: New Age, Native American, FluteПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC4FF74D853E8972B0DCEF06234FA10B1D82805
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012546   (793732) от 01.05.2016
-
-Ann Sweeten - Where Butterflies Dance (2016) [MP3|320 кб/с] <New Age, Neoclassical, Solo Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Trace of You
-02. Broken Wing at North Light
-03. Elysian Fields
-04. Love Among the Ruins(   Читать дальше...   )Жанр: New Age, Neoclassical, Solo PianoПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE3281A6862E271301A1EE7B84CFDD9B2F54588
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012450   (793746) от 01.05.2016
-
-Simon Sigurdson - The Second Coming (2016) [MP3|320 кб/с] <New Age, Contemporary Guitar Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Momentum
-02. Let Your Guitar Sing
-03. Celestial Dragon
-04. The Second Coming(   Читать дальше...   )Жанр: New Age, Contemporary Guitar InstrumentalПродолжительность: 00:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00B1729E2B87E1451105AF3AC9436A242F6201B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199918   (793892) от 23.01.2018
-
-Green Crow - Пауза (2017) [MP3|320 Kbps] <Pub Folk, Celtic Punk, Folk Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Король фей
-02. Амстердам
-03. Мексика
-04. Бороды(   Читать дальше...   )Жанр: Pub Folk, Celtic Punk, Folk RockПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F492547E72796C9456EFF921B06F1F1D6DF02BE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200898   (793899) от 23.01.2018
-
-Alexandre Desplat - The Shape of Water / Форма воды (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|CD|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexandre Desplat - The Shape of Water (03:44)
-02. Renee Fleming - You'll Never Know (04:40)
-03. Alexandre Desplat - The Creature (01:48)
-04. Alexandre Desplat - Elisa's Theme (02:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF56C8910A627DE46B52FCC75451AB4C2CE840A
 ```
 
 

@@ -1,3 +1,163 @@
+###  Публикация: 1372094   (885447) от 03.04.2020
+
+Сергей Лазарев - Лазарев (2012) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:06:52Трэклист: 01. Make You Say
+02. Take It Off
+03. Stumblin'
+04. Under The Moon(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C0B14CD10CEFC30B44720C579400D2816129CD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372526   (885456) от 03.04.2020
+
+Anna Burch - If You're Dreaming (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Sleep (04:36)
+02. Party's Over (02:42)
+03. Jacket (03:36)
+04. So I Can See (03:22)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1838B7F074EE4AD39767375A3502C33DF09C94EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372505   (885618) от 03.04.2020
+
+Tops - I Feel Alive (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Direct Sunlight (03:27)
+02. I Feel Alive (02:34)
+03. Pirouette (03:06)
+04. Ballads & Sad Movies (03:28)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A6978F9ABC4D4D94BD59B05D3791226927DAF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103420   (885808) от 12.02.2017
+
+Kinnie Lane - V (2017) [FLAC|Lossless|tracks] <Pop, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Je te suivrai
+02. Heartbreaker (feat. Loup)Жанр: Pop, Female VocalПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A308A31164163F682682C566DEDA3C54ACD43949
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995317   (885995) от 10.03.2016
+
+VA - Romantic Collection: Лирика (1999) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Несчастный Случай - Генералы Песчаных Карьеров (4:14)
+02. Алсу - Зимний Сон (4:21)
+03. Борис Моисеев - Глухонемая Любовь (5:19)
+04. Алла Пугачева - Не Отрекаются Любя (4:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB06272A757CE70945E3C05A05259B5DE8F40233
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 870276   (885996) от 18.02.2015
+
+VA - Pure... 80s Remixes (2014) [FLАС|Lоssless]<Pop, Electronic, Dancepop, Hi NRG, Disco, Funk / Soul, New Wave, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nena - 99 Red Balloons (Club Mix) - 4:44
+02. Men At Work - Down Under (Extended Mix) - 5:24
+03. A Flock Of Seagulls - I Ran (Album Version) - 5:02
+04. B.A.D. (Big Audio Dynamite) - E = MC² (Extended Remix) - 6:28(   Читать дальше...   )Жанр: Pop, Electronic, Dancepop, Hi NRG, Disco, Danceflor, Funk / Soul, New Wave, Synthpop, Pop RockПродолжительность: 05:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC79D3C6DB0DE1BA8373996C10C41DEB4EA54DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995347   (886033) от 10.03.2016
 
 VA - Romantic Collection: Tet-A-Tet (2000) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -533,168 +693,6 @@ Wax - Magnetic Heaven (1986) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Pop Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:918AC800E3B72FA53F27D652573DA4650C01597E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994469   (889641) от 08.03.2016
-
-VA - Die Hit-Giganten - Sommerhits (2007) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haiducii - Dragostea Din Tei (3:33)
-02. Bellini - Samba de Janeiro (2:48)
-03. Loona - Bailando (3:34)
-04. Mr. President - Coco Jamboo (3:38)(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 02:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F6F0C185F9CF6AFAE3C46EC426C4DAB72EB566D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994576   (889782) от 08.03.2016
-
-Wax - American English (1987) [OGG|453-489 кб/с] <New Wave, Pop Rock, Synth Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American English
-02. In Some Other World
-03. Ready Or Not
-04. Call It Destiny(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth PopПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93AEF5C30E13EB81C82949CD29690F989764C5DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994600   (889795) от 08.03.2016
-
-Wax - A Hundred Thousand In Fresh Notes (1989) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Pop Rock, Synth Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anchors Aweigh
-02. Wherever You Are
-03. Railroad To Heaven
-04. He Said She Said(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth PopПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05454FFACBD57D6531A0E40B432E8E8C5EFDB23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994661   (889825) от 08.03.2016
-
-The Twins - Hold On To Your Dreams (1987) Remastered, 2003, Passion Factory Records [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Euro Disco, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold on to your dreams
-02. Love can change it all
-03. Time will tell
-04. What do you live for(   Читать дальше...   )Жанр: Synthpop, Euro Disco, New WaveПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5FCE22047611FD339D924FA0CD41B7CCC8CD4D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371526   (889930) от 31.03.2020
-
-гр. Электроклуб - Музыка Давида Тухманова (2008) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:07:53Трэклист: 01. Нервы, нервы, нервы...
-02. Воздушные замки
-03. Чистые пруды
-04. Но всё-таки лето(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BC6A06FAC01D7E913E96398D163FC60E1306302
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371525   (889983) от 31.03.2020
-
-Вадим Мулерман - Лада-Золотая коллекция ретро (2005) [FLAC|Lossless|tracks + .cue]<Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Советская эстрада, РетроПродолжительность: 01:12:23Трэклист: 01. Лада 3:27
-02. Тундра 3:46
-03. От Владивостока до Карпат 2:17
-04. Судьба 4:16(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E9E306296007B43F0E96296216757C69FAF5CB8
 ```
 
 

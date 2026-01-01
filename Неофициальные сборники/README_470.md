@@ -1,3 +1,30 @@
+###  Публикация: 1283235   (740262) от 16.02.2019
+
+VA - Progressive Pro V.01 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Deep Progressive, Melodic Progressive, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bolier & NBLM - Follow Me (BLR Remix) [5:16]
+02. Deep Fog - Eagle Nebula (Original Mix) [7:50]
+03. JFR - Rainy Day In Mendoza (Original Mix) [7:58]
+04. Nerutto - Illuminate (Original Mix) [5:33](   Читать дальше...   )Жанр: Deep Progressive, Melodic Progressive, Progressive HouseПродолжительность: 03:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AA200737EE5BF19DBD903FDDC004765EFD4E84F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397460   (740306) от 20.07.2020
 
 VA - Sexy Midnight with a Saxophone (2020) 3CD [MP3|320 Kbps] <Easy Listening, Jazz>
@@ -669,33 +696,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96ABCCEE38CD628C8D85EBCE84F68E2650285E9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217485   (742261) от 05.04.2018
-
-VA - De Top 100 Aller Tijden 1986 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Synth-pop, Disco, World>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742261.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Billy Ocean - When The Going Gets Tough The Tough Get Going (7:33)
-002. Europe - The Final Countdown (5:10)
-003. George Michael - A Different Corner (4:05)
-004. UB40 - Sing Our Own Song (4:02)(   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, Disco, WorldПродолжительность: 07:22:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0DD72BA9E99D4A3F9FCD9F4A263050CE19A3CFB
 ```
 
 

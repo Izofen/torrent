@@ -1,3 +1,57 @@
+###  Публикация: 1277957   (773166) от 24.01.2019
+
+Shakira - Laundry Service (2001) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Objection - (Tango) (3:44)
+02.Underneath Your Clothes (3:45)
+03.Whenever, Wherever (3:16)
+04.Rules (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17998B6BCEDA3EC16492936A1DDB2FC2A5A5945
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125062   (773311) от 13.04.2017
+
+Jamiroquai - Automaton (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Acid-jazz, funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake It On
+02. Automaton
+03. Cloud 9
+04. Superfresh(   Читать дальше...   )Жанр: Acid-Jazz, FunkПродолжительность: 01:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517D734BCDB4290814E1AABC410D8BEEAE262E32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124373   (773320) от 13.04.2017
 
 Paul Anka - The Real... Paul Anka (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
@@ -641,60 +695,6 @@ Eros Ramazzotti - Duets (2017) Compilation [FLAC|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B3237C933BC43E6328A7E7ECFE07673E60CC813
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207545   (780560) от 18.02.2018
-
-Руслана - Дикі Танці (2003) [FLAC|Lossless|image + .cue]<Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ой заграй ми, музиченьку
-02. Знаю я
-03. Плєс
-04. Аркан(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C588391433016AE89F9EBDBF787F9B9D26C156
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207476   (780568) от 18.02.2018
-
-DJ Piligrim - 3 Albums (2011-2014) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Way
-02. Yulduz (feat. Lola)
-03. Ты Да Я...
-04. Я Дышу Сердцем(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 02:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7024447AE7F2EDF8E9BDF22345C4BEAFF3EDBEA7
 ```
 
 

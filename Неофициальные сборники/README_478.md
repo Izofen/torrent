@@ -1,3 +1,30 @@
+###  Публикация: 1523471   (751429) от 11.01.2022
+
+Dj kolhoz - Compilation (2021) [MP3|320 Kbps] <Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Последние поцелуи
+02. Вечер в Париже
+03. Вспомни...!!!
+04. Ласковый май(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1134F9E50019D4257B6BCE2053C51A1BAB2EFCB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395703   (751448) от 12.07.2020
 
 VA - Шансон Музыкальный хит-парад (2020) [MP3|320 Kbps] <Шансон>
@@ -669,33 +696,6 @@ VA - No Stress Relaxing Beats (2018) [MP3|320 Kbps] <Lounge, Chillout, Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:611FC21428E7B0122D261193345D4DFB2AA98530
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281338   (753243) от 07.02.2019
-
-Kiss - Kiss Live (2019) [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Rock And Roll All Nite
-02 – Detroit Rock City
-03 – King Of The Night Time World
-04 – Deuce(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D29AD2ACCFF6F3CF95B0C5646DF932D30FF93F6E
 ```
 
 

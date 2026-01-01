@@ -1,3 +1,30 @@
+###  Публикация: 1498627   (854178) от 28.09.2021
+
+VA - 90's Mixtape (2021) [MP3|320 Kbps] <Pop, Rock, R&B, Disco, Synthpop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diddy, 112, Faith Evans - I'll Be Missing You (feat. Faith Evans & 112)
+02. The Goo Goo Dolls - Iris
+03. Cher - Believe
+04. Alanis Morissette - Ironic(   Читать дальше...   )Жанр: Pop, Rock, R&B, Disco, SynthpopПродолжительность: 07:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7F4C2BF65506A786D01BA270515F68B770FB41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498727   (854182) от 28.09.2021
 
 VA - Kiss FM Top 40 (21.09) (2021) [MP3|320 Kbps] <Pop, Dance, Disco, Synthpop>
@@ -665,33 +692,6 @@ VA - Весенние хиты в тачку 2016 (2016) [MP3|320 кб/с] <Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA9725E9812516DA582B5DA5544A38CC1ED616ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001024   (855532) от 27.03.2016
-
-VA - Dr. Metal Presents: Vol.7 (2016) [MP3|224 кб/с] <Heavy, Speed, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855532.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sinbreed-Creation Of Reality
-002. Dark Empire-Northern Sky
-003. AtVance-Right or Wrong
-004. StormWarrior-Odinn's Warriors(   Читать дальше...   )Жанр: Heavy, Speed, Power MetalПродолжительность: 07:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:544CE74059C1DCB52E2E3A3D77A13F83E3D6B447
 ```
 
 

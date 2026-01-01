@@ -1,3 +1,30 @@
+###  Публикация: 987337   (925971) от 17.02.2016
+
+VA - Modern EuroDisco 80`s (2016) [MP3|239-320 kbps] <Disco, Pop, Dance, Remix>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925971.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Linda Jo Rizzo - You're My First, You're My Last 2012
+002. Rockets - Electric Delight (Don't Stop)
+003. Boney M - Happy Song (DJ Viduta & DJ DimixeR remix)
+004. P.Lion - Happy Children (Mix Version)(   Читать дальше...   )Жанр: Disco, Pop, Dance, RemixПродолжительность: 09:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6D4BBF90A0B556F567644350CB86180DD2D05C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986737   (925982) от 17.02.2016
 
 VA - YouTube Top100 Music Singles Chart 25th January (2016) [MP3|236-320 кб/с] <Hip Hop, R&B, Pop Punk, Electropop, Synthpop>
@@ -665,33 +692,6 @@ VA - Зимний драйв. Зарубежная версия (2016) [MP3|256 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7791A7557044EC0CDEDAED4AC32E052BD52610F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987289   (927727) от 16.02.2016
-
-VA - Autour De Minuit - Piano Bar (2012) [MP3|320 кб/с] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Oscar Peterson Trio - Georgia On My Mind (3:44)
-02. Bobby Timmons - Moanin' (5:07)
-03. The Three Sounds - After Hours (2:47)
-04. Blossom Dearie - Blue Moon (2:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C718306CE58728856FD98DF32F90F0759D0943C4
 ```
 
 

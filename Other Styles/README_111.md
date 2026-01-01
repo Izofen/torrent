@@ -1,3 +1,195 @@
+###  Публикация: 1029321   (682343) от 26.06.2016
+
+Rupert Gregson-Williams - The Legend of Tarzan / Тарзан. Легенда (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opar (by Zoe Mthiyane) (03:29)
+02. Diamonds (04:51)
+03. Togetherness (01:45)
+04. Steamer and Butterfly (02:41)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA83C134922C7BCB08D00599FBEC72AC2C640DA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029324   (682461) от 26.06.2016
+
+Rupert Gregson-Williams - The Legend of Tarzan / Тарзан. Легенда (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opar (by Zoe Mthiyane) (03:29)
+02. Diamonds (04:51)
+03. Togetherness (01:45)
+04. Steamer and Butterfly (02:41)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D0963D2485CF651B7591FBA8F347692AE85917
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029300   (682464) от 26.06.2016
+
+Theodore Shapiro and Ludwig Goransson - Central Intelligence / Полтора шпиона (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Central Intelligence (02:08)
+02. Robbie (00:38)
+03. Golden Jet (01:02)
+04. I Don't Like Bullies (01:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:472187B36352B07299A70CCC75D8BC32F32D1A99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222516   (682596) от 30.04.2018
+
+Alan Silvestri - Мстители: Война бесконечности / Avengers: Infinity War (Deluxe Edition) (2018) [FLAC|Lossless|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Avengers (0:26)
+02. Travel Delays (Extended) (4:45)
+03. Undying Fidelity (5:05)
+04. No More Surprises (4:04)(   Читать дальше...   )Жанр: Soundtrack, scoreПродолжительность: 01:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F2F72D00766AF4D1FD1BAA96DBAD25BB253CAF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222529   (682610) от 30.04.2018
+
+Alan Silvestri - Мстители: Война бесконечности / Avengers: Infinity War (Deluxe Edition) (2018) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Avengers (0:25)
+02. Travel Delays (2:43)
+03. Undying Fidelity (5:05)
+04. He Won't Come Out (2:31)(   Читать дальше...   )Жанр: Soundtrack, scoreПродолжительность: 01:56:29
+
+01. The Avengers (0:26)
+02. Travel Delays (Extended) (4:45)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B64D4251BF0505AFAF87F1F99587FEB951F3B1C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222558   (682874) от 30.04.2018
+
+Heidi Breyer - Moonlight in Empty Rooms (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Unfinished Conversation
+ 02 – Autumn Snowfall
+ 03 – Autumn in Bruges
+ 04 – Christian’s Workshop(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26965670168D6E6A75BA3FB1E5088C4A58CC51FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135205   (682897) от 18.05.2017
+
+Manolo Fernandez - Celtic Music Dream (2017) [MP3|320 Kbps] <New Age, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dreamcatcher
+02. The Elves Are Coming
+03. Her Celtic Eyes
+04. Morrigan(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D829D5552DFD3DFAC0255CCEE3B4F25B8980196D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134508   (682911) от 18.05.2017
 
 Daniel Pemberton - The Counselor / Советник (Original Motion Picture Soundtrack) (2013) [MP3|320 кб/с]<Soundtrack>
@@ -522,195 +714,6 @@ VA - The Buddy Holly Story (1978) 2020 / Original Motion Picture Soundtrack / De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4BA1B9353C5123262AC56298282A643762F1DD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289030   (686641) от 16.03.2019
-
-The Way Down Wanderers - illusions (2019) [FLAC|Lossless|tracks + .cue] <Country, Americana>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686641.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Principles of Salt (03:10)
-2. Frozen Through (02:35)
-3. She's Alright (03:12)
-4. Crooked Pines (04:29)(   Читать дальше...   )Жанр: Country, AmericanaПродолжительность: 00:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAA1C180C41F51F4DA912CEE6BF4B417B38DC9AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289435   (686739) от 16.03.2019
-
-Lula Wiles - What Will We Do (2019) [FLAC|Lossless|WEB-DL|tracks] <American Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Gone Wrong 03:56
-02. Hometown 03:12
-03. Nashville, Man 02:54
-04. Independence Day 04:05(   Читать дальше...   )Жанр: American FolkПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB2E14EDF44744F8DC93D4ABB60FB9B8483850E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028736   (686767) от 24.06.2016
-
-Elevation - Days of Elijah (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Days of Elijah [00:04:22]
-02. Beautiful One [00:03:48]
-03. Great Is the Lord [00:03:56]
-04. Hungry [00:03:44](   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 02:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DC46791D4C435EB5A9A8570194D7FA20FB7AEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134510   (687218) от 16.05.2017
-
-Daniel Pemberton - The Counselor / Советник (Original Motion Picture Soundtrack) (2013) [FLAC|Lossless|CD|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hunter (01:47)
-02. The Counselor (Titles) (04:10)
-03. The Lovers (01:51)
-04. A Warning (Moral Decisions) (02:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA32286E111E232B34316E2BADAB5967CFDDC787
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134506   (687238) от 16.05.2017
-
-Harry Gregson-Williams - The Zookeeper's Wife / Жена смотрителя зоопарка (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warsaw Zoo, 1939 (05:07)
-02. The Bombings (00:57)
-03. Aftermath (02:48)
-04. The Escape (02:04)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D4570EEBC430DCE287B246590BF4EF80B56C17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134556   (687333) от 16.05.2017
-
-Danny Bensi & Saunder Jurriaans - LA 92 / Лос-Анджелес 92 (Original National Geographic Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watts (01:14)
-02. Opening (02:54)
-03. Titles (02:30)
-04. LA 1991 (01:02)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34F47BBC62A329F1B58C31CDCBF9884953E1EF40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134512   (687345) от 16.05.2017
-
-VA - Los clasicos argentinos - Tango - Vol.18 - Horacio Salgan: La magia de un creador (1996) [MP3|128 Kbps] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raul Garello y su Orquesta - Buen amigo
-02. Miguel Calo y su Orquesta - Yuyo verde
-03. Alberto Marino y su Orquesta - Mano cruel
-04. Sexteto Mayor - Kicho(   Читать дальше...   )Жанр: TangoПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:719A77F031D273B5A355BB12F9820E32B2C76EC8
 ```
 
 

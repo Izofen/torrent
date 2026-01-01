@@ -1,3 +1,30 @@
+###  Публикация: 794344   (697452) от 08.06.2014
+
+VA - My Favourite Hits of 1983 (10CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth pop, New age, Pop rock, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697452.jpg" />
+</div>
+
+
+###  Подробнее
+
+150. Bryan Adams - Take Me Back (04:36)
+151. Blonker - Sleepwalk (02:14)
+152. Tommy Faragher - Look Out For Number One (03:18)
+153. Bonnie Tyler - It's A Jungle Out There (04:36)(   Читать дальше...   )Жанр: Disco, Pop, Synth pop, New age, Pop rock, RockПродолжительность: 01:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F5304B882C48F6222346A99C5E93AA444C11567
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288174   (697504) от 10.03.2019
 
 VA - Pop Lolipop (2019) [MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - View In Color: Deep House Club Essential (2018) [MP3|320 Kbps] <Deep House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:948B062E969AA46EC547AAE163B5CB7E395FB887
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221101   (698711) от 22.04.2018
-
-VA - EUROMANIA: Rave Hits vol. 1-4 (2015) [MP3|320 Kbps] <Eurodance, Rave, Techno, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intermission - Planet Love (3:57)
-02. Marusha - Deep (5:45)
-03. Scooter - Move Your Ass! (5:51)
-04. Awex - Wicked Plasticman (3:37)(   Читать дальше...   )Жанр: Eurodance, Rave, Techno, ElectronicПродолжительность: 06:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E96792346A3035F56C78895DE15FA348B727144D
 ```
 
 

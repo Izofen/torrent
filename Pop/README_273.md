@@ -1,3 +1,163 @@
+###  Публикация: 779118   (771219) от 22.04.2014
+
+VA - 538 Hitzone 69 (2014) 2CD [FLAC|Lossless]<Top 40, Pop Compilation>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clean Bandit feat. Jess Glynne - Rather Be (3:50)
+02. Katy Perry feat. Juicy J - Dark Horse (3:37)
+03. George Ezra - Budapest (3:23)
+04. Pharrell Williams - Marilyn Monroe (Radio Edit) (3:46)(   Читать дальше...   )Жанр: Top 40, Pop, Rock, Electronic, Ballad, Hip Hop, Electronic, Dance, Dancepop, Electro, Pop Rock, Alternative Rock, R&B, Soul, Hip Hop, Pop RapПродолжительность: 02:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F773F1A6470441A585CDEB5EFBC96D67DBFACEFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016143   (771343) от 13.05.2016
+
+VA - This Is Berlin Disco Vol. 1 (2016) [MP3|320 кб/с] <Dance, Disco House, Tech House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Beat - Na Na Na
+02. Water Juice - In Love (Radio Edit)Жанр: Dance, Disco House, Tech HouseПродолжительность: 02:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEAF48B92FFC390A883BA49E3131DEE8D9ACAFC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391618   (771510) от 22.06.2020
+
+VA - 100 Disco Classics (2020)  5CD Box Set [MP3|320 Kbps] <Pop, Disco, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771510.jpg" />
+</div>
+
+
+###  Подробнее
+
+СD1:
+01. Donna Summer - Hot Stuff 5:15
+02. The Pointer Sisters - I'm So Excited (Single Remix) 3:48
+03. Gloria Gaynor - I Will Survive 3:16(   Читать дальше...   )Жанр: Pop, Disco, RnBПродолжительность: 06:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87DC494A2D4BC3DF603A8D8A114AC4B3BA68DA99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 660419   (771544) от 25.05.2013
+
+Robin Gibb, Barry Gibb, Andy Gibb - 14 Albums (1970 - 2012) Collection Hits [FLAC|Lossless]<Rock, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock, DiscoПродолжительность: 00:50:01
+01. Man on Fire
+02. I Just Want to Be Your Everything
+03. (Love Is) Thicker Than Water(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213189   (771622) от 16.03.2018
+
+E-Type - Russian Lullaby (1998) [FLAC|Lossless|image + .cue] <Eurodance, Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Russian Lullaby (3:14)
+02. Until the End (3:32)
+03. When Religion Comes to Town (3:23)
+04. You Will Always Be A Part of Me (4:08)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFF8C0E5354FDA1CB1697BE96D7C192ADC55054A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213321   (771763) от 16.03.2018
+
+VA - Magic 80s (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771763.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Queen  -  A Kind Of Magic  4:24
+02.  Culture Club  -  Karma Chameleon  4:00
+03.  The Human League  -  Don't You Want Me  3:58(   Читать дальше...   )Жанр: PopПродолжительность: 05:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4146CDCFF71E6A50D71BE82798EF010ADD0D620
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 660882   (771783) от 25.05.2013
 
 Fancy - Get Your Kicks (1985) [FLAC|Lossless]<Italo Disco, Disco> Первый Альбом!!!
@@ -527,168 +687,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F23BECF5F39AC83AEFB005303B56DE040FE7DF45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212833   (774301) от 14.03.2018
-
-Boris Zhivago - Memories (2018) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synth-pop, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memoires (5:29)
-02. Love Is A Memory Away (7:56)
-03. Russian Fantasy (5:25)
-04. The Girl That Saved My Life (7:02)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Hi-NRGПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C69CD6906618A660241219EB1064C24B128A04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278030   (774308) от 23.01.2019
-
-AKB - Rhythmic Feet (1979) LP [MP3|320 Kbps] <Electronic, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stand Up - Sit Down (8:13)
-02. We Got Rhythmic Feet (8:31)
-03. When We're Alone (4:12)
-04. Goin' Downtown (5:21)(   Читать дальше...   )Жанр: Electronic, Soul, DiscoПродолжительность: 00:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0667FAC545A17658C4496E8F48660D9DBAB38DC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277924   (774310) от 23.01.2019
-
-VA - Space Oddities (2016) Studio Ganaro (1972-1982) [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roger Roger, Nino Nardini - Expectation (1:55)
-02. Cecil Leuter - Pop Electronique No. 1 (2:27)
-03. Roger Roger - Sound Industrial No. 2 (2:03)
-04. Eddie Warner - Shut Up (2:26)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616F253B6D87E50FD3696D0F5BBA33BC01723BDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277937   (774321) от 23.01.2019
-
-Boulevard des Airs - Je Me Dis Que Toi Aussi (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Je me dis que toi aussi
-02. Tout le temps
-03. Comment ca tue
-04. Si la vie avance(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E82C9DF210B594CFCA3A7662DC34172C125F9C65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015400   (774832) от 10.05.2016
-
-Город 312 - Обернись (2007) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Раскаленное солнце (3:48)
-02. Город-точка (3:20)
-03. Девочка, которая хотела счастья (3:32)
-04. Космос (3:17)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D0CE2FA5263DA96A76FDD57CB5E14CDB599154
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015462   (774834) от 10.05.2016
-
-Chyp-Notic - 2 Albums, 4 Singles & EPs (1990 - 2015) [MP3|320 кб/с] <Electronic, Synth-pop, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing compares 2 U   (4:53)
-02. Don't play my song   (4:17)
-03. Free   (4:33)
-04. Love reaction   (3:56)(   Читать дальше...   )Жанр: Electronic, Euro House, Synth-popПродолжительность: 02:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506D35B69BDA925F8A02D3D94C5CD8DFC34F3E5E
 ```
 
 

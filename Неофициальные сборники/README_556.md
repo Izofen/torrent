@@ -1,3 +1,30 @@
+###  Публикация: 1112929   (837486) от 11.03.2017
+
+VA - В Современной Обработке. Mega Дискотека 80-90-х. Версия № 2 (2017) [MP3|256-320 Kbps] <Pop, Dance, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837486.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. B-Sound - Stay With Me (V.Bashmakov Remix) 3:51
+002. Antares - Ride On A Meteorite (Roazt Remix) 3:12
+003. Basic Element - Leave It Behind (DI Serzh Remix) 4:49
+004. Bonnie Tyler & With Blutonium Boy feat. Van Snyder - Holding Out For A Hero  (Van Snyder Remix) 3:34(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 08:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C64B73AB6CDAADBB8DEA3D29F639B3B1448FAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113267   (837489) от 11.03.2017
 
 VA - Club Dance Dependence vol.3 (2017) [MP3|320 Kbps] <Club , Dance , House>
@@ -662,33 +689,6 @@ VA - Vocal Drum & Bass Vol.11 [Compiled by Zebyte] (2017) [MP3|256-320 Kbps] <Dr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BB534893FE888EDED8E32506CB942A79B521E69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113254   (838630) от 11.03.2017
-
-VA - German Top 50 Official Dance Charts 10.03.2017 (2017) [MP3|320 Kbps] <Pop , Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838630.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bakermat - Baby 2:40
-002. Tujamo - Make U Love Me 3:08
-003. Throttle - Hit The Road Jack 3:17
-004. Talstrasse 3-5 & Ben K. Ft. Oni Sky - L'Amour Toujours 3:38(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 02:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5538351A237010DE857C2682B69959C51AB73A78
 ```
 
 

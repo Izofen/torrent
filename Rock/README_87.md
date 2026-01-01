@@ -1,3 +1,30 @@
+###  Публикация: 1103836   (883522) от 13.02.2017
+
+VA - Eddie Stobart Trucking Songs: Trucking All over the World (2014) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883522.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+
+ 1. Queen - Another One Bites the Dust [03:32]
+ 2. Status Quo - Rockin' All Over the World [03:32](   Читать дальше...   )Жанр: RockПродолжительность: 03:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96759E465B14B082C95A218F6E08300C8FE5197F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 186000   (883649) от 24.03.2010
 
 Cinderella - Best ballads (2001) [MP3|320 kbps]<Hard-rock / Glam-rock>
@@ -672,36 +699,6 @@ The Don Harrison Band - The Don Harrison Band (1976) Reissue, 2006, FruitGum Cor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B0DD0F1D20EAE0C3EEC5CD06E82B39ADC2478B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492581   (900462) от 31.08.2021
-
-The Immediate Family - The Immediate Family (2021) [MP3|320 Kbps] <Classic Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Было две епишки, теперь полноформатный альбом и надо сказать отличный.
-The Players:
-Steve Postell - Guitars, Vocals
-Waddy Wachtel - Guitars, Vocals(   Читать дальше...   )01. Can't Stop Progress (04:28)
- 02. Slippin' And Slidin' (03:55)
- 03. Everything That's Broken (03:21)
- 04. Damage (03:26)(   Читать дальше...   )Жанр: Classic Rock, BluesПродолжительность: 00:53:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E5DC2A9045C210D120357E3AFD8F920188AAAB
 ```
 
 

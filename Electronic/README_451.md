@@ -1,3 +1,138 @@
+###  Публикация: 997855   (868643) от 20.03.2016
+
+VA - Various Artists - Horenswert Vol. 10 (2016) [MP3|320 кб/с] <Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Third Son - Oedipus
+ 02. Alex Neri - Desert Rose (Burnski Remix)
+ 03. Philip Bader - The Vibe
+ 04. Martinez - Honey Lips(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 02:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89013E0056B8C4B46F6556C6057DF540EDAE6652
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998825   (868646) от 20.03.2016
+
+VA - Telrae Mixed By Salz Vol. 2 (2012) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salz - Telrae Mix Vol. 2 (Continuous Mix) (01:19:19)
+02. Van Bonn - Marathon (Dublicator's Long-Distance Dub) (07:33)
+03. Martin Schulte - Urban Wind (Original Mix) (06:14)
+04. Van Bonn - Maserung (Organon Remix) (08:50)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 02:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6AF5B725B99F25DB766F5AFF6CBF7784BE6F59A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375114   (868980) от 12.04.2020
+
+Robert Elster - Quarantine EP (2020) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Industrial, Techno, Acid, Drum n Bass>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Day (06:42)
+02. Outbreak (09:18)
+03. Circuit Sailor (08:05)
+04. Closed Eye Waffles (05:33)Жанр: Dark Ambient, Industrial, Techno, Acid, Drum n BassПродолжительность: 00:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6EBF75350AECF22FB7357C7DDBDBDC267B11AA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375170   (868982) от 12.04.2020
+
+Paul van Dyk & VA - VONYC Sessions 2013 (2013) 2CD, Compilation, Mixed [FLAC|Lossless|tracks + .cue] <Progressive Trance, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul van Dyk & Arnej - We Are One 2013 (Intro Mix) (4:35)
+02. Genix & Las Salinas - Say Another What (2:32)
+03. Omnia - Immersion (4:56)
+04. Alexander Popov - Moscow Subway (2:39)(   Читать дальше...   )Жанр: Progressive Trance, TranceПродолжительность: 02:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87BC1267EAF6C3254589352164639DDF8CE672F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375167   (869083) от 12.04.2020
+
+VA - Isolation Therapy (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Ambient, Italo, House>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olsvanger - 2120 (7:10)
+02. The Head - All the Things I Am (7:05)
+03. Hector Plimmer - Precipice (2:59)
+04. Lily Haz - No Mo Dinin' (3:17)(   Читать дальше...   )Жанр: Balearic, Ambient, Italo, HouseПродолжительность: 02:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F64FCFE4A18086A585CEB6C541A423FA02CCAF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375092   (869087) от 12.04.2020
 
 Bicep - Bicep (2017) Ninja Tune [FLAC|Lossless|tracks+.cue] <House, Techno, Downtempo, Trance>
@@ -555,138 +690,6 @@ AstroPilot & Friends - Soul Surfers (2016) [FLAC|Lossless|WEB-DL] <Psybient, Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECD89EF23AA2AC8916CF582663FCE2A176AD582B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496506   (871658) от 18.09.2021
-
-Yoshi & Razner - Transmission Live, Spain (2021-08-28) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Quicksilver - Ameno (Yoshi & Razner Remix)
-02. UCast vs. The Killers - Sympton Brightside (Yoshi & Razner Mashup)
-03. Steve Dekay - Sublime
-04. Miikka Leinonen ft. Kim Kiona - Breath Of The Wild (Metta & Glyde Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:29:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ACF6C781C56AACAC6DC9FFAF5A460CC332B12C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106559   (871662) от 20.02.2017
-
-VA - 20 Best Of Ambient Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Relaxing Chillout Music Zone nature - Best Of Ambient Chill  3:24
-02.  Sex Music Zone - Sexy Beats (Ambient Soft Music)  3:29
-03.  Beach Party Chillout Music Ensemble - Chill Lounge (Nightlife)  3:11
-04.  Beach Party Chillout Music Ensemble - Ibiza Beach (Wellness Hotel)  3:17(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67395865511EBD89FF110349EBD0F65D99E4847A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106655   (871664) от 20.02.2017
-
-VA - Vocal House Maniacs Vol.1 (2017) [MP3|320 Kbps] <House, Vocal House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Beat Addicts vs. C&C Music Factory - Keep It Comin' (Crystal Juice Remix)  6:24
-02.  Midnight Express - Music (feat. Sabrina Johnston) (Jazz Voice & House Pleasure Remix)  7:08
-03.  DJ Lopez & JC - The Colour Inside (Club Mix)  3:49
-04.  Easy Life - Everybody Join The Vibe (Club Mix)  6:20(   Читать дальше...   )Жанр: House, Vocal HouseПродолжительность: 02:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:624E9232BF7CF953B77DC5CD496E2BECAFC7DF4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106679   (871672) от 20.02.2017
-
-VA - Chill Out Nation Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  D-Chill - Are You Still (feat. Paola Cordoni) (Original Mix)  5:10
-02.  L.O.B. - Godness Of Love (Original Mix)  4:12
-03.  Alex Belmonte - Undersea (Chill & Lounge Mix)  4:53
-04.  Cellar 55 - Funknako (Original Mix)  5:24(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3FD46F0865ACEC5646C90A62E7C65DDEA49BB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 644424   (871773) от 15.04.2013
-
-VA - 80s Lounge Essentials (2013) [MP3|320 кб/с]<Lounge, Chillout, Lo-Fi>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Lounge, Chillout, Lo-FiПродолжительность: 01:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B6094D3DE9F009EFADD27DEA3545755C8F9E1B9
 ```
 
 

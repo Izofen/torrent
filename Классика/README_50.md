@@ -1,3 +1,57 @@
+###  Публикация: 978523   (956058) от 29.01.2016
+
+Gershwin - Second Rhapsody - Piano Concerto in F, Porgy and Bess: Symphonic Suite (1995) [FLAC|Lossless|image + .cue] <Classical, Orchestral, Symphonic>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto in F, for piano & orchestra
+01. Allegro (12:24)
+02. Adagio - Andante con moto (13:58)
+03. Allegro agitato (06:43)(   Читать дальше...   )Жанр: Classical, Orchestral, Symphonic, Modern, Concerto, Opera, Suite, Variations, Overture, Tone Poem, Rhapsody, Show TuneПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97CF6754ED022172EB0AD721F2EF1A1DBE1D8FE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980427   (956112) от 29.01.2016
+
+Izar Melting Pot Ensemble - The Melting Pot (2015) [FLAC|Lossless|tracks + .cue] <World, Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современный взгляд на мировую классическую музыку средневековья!01. La Rotta / La Rotta della Manfredina (Italy, 14th Century) (4:25)
+02. Polska after Zakarias Jansson (2:47)
+03. Longa Sultan Yakah (2:40)
+04. La Quarte Estampie Royal (France, 13th Century) (5:59)(   Читать дальше...   )Жанр: World, Classical CrossoverПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10D32E33741F743415EA73E8F8B28E88251297E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 856416   (957505) от 05.01.2015
 
 VA - Klassiska Favoriter Opera (1996) 3CD [FLAC|Lossless]<Classical>
@@ -669,72 +723,6 @@ Pyotr Il'yich Tchaikovsky, Symphony No.6 in B minor, op.74 “Pathétique”
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8A241A805C1BEE5D7E0F46D90315F65B9AEDDFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616488   (975021) от 10.02.2013
-
-Rouge Hot - Oriental Instruments VS Occidental Music (2005-2008) [FLAC|Lossless]<Classical>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somewhere, My Love [03:55]
-02. Myth [05:20]
-03. Garmen [04:33]
-04. Speak Softle Love [04:11]
-05. Csardas [05:32]
-06. Auf Flugeln des Gesanges [04:44]
-07. Peaceful Lake [04:04]
-08. Europa [05:06]
-09. El Bimbo [03:27]
-10. Memory [04:09](   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EFD82DDE58EE3A93D6B866C3BC8E4F13A4EBB0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614993   (977259) от 08.02.2013
-
-Stile Antico & Fretwork - Tune Thy Musicke to Thy Hart (2012) [FLAC|Lossless]<Sacred Music, Religious>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Tomkins (1572-1656): O praise the Lord - Stile Antico [03:44]
-02. John Amner (~1641): O ye little flock - Stile Antico, Fretwork [07:06]
-03. John Taverner (c.1490-1545): In nomine - - Stile Antico, Fretwork [02:03]
-04. Robert Ramsey (1590-1644): How are the mighty fall'n - Stile Antico [06:29]
-05. Thomas Tallis (c.1505-1585): Purge me, O Lord Antico - Stile Antico [01:51]
-06. John Amner: A stranger here Antico - Stile Antico [05:04]
-07. Robert Parsons (c.1530-1570): In nomine a 4 no. 1 - Stile Antico, Fretwork [02:35]
-08. John Browne (fl.1480-1505): Jesu, mercy, how may this be? - Stile Antico [10:03]
-09. Robert Parsons: In nomine a 4 no. 2 - Stile Antico, Fretwork [02:18]
-10. Giovanni Croce (c.1557-1609): From profound centre of my heart - Stile Antico [04:36](   Читать дальше...   )Жанр: Sacred Music, ReligiousПродолжительность: 01:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA0C122727F82ADB0F00E17B7F15C787808C607C
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1010389   (804396) от 24.04.2016
+
+VA - Future Trance Energy 001 April TOP (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snatt And Vix - Rapture (Tau-Rine Remix) 06:44
+02. UCast - Gearbox (Extended Mix) 07:14
+03. Konrad Bergen - The Way Of Nature (DJ Myde Rmx) 07:41
+04. Abide - Perpetuity (Original Mix) 08:02(   Читать дальше...   )Жанр: TranceПродолжительность: 02:27:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C316CB817E021F6C2546283D7CCF222C769730
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198895   (804414) от 13.01.2018
 
 VA - Back to the Terry's Café 1997-2014 - That's What I Call Soulful Deep House Music [Compiled by Firstlast] (2018) [MP3|320 Kbps] <Deep House, Tech House, Chill House>
@@ -668,33 +695,6 @@ VA - Beatport Bassline: Electro Sound Pack #84 (2020) [MP3|320 Kbps] <D&B, Dubst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:796FAED7E0EADB299258D229B3291ACE0EB74353
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198725   (806296) от 12.01.2018
-
-VA - Chilltrap Vol.10 (Russian Version) (Compiled by ZeByte) (2018) [MP3|320 Kbps] <Chilltrap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Грот & Fuze  -  Я тебя вспомнил  4:37
-02.  Звонкий и Карандаш  -  Королева  3:42
-03.  Грот  -  Откуда мне знать тебя  3:54
-04.  25-17 & Грот  -  Солнцу навстречу  4:18(   Читать дальше...   )Жанр: ChilltrapПродолжительность: 02:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA7D36D554F7B7B59BD2F6E35FBB30C5518A633A
 ```
 
 

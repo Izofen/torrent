@@ -1,3 +1,30 @@
+###  Публикация: 1464368   (1019771) от 22.04.2021
+
+VA - Disco Is Alive 2 (2021) [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afric Simone - Casanova Africano (1978) (3:15)
+02. Arabesque - Once In A Blue Moon (1980) (3:19)
+03. Azoto - Anytime Or Place (1980) (6:15)
+04. Black Devil - No Regrets (1978) (5:07)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 05:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90A904259D601E2BC58DF7D83B6537134C5A5FB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464290   (1019783) от 22.04.2021
 
 VA - Nu Disco: New Generation And The Remixes (2021) [MP3|320 Kbps] <Nu Disco, Funky, Dance, Disco House>
@@ -670,33 +697,6 @@ VA - New Season: New Look (2021) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44828CF551D07561C3EF39DAE07FABCAC103AAE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451878   (1027877) от 05.03.2021
-
-VA - 8 марта: Золотые хиты (2021) [MP3|~245 Kbps (V0)] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жирный Атеист - 8-е марта (4:44)
-02. Mad Show Boys - Ну, погоди! (3:16)
-03. Marina - Кино (3:43)
-04. Na-Na - Зинаида (4:09)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E35BE00A19C2947777693126867C46472DC541D
 ```
 
 

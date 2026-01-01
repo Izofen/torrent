@@ -1,3 +1,30 @@
+###  Публикация: 1131245   (708784) от 05.05.2017
+
+VA - Synthetic (2017) [MP3|320 Kbps] <Synth Pop, Dark Electro, EBM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Junksista - Life Is Unfair (And Love Is A Bitch) (Psy'Aviah Remix) (04:47)
+02. Ari Mason - Military Fashion Show (04:21)
+03. Nordika - Heaven (Slaves of the Sin) (03:56)
+04. Ladytron - Evil (Ewan Pearson Single Remix) (04:10)(   Читать дальше...   )Жанр: Synth Pop, Dark Electro, EBMПродолжительность: 01:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5E8BAB39A0380809A66F7774454BD0EC747524
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131197   (708786) от 05.05.2017
 
 VA - Workout Mix vol.8 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Electro House, Progressive House>
@@ -665,30 +692,6 @@ VA - Summer Magic Morning: Chillout Party (2020) [MP3|320 Kbps] <Chillout, Loung
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82C3C9839585C1D4591A7437CEF141B17650477B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 207928   (709659) от 12.06.2010
-
-VA - Романтик Хит - Люблю тебя (2010) [MP3|192-320 kbps]<Pop, Ballad>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_709659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Ballad
-
-## Скачать торент
-```bash
-нет
 ```
 
 

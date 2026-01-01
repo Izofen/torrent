@@ -1,3 +1,138 @@
+###  Публикация: 1390488   (783065) от 15.06.2020
+
+VA - Sea Cruising Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gary B - It Feels Like Summer (3:54)
+02. Eivissarts - Stoned Love (Original Mix) (5:29)
+03. Clelia Felix - Under the Moonlight (4:36)
+04. Schwarz & Funk - Dambes (Original MIx) (5:26)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C004BA1B93F6803D09E845884A2B3AD204027F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205737   (783196) от 11.02.2018
+
+Physical Dreams - Nature Sounds (2018) [MP3|320 Kbps] <Chillout, Ambient, Electronica>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nature Sounds N1 (Original Mix)  9:01
+02.  Nature Sounds N2 (Original Mix)  8:45
+03.  Nature Sounds N3 (Original Mix)  10:08
+04.  Nature Sounds N4 (Original Mix)  9:20(   Читать дальше...   )Жанр: Chillout, Ambient, ElectronicaПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD86C0C7DAFB092D255BC08686CBD6D6F934CD0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205836   (783197) от 11.02.2018
+
+Physical Dreams - Ancient Sounds (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Sounds No1 19:58
+02. Ancient Sounds No2 20:14
+03. Ancient Sounds No3 23:12
+04. Ancient Sounds No4 13:40(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE51EFBB6E5C25BC4B9F62B2F2BDC1E3B6340BBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205842   (783207) от 11.02.2018
+
+VA - Jazz Bar Lounge (Chillout Your Mind) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - A Shade of Blue 4:00
+02. Pier-O - Dim Light 5:16
+03. Marie Therese - City Lights 4:00
+04. Svendaq - Blue Bossa 6:01(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F1A3BA4365EE54B755E8BD85489C5475D4288C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205843   (783222) от 11.02.2018
+
+VA - Clinique: The Best Of 2017 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Platunoff - Give Me (Solid Stone remix) (7:17)
+02. Dr Alfred - Kuiper Belt (original mix) (9:47)
+03. Monojoke - The Garden Of Eden (Dofamine remix) (9:32)
+04. Monojoke - La Bodega (Tim Aaron remix) (12:41)(   Читать дальше...   )Жанр: Progressive House, Tech House, Deep HouseПродолжительность: 09:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F06CAB83C94007AEAC080D5899E8641EFC98A72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205886   (783239) от 11.02.2018
 
 VA - Beatz 4 Freaks Vol.27 (2018) [MP3|320 Kbps] <House>
@@ -560,141 +695,6 @@ David Vendetta - Rendez-Vous (2008) 2CD, Limited Edition [MP3|320 Kbps] <Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DEA98CA537910754C9AF1323C70F5A80DD36840
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205204   (783543) от 10.02.2018
-
-VA - House Goes 80's Vol. 3 (2009) [FLAC|Lossless|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Rilod - Thriller (6:20)
-02.Prime Time - Right Round (Ippytraxx Radio Edit) (3:03)
-03.Jay Jay - Let The Music Play (Belmond & Parker Radio Mix) (3:49)
-04.Alan Master T. - People Hold On (Radio Edit) (3:14)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48D30C09DD3CD223F038760F3663380C35AB27F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205517   (783545) от 10.02.2018
-
-VA - Deep House Architects Vol.8 (2018) [MP3|320 Kbps] <Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alexander Koning  -  Uncertainty Principle (Original Mix)  6:18
-02.  Curly Project  -  Ventriloquism (Original Mix)  8:05
-03.  Sacke  -  In Asteptare (Original Mix)  6:26
-04.  Koyser  -  Sun & Moon (Original Mix)  6:14(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13913D7235C823FA0FFAB060A93FBC14F4DA28B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205263   (783546) от 10.02.2018
-
-VA - Tech Trance Essentials Vol.11 (2018) [MP3|320 Kbps] <Trance, Tech Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sulaco  -  Requiem Of Souls (5thDimension Remix)  8:48
-02.  Thomas Kelly  -  Wasted Talent (Original Mix)  5:55
-03.  S5 & ReDrive  -  This Love (Original Mix)  7:22
-04.  Josef Linecker  -  Back (Original Mix)  5:29(   Читать дальше...   )Жанр: Trance, Tech Trance, Uplifting TranceПродолжительность: 02:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E68116322FF2ED8BA8A5F8B0008A95E8B541D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205261   (783547) от 10.02.2018
-
-VA - The Sound Of Trance Vol.08 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cold Stone  -  Skyline (Extended Mix)  6:10
-02.  Lee Coulson  -  Lomachenko (Original Mix)  6:34
-03.  Venetica  -  Force Majeure (Original Mix)  3:37
-04.  Paul Pollux  -  Lights Of Abell (Original Mix)  6:54(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:619B000DAC769E36512CEFD05A011804328465FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205508   (783549) от 10.02.2018
-
-VA - Beats For Life Vol.1 (20 Big Room Monsters) (2018) [MP3|320 Kbps] <House, Big Room, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Justin Point  -  Weekend Players (Original Mix)  5:32
-02.  Mark Bale & Bobby Rock feat. Roger Horton  -  The Bass (Ferdinands Feld Festival Anthem 2017)  4:03
-03.  Reevo & Point BLVNK  -  Timemachine (Original Mix)  6:16
-04.  The Guru Project & OneZeroOne  -  Ding A Ling (Original Mix)  4:08(   Читать дальше...   )Жанр: House, Big Room, ProgressiveПродолжительность: 01:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F655C0AB8A9FF348DC4275B265754D37504AED98
 ```
 
 

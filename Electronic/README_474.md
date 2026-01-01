@@ -1,3 +1,138 @@
+###  Публикация: 1366147   (925728) от 10.03.2020
+
+V.A. - Coffee Bar Lounge, Vol. 17 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miper - Move On (Original Mix)
+02. Weathertunes - Grand View (Original Mix)
+03. Lazy Hammock - Naked Being (Original Mix)
+04. Twentyeight - Stars (Original Version)(   Читать дальше...   )Жанр: Easy Listening, Lounge, DowntempoПродолжительность: 01:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7D6EB1E022F1A33101B330121B869ED6BFB92A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095172   (926080) от 20.01.2017
+
+Sterling Angel - Eden (2009) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_926080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innocence 6:42
+02. Faith 6:38
+03. Sacrifice 6:14
+04. Back To You 6:11(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D799CC5238FE40BFFF42D12004EB9DB712B8887
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987127   (926091) от 17.02.2016
+
+VA - French Plates 2016 (2016) [MP3|320 кб/с] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_926091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SIGNS - Ketama
+02. The Plesk - Machination
+03. The Clamps - South Shaker
+04. Kantyze - Sworn(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:191C61F85D70BF50FF929AD000D2BE97C8F41211
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095158   (926124) от 20.01.2017
+
+Sterling Angel - Obsession (2008) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_926124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Betrayal
+02. Taken Over Me
+03. Oasis
+04. Loved By You(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4299BC59D40ED2F7A85840BA692B9F67C574FDAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987130   (926222) от 17.02.2016
+
+Mage - Everything Is Changing (2016) [MP3|320 кб/с] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_926222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Night (Original Mix)
+02. Where You Belong (Original Mix)
+03. Troubles in the Shade (Original Mix)
+04. I Feel This Sound (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD114126E721DF3F221E1A3DEBA6887A5ADC4C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987538   (926233) от 17.02.2016
 
 VA - Sweet Valentine Kuschel Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -558,141 +693,6 @@ Paul Pearson - Live @ Subteran, Joshua Brooks Manchester, United Kingdom 2020-02
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C31F0C455C7E26275B5BCF7CA433E16B1154F75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365596   (929149) от 08.03.2020
-
-The Last One - Discography 3 Releases (2019) iM Electronica, opn g8s [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Drone, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avoiding The Lamps (10:41)
- 02. The Abyss Does Not Exceed (10:29)
- 03. Locomotive Horn (11:27)
- 04. Foot Of The Tree (13:14)(   Читать дальше...   )Тип издания: WEBЖанр: Dark Ambient/Ambient/DroneПродолжительность: 03:54:16 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FEC4D4553C6F122FC23A3EE3FFA3C4069BA219F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986790   (929261) от 15.02.2016
-
-VA - Clubbers Guide Summer 2007 (2007) [FLAC|Lossless|tracks + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kim Sozzi - Break Up (2-4 Grooves remix) (4:03)
-02. SJB feat. Jane Wiedlin - Rush Hour (Fonzerelli Hot & Sexy remix) (3:30)
-03. Dada feat. Sandy Rivera & Trix - Lollipop (Jerry Ropero remix) (4:45)
-04. Haji & Emanuel feat. Robert Owens - If (3:45)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF1DFB379C19C771B4E354729235F6491F04819
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365341   (930281) от 07.03.2020
-
-VA - SF035 Raveskool Retrospective Vol 1 (2020) [MP3|320 Kbps] <Hardcore, UK Hardcore>
-
->>Electronic
->>Hardstyle, Jumpstyle, Hardcore
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dissy - Eventuality [05:39]
-02. The Vibe Controller - Raggahappy [06:09]
-03. Apogee Breaks - Snow In Chiba [05:55]
-04. Case 82 - Start Rockin [05:42](   Читать дальше...   )Жанр: Hardcore, UK HardcoreПродолжительность: 02:20:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C24B8E727F145116D3AD94AD94BBA9B9F0E148
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365254   (930403) от 07.03.2020
-
-Neelix - Let's Just Leave (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Progressive Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930403.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Neelix - Let's Just Leave (1:00:52)
-2. Neelix - Bam Bam (Let's Just Leave Cut) (3:26)
-3. Neelix - Sleep Tight Anna (Let's Just Leave Cut) (5:02)
-4. Neelix - Far Away (Let's Just Leave Cut) (4:56)(   Читать дальше...   )Жанр: Psy-Trance, Progressive Psy-TranceПродолжительность: 01:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27C481896BF7EC92093BEAE63D18068A2D8F316
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986019   (930409) от 14.02.2016
-
-Didier Marouani Space - Greatest Hits (2008) 2CD [FLAC|Lossless|image + .cue] <Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930409.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Fasten Seat Belt (6:06)
-02. Just Blue (4:35)
-03. Magic Fly (4:24)(   Читать дальше...   )Жанр: ElectronicПродолжительность: CD1 - 01:19:24; CD2 - 01:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D0EF64CC600C6C50FBB47CCB827B8F4C5C12B91
 ```
 
 

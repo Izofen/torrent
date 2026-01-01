@@ -1,3 +1,30 @@
+###  Публикация: 991323   (908024) от 27.02.2016
+
+VA - Dance Hits Collection Vol.7 (2016) [MP3|320 кб/с] <Eurodance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tanaka - More, More, More
+02. L.E.T. Generation - Send Me An Angel (Hard Club Mix)
+03. Xstress - I've Got The The Feeling
+04. Valencia No Existe - Feel Your Loving (Extended Mix)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 06:12:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD75F5E800D606954F0A5C788C6FB5EAA1593B33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990985   (908055) от 27.02.2016
 
 VA  - Гуляй, братва. Зимние хиты от радио Шансон 9 (2016) [MP3|256 кб/с] <Шансон>
@@ -665,33 +692,6 @@ VA - German Top 40 DBC Deutsche Black Charts 27.01.(2017) [MP3|192-320 Kbps] <Hi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:672EF6215EA3D0285D71BDF32826923579FA0BC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368500   (909072) от 20.03.2020
-
-VA - Beatport Disco House: Electro Sound Pack #34 (2020) [MP3|320 Kbps] <Funky Disco, Nu Disco, Disco House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909072.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Modern Trouble - Fly To Moscow
-002. Ramon Serratos - Don't Stop (Original Mix)
-003. Chaz Harrison - My Way
-004. Heidi B - Mr. Fly (Jazz Mix)(   Читать дальше...   )Жанр: Funky Disco, Nu Disco, Disco HouseПродолжительность: 09:13:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13F8AC851477F846F2740F2C43AF45A69317BF9D
 ```
 
 

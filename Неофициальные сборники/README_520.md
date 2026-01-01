@@ -1,3 +1,30 @@
+###  Публикация: 1123277   (792531) от 07.04.2017
+
+VA - Beatport Trance  Pack (07.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Emotional, Blissful, Harmonic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Photographer - Infinity (Roman Messer Radio Edit)  3:29
+02.  Ahmed Romel - Dust & Echoes (Extended Mix)  6:14
+03.  Miroslav Vrlik - Save Me (Extended Mix)  7:32
+04.  Ferry Corsten pres. Gouryella - Venera (Vee's Theme)  3:09(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Emotional, Blissful, HarmonicПродолжительность: 03:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7AC76FA654F9FF2A8994A95027DAE3354FDBDF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387004   (792581) от 31.05.2020
 
 VA - Record Super Chart 638 (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -669,33 +696,6 @@ VA - New Love Songs (2020) [MP3|320 Kbps] <Pop, Rock, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5187F6C50CF7C4260A927E99476AF4FD61E34A2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012636   (793561) от 01.05.2016
-
-VA - Record Super Chart № 434 (30.04.2016) (2016) [MP3|320 кб/с] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KSHMR feat. Sidnie Tipton -  Wild Card (Original Mix)  3:18
-02. Crystal Lake & Headhunterz -  Say Goodbye (Headhunterz Edit)  4:02
-03. DJ KUBA & NE!TAN -  Party On!  3:35
-04. Twenty One Pilots -  Stressed Out (Dave Winnel Remix)  4:24(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 02:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C472B6377A84AEC8ED77C0854A60115A3CF41D0
 ```
 
 

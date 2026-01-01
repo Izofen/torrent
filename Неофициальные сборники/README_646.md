@@ -1,3 +1,30 @@
+###  Публикация: 1354406   (988010) от 22.01.2020
+
+VA - Angel In My Soul (2020) [MP3|320 Kbps] <Country, Folk, Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonestar - My Front Porch Looking In
+02. Lukas Nelson - Out In La
+03. Aaron D'arcy - Drink It Up
+04. Chris Shiflett - Liar's Word(   Читать дальше...   )Жанр: Country, Folk, BluesПродолжительность: 04:22:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5484CAD89F4718D4EFEC9AFDC447E546D49B8354
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 610333   (988292) от 31.01.2013
 
 VA - The Official UK Top 40 Singles Chart (27-01-2013) [MP3|320 кб/с]<Pop, Dance, Club, Rock, R&B, Trance, House, Other>
@@ -725,39 +752,6 @@ VA - 100 Greatest 90s Rock Hits (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5C1E5837208ACF9AB7C6495DA235506778F9220
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610447   (990574) от 29.01.2013
-
-VA - Drum and Bass Pro V.3 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shapeshifter - Twin Galaxies (The Upbeats Remix)
-02. Awakening State - Out There (Subsonik VIP Mix)
-03. Edward Oberon, Blade, Sopheye - Butterflies (Original Mix)
-04. Sunny Crimea - Ain't No Game (Original Mix)
-05. Hammock - I Can Almost See You (Need a Name Tribute)
-06. Switch Technique - Rude Soul
-07. mSdoS - Dimensions (LM1 Remix)
-08. PostML - It's Time
-09. Skyweep - Sweet Sunday (Original Mix)
-10. Paul SG - Do It But Do It Right (Original Mix)(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 04:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E9F2C0F07684300FCDB025EF66E9C7194CF5E3
 ```
 
 

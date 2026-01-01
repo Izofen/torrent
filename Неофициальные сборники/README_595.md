@@ -1,3 +1,30 @@
+###  Публикация: 993043   (897647) от 04.03.2016
+
+Va - Top Eurodance Tunes (2016) MP3 (2016) [MP3|320 кб/с] <Pop, Dance, Eurodance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Garden - And She Said (Eurotrance Remix)
+02. Basement Three - Catch Your Wave
+03. Housecream - Still Not Sorry (Remix)
+04. Asya - Like a Dream(   Читать дальше...   )Жанр: Pop, Dance, Eurodance, HouseПродолжительность: 01:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A0F2EC528F3E14FE1190386E5540DCEBC25578
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 761155   (897680) от 27.02.2014
 
 Phil Collins - 25 Best Songs (2014) [MP3|~245 кб/с]<Progressive Rock>
@@ -662,39 +689,6 @@ VA - Exotic Chill House (2020) [MP3|320 Kbps] <Chill House, Relax, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1A02F13CBA1A4E9920B2087044FC185A7E2B7C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637168   (898530) от 01.04.2013
-
-VA - Громче музыку! Жаркий хит (2013) [MP3|256-320 кб/с]<Dance, Club, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898530.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. DJ Skazka - Неоновый Свет (3:14)
-2. DJ Smash feat. Вера Брежнева - Любовь на расстоянии (Melloffon Radio Remix) (3:37)
-3. Elvira T - Все Решено (Rodion Gordin Remix Radio) (3:38)
-4. Milk & Sugar - Let the Sun Shine 2012 (Tocadisco Radio Edit) (3:13)
-5. Артур Пирожков - Красивая Песня (Dj Favorite & Dj Kristina Mailana Summer Radio Edit) (3:58)
-6. DJ Цветкoff feat. Демо - В Невесомости (Radio Mix) (3:25)
-7. Юлия Савичева - Привет, любовь моя (3:29)
-8. Driu Mc Feat. Funky & Inlite - Только Тебе (3:34)
-9. Андрей Артемьев - Твой Ангел-Хранитель (Summer Edit) (4:30)
-10. KET - U feat. DJ Space One Project - Индиго (2:53)Жанр: Dance, Club, PopПродолжительность: 06:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE722234B162E073D81139099AC50AE0639ADEE
 ```
 
 

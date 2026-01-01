@@ -1,3 +1,166 @@
+###  Публикация: 196657   (825290) от 28.04.2010
+
+Pet Shop Boys - Pandemonium (2010) [FLAC|Lossless]<SynthPop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live at the O2 Arena, London, 21st December 200901. More Than A Dream/Heart
+02. Did You See Me Coming
+03. Pandemonium/Can You Forgive Her?
+04. Love Etc.(   Читать дальше...   )Жанр: SynthPopПродолжительность: 01:13:47
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007037   (825482) от 13.04.2016
+
+Camp Claude - Swimming Lessons (2016) [FLAC|Lossless|tracks] <Indie Pop, Electro-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hurricanes 04:03
+02. Don't Hold Back 03:12
+03. In the Middle 03:36
+04. Golden Prize 03:06(   Читать дальше...   )Жанр: Indie Pop, Electro-popПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B640546D045CEAA0651BEE02ACE692D8F83A246
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166158   (825549) от 01.01.2018
+
+Lx24 - 5 альбомов, 51 сингл (2016-2017) [MP3|320 Kbps] <Рор>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей Назаров, известный публике под псевдонимом Lx24 – российский исполнитель, продюсер и битмейкер, очень быстро завоевавший признание публики благодаря своим душевным песнями о любви и отношениях.
+Алексей Назаров родился 26 июня 1992 года в небольшом городе Орске Оренбургской области.
+Одиночный проект «Lx24» был создан в 2013 году. Известно, что при записи вокала (   Читать дальше...   )2016 - Зависимость
+2016 - Привет
+2017 - RemixesЖанр: РорПродолжительность: 07:15:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C31D3C7AA8DFE3F95F52AC955FC4BAA8EA784A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 177573   (825875) от 18.03.2017
+
+Неигрушки - Дискография (1999 - 2000) [MP3|320 kbps]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РорПродолжительность: 00:40:25
+01.Ерунда
+02.На луну
+03.Мальчишка(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115825   (825964) от 18.03.2017
+
+Ласковый Май - Лучшие песни. Новая Коллекция (2004) [FLAC|Lossless|image + .cue] <Pop, Disco>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Медленно уходит осень
+02. Детство
+03. Белые розы
+04. Ну, что же ты?(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:18:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8708C093D54A2EE38A9FC96376FFF8D983E19E1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115820   (825965) от 18.03.2017
+
+Ласковый Май - Розовый вечер (2016) LP [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Юрий Шатунов - Розовый вечер 4:07
+02. Юрий Шатунов - Глупые снежинки 6:08
+03. Юрий Шатунов - Тающий снег 5:39
+04. Юрий Шатунов - Лето 3:26(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62648AFFABA1A02F9655E5B363151A7944CC9F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115817   (825971) от 18.03.2017
 
 Ласковый Май - Белые розы (2016) LP [MP3|320 Kbps] <Pop, Europop>
@@ -535,164 +698,6 @@ VA - Mega Dance Mix - 1 (Unknown) [FLAC|Lossless|image + .cue] <Medley, Cover, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95F9B61CD4B3B88377D28001D699F67103EBA8BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114835   (829704) от 16.03.2017
-
-Supermax -  Fly With Me (1979) Remastered, 2005, CD-Maximum [FLAC|Lossless|image + .cue]<Electronic, Pop, Funk, Reggae>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. African Bood
-02. Fly With Me
-03. It Ain't Easy
-04. Ain't Gonna Feel(   Читать дальше...   )Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 01:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13810043CC0B4A9C8AB816016ABA9E0F21005B63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380988   (829738) от 05.05.2020
-
-RASA - Рашн Карантин (2020) Single [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829738.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Рашн КарантинЖанр: PopПродолжительность: 00:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:149995BB9ED24745711ED1A69F0136A9E92D7AAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381187   (829753) от 05.05.2020
-
-VA - Party Hits (Unknown) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Montez - Lets Dance (2:08)
-02. Mungo Jerry - In the Summertime (3:28)
-03. Safaris - Wipe Out (2:16)
-04. Rubettes - I Can Do It (3:14)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89CEBFA9805DDE543556672D021B7E84E8B58577
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115054   (829780) от 16.03.2017
-
-Диско-группа Русский Стилль - Одинокая брюнетка (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Одинокая брюнетка
-02. Не мой мальчик
-03. Вечер
-04. Просто ночь(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:706D5C0C1DB7AF36C89E51A7DD5927D9BC70C58F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115030   (829788) от 16.03.2017
-
-Русский стилль - Напиши мне письмо... (2009) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лети (4:23)
-02. Белая черемуха /Remix/ (4:18)
-03. Напиши мне письмо (4:00)
-04. Прости (5:02)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68A886901416B2A80EED6E164E02117DF9828DCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381177   (829843) от 05.05.2020
-
-Sweet Lollipop Band - 37 US-Hit-Cocktails (1998) [FLAC|Lossless|image + .cue] <Pop, Cover, Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medley 1960: Theme song - Shop around - He will break your heart - Stay - Chain gang - Cathy's clown - It's now or never - Let the little girl dance (9:12)
-02. Medley 1961: Please Mr. postman - Some kind of wonderful - Will you love me tomorrow - Raindrops - Ya ya - Mother-in-law - A hundred pounds of clay (7:01)
-03. Medley 1962: Zip a dee doo dah - Twist and (   Читать дальше...   )Жанр: Pop, Cover, MedleyПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67DD20058D1C6E5507C32CF46C3D839AEF3D916F
 ```
 
 

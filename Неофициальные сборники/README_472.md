@@ -1,3 +1,30 @@
+###  Публикация: 1282597   (743604) от 13.02.2019
+
+VA - Drum Star Bass (2019) [MP3|320 Kbps] <DnB, Dubstep, Bass Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743604.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Danger - Unknown Object
+002. Maverick Soul - Stranded
+003. Aweminus - Pants Floor
+004. Fourward - Make Some(   Читать дальше...   )Жанр: DnB, Dubstep, Bass ElectronicПродолжительность: 10:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0A5C3B80157CBFE10664123496E01026CCFC93E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282591   (743609) от 13.02.2019
 
 VA - Rock Blues Swacc Night (2019) [MP3|320 Kbps] <Blues, Rock Blues>
@@ -668,33 +695,6 @@ VA - Sweet Supernova: Ibiza Deep House Mix (2016) [MP3|320 кб/с] <Deep House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FA2B3E4A0B20BB2E71899D17589DE6C57E7E1E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020820   (743947) от 27.05.2016
-
-VA - Sun Goes Down: Chill Party (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743947.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sev Bastian - Little More
-002. Skendo - Romantic Beach Dinner
-003. Cablu - Stalkerman
-004. Mari Billa - Kids of the Moon(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:09:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD993D36B07790B053F7433D8CB4221B5CDB63C6
 ```
 
 

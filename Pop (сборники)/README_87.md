@@ -1,3 +1,30 @@
+###  Публикация: 1533142   (706933) от 23.02.2022
+
+VA - Good Feeling 90s (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faith Hill - This Kiss
+02. Spice Girls - Stop
+03. Go West - The King of Wishful Thinking
+04. Tina Turner - The Best (Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED3A2163482D6C40CF985C03E196305387C24ECE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1533135   (706935) от 23.02.2022
 
 VA - Good Feeling 70s (2022) [MP3|320 Kbps] <Pop, Dance>
@@ -665,33 +692,6 @@ Mark Ashley - Mp3 Play (2017) [MP3|320 Kbps] <EuroDisco, Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2AE4CB1494819203E2F8E4AA49E75CA3F211CBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532708   (710891) от 21.02.2022
-
-VA - Happy Pop Dance Party (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marnik & Alfons - Harry Potter Style
-02. Victor Ark - More Physical
-03. Charli Xcx - Good Ones
-04. Max Coveri - I Don't Wanna Break Your Heart(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:55:05 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C0859BDA41D52D3D1A2DE0EF9C030F4B1B1AE2F
 ```
 
 

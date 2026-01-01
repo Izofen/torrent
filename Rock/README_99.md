@@ -1,3 +1,30 @@
+###  Публикация: 1614270   (1038863) от 21.02.2023
+
+Chris Norman (ex-Smokie) - Close Up (2007) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lay Me Down
+02. Love Not War
+03. Trying To Find My Home
+04. Hello Baby(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9380C3F28AB83C8141534F1C1703D2B03D981F47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613951   (1039099) от 20.02.2023
 
 Steve Hughes - 3 Albums (2022-2023) [MP3|320 Kbps] <Neo Progressive Rock>
@@ -671,33 +698,6 @@ Batmobile - Brace for Impact (2023) [MP3|320 Kbps] <Psychobilly, Rockabilly>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19878C54D0D38C9F29E48CBEFFD19629870506A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610609   (1041924) от 09.02.2023
-
-IQ - IQ40 – Forty Years Of Prog Nonsense Archive Collection (2023) 2 CD, [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Missile [00:07:01]
-02. Guiding Light [00:11:04]
-03. Nostalgia/Falling Apart At The Seams [00:10:43]
-04. The Road Of Bones [00:09:09](   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 02:15:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:164FF8C6129C40FEF52CDED426B05D155E02ADAE
 ```
 
 

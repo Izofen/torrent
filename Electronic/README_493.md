@@ -1,3 +1,168 @@
+###  Публикация: 600840   (997885) от 12.01.2013
+
+VA - Electro House Winter (2012) [MP3|320 кб/с]<House, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robbie Rivera - Forever Young (Sandro Silva Remix)
+02. Alex Kunnari - Sweet Melody
+03. First State - Why So Serious
+04. Dragon - Tonight
+05. Sound Avtar - Monster On a Rope
+06. Damien J. Carter - When Love's Calling You
+07. Jess-E - I Feel Your Energy (Discofied Mix)
+08. Thomas Mengel - Heliconia
+09. Biggi - Keep On Rocking
+10. MC Flipside - Vs. ZERO(   Читать дальше...   )Жанр: House, TranceПродолжительность: 01:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EBFD8603D2F5CC2349AB7DD4B52142DDE6DB569
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600848   (998073) от 11.01.2013
+
+VA - Ultra Dubstep (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nero - Promises (Skrillex & Nero Remix) (04:16)
+02. Calvin Harris - Feel So Close (Nero Dub) (04:34)
+03. Magnetic Man - I Need Air (feat. Angela Hunte) (03:39)
+04. Delta Heavy - Get By (04:34)
+05. Kaskade & Skrillex - Lick It (Datsik Remix) (04:49)
+06. Benny Benassi - Cinema (Skrillex Remix) (feat. Gary Go) (05:15)
+07. Laidback Luke vs. Example - Natural Disaster (Skream Remix) (04:20)
+08. BellaSaona - Off With Their Heads (Bare Noize Remix) (03:38)
+09. Kaskade - Eyes (Alvin Risk Remix) (03:39)
+10. Steve Aoki - Cudi the Kid (feat. Kid Cudi & Travis Barker) (03:18)(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2524A5AB073DC8807BA45185483ED0B90220168F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600883   (998133) от 11.01.2013
+
+VA - Dances Dream Lights (2013) (07.01.2013) [MP3|320 кб/с]<Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Kaos - Kosmischer Ruckenwind (Quiet Village Remix) 23:58
+02. Higinio - Your Life (Original Mix) 06:48
+03. Deux - Golden Dreams (Original Mix) 06:47
+04. Al Walser - I Can't Live Without You (Maui & Chris Mix) 03:19
+05. Stray Kings, Matt Stone Vs Monofono - Storm In July (Radio Mix) 03:43
+06. Hotbox - Get Right On Love (Original Mix) 05:56
+07. Sean Bay - Nonchalance (Original Mix) 06:11
+08. Avicii - Last Dance (Avicii Instrumental Radio Edit) 03:24
+09. Nothing But The Beat - Killing Me (DJ Absinth Project Remix) 05:37
+10. Gigi D'agostino - Amorelettronico 07:19(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 02:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8CCF6F649EABD1F4141006CA7C68FD0D6FB892
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599950   (999077) от 07.01.2013
+
+VA - Music For Cocktails: Collection (2003-2009) 12CD [MP3|320 кб/с]<Lo-Fi, Lounge, Future Jazz, Downtempo, Chillout, Nu Jazz, Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999077.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1: 01:07:54
+1. Caro Emerald - Back It Up (03:45)
+2. Daniel Merriweather - Change (03:03)
+3. Dublex Inc. Feat. Sandhy Son Doro - Shine (03:30)
+4. Smoove & Turrell - Beggarman (04:16)
+5. Monte La Rue - Butterfly Belly (04:28)
+6. Lovers Lane - Island Memories (05:01)
+7. Water - Daydreams (05:11)
+8. Slackwax Feat. Trinah - Midnight (03:58)
+9. Verbal Kint Feat. Judie Jay - Break My Dreams (Original Live Mix) (03:56)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, Future Jazz, Downtempo, Chillout, Nu Jazz, Easy ListeningПродолжительность: 27:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B6D8C9F0410048246899678903047BB15086B10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597321   (999165) от 07.01.2013
+
+VA - N.Y.C Fashion Night: Selected Deep House Tracks (2012) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Excelsior Groove - Honey - Excellence in Rhythms Mix
+02. Stardeep - Slow Food - House Sonique Deep Mix
+03. FG 2 - New York Sensations
+04. Deep Lovers - Mouse Music - Manhattan Deep Mix
+05. The Groove Boyz feat. Cadillac - Com the House - Progression Vocal Mix
+06. Modell & Mercier - Prisoner - Love On Love Mix
+07. 2W - Light
+08. Alexander Prince - The Prince of the River - Ultradeep Mix
+09. Caesar Anthony Feat. Barra Lopez - We Can Dance - Modell & Mercier Mix
+10. Claude Sine - B-Ass - David Heaven Filter Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71391CC9C03E68277439F949920B306D3065C06B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598662   (999668) от 05.01.2013
 
 VA - Zirkus Zirkus: Elektronische Tanzmusik Vol.1 (2013) [FLAC|Lossless]<Tech House, Deep House, Progressive>
@@ -560,138 +725,6 @@ VA - Ushuaia Ibiza The Album: 5th Anniversary (2015) 2CD [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAB078CCA3BD234D5A00B4A00E3F9C83A0ED18E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488663   (1001743) от 12.08.2021
-
-V.A. - Bossanova Lounge (2021) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ituana - Tape Loop
-02. Amazonics, Apollinare Rossi, Julie Benson - Portuguese Love
-03. Sarah Menescal - Cryin'
-04. Ituana - Overprotected(   Читать дальше...   )Жанр: Bossa Nova, LoungeПродолжительность: 01:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D098D70F78F304F5FE09431132CA82E6C4D744
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141809   (1001879) от 11.01.2020
-
-Joel Tammik (Rajaleidja) - Collection 15 Releases (2004-2019) [FLAC|Lossless|tracks+.cue, tracks] <Glitch, Dub, Ambient, Abstract, Minimal, Dub Techno, IDM, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aja Algus (04:21)
- 02. Tuuletekkeline (08:34)
- 03. Linnutee (06:55)
- 04. Aeg Maha (05:57)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Glitch, Dub, Ambient, Abstract, Minimal, Dub Techno, IDM, Experimental •Продолжительность: 13:27:00 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F5727AA4F1A155E26BF6060227293A1FBB8C7FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351820   (1001885) от 11.01.2020
-
-VA - Dream Dance Vol.88 (2020) [MP3|320 Kbps] <Trance, Progressive House, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001885.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dream Dance Alliance - Save Me From Myself (Edit) 3:06
-02. Armin van Buuren feat. Ne-Yo - Unlove You (Club Mix) 2:43
-03. ATB feat. KARRA - The Only One (Short Edit) 3:55(   Читать дальше...   )Жанр: Trance, Progressive House, Vocal TranceПродолжительность: 03:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C093434B1C295BCC84AECB62E88B7A86133993
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351573   (1001952) от 11.01.2020
-
-Lane 8 - Brightest Lights (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Deep House, ProgressiveПродолжительность: 01:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51685F631BB225CDB5E9A6A8C554F9D21327A902
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351800   (1001956) от 11.01.2020
-
-Andromeda - The Remixes (2005) Yellow Sunshine Explosion [FLAC|Lossless|tracks+.cue] <Psy-Trance, Progressive Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ManMadeMan - 1920 (Andromeda Remix) (07:02)
- 02. Alternate Vision - Different Perspective (Andromeda Remix) (07:47)
- 03. Artax - Greetings Of Psychaosis (Andromeda Remix) (08:45)
- 04. Blue Vortex - Deep (Andromeda Remix) (08:49)(   Читать дальше...   )Жанр: Psy-Trance, Progressive TranceПродолжительность: 01:13:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A598300DE87C2B96DCCDDDB6653225769A43EE8
 ```
 
 

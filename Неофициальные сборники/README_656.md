@@ -1,3 +1,30 @@
+###  Публикация: 1483101   (1007017) от 12.07.2021
+
+VA - Electro House: Late Night Party (2021) [MP3|320 Kbps] <House, Electro, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007017.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tuba Twooz - To Our Early Pioneers
+002. Bez - Nature
+003. The Golden Boys - The Class In Dallas
+004. Frank Schwarz - Waven(   Читать дальше...   )Жанр: House, Electro, Club, DanceПродолжительность: 10:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA828DF16000DDE6387E580FAD5B844A9F8D841
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483102   (1007023) от 12.07.2021
 
 VA - D&B Master Box (2021) [MP3|320 Kbps] <Drum & Bass, Dubstep, Bassline>
@@ -668,33 +695,6 @@ VA - Shazam & Apple Music Chart (Россия Топ 100 Июнь) (2021) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E71A32945BDDBA628A74E69C3E3D430AF2BC5286
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481308   (1008267) от 03.07.2021
-
-VA - The Great Jazz Code (2021) [MP3|320 Kbps] <Jazz, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008267.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Immanuel Wilkins - Part 4. Guarded Heart
-002. Rob Mazurek - Autumn Pleiades
-003. Norah Jones - Nightingale
-004. Mindi Abair - Momo(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 09:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFABBF8E663AEB3CF87A0737D26B54AF2323EF24
 ```
 
 

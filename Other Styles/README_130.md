@@ -1,3 +1,190 @@
+###  Публикация: 1014512   (776152) от 08.05.2016
+
+Deuter - Ocean Waves (2012) [FLAC|Lossless|tracks] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bali    16:58
+02. Cannes    15:33
+03. Lanzarote    12:57
+04. Nice    10:07(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5B0FC45B147FA010726A6675790768A261E4CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014397   (776366) от 07.05.2016
+
+VA - Creed (Original Motion Picture Soundtrack) (2015) [FLAC|Lossless|Web-DL|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future - Last Breath (3:59)
+02. Meek Mill - Check (3:14)
+03. White Dave - Intolerant (3:34)
+04. The Roots - The Fire (feat. John Legend) (3:41)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD15D4A8A38AC427F2B973CF41C12EF8BD93E7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014434   (776376) от 07.05.2016
+
+Mariza - Mundo (2015) [FLAC|Lossless|tracks  + .cue] <Folk, World, Country, Fado>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rio De Mágoa [03:17]
+02. Melhor De Mim [04:08]
+03. Alma [03:12]
+04. Saudade Solta [03:32](   Читать дальше...   )Жанр: Folk, World, Country, FadoПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F256B1DA70FDCB3AF5503A0B8BFB98DE039BE95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212168   (776390) от 10.03.2018
+
+Sade - Flower of the Universe (From Disney's "A Wrinkle in Time") (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flower of the Universe (3:49)
+ 02. Flower of the Universe (No I.D. Remix) (4:07)Жанр: Pop, SoulПродолжительность: 00:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99653503949DD44394FC1810920B7C1BE5B13D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014420   (776414) от 07.05.2016
+
+Cyndi Lauper - Detour (2016) [FLAC|Lossless|WEB-DL|tracks] <Country, Country Blues, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funnel Of Love (3:15)
+02. Detour (feat. Emmylou Harris) (2:55)
+03. Misty Blue (3:19)
+04. Walkin' After Midnight (2:16)(   Читать дальше...   )Жанр: Country, Country Blues, FolkПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2AFFE368A7BBE0611DF5C196BECFB947B418096
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212057   (776430) от 10.03.2018
+
+Жабъ - Гимны Болотному Троллю (2017) [MP3|320 Kbps] <folk,metal,rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пробуждения Жабъа (2:02)
+02. Жабъ и Крот (2:39)
+03. На Битву (3:55)
+04. Уж Следит За Хомяком (2:57)(   Читать дальше...   )Жанр: folk,metal,rockПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:501FCE0AE24F73DD6691F51DC5E4AE2635A8AA8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014354   (776481) от 07.05.2016
+
+Wong Wai Ming - Romance On Violin (2013) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If (2:52)
+02. Song From Secret Garden (2:59)
+03. Make It With You (3:21)
+04. First Of May (4:05)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1102DD8B89D8DE35FBE2E6A695FBC8BADFB27E60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014389   (776486) от 07.05.2016
 
 Dagaz - Reflection Of The Soul (2014) [FLAC|Lossless|tracks] <New Age, Downtempo, Chill Out>
@@ -506,195 +693,6 @@ Emir Kusturica & The No Smoking Orchestra - Unza Unza Time (2000) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:959D561238388FF64C9AE7B4676EE0C79C9F96C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013614   (777622) от 04.05.2016
-
-Peter Kater & Tina Guo - Inner Passion (2016) [MP3|320 кб/с] <New Age, Relax, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Embrace
-02. Lotus Moon
-03. Self Discovery
-04. River Of The Sun(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC3D99E6DE3E7C4CA822DD41A1E1D737C06A2E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013520   (777649) от 04.05.2016
-
-Danny Rayel - Blue Skies (2016) [MP3|320 кб/с] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Skies 05:59
-02. Dreaming of Love 03:52
-03. Blossoming Heart 03:17
-04. Infinity 04:15(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:11:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD05D58284107DF847302BD83AF548133E16F5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013277   (777654) от 04.05.2016
-
-Kathryn Kaye - There Was a Time (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saro Remembered    05:52
-02. Arise    04:21
-03. There Was a Time    04:28
-04. Spring Snow    06:02(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CEB72BF50580908C7709A565D01E6181DC5F880
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013545   (777655) от 04.05.2016
-
-Medwyn Goodall - Manitou the Great Spirit (2015) [MP3|320 кб/с] <Native american, Ethnic, Meditation, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blue Jay [00:08:38]
-02 - Manitou The Great Spirit [00:08:51]
-03 - The Star People [00:07:55]
-04 - Wakinyjan [00:08:56](   Читать дальше...   )Жанр: Native american, Ethnic, Meditation, New AgeПродолжительность: 00:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F71F8C2C906318368B28F07C879082E15727903
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533777   (777772) от 03.05.2016
-
-Mike Oldfield - 9 Albums Deluxe Edition (1973-1984) 2009-2016 / Mercury, Universal Music Company [FLAC|Lossless]<Progressive rock, pop, Celtic fusion, world, New Age>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To France (with Maggie Reilly) (4:48)
- 02. The Lake (13:43)
- 03. The Killing Fields (2:44)
- 04. Etude (4:38)(   Читать дальше...   )Жанр: Progressive rock, Pop, Celtic Fusion, World, New AgeПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04D10CD9FD8DA70676AF2B9D2917E8FA064EECAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012985   (777961) от 03.05.2016
-
-Guy Sweens - Pathways (2016) [FLAC|Lossless|tracks] <New Age, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pathway to the Past    06:23
-02. Celebrating Ancient Times    05:08
-03. Dance of the Spirits    04:27
-04. Festival at the Castle    08:16(   Читать дальше...   )Жанр: New Age, EthnicПродолжительность: 00:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B335E12765C7BFFBE4F87FB2FB73FC9E72134C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013172   (777975) от 03.05.2016
-
-Salvador Candel - Armonia (2016) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Merlin
-02. En tu mirada
-03. Danza Medieval
-04. Evolucion(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B908D78504836CDB5B03835EA78DEE93AADC7B7
 ```
 
 

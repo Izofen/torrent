@@ -1,3 +1,134 @@
+###  Публикация: 996262   (881077) от 13.03.2016
+
+Underworld - Barbara Barbara, We Face A Shining Future (2016) [FLAC|Lossless|tracks + .cue] <Progressive House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Progressive House, TechnoПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC5807DBE0C95C13CE2AF8142B17C8DAF592D299
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996142   (881154) от 13.03.2016
+
+VA - Moments of Soul-Chill Mix (2016) [FLAC|Lossless|tracks] <Lounge, ChillOut, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqua Mundi - Sweet Suggestions (5:32)
+ 02. Mardon Bros - Make You Feel Better (7:12)
+ 03. Heso - Sundowner (6:28)
+ 04. Lamar Ensemble - About Yesterday (5:46)(   Читать дальше...   )Жанр: Lounge, ChillOut, DowntempoПродолжительность: 03:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4743213D12119ACD1B2741CABFE872F44E971A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996344   (881169) от 13.03.2016
+
+VA - Cycles 7 (Mixed By Max Graham) (2016) [FLAC|Lossless|tracks+.cue] <Progressive House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guy J - Equinox (7:01)
+02. Brian Cid - Errors (4:34)
+03. Rick Pier O'Neil - To Declare (5:35)
+04. Ewan Rill featuring Avenax - Lotos (Vocal Mix) (5:50)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 01:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9AC5DE89099BF3176FEE4C357A221B6558FF9C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104330   (881471) от 14.02.2017
+
+Moby - Black Lacquer (2017) EP [FLAC|Lossless|WEB-DL|tracks] <House, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go (Treasure Fingers Remix) (4:38)
+ 02. Why Does My Heart Feel So Bad? (Madeaux Remix) (3:30)
+ 03. Natural Blues (High Klassified Remix) (2:38)
+ 04. Porcelain (Nick Catchdubs Kaleidoscopic Mind Mix) (3:26)Жанр: House, AmbientПродолжительность: 00:14:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FBF2DF1D16C486C4BAC5A0D1154DFDA0EAA6311
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990689   (881601) от 05.04.2020
+
+Strie (Olga Wojciechowska, Strïe, Strië) - Discography 18 Releases (2010-2020) Time Released Sound, Serein [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental, Glitch, Abstract, ...
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unseen Traces (03:13)
+ 02. Labyrinth Made Of Labyrinths (04:09)
+ 03. Oganized Delusions (02:29)Тип издания: CD, WEBЖанр: Modern Classical/Ambient/ContemporaryПродолжительность: 06:08:30 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:722D06E0697C1113E290926768DDA7BBD622FA0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104148   (881688) от 14.02.2017
 
 Lichtmond - The Journey (2016) [FLAC|Lossless|image + .cue] <Ambient, Electronic, Downtempo>
@@ -560,141 +691,6 @@ Dusty Kid - III (2014) [FLAC|Lossless|tracks] <Techno, Acid, Tech Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93FBB9A595CE652D01CA5715404A8FA7A6ACE019
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103732   (883328) от 13.02.2017
-
-Above & Beyond - Anjunabeats, Volume 13 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cubicolor – Dead End Thrills (Extended Mix) (04:25)
-02. Luttrell – Need You (04:07)
-03. Above & Beyond – Save Me (feat. Zoë Johnston) (Schwartz & Fanizza Remix) (05:09)
-04. Spencer Brown – Vernal (04:05)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 05:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D2622CACDE0E0C80C0E1E5E312684CC99045D0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151740   (883330) от 04.04.2020
-
-Phaeleh - Discography 33 Releases (2008-2020) Afterglo, Undertow [FLAC|Lossless|tracks+.cue, tracks] <Dubstep, Ambient, Future Garage, Bass, Drum & Bass, Downtempo>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Losing You (02:46)
- 02. Isolate (01:29)
- 03. Afterglow (feat. Soundmouse) (02:10)
- 04. Never Knew (02:31)(   Читать дальше...   )Тип издания: CD, WebЖанр: Dubstep, Ambient, Future Garage, Bass, Drum & Bass, Downtempo •Продолжительность: 14:15:53 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D213536C8C4CD185DDE518CE764287401BCA3ED1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103663   (883538) от 13.02.2017
-
-Deep Dish - Junk Science (1998) [APE|Lossless|image + .cue] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro - Morning Wood
-02. The Future Of The Future (Stay Gold)
-03. Summer's Over
-04. Mohammed Is Jesus...(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE47D1C246381C1B2E73EF626A831219BA70C6F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949352   (883566) от 10.09.2021
-
-n5MD - Label-Pack 192 Releases (2001-2021) [FLAC|Lossless|tracks+.cue, tracks]<IDM, Ambient, Glitch, Post Rock, Downtempo, Experimental, Leftfield, Shoegaze>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In (03:39)
- 02. Example 2 (03:17)
- 03. Example 3 (05:53)
- 04. Example 4 (03:34)(   Читать дальше...   )Жанр: IDM, Ambient, Post Rock, Downtempo, Experimental, Leftfield, Shoegaze, Glitch •Продолжительность: 173:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE82DCE8742A37163D25EF01F6A4E0AFD6348B38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103817   (883630) от 13.02.2017
-
-VA - Schickimicki (2017) [MP3|320 Kbps] <Tech House, Deep House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danny Sinatra – Glimpse of Light (Radio Edit) 03:19
- 02. Matto – I Never 04:31
- 03. Ibiza Bitches – Be Happy (Deep House Lounge Version) 05:56
- 04. Mattei & Omich & Re-Tide – Soul Man 06:28(   Читать дальше...   )Жанр: Tech House, Deep House, ElectronicПродолжительность: 03:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E0F174B756834856C7F27F24285374BA23AD07
 ```
 
 

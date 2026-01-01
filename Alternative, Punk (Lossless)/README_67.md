@@ -1,3 +1,84 @@
+###  Публикация: 1366237   (925894) от 10.03.2020
+
+Wyldest - Dream Chaos (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Dream Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Headrush (03:42)
+02. Rolling Waves (03:38)
+03. Mind Over Body / Slowdance (05:26)
+04. Reverse Tide (04:12)(   Читать дальше...   )Жанр: Indie Pop, Dream PopПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D54E626BF9C5E20DF3520320DB124470A420DC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987263   (925975) от 17.02.2016
+
+The Cure - The Head On The Door (1985) Reissue, 2008, Universal/Fiction [FLAC|Lossless|image + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Between Days (2:58)
+02. Kyoto Song (4:16)
+03. The Blood (3:43)
+04. Six Different Ways (3:19)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB7904AE34B8C5FC919AA9A2482A6FAA7F55E30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365870   (927408) от 09.03.2020
+
+Noir Reva - Continuance (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fiowia [06:17]
+02. Skyward [06:23]
+03. Goraiko [07:27]
+04. Come Back Apollo [06:01](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F263822F5AB0FB9661275D7413C535C5167A87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365512   (928936) от 08.03.2020
 
 Halestorm - Vicious (Stripped) (2020) [FLAC|Lossless|tracks] <Alternative, Hard Rock>
@@ -620,93 +701,6 @@ Envy - Insomniac doze (2006) [FLAC|Lossless|tracks + .cue] <Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEE493C268B312350A779F01BF94044E58D35769
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364601   (935042) от 04.03.2020
-
-Envy - A Dead Sinking Story (2003) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chain Wandering Deeply [08:28]
-02. Distress of Ignorance [05:45]
-03. Evidence [03:16]
-04. Color of Fetters [07:19](   Читать дальше...   )Жанр: HardcoreПродолжительность: 01:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47541FF72F4E68E82370478F6936A6193062AC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 754019   (935276) от 06.02.2014
-
-Tides of Man - Young and Courageous (2014) [FLAC|Lossless]<Post-Rock, Progressive, Indie, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Desolate. Magnificent. (03:18)
-02. Mountain House (02:52)
-03. Drift (05:05)
-04. Young and Courageous (05:39)
-05. All the Years (02:07)
-06. Eyes Like Strange Sins (07:50)
-07. We Were Only Dreaming (04:49)
-08. Hold Still (05:10)
-09. Keep Me Safe (05:11)
-10. Parallels (04:54)(   Читать дальше...   )Жанр: Post-Rock, Progressive, Indie, Alternative RockПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3ED68765EE95C46B2C242C151765847008923E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364464   (936494) от 03.03.2020
-
-North by North - Get Weird (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Vibes (03:19)
-02. Get Weird (04:13)
-03. Hiss Hiss Rattle (04:24)
-04. My Friends (Will Hurt Your Friends) (04:32)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FB5748115C64D51C911B41972185A2F29EB1935
 ```
 
 

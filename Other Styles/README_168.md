@@ -1,3 +1,199 @@
+###  Публикация: 230102   (928913) от 25.01.2011
+
+VA - OST Скотт Пилигрим против всех (2010) [MP3|192-320 kbps]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Nigel Godrich - Universal Theme
+02. Hillcrest Park
+03. Fight!
+04. Slick (Patel's Song) - by Dan the Automator
+05. Love Me Some Walking
+06. Talk To The Fist
+07. Rumble
+08. Feel The Wrath
+09. The Grind
+10. Hello Envy(   Читать дальше...)Жанр: OSTПродолжительность: 01:05:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8EBE806C92A88DE35F91C57F7A97E8B4191EE2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365305   (929006) от 08.03.2020
+
+Max Arnald - Piano Covers 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Queen (4:07)
+ 02. Hello (4:09)
+ 03. Stitches (4:04)
+ 04. A Kind of Magic (4:04)(   Читать дальше...   )Жанр: New Age, Modern Classical, Piano, RelaxationПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B0D0C92BA3AC382309B1038C48F4F6CAD7B716F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094237   (929052) от 18.01.2017
+
+Aenigmatica - Enigmatic (2016) [MP3|320 Kbps] <New Age, Downtempo, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enigmatic [5:43]
+02. Occulta Mysteria [5:23]
+03. Hypnosis [6:04]
+04. Lakota Myths [5:23](   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009398BCB51C39B0BA364C2404DD8EE21DBF2869
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 287039   (929060) от 25.01.2011
+
+Jan Holland - 20 Accordion Hits (1989) [MP3|320 kbps]<Instrumental | Accordion>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Young And Beautiful 	  (02:41)
+02. Silver Threads Among The Gold (03:09)
+03. Love's A Pleasure 		  (03:15)
+04. Officer Of The Day 		  (02:20)
+05. Melody In F 		  (02:27)
+06. Home On The Range 		  (02:12)
+07. American Patrol 		  (02:28)
+08. Roses In Spring 		  (02:37)
+09. Oh, My Darlin'Clementine 	  (01:59)
+10. Carnival Of Venice 		  (02:31)(   Читать дальше...   )Жанр: Instrumental | AccordionПродолжительность: 00:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:629AE1ABF0BC31DA7DF262B45EDC8C155D076E70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986657   (929076) от 15.02.2016
+
+Amrit Kirtan - Sacred Circle (2006) 2007 [FLAC|Lossless|image + .cue] <New Age, Meditative, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aas Guray Nameh (Mangalacharan Mantra)  07:55
+02. Gobindah, Gobindah, Gobindah, Haray, Haray  11:06
+03. Waah Yantee  11:04
+04. Guru Ram Das Miracle Mantra  11:06(   Читать дальше...   )Жанр: New Age, Meditative, WorldПродолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB998291D9398C0CEF65D3A2B3B1FA73FCB90167
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 177764   (929221) от 22.02.2010
+
+VA - Релаксация - Антистресс (2008) [MP3|256 kbps]<Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RelaxПродолжительность: 04:20:38
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 177467   (929226) от 22.02.2010
+
+Ecuador Artists - 2 альбома (2003, 2004) [MP3|320 kbps]<Folk, Native american, Instrumental>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Это трио покорило многие города. Хосе, Руми и Луис – индейцы из Южной Америки. Их мелодии завораживают, заставляя забыть о планах, встречах и делах. Они играют вживую, вкладывая душу в музыку, и никого не оставляют безразличными. Их диски люди покупают с удовольствием, желая продлить общение с божественными звуками пан-флейты…2003 - Melodies Of The Heart
+2004 - Melodies Of The Heart (with Pan Flute)Жанр: Folk, Native american, InstrumentalПродолжительность: 02:16:06
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094421   (929378) от 18.01.2017
 
 Kathryn Kaye - Reflected in a Flowing Stream (207) [MP3|320 Kbps] <Celtic New Age>
@@ -547,207 +743,6 @@ Fly Project - 50 Indian Spirit (2015) [MP3|320 Kbps] <Native American, New age, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94D40885C0E2DE8E1F3BA8A1D53F1BD3A994B14C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 175887   (932044) от 20.02.2010
-
-VA - Дорогой Джон / Dear John (Original Motion Picture Soundtrack) (2010) [MP3|320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Joshua Radin & Schuyler Fisk - Paperweight (03:22)
-02. The Swell Season - The Moon (04:40)
-03. 311 - Amber (03:28)
-04. The Donkeys - Excelsior Lady (03:34)
-05. Wailing Souls - Things & Time (03:22)
-06. Amanda Seyfried - Little House (03:17)
-07. Fink - This Is the Thing (04:25)
-08. Rosi Golan - Think of Me (03:09)
-09. Rachael Yamagata & Dan Wilson - You Take My Troubles Away (03:40)
-10. Deborah Lurie - Dear John Theme (01:53)Жанр: SoundtrackПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 176594   (932066) от 20.02.2010
-
-Ibiza - Chill Guitars (2007) [FLAC|Lossless]<Relax / Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. In Credo - The Strings Of Spain
-2. Floating Clouds - Sun And Water
-3. Kid Coconutz - Needed Moonlight
-4. Noise Boyz - Supernatural
-5. Skysurfer - Impressions
-6. Dessert Tunes - Remade Sundays
-7. The Man Behind C. - Pitcard
-8. In Credo - La Guitarra
-9. Adam Bowen - La Alahambra
-10. In Credo - Siesta Del Sol(   Читать дальше...   )2007Жанр: Relax / InstrumentalПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093851   (932102) от 16.01.2017
-
-Kitaro - Best Of Kitaro (2009) 4CD [FLAC|Lossless|tracks + .cue] <New Age, World Music>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winds blows over the hill [6:30]
-02. Floating lotus [5:29]
-03. Daichi [6:10]
-04. Silence [6:13](   Читать дальше...   )Жанр: New Age, World MusicПродолжительность: 03:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8666226FEE0172DA7793CF7DC3FA19184084673A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986126   (932310) от 13.02.2016
-
-Arne Woutersax - Beautiful Singles (2015) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Sax, Nu Disco>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это захватывающее музыкальное путешествие, наполненное особенным настроением ярких городов мира, чувственным звучанием саксофона и респектабельными тембрами раритетных аналоговых синтезаторов. Работа над альбомом велась под руководством московского nu-disco продюсера, специалиста по классическим аналоговым синтезаторам Александра Боброва при участии российского саксофониста (   Читать дальше...   )01. Theme Of San Remo
-02. Theme Of Monaco
-03. Theme Of Verona
-04. Theme Of Barcelona(   Читать дальше...   )Жанр: Instrumental, Sax, Nu DiscoПродолжительность: 01:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D042C4BAB9FE9C2FFC263FA548E0E5C27CDAEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093767   (932365) от 16.01.2017
-
-Fridrik Karlsson - Moods of Iceland (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fridrik Karlsson - Island er land pitt [00:05:38]
-02. Johanna Vigdis Arnardottir - Vegir liggja til allra atta [00:04:08]
-03. Johanna Vigdis Arnardottir - Vikivaki [00:03:35]
-04. Fridrik Karlsson - Kvoldsigling [00:03:57](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C48194E7A56289308470DAC562CD527B46AE12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093798   (932368) от 16.01.2017
-
-Bernward Koch - Remembering (2015) [FLAC|Lossless|tracks + .cue] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remembering (4:23)
- 02. New Morning (6:35)
- 03. My Secret (3:56)
- 04. Over the Fields (5:32)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:02:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6773DDA022EC68CE04518A65E3F33AE5AB61895A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094029   (932380) от 16.01.2017
-
-Dan Gibson - Relax The Body (2006) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rest and relaxation
-02. The freshest air
-03. free and easy
-04. Releasing(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF9920440E1DAD578F4B32BC6DEADAB3FC6D0B2
 ```
 
 

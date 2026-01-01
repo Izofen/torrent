@@ -1,3 +1,30 @@
+###  Публикация: 1019951   (746893) от 25.05.2016
+
+VA - Cocktail Time: Synths and Guitar (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back to the Block - Desert Trip
+02. Toni Verde - Valle Serena
+03. Adam Morrison - Share The Way
+04. i95highway - Ingenious - Guitar Version(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FAFA134522028B41F3035EA0750ABF0DF5E3984
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020120   (746912) от 25.05.2016
 
 VA - Junodownload DJs Most Charted Minimal Tech House/Techno April (2016) [MP3|320 кб/с] <Minimal, Chicago House, Detroit Techno>
@@ -665,33 +692,6 @@ VA - Record Super Chart 573 (2019) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:497083C3C7C25B6448D812DD46EB1109866AF89A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281889   (748305) от 10.02.2019
-
-VA - Just An Illusion: Hard Rock Songbook (2019) [MP3|320 Kbps] <Alternative, Rock Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748305.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dream On - Let It In
-002. Thousand Foot Krutch - Running With Giants
-003. Against The Current - Strangers Again
-004. Asbest - Driven(   Читать дальше...   )Жанр: Alternative, Rock AlternativeПродолжительность: 09:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D3325C59A3C288A1849FD293AAD26B294A72AD
 ```
 
 

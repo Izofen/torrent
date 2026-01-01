@@ -1,3 +1,30 @@
+###  Публикация: 1198725   (806296) от 12.01.2018
+
+VA - Chilltrap Vol.10 (Russian Version) (Compiled by ZeByte) (2018) [MP3|320 Kbps] <Chilltrap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Грот & Fuze  -  Я тебя вспомнил  4:37
+02.  Звонкий и Карандаш  -  Королева  3:42
+03.  Грот  -  Откуда мне знать тебя  3:54
+04.  25-17 & Грот  -  Солнцу навстречу  4:18(   Читать дальше...   )Жанр: ChilltrapПродолжительность: 02:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA7D36D554F7B7B59BD2F6E35FBB30C5518A633A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 199359   (806741) от 08.05.2010
 
 VA - Лучшие Хиты Радио MAXIMUM (2010) [MP3|128 kbps]<Poк>
@@ -674,33 +701,6 @@ VA - After Midnight (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FA8140B313AA5342A11B712D6460268C9BB91E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009842   (808245) от 22.04.2016
-
-VA - Trance Maniacs Party -  Melody Of Heartbeat #162 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gal Abutbul & Sarah Russell - You Have Realised (Uplifting R 05:56
-02. Walsh & McAuley and Katty Heat - Wider Horizon (Azotti Remix) 06:18
-03. Matteo Marini & Ellie Lawson - Dreaming of a Better World (Ma 04:58
-04. Mike Saint-Jules Ft. Sandel - Broken Turn (Original Mix) 06:20(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C72F37D97F4A8EC08227246B9E7706F32BAB10
 ```
 
 

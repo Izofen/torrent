@@ -1,3 +1,160 @@
+###  Публикация: 1286867   (709089) от 04.03.2019
+
+Angela Bofill - Teaser (1983) Reissue CD, Arista, 1999 [MP3|320 Kbps] <Electronic, Disco, R & B>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Special Delivery (4:55)
+02. Call Of The Wild (5:01)
+03. Nothin' But A Teaser (4:45)
+04. I'm On Your Side (5:05)(   Читать дальше...   )Жанр: Electronic, Disco, R & BПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7794425EC377516DA547A7D7F80975B8D8B0A8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 209465   (709266) от 12.06.2010
+
+Наталья Ветлицкая - Дискография  (1993-2004) [MP3|320 kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_709266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 10:52:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 209561   (709269) от 12.06.2010
+
+Дмитрий Маликов - Коллекция альбомов (1993-2009) [MP3|320 kbps]<POP>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_709269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POPПродолжительность: 16:16:21
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401494   (709394) от 10.08.2020
+
+VA - Happy Acoustic Covers Playlist (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Footloose (03:16)
+02. Nora & Will - Sweet Dreams (Are Made of This) (03:15)
+03. Logan York - I Believe in a Thing Called Love (03:00)
+04. Meg Birch - Shotgun (03:06)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4F2D1DE7775496D6CDE5AC0DE8F90935008747
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401602   (709403) от 10.08.2020
+
+Dazzle - Dazzle (1979) LP [MP3|320 Kbps] <Funk, Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Before You Run (7:28)
+02. It's Not The Same (5:33)
+03. All (6:03)
+04. You Dazzle Me!!! (6:19)(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F89527B1F5E28EB26F6686AFFFD30FB90B409752
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219951   (709768) от 16.04.2018
+
+VA - Now That's What I Call Music! 99 (2018) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709768.jpg" />
+</div>
+
+
+###  Подробнее
+
+И так, 23 марта вышел очередной сборник новинок из топов Великобритании и Ирландии. Здесь действительно собрали всех тех исполнителей, которые занимали верхние строчки таблицы популярности.
+Юбилейный - 100-й выпуск планируется 20 июля 2018 года, так что ждать осталось совсем немного. А теперь наслаждайтесь хорошей музыкой...CD1:
+01. Rudimental featuring Jess Glynne, Macklemore and Dan Caplen - These Days  (3:32)
+02. Dua Lipa 	 - IDGAF   (3:36)
+03. Portugal. The Man - Feel It Still  (2:43)(   Читать дальше...   )Релиз состоялся: 23 марта 2018 г.Жанр: Pop, Rock, DanceПродолжительность: 02:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5073A8FA54CBFB3ADE4C1163CF9C97687F63487
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219978   (709860) от 16.04.2018
 
 Pan Demonium - Start The Fire (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
@@ -532,168 +689,6 @@ Kenny Rogers - Ruby Don't Take Your Love To Town (Unknown) Compilation [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:427446A97558438509E862F7F615CA0C50956269
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286507   (711192) от 03.03.2019
-
-La Velle - Right Now (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right Now (5:59)
-02. Black Silver Doll (3:51)
-03. Finally I'm Free (3:02)
-04. He's Alright (3:25)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DEA663AA5260F6336AA85783ADBB09B461E3997
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286595   (711303) от 03.03.2019
-
-VA - The Tropical House Of Rio De Janeiro (2019) [MP3|320 Kbps] <House, Indie Dance, Nu-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D-Tex & Ned Rise - Sex, Drugs & Blasmusik (Bierzelt Version) 7:11
-02. Disco Lounge - I Don't Know (Original Mix) 3:45
-03. Habitat & Malte Kuhn - Smaragd (Original Mix) 5:10
-04. Tony Massera - Jus' Dance (Extended Version) 7:57(   Читать дальше...   )Жанр: House, Indie Dance, Nu-DiscoПродолжительность: 02:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E2321BED14E1B973F926A37EB3D39DF2D57A01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286551   (711318) от 03.03.2019
-
-Baciotti - Moody Blue Rendez-Vous (1978) LP [MP3|320 Kbps] <Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh So Bad (3:54)
-02. Monte-Carlo (3:22)
-02. Schoop (3:41)
-03. Tell Me (3:21)(   Читать дальше...   )Жанр: Pop Rock, DiscoПродолжительность: 00:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303612B83C858590312880DE208FD14EE9494942
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401318   (711320) от 09.08.2020
-
-L.J. Johnson - L.J.'s Love Suite (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Destination Is Love (8:08)
-02. Gambling On Your Love (5:38)
-03. Your Magic Put A Spell On Me (5:46)
-04. 24 Hours A Day (5:47)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D603C386FC2F335D932087CFE69CD1A7E8F8D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286593   (711339) от 03.03.2019
-
-VA - Best Of Hands Up & Dance Vol.6 (2019) [MP3|320 Kbps] <HandsUp, Electronic, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Withard & Sonera - Don't Shoot The Messenger (Ti-Mo Remix) 5:16
-02. Clubface - Beautiful Mess (Alex Megane Newdance Remix) 4:51
-03. DJ Restlezz feat. Marry - Herz Voraus (Megastylez Remix) 5:09
-04. Astrak & Euphorizon - Together Against The Storm (DJ Restlezz vs. Tribune Remix) 4:44(   Читать дальше...   )Жанр: HandsUp, Electronic, DanceПродолжительность: 03:21:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAED92914E20C760D64ED3F22386CE733609F51A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219711   (711835) от 15.04.2018
-
-Bobby Farrell - Boney M. I Successi (2001) CD [MP3|320 Kbps] <Electronic, Pop, Disco, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Carnival Is Over (3:46)
-02. El Lute (4:06)
-03. Somewhere In The World (4:06)
-04. Where Did You Go (3:46)(   Читать дальше...   )Жанр: Electronic, Pop, Disco, BalladПродолжительность: 01:16:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A97D8854F279A4D550EFF65A90AE45EE3A36BC
 ```
 
 

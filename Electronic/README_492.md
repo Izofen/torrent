@@ -1,3 +1,147 @@
+###  Публикация: 610746   (990578) от 29.01.2013
+
+VA - Wave of Trance Vol.1 (2013) [MP3|320 кб/с]<Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergey Romashkin - The Neighbors - Vadim Miner Intro Remix
+02. Vasiliy GooDKov - Feel - Original Mix
+03. 3rd Planet - UFO Here - Original Mix
+04. S.Y.N.E.R.G.Y. - Invisible Flight - Original Mix
+05. Mixail - Mysterious Window - Original Mix
+06. John Dubs - Why We Hurry - 1Touch Remix
+07. Eugene Diveev - Sometimes Music Stops - Original Mix
+08. Fashion Beat - Time So Slow - JMV Club Mix
+09. Teana and Tiida - Coral Reef - Original Mix
+10. Eximinds featuring Aelyn - Fairy Tale - Chance Jumpers pres. nu Okkerville Remix(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 03:23:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E52BF0AAB996B902B979920D22697D156131D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202427   (990661) от 19.01.2020
+
+James Holden - Discography 24 Releases (2000-2019) [FLAC|Lossless|tracks+.cue, tracks] <Techno, IDM, Minimal, Experimental, Ambient, Progressive House>
+
+>>Electronic
+>>Trance, House, Techno (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Piano Magic - Wintersport / Cross-Country (02:57)
+ 02. Grackle - Disco (Musiccargo Remix) (02:49)
+ 03. Mordant Music - Olde Wobbly (02:40)
+ 04. Maserati - No More Sages (01:23)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Progressive House/Illbient/Tech House/Experimental/Progressive TranceПродолжительность: 18:13:18 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E02ED3A3952FE06FEF3C91607B73EAC26543957
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353815   (990742) от 19.01.2020
+
+VA - Ultimate Deep House Selection (The Grand Rhythms) (2020) [MP3|320 Kbps] <Dance, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990742.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Urban Life - Gegalo (Style Mix) (4:15)
+2.Frankye Paradise - Rabbit (Night Mix) (3:44)
+3.South Soul - Lifesaver (Deephology Mix) (3:15)
+4.Samoa Beach - Ego Lei (Area's Royce Mix) (4:12)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 01:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D066F3E61F390C299DF8D76C99F2C589A7DE10C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609958   (991146) от 28.01.2013
+
+Mario Basanov - Journey (2012) [FLAC|Lossless]<House, Deep House, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caribbean Girl (9:12)
+02. Lonely Days (7:06)
+03. Just Think About (7:06)
+04. Do You Remember (7:33)
+05. We Are Child Of Love (5:49)
+06. Sheiker (6:12)Жанр: House, Deep House, DiscoПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609985   (991274) от 28.01.2013
+
+Jody Wisternoff - 4 Singles (2012) [FLAC|Lossless]<Progressive House, House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just One More (Extended Mix) (8:21)
+02. Just One More (Dub Mix) (5:53)
+03. Just One More (MANIK Remix) (6:07)
+04. Just One More (Martin Roth Remix) (5:57)
+05. Just One More (Radio Edit) (3:45)Жанр: Progressive House, House, Deep HouseПродолжительность: 00:30:04
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353411   (991814) от 18.01.2020
 
 Gioli & Assia - Night Experience (2018) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Tech House>
@@ -625,171 +769,6 @@ VA - Deep In My Soul (2013) [MP3|320 кб/с]<Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15222102C1CE14B00FA80163BE2E4FAF9F3AF670
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600840   (997885) от 12.01.2013
-
-VA - Electro House Winter (2012) [MP3|320 кб/с]<House, Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robbie Rivera - Forever Young (Sandro Silva Remix)
-02. Alex Kunnari - Sweet Melody
-03. First State - Why So Serious
-04. Dragon - Tonight
-05. Sound Avtar - Monster On a Rope
-06. Damien J. Carter - When Love's Calling You
-07. Jess-E - I Feel Your Energy (Discofied Mix)
-08. Thomas Mengel - Heliconia
-09. Biggi - Keep On Rocking
-10. MC Flipside - Vs. ZERO(   Читать дальше...   )Жанр: House, TranceПродолжительность: 01:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EBFD8603D2F5CC2349AB7DD4B52142DDE6DB569
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600848   (998073) от 11.01.2013
-
-VA - Ultra Dubstep (2012) [MP3|320 кб/с]<Dubstep>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nero - Promises (Skrillex & Nero Remix) (04:16)
-02. Calvin Harris - Feel So Close (Nero Dub) (04:34)
-03. Magnetic Man - I Need Air (feat. Angela Hunte) (03:39)
-04. Delta Heavy - Get By (04:34)
-05. Kaskade & Skrillex - Lick It (Datsik Remix) (04:49)
-06. Benny Benassi - Cinema (Skrillex Remix) (feat. Gary Go) (05:15)
-07. Laidback Luke vs. Example - Natural Disaster (Skream Remix) (04:20)
-08. BellaSaona - Off With Their Heads (Bare Noize Remix) (03:38)
-09. Kaskade - Eyes (Alvin Risk Remix) (03:39)
-10. Steve Aoki - Cudi the Kid (feat. Kid Cudi & Travis Barker) (03:18)(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2524A5AB073DC8807BA45185483ED0B90220168F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600883   (998133) от 11.01.2013
-
-VA - Dances Dream Lights (2013) (07.01.2013) [MP3|320 кб/с]<Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Kaos - Kosmischer Ruckenwind (Quiet Village Remix) 23:58
-02. Higinio - Your Life (Original Mix) 06:48
-03. Deux - Golden Dreams (Original Mix) 06:47
-04. Al Walser - I Can't Live Without You (Maui & Chris Mix) 03:19
-05. Stray Kings, Matt Stone Vs Monofono - Storm In July (Radio Mix) 03:43
-06. Hotbox - Get Right On Love (Original Mix) 05:56
-07. Sean Bay - Nonchalance (Original Mix) 06:11
-08. Avicii - Last Dance (Avicii Instrumental Radio Edit) 03:24
-09. Nothing But The Beat - Killing Me (DJ Absinth Project Remix) 05:37
-10. Gigi D'agostino - Amorelettronico 07:19(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 02:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE8CCF6F649EABD1F4141006CA7C68FD0D6FB892
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599950   (999077) от 07.01.2013
-
-VA - Music For Cocktails: Collection (2003-2009) 12CD [MP3|320 кб/с]<Lo-Fi, Lounge, Future Jazz, Downtempo, Chillout, Nu Jazz, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999077.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1: 01:07:54
-1. Caro Emerald - Back It Up (03:45)
-2. Daniel Merriweather - Change (03:03)
-3. Dublex Inc. Feat. Sandhy Son Doro - Shine (03:30)
-4. Smoove & Turrell - Beggarman (04:16)
-5. Monte La Rue - Butterfly Belly (04:28)
-6. Lovers Lane - Island Memories (05:01)
-7. Water - Daydreams (05:11)
-8. Slackwax Feat. Trinah - Midnight (03:58)
-9. Verbal Kint Feat. Judie Jay - Break My Dreams (Original Live Mix) (03:56)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, Future Jazz, Downtempo, Chillout, Nu Jazz, Easy ListeningПродолжительность: 27:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B6D8C9F0410048246899678903047BB15086B10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597321   (999165) от 07.01.2013
-
-VA - N.Y.C Fashion Night: Selected Deep House Tracks (2012) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Excelsior Groove - Honey - Excellence in Rhythms Mix
-02. Stardeep - Slow Food - House Sonique Deep Mix
-03. FG 2 - New York Sensations
-04. Deep Lovers - Mouse Music - Manhattan Deep Mix
-05. The Groove Boyz feat. Cadillac - Com the House - Progression Vocal Mix
-06. Modell & Mercier - Prisoner - Love On Love Mix
-07. 2W - Light
-08. Alexander Prince - The Prince of the River - Ultradeep Mix
-09. Caesar Anthony Feat. Barra Lopez - We Can Dance - Modell & Mercier Mix
-10. Claude Sine - B-Ass - David Heaven Filter Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71391CC9C03E68277439F949920B306D3065C06B
 ```
 
 

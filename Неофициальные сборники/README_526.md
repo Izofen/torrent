@@ -1,3 +1,30 @@
+###  Публикация: 1200481   (796425) от 20.01.2018
+
+VA - The Official UK Top 40 Singles Chart 19.01.2018 [MP3|320 Kbps] <Electropop, Alternative, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eminem - River (Feat. Ed Sheeran) 3:41
+02. Ramz - Barking 3:21
+03. Ed Sheeran - Perfect 4:23
+04. Clean Bandit - I Miss You (Feat. Julia Michaels) 3:26(   Читать дальше...   )Жанр: Electropop, Alternative, OtherПродолжительность: 02:24:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B0DCE9FB960A70D5C8C6B9793529E78359478B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011730   (796431) от 28.04.2016
 
 VA - Club Vibes: European EDM Mix (2016) [MP3|320 кб/с] <Trance, Electro, Dance, EDM>
@@ -668,33 +695,6 @@ VA - Romantic Flight In A Dream (2016) [MP3|320 кб/с] <Downtempo, Chillout, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9FAC07987CDA5C3CE4FB590D0EF7EE3A9CC7FB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011429   (797025) от 27.04.2016
-
-VA - Ibiza 2015. Soulful Deep-House. Vol.2 В клубах (2015) [MP3|253-320 кб/с] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AusLex - Nepal  05:57
-02. Asadinho - Jaslemere (V1)  08:30
-03. Erasmus & Krieger - Monday Mood (Soukie & Windish remix)  06:48
-04. Dan Rubell - Do That Funk (DJ Fopp remix)  07:32(   Читать дальше...   )Жанр: HouseПродолжительность: 05:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95612B619A937E95D9B2DF52862D552C1573DA8D
 ```
 
 

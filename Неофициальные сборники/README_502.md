@@ -1,3 +1,30 @@
+###  Публикация: 1210425   (778716) от 03.03.2018
+
+VA - Empire Records - Sound Clinic 10 (2017) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ G - Naked Truth (Tazer Remix)
+02. Liya Fran, WilyamDeLove - Is It Time (Original Mix)
+03. David Dsk - Up Music (Original Mix)
+04. Caal, Baum - Loved Hated (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 04:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6839E31FA89AEDCA49C84BF6D7599D4DFDB8D01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210179   (778885) от 01.03.2018
 
 VA - Новинки С Разных Популярных MP3 Сайтов Vol.70 (2018) [MP3|320 Kbps] <Pop, House, Dance>
@@ -668,33 +695,6 @@ VA - Русский Металл - Коллекция (2018) [MP3|320 Kbps] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D9F230FADB1504C519CD5156123E758FAC35E3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209135   (779529) от 25.02.2018
-
-VA - PSY: Megapack Psychodelic Trance (2018) [MP3|320 Kbps] <Psy Trance, Psychodelic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blastoyz  -  Mandala (Original Mix)  5:58
-02.  Strange Blotter & Mystic  -  Ozrayen (Original Mix)  7:52
-03.  Mindwave  -  3 6 9 (Original Mix)  8:45
-04.  Spectrum Noise  -  Journey (Original Mix)  6:16(   Читать дальше...   )Жанр: Psy Trance, PsychodelicПродолжительность: 06:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:199E2900D4566B36FFDC6A7F8189ABB7769B4F3F
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1212120   (776262) от 10.03.2018
+
+VA - Dance Hot Mixes Popular Radio Mixes (2018) [MP3|320 Kbps] <Dance, Club, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776262.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ya Rick Ft. Addie Nicole - Follow My Destiny (Original Mix) 03:17
+002. Vinicius Nape, Jonathas Noronha - Explore (Original Mix) 06:12
+003. Tyron Hapi, Mimoza - Anyway (Majestic Remix) 02:34
+004. Thomas Mengel Ft. Isotobia Forrest - Invincible (Mike Shiver Extended Mix) 04:44(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 07:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81DB6F4EE58638D329F62F42CBD05011D5820049
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212170   (776432) от 10.03.2018
 
 VA - Лучшие хитовые треки в стиле Electro, Deep, Techno House и Trance от LORDEGRAF vol. 14 (2018) [MP3|320 Kbps] <Electro, Deep, Techno, House, Trance>
@@ -668,33 +695,6 @@ VA - Spring Break Beach Party (2016) [MP3|320 кб/с] <Progressive House,Techno
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:282FBD98DCF4CA6E191DEBCFCD7C5978A009EE10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013942   (776954) от 06.05.2016
-
-VA - Trance Desire Volume 68 (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Rayel -  Musa (Original Mix)  7:53
-02. A.R.D.I. & Cari -  These Words (Original Mix)  7:08
-03. MNK feat Michelle Hutcheson -  Run Or Stay (Original Mix)  6:45
-04. Trance Arts ft. Hysteria! -  Still Have A Choice (Original Mix)  5:58(   Читать дальше...   )Жанр: TranceПродолжительность: 01:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97BDB3F15EF651A6699DAEEA8FC9ADB51F1E0916
 ```
 
 

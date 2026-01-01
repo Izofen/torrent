@@ -1,3 +1,55 @@
+###  Публикация: 90559   (1007060) от 11.07.2021
+
+Maria CALLAS - Callas - The Complete Studio Recordings (1949-1969) [APE|271-649 Kbit/s]<Classics>
+
+>>Классика
+>>Вокал
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все студийные записи, выполненные EMI с 1949 по 1969 гг.
+BEETHOVEN, BELLINI, BIZET, CHERUBINI, DONIZETTI, LEONCAVALLO, MASCAGNI, MOZART, PONCHIELLI, PUCCINI, ROSSINI, VERDI, WAGNER, WEBERЖанр: ClassicsПродолжительность: 65:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0647E38090F1F306C76A11A75F54BDC293B0D884
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481851   (1008004) от 05.07.2021
+
+Handel - Te Deum de Dettingen (Jean-Francois Paillard) (1989) [FLAC|Lossless|image + .cue] <Baroque>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008004.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 We Praise Thee, O God
+2 All The Earth Does Worship Thee
+3 To Thee All Angels Cry Aloud
+4 To Thee Cherubin And Seraphin Continually Do Cry(   Читать дальше...   )Жанр: BaroqueПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F1CFE705DF8068740E7F8CB33E7F48F0D722115
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478376   (1010321) от 19.06.2021
 
 Giacomo Scinardo - Yiruma: Piano Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -638,60 +690,6 @@ Prima Parte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D2B3EFEFB5C767D3304670FE3A491CB1DA0A999
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453802   (1026707) от 12.03.2021
-
-VA - Piano Classics - Relaxing Classical Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florian Christl - Vivaldi Variation (Arr. for Piano from Concerto for Strings in G Minor, RV 156) (01:54)
-02. Olga Scheps - Memories of a Promenade II (03:26)
-03. Florian Christl - Schumann Variation (on a Theme from Piano Concerto in A Minor, Op. 54: I) (02:30)
-04. Olga Scheps - Gymnopédie No. 1: Lent et douloureux (03:07)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A68607B80C07E143A70F52740411516E30CFDA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452931   (1027370) от 08.03.2021
-
-J.S. Bach - Solo Cantatas for Bass BWV56, 82 & 158 (2019) [FLAC|Lossless|WEB-DL|image + .cue] <Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ich habe genung in C Major, BWV 82:
-01. I. Aria. Ich habe genung (6:47)
-02. II. Recitativo. Ich habe genung (1:26)
-03. III. Aria. Schlummert ein, ihr matten Augen (8:55)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A6BB7A887CA56DAAD7DCCFC9C539EDD7B6CA08
 ```
 
 

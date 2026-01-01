@@ -1,3 +1,138 @@
+###  Публикация: 1395460   (755172) от 10.07.2020
+
+Hard EDM Workout - Running 70s 80s 90s Hits: 150 bpm (2020) [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhythm Is A Dancer (3:15)
+02. What's Up (2:50)
+03. Blue (Da Ba Dee) (2:35)
+04. Be My Lover (3:05)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 03:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9358425F14947882A8312C4FE193954363FBE6ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280971   (755199) от 06.02.2019
+
+VA - Smooth Jazz Morning Lounge (Chillout Your Mind) (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florito - Springtime Chill (Original Mix) 3:52
+02. Velvet Dreamer & Tim Gelo - Eternal Beauty (Original Mix) 5:08
+03. Citrus Jam - Siesta Swing (Seagroove Cut) 5:34
+04. Marie Therese - Back to Me (Original Mix) 4:42(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:20:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B0BDC6EC71EB2A55CC4656E720737C32423246C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281132   (755201) от 06.02.2019
+
+E.R.P. - Afterimage (2018) Forgotten Future [FLAC|Lossless|Vinyl|tracks] <Electro, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning Question (05:26)
+ 02. Overcast (05:39)
+ 03. Wishing Still (08:34)
+ 04. Insomnia (03:21)(   Читать дальше...   )Жанр: Electro, AmbientПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:259B2F6F5028A590FC5B9C36F7D14ECA8F06FA33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280900   (755204) от 06.02.2019
+
+Spacehawk - Laser Squad (2018) [MP3|320 Kbps] <Spacesynth, Spacedisco>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:24)
+02. Zeratul's Return (3:55)
+03. Cosmic Expedition (4:28)
+04. Laser Squad (3:53)(   Читать дальше...   )Жанр: Spacesynth, SpacediscoПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B219817E9050D21DB2AC5D591AA2C7E74C8DB9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281045   (755205) от 06.02.2019
+
+VA - Top Of The Lounge Music on Ciacofon Records (2018) [MP3|320 Kbps] <Downtempo, House, Dancehall>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fonzie Ciaco, Dj Memory, Dj Ciaco, Alfonso Ciavoli Cortelli - Vermilion (Fonzy C Lounge Radio Edit) 3:35
+02. Dj Memory, Fonzie Ciaco, Alfonso Ciavoli Cortelli - Purple (Fonzy C Lounge Radio Edit) 3:45
+03. Dj Memory, Fonzie Ciaco, Dj Ciaco - Magenta (Fonzy C Lounge Radio Edit) 3:31
+04. Fonzie Ciaco, Dj Memory, Dj Fonzy - Orange Juice (Dj Fonzy Lounge Radio Edit) (   Читать дальше...   )Жанр: Downtempo, House, DancehallПродолжительность: 01:07:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B028BF391ED236CE257C8BAC9EBCCA73FF8C10E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395161   (755281) от 10.07.2020
 
 Boris Brejcha - Live Stream Mix (Continuous Mix) (2020) [FLAC|Lossless|WEB-DL|image] <Tech House, Minimal>
@@ -560,141 +695,6 @@ Laidback Luke - Yearmix 2021 (2021-12-16) [MP3|320 Kbps] <Electro Pop, Tech Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4FB41D55BACC1C75DA15754C67176CDDB564703
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395154   (757118) от 09.07.2020
-
-Monolock - Best Of RELOOPED (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757118.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Om Trayam Bakam (8:05)
-2. Reprogram Your Brain (8:08)
-3. Age Of A New Frontier (7:21)
-4. Music Modulation (9:59)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1672C5297D43157AE0273D75B8D2375C5A7EE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395149   (757181) от 09.07.2020
-
-Heisenberg - Thoughts (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757181.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Heisenberg; Audio Vision - Thoughts (6:30)
-2. Heisenberg; Cabal - Imagination (6:56)
-3. Alien Encoding (7:25)
-4. Consciousness (8:04)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:13:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:135B581D8848AA1AAA4F032F15921B9C9839FB2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018133   (757459) от 19.05.2016
-
-VA - Chillout Top 100 - Best And Hits of Relaxation Chillout Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamans - Reach Heavens (Chillout Mix) [04:33]
-02. Seven24 - The Journey (Chris Wonderful Remix) [03:42]
-03. Cj RcM - Illumination (Chillout Mix) [04:27]
-04. Soulalive - After Sun (Chillout Mix) [06:25](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A821415B1160F494F7BF5B5F779967E9C9049514
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018144   (757562) от 19.05.2016
-
-VA - Coffee Lounge Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skendo - Romantic Beach Dinner [03:04]
-02. Mari Billa - Kids of the Moon [03:01]
-03. Rosita - Back to Black [03:59]
-04. Maurizio Piacente - You and Me [03:45](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:32:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B7CC05360891DCFE66527E02EA77BF3D7D35D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018217   (757629) от 19.05.2016
-
-Tripswitch - Vagabond (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way Home (08:45)
-02. Divine Falsehood (08:33)
-03. Vagaries (07:06)
-04. Glass Heart (08:14)(   Читать дальше...   )Жанр: Progressive Trance, Progressive HouseПродолжительность: 01:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1CCF7FC0598A4A05A78FB8E683457C6A2FB166
 ```
 
 

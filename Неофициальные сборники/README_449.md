@@ -1,3 +1,30 @@
+###  Публикация: 1401037   (713359) от 08.08.2020
+
+VA - German Top 100 Single Charts 07.08.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apache 207 - Sie ruft
+02. Apache 207 - Bläulich
+03. Bonez MC - Tilidin Weg
+04. Jawsh 685 & Jason Derulo - Savage Love (Laxed - Siren Beat)(   Читать дальше...   )Жанр: PopПродолжительность: 04:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31F3AE8907CAFFE6D7B520744CB08AD351E7821A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401020   (713473) от 08.08.2020
 
 VA - The Official UK Top 40 Singles Chart 07.08.2020 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Synthwave Drive (4CD) от DON Music (2017) [MP3|320 Kbps] <Synthwave, Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38FF8C69DDABE8A6B2CEFC84AF178A307B95AA2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286120   (714364) от 01.03.2019
-
-VA - Дискотека 2019 Dance Club Vol. 188 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka 2019!):
-01. Катя Чехова - Дискотека (NewRetro Remix) (3:54)
-02. Zeyn - Silence (3:48)
-03. Dj Vianu x Vict Molina - Save Me (2:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 29:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488CF0E52FAAF56C002E5A599A3C1B0D6C84BC57
 ```
 
 

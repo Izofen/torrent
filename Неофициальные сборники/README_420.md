@@ -1,3 +1,30 @@
+###  Публикация: 1030527   (673799) от 30.06.2016
+
+Enrique Iglesias - The Best Songs (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bailando (English Version)
+02. Bailando (Spanish Version)
+03. Cuando Me Enamoro
+04. DUELE EL CORAZON(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084895A67E3CB967FE596B8D9A7F9F0695317784
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030519   (673924) от 30.06.2016
 
 VA - Hits of My Soul Vol. 03 (2016) [MP3|320 кб/с]<House, Electronic, Dance>
@@ -667,33 +694,6 @@ VA - Зарубежная Дискотека ХХ Века - 31 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A2D7F33CF440CCE40993742A0DB70CFAA39A9AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030194   (674717) от 30.06.2016
-
-VA - Зарубежная Дискотека ХХ Века - 32 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roger Meno - I Find The Way ( 1985 )
-02. The Radio Pirates - Fix Your Antenna ( Long Version 1987 )
-03. Modern Talking - Brother Louie ( 1986 )
-04. Overdrive - Sugar My Overdrive ( 1979 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:17:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78AF2787F3DAB095A3ACB9BEF6C991AFD851808C
 ```
 
 

@@ -1,3 +1,133 @@
+###  Публикация: 1445523   (1033558) от 06.02.2021
+
+Newt - -273C (1997) Quantum Loop [FLAC|Lossless|tracks+.cue] <IDM, Techno, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Motive One (07:21)
+ 02. Hull Break (06:30)
+ 03. Ostad-Revisited (08:14)
+ 04. Testone (05:31)(   Читать дальше...   )Жанр: IDM, Techno, ExperimentalПродолжительность: 01:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:461FB836C35A68EF43E749624E5578284DCDC30F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445557   (1033559) от 06.02.2021
+
+Dreazz & Emery - Ethiopian Jungle (2015) [FLAC|Lossless|WEB-DL|tracks] <Jungle>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreazz, Emery - Bam Bam The Alarm (06:02)
+02. Dreazz, Emery - Etheopian Jungle (05:28)Жанр: JungleПродолжительность: 00:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F001CBD8F6939A424F404FF716C991E2362BADFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618871   (1033675) от 13.03.2023
+
+Wes Borland - Mutiny on the Starbarge (2023) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Experimental>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are the Airlock [00:05:07]
+02. Mounting the Husk [00:03:34]
+03. Lexicon Galactus [00:05:16]
+04. Don't Believe in Trees [00:02:21](   Читать дальше...   )Жанр: Trip-Hop, ExperimentalПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EF4A6251E512F19FD23D3BF7ABDDAA4919A3169
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445302   (1033690) от 05.02.2021
+
+Eroticamila - Porn Mood Erotic Sounds (2020) [MP3|320 Kbps] <Easy Listening, Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pure Desires
+02. Sensual Dance
+03. Fancy Games
+04. We Fall in Ecstasy(   Читать дальше...   )Жанр: Easy Listening, ElectronicПродолжительность: 01:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9AE5A3DCB10AB903C68E2D9C54E82D97E4885C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376076   (1033703) от 05.02.2021
+
+Nicolas Jaar | A.A.L. (Against All Logic) | Ancient Astronaut - Discography 47 Releases (2008-2021) Other People [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Ambient, House, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coyote Gospel (06:00)Тип издания: CD, Web, VinylЖанр: Experimental, Ambient, House, Downtempo •Продолжительность: 19:25:28 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:815C0E4B0968A21CFE33E1FA79474B9C6690240B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445115   (1033751) от 05.02.2021
 
 The 5th Galaxy Orchestra - The Melody of the Universe (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Nu-Disco>
@@ -560,141 +690,6 @@ VA - Markus Schulz - Global DJ Broadcast - Top 20 January (2021) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6436799CEDE8EF2595FD188D9FE51D35EAA7C38F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445001   (1034000) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 10 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Physics - Far Away (Original Mix) (06:18)
-02. Audioholic - Northside Funk (Original Mix) (05:52)
-03. Tony Future - Chinas (Original Mix) (06:40)
-04. Afferent - Close To You (Original Mix) (04:34)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:19:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3EEE9CA47D878751DE62E66EB3C15C70361DF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445000   (1034002) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 9 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Redemptive - Within Nature (Original Mix) (07:52)
-02. Payback - Love So Blind (Original Mix) (05:44)
-03. CHILL COLLECTIVE - L.S.D (Original Mix) (05:16)
-04. Critical Event, Azuto - Changes (Original Mix) (06:18)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2B442A4A402F0D0F79365001C846D9A2B29D8BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444991   (1034006) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 8 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Ransome, SynthForce - On The Seafront (Original Mix) (06:21)
-02. Liquid Waves - I Don't Know Why (Original Mix) (05:24)
-03. Shiva, mr porter - She Walks In The Fire (Revolver & Leona Remix) (05:17)
-04. Abstract Illusion - Never Gonna Stop (Original Mix) (05:16)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7247A464AAFE3A77574CAA6D2C9EBAACE4E2B6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444955   (1034007) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 6 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silence Groove - Shine Through (Original Mix) (05:40)
-02. Al Menos - Could Be, Can Be (Original Mix) (07:28)
-03. Ha-Zb - Inside Us (Original Mix) (04:59)
-04. Madcap - Existence (Original Mix) (06:27)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F9F17485036EA7C2AEB7A89753C07FDC292365
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445157   (1034008) от 04.02.2021
-
-VA - Liquid Drum & Bass Sessions, Vol. 15 (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Illusion - Imperia (Original Mix) (05:25)
-02. Geoff Keating - Born Again (Original Mix) (04:44)
-03. Horidark - This Craft (Original Mix) (03:27)
-04. Midst - Touch The Sky (Original Mix) (04:45)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC99CA27F23E16489A5A9CA6C117C5EDDB8C20BB
 ```
 
 

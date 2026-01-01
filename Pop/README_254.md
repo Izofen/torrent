@@ -1,3 +1,165 @@
+###  Публикация: 1286507   (711192) от 03.03.2019
+
+La Velle - Right Now (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Now (5:59)
+02. Black Silver Doll (3:51)
+03. Finally I'm Free (3:02)
+04. He's Alright (3:25)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DEA663AA5260F6336AA85783ADBB09B461E3997
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286595   (711303) от 03.03.2019
+
+VA - The Tropical House Of Rio De Janeiro (2019) [MP3|320 Kbps] <House, Indie Dance, Nu-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D-Tex & Ned Rise - Sex, Drugs & Blasmusik (Bierzelt Version) 7:11
+02. Disco Lounge - I Don't Know (Original Mix) 3:45
+03. Habitat & Malte Kuhn - Smaragd (Original Mix) 5:10
+04. Tony Massera - Jus' Dance (Extended Version) 7:57(   Читать дальше...   )Жанр: House, Indie Dance, Nu-DiscoПродолжительность: 02:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E2321BED14E1B973F926A37EB3D39DF2D57A01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286551   (711318) от 03.03.2019
+
+Baciotti - Moody Blue Rendez-Vous (1978) LP [MP3|320 Kbps] <Pop Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh So Bad (3:54)
+02. Monte-Carlo (3:22)
+02. Schoop (3:41)
+03. Tell Me (3:21)(   Читать дальше...   )Жанр: Pop Rock, DiscoПродолжительность: 00:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303612B83C858590312880DE208FD14EE9494942
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401318   (711320) от 09.08.2020
+
+L.J. Johnson - L.J.'s Love Suite (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Destination Is Love (8:08)
+02. Gambling On Your Love (5:38)
+03. Your Magic Put A Spell On Me (5:46)
+04. 24 Hours A Day (5:47)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D603C386FC2F335D932087CFE69CD1A7E8F8D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286593   (711339) от 03.03.2019
+
+VA - Best Of Hands Up & Dance Vol.6 (2019) [MP3|320 Kbps] <HandsUp, Electronic, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Withard & Sonera - Don't Shoot The Messenger (Ti-Mo Remix) 5:16
+02. Clubface - Beautiful Mess (Alex Megane Newdance Remix) 4:51
+03. DJ Restlezz feat. Marry - Herz Voraus (Megastylez Remix) 5:09
+04. Astrak & Euphorizon - Together Against The Storm (DJ Restlezz vs. Tribune Remix) 4:44(   Читать дальше...   )Жанр: HandsUp, Electronic, DanceПродолжительность: 03:21:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAED92914E20C760D64ED3F22386CE733609F51A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219711   (711835) от 15.04.2018
+
+Bobby Farrell - Boney M. I Successi (2001) CD [MP3|320 Kbps] <Electronic, Pop, Disco, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Carnival Is Over (3:46)
+02. El Lute (4:06)
+03. Somewhere In The World (4:06)
+04. Where Did You Go (3:46)(   Читать дальше...   )Жанр: Electronic, Pop, Disco, BalladПродолжительность: 01:16:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A97D8854F279A4D550EFF65A90AE45EE3A36BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 791977   (711939) от 01.06.2014
 
 Ева Польна - Поёт любовь (2014) [FLAC|Lossless]<Pop>
@@ -537,168 +699,6 @@ VA - ZYX Italo Disco Spacesynth Collection 1-4 (2014-2018) 8CD, Compilation [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7943D14C8A6E4D991D1ABC1D995A74CA67B1D58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219397   (713771) от 14.04.2018
-
-VA - The Sound Of Summer (2017) Limited Special Edition[FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приближается лето. По всем признакам, в том числе и музыкальным. Из последней командировки предлагаю свой улов.
-Уж не знаю, каким принципом руководствовались составители - скорее всего всем сестрам по серьгам. Уж больно широк спектр исполнителей. Но небольшой и содержательный буклет прикладывается.
-Не знаю как Вам, а у меня в машине уже неделю крутиться... С наступающим (   Читать дальше...   )01. Pharrell Williams - Happy  (3:54)
-02. Marvin Gaye & Kygo - Sexual Healing  (3:07)
-03. Olly Murs feat. Demi Lovato - Up  (3:44)
-04. Mr. Probz - Waves  (3:29)(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0681DDFF01F7A8E836171E2BEF2ECA9D6F069DCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025025   (713835) от 10.06.2016
-
-Willy William - Une Seule Vie (2016) [MP3|320 кб/с] <Dance, Pop, Electro>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Te quiero
-02.Жанр: Dance, Pop, ElectroПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41C6EA02D90C53F85D42890C0A8DAA9B1E8CE237
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219459   (713907) от 14.04.2018
-
-The Nolans - 1 Album, 1 Compilation (1978, 1996) [MP3|320 Kbps] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ирландская поп группа в составе из пяти сестер, которая до 1980 года так и называлась - The Nolan Sisters. Мировую известность получили за хит "I'm In the Mood for Dancing". Выпущенная в декабре 1979 года, песня достигла третьего места в Великобритании в феврале 1980 года и возглавила японские чарты в ноябре 1980 года.01. Something Tells Me (Something's Gonna Happen Tonight) (2:24)
-02. Sailing (4:08)
-03. Don't It Make My Brown Eyes Blue (2:32)
-04. Mull Of Kintyre (4:17)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 02:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:532D022F031F86EBE3D8AE0BA83172AD5129DB69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024908   (713951) от 10.06.2016
-
-Tom Odell - Wrong Crowd (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <Indie-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wrong Crowd (4:27)
-02. Magnetised (3:55)
-03. Concrete (3:50)
-04. Constellations (4:35)(   Читать дальше...   )Жанр: Indie-PopПродолжительность: 01:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC0F0EC4D7F86018AF40476737E5E5BDF0DDBFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024913   (713954) от 10.06.2016
-
-Rick Astley - 50 (2016) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep Singing (3:58)
-02. Angels On My Side (3:36)
-03. Wish Away (3:27)
-04. This Old House (4:31)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC92EDBA7985142F28E6DC235DAF3FCBBE27F0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219515   (714022) от 14.04.2018
-
-VA - Maxi Disco (1979) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M - Pop Muzik (5:00)
-02. Amii Stewart - Knock On Wood (6:01)
-03. Ganymed - It Takes Me Higher (4:53)
-04. Patrick Juvet - Lady Night (6:46)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F1E15A09CD72D7AA0AC5BB7D6A76E8AA391C28
 ```
 
 

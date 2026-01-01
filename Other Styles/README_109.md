@@ -1,3 +1,201 @@
+###  Публикация: 1030661   (670047) от 02.07.2016
+
+The Witcher 2: Assassins of Kings (Original Soundtrack) (2012) Enhanced Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Skorupa & Krzysztof Wierzynkiewicz - In Temeria (Intro) (01:31)
+02. Adam Skorupa & Krzysztof Wierzynkiewicz - Assassins of Kings (02:07)
+03. Krzysztof Wierzynkiewicz - A Nearly Peaceful Place (04:06)
+04. Adam Skorupa & Krzysztof Wierzynkiewicz - Arena of Rage (01:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB4FFF063209C3D2610F6DFC8D1C7EA518376EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510072   (670316) от 14.06.2012
+
+Kitchen - Кухня (2008) [MP3|256 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_670316.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Black Grass - Yesterday's gone (4:42)
+2. Free The Robots - Yoga Fire (2:56)
+3. Clark - Vengeance Drools (3:41)
+4. Dj Shadow - This Time (3:07)
+5. Kno (of Cunninlynguists) - My First Song (3:10)
+6. Amon Tobin - Get Your Snack On (4:22)
+7. CunninLynguists - Hellfire (2:29)
+8. Ministry - Jesus Built My Hotrod (4:52)
+9. Damian Marley - Something For You(One Loaf of Bread) (3:17)
+10. DJ Krush - Song for John Walker (feat. Anticon) (Sticky mix) (5:33)2008Жанр: SoundtrackПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030793   (670331) от 02.07.2016
+
+Jamie Llewellyn - Anreise mit dem Buddha: Meditationsmusik (2015) [FLAC|Lossless|tracks] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weisheit und Ruhe [00:02:41]
+02. Das Geheimnis Wasserfall [00:06:38]
+03. Beobachten meine Hande [00:02:58]
+04. Unseren geheimen Ort [00:04:56](   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F75CE4318E47131379924528E2B5F3C3149B7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291131   (670490) от 24.03.2019
+
+Royal Philharmonic Orchestra - Rock Dreams 2 (1994) Box Set, 3CD, Compilation [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 02:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A7E8CADDA5DC99C075FC12585343C8274096BA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291301   (670575) от 24.03.2019
+
+Balaklava Blues - Fly (2019) [MP3|320 Kbps] <NewAge & Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Be Like This
+02 – Green
+03 – Alive
+04 – Boom Boom(   Читать дальше...   )Жанр: NewAge & MeditativeПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755A0329E5807C0D227101D15F830D0792AF1676
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510253   (670651) от 14.06.2012
+
+Shirley Rumsey - Music of the Renaissance - 2 альбома (1993-1994) [FLAC|Lossless]<Classical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_670651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jacques Arcadelt - La pastorella mia [03:03]
+02. Filippo Azzaiolo - Ti partir cor mio caro [01:44]
+03. Francesco da Milano - Fantasia 16 [01:10]
+04. Marchetto Cara - Mal un muta per effecto [02:24]
+05. Anonimo - Perla mya cara [02:32]
+06. Francesco da Milano - Fantasia 31 [01:17]
+07. Joan Ambrosio Dalza - Piva [02:04]
+08. Antonio Caprioli - Quella Bella E Biancha Mano [02:44]
+09. Vincenzo Capirola - Balletto [01:59]
+10. Adrian Willaert - Vecchie letrose non valete niente [00:59](   Читать дальше...   )1993-1994Жанр: ClassicalПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291120   (670695) от 24.03.2019
+
+Todd Snider - Cash Cabin Sessions, Vol. 3 (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Working on a Song (03:08)
+02. Talking Reality Television Blues (02:34)
+03. Like a Force of Nature (feat. Jason Isbell) (03:54)
+04. Just Like Overnight (03:19)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89C8F87F345367F778ED33759A6A45DDE2F97BA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028799   (671839) от 01.07.2016
 
 VA - The Witcher (Collection Original Soundtrack) (2008-2016) [MP3|320 кб/с]<Soundtrack>
@@ -527,205 +725,6 @@ NeillyRich - Here Now Forever (2017) [FLAC|Lossless|tracks] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E187B2A3264D710D67A07F671942012693201ADD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509231   (676055) от 11.06.2012
-
-Жизнь и приключения Мишки Япончика / Однажды в Одессе (2011) [MP3|320 кб/с] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: OSTПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FC98668590DAD06370E38E9409490767CEA812
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508108   (676057) от 11.06.2012
-
-VA - Вечерняя Коллекция (Звуки природы) (2010) [FLAC|Lossless]<Музыка для медитации и релаксации>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_676057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peaceful Widerness
-02. Mountain Moods
-03. Mysterious Rainforest
-04. Symphony Of Whales
-05. Fantastic Sailboat Voyage
-06. Dolphins Delight
-07. Loonscape
-08. Subarctic SoundЖанр: Музыка для медитации и релаксацииПродолжительность: 01:10:41
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290671   (676324) от 21.03.2019
-
-Jeff Beal - House Of Cards - Season 6: Music From The Netflix Original Series (2019) 2CD [FLAC|Lossless|tracks + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bittersweet (06:00)
-02. How to Walk Away (02:18)
-03. Not One of Us (01:48)
-04. Attack on Progress (01:26)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:35:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53A0D8CD617742F3B0746282B92DAE909F51FE0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290663   (676583) от 21.03.2019
-
-Victor Reyes - Down A Dark Hall (2018) [FLAC|Lossless|tracks + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Way (2:05)
-02. Kit & Jules (1:06)
-03. Welcome to Blackwood / This is Where You’ll be Sleeping (1:52)
-04. In Your Old Lives (1:18)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF94431591EC27233F6DFBDCD55FB5C2D3AED0F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029876   (676668) от 29.06.2016
-
-The Allegorist - Botanical Utopia (2016) [MP3|320 Kbps] <Electronic, Nu Disco, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Floating Mantra 03:46
-02. Ragged Traveller 07:14
-03. Interstellar Crosswalks 02:40
-04. Plastic Millenium 03:54(   Читать дальше...   )Жанр: Electronic, Nu Disco, AmbientПродолжительность: 00:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E6F7153C7BBD69F0CF53133EAE92C63FD9CF267
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507629   (676899) от 11.06.2012
-
-Jakob - 5 albums (1999-2006) [FLAC|Lossless] <Post-Rock, Ambient, Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_676899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malachite (06:34)
-02. Pneumonic (05:34)
-03. Lonesome (08:00)
-04. Oran Mor (05:17)
-05. Safety In Numbers (07:53)
-06. Everything All Of The Time (09:38)
-07. Saint (09:01)1999-2006Жанр: Post-Rock, Ambient, InstrumentalПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508605   (677062) от 11.06.2012
-
-Steve Von Till - 3 albums (2000-2008) [FLAC|Lossless] <Acoustic, Neofolk, Ambient>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_677062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Grave Is A Grim Horse (04:02)
-02. Clothes Of Sand (02:30)
-03. The Acre (03:28)
-04. Willow Tree (03:42)
-05. Valley Of The Moon (06:27)
-06. The Spider Song (03:25)
-07. Looking For Dry Land (06:42)
-08. Western Son (04:46)
-09. Brigit's Cross (04:12)
-10. Promises (03:06)(   Читать дальше...   )2000-2008Жанр: Acoustic, Neofolk, AmbientПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-нет
 ```
 
 

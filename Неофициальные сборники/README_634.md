@@ -1,3 +1,36 @@
+###  Публикация: 621951   (959942) от 22.02.2013
+
+VA - Romantic Blues Collection Vol.4 (2013) [MP3|320 кб/с]<Pop,Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roy Roberts - What Should 100
+ 02. Steve Gannon - Too Through With You
+ 03. Koko Taylor - I'd Rather Go Blind
+ 04. Jonny Lang - Darker Side
+ 05. Eric Clapton - My Father`s Eyes
+ 06. Blues Company - Silent Night
+ 07. Tim Gonzales - Summer Time
+ 08. The Holmes Brothers - And i love her
+ 09. S Weebs Chicken Chack- Dont You Worry
+ 10. Snowy White - The time has gone(   Читать дальше...   )Жанр: Pop,BluesПродолжительность: 01:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B4D6F7D46D39E63FAFD8E597D0E993953007B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979378   (959959) от 26.01.2016
 
 VA - Sunrise Avenue Vol.8: 20 Lounge and Chill-Out Pearls (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -666,33 +699,6 @@ VA - 100 Greatest Love Songs (2020) [MP3|320 Kbps] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4112EA2CC3DFDC24F70F7BBF47AC26264465D8E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359731   (963160) от 13.02.2020
-
-VA - Late Night Vibe: Romantic R&B (2020) [MP3|250-320 Kbps] <R&B, Sou>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963160.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mr Eazi And Tyga - Tony Montana
-002. Єнжѕєнал - I Feel So Right
-003. Miss Kelli - Human
-004. Teedra Moses Feat. Jadakiss - You'll Never Find (A Better Woman)(   Читать дальше...   )Жанр: R&B, SouПродолжительность: 06:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDE5E78CA74ADD7171CBF0F709FE528E0932BF3B
 ```
 
 

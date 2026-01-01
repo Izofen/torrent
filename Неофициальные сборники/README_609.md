@@ -1,3 +1,30 @@
+###  Публикация: 989318   (917331) от 22.02.2016
+
+VA - House Nation Volume 4 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sander Van Doorn, Dimitri Vegas, Like Mike - Project T (Martin Garrix Remix) (05:13)
+02. Slice N Dice & Stan Gravs - Osiris (06:08)
+03. Zac Waters - No Quarter (04:02)
+04. Fatboy Slim & Riva Starr feat. Beardyman - Eat Sleep Rave Repeat (North Base Bootleg) (05:03)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF70E9D96783A3085ACCC2882D9537D2A0F34444
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096770   (917333) от 25.01.2017
 
 VA - Big Party Of The 80s & 90s (2017) [MP3|320 Kbps] <Pop, Disco, Eurodance>
@@ -668,33 +695,6 @@ VA - Зимние лучшие блатные песни Выпуск № 4 (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14B6FBAA41D875C7E983C3B51C74E140CA04FBE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096701   (917792) от 25.01.2017
-
-VA - Полный отрыв. Выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917792.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Olstan Van Guard - Знаки 4:48
-002. Сергей Дубровин & Dima Sirota - Отпусти 4:46
-003. Agressor Bunx - The Curse 5:15
-004. Melanie C - Loving You Better 4:45(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30ECA5CD559CAAFE5F4444E715BA42547E37E66F
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1096682   (917797) от 25.01.2017
+
+VA - Отрывайся с лучшими хитами. Версия № 10 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917797.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jess Glynne - Take Me Home 4:26
+002. Максим Куст - Не Меняй Меня 3:55
+003. Артем Пивоваров - Стереосистема 3:44
+004. Татьяна Маргай - Обними 4:09(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9AEF88D0BAC0D9C671DCB78C06BBE51432DA69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366700   (918513) от 14.03.2020
 
 VA - The Collection 30 Years Ago From Ovvod7 (1986) (60 CD) (2020) [MP3|192-320 Kbps] <Italo-disco, electronic, rock, pop>
@@ -653,33 +680,6 @@ VA - B машину ремиксы Vol. 1 (2020) [MP3|320 Kbps] <House, Pop, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50CAC48E24F260FEC9FCF2FC64439D4663D6D6EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366414   (923272) от 11.03.2020
-
-VA - B машину ремиксы Vol. 2 (2020) [MP3|320 Kbps] <House, Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goody - Panamera (Rakurs & Ramirez Remix)
-02. Robert Miles Vs. & Wham - Last Christmas Children (Djs & Mars Fm Remix)
-03. Иракли - Все Будет Оk (DJ. Noiz & DJ Rocket Radio Remix)
-04. Onika - Ищу Любовь (Demeter Remix)(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 03:18:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31636343753B9937871DB794B5CFA96C587C32F9
 ```
 
 

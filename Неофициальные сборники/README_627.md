@@ -1,3 +1,30 @@
+###  Публикация: 982603   (946353) от 04.02.2016
+
+VA - Goa Session By Rocky Tilbor (2 CD) (2016) [MP3|320 кб/с] <Psychedelic, Progressive PsyTrance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946353.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:  
+
+01. Atmos - Transport To Another (Yotopia Remix) 08:35
+02. Ticon - 1987 (Riktam & Bansi Remix) 07:48(   Читать дальше...   )Жанр: Psychedelic, Progressive PsyTranceПродолжительность: 02:24:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA4B7677FCC60DC8F13E7E7DC5478B7EE5534AB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982531   (946587) от 04.02.2016
 
 Nazareth - 25 Best Songs (2016) [MP3|~245 кб/с (V0)] <Hard Rock>
@@ -668,33 +695,6 @@ VA - Зимний шансон года. Часть № 4 (2016) [MP3|256 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56250CC2559C0E9B8CAC61BF65DC2CC36AD0987B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090229   (947660) от 06.01.2017
-
-VA - Selected DJ Tracks Impact (2017) [MP3|320 Kbps] <Future House, Funky, Bigroom, Bassline, Jackin, Drum n Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dirty Disco ft Jeanie Tracy - Fabulous (E Thunder & Rob Phillips Fab Mix) 6:08
-02.  Maroon 5 ft Kendrick Lamar - Dont Wanna Know (Mark Anthony vs San Holo Next Episode Bootleg) 3:29
-03.  Evgeny Lebedev - Behind You (Original Mix) 6:08
-04.  Dash Berlin & DBSTF Ft. Jake Reese & Waka Flocka & DJ Whoo Kid - Gold (Club Mix) 2:26(   Читать дальше...   )Жанр: Future House, Funky, Bigroom, Bassline, Jackin, Drum n BassПродолжительность: 07:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93EB1E4984530CBD184F0811CB912330E2647337
 ```
 
 

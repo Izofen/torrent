@@ -1,3 +1,30 @@
+###  Публикация: 1142142   (644603) от 13.06.2017
+
+Robin Schulz & David Guetta & Cheat Codes - Shed A Light (The Remixes Part 2) (2017) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shed A Light (MDZN Remix) [03:27]
+02 - Shed A Light (Mosimann Remix) [06:02]
+03 - Shed A Light (Heyder Remix) [03:39]
+04 - Shed A Light (Aligee Remix) [04:12](   Читать дальше...   )Жанр: HouseПродолжительность: 00:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BCF7BDE845A9B7289224BE8898E95EACDE367E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292669   (644693) от 30.03.2019
 
 Fatboy Slim - The Best Of (2019) [MP3|320 Kbps] <Electronic, Big Beat, Breakbeat>
@@ -511,6 +538,33 @@ magnet:?xt=urn:btih:BAA86315DE77D43AD30BB122D788B344A2662281
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 344431   (645204) от 05.06.2011
+
+GusGus - Arabian Horse (2011) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_645204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Selfoss
+02. Be With Me
+03. Deep Inside
+04. Over(   Читать дальше...   )Жанр: House, Downtempo, Tech HouseПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292706   (645281) от 30.03.2019
 
 Chris van Buren - Hope and Destiny (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
@@ -641,60 +695,6 @@ VA - Progressive Goa Trance Vol. 2 (2016) [MP3|320 Kbps] <Trance, Psy Trance, Go
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DE7CB681515AE10F3AFB90A9F0929A3462A7CD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032132   (645955) от 07.07.2016
-
-VA - Wake up Tunes (2016) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocketpunk - The Warning Wheel
-02. Dr. Ruth - Piano Sonata (Benny Knox Remix)
-03. Circuito Zeta - En Directo
-04. Mario Sacco DJ - Frenesia(   Читать дальше...   )Жанр: HouseПродолжительность: 02:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:271601A87336B820570F192F58C01C90AE16C81E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032473   (646062) от 07.07.2016
-
-VA - Levitated Vol. 1 (Mixed by Manuel Rocca) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allen Belg - Hammamet (Original Mix) (6:31)
-02. Alex Wright - Galactica (Original Mix) (7:06)
-03. Cyre & DJ T.H. - Ibiza Calling (Mhammed El Alami & Manuel Rocca Remix) (6:17)
-04. Blue5even - Island Paradise (Original Mix) (6:22)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61BCF50F2C22967F266027ECE728EBF29F4577FA
 ```
 
 

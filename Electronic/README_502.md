@@ -1,3 +1,138 @@
+###  Публикация: 1026276   (1010411) от 18.06.2021
+
+MikTek - Discography 24 Releases (2009-2021) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Ambient, Psybient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction (Lost Transmissions) (04:40)
+ 02. The Lone Patrol (06:00)
+ 03. Adelaide's Voyage (05:20)
+ 04. A Rusty Kingdom (06:20)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Downtempo, Ambient, Psybient •Продолжительность: 17:07:30 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A900AE874297322644A521A121746501DD84B403
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478189   (1010485) от 18.06.2021
+
+Blank Gloss - Melt (2021) Kompakt [FLAC|Lossless|WEB-DL|tracks] <Ambient, Acoustic, Leftfield>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Those Who Plant (05:46)
+ 02. Rags (03:29)
+ 03. Walking Toward The End (05:46)
+ 04. Hollowed Out (04:26)(   Читать дальше...   )Жанр: Ambient, Acoustic, LeftfieldПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3495F6A41EF9641592CFF514F11FA0D9C5A45B93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478216   (1010495) от 18.06.2021
+
+Odderon - Hydroelectric EP (2021) [FLAC|Lossless|WEB-DL|tracks] <IDM, Acid, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Homecoming (04:11)
+ 02. Late Spring (04:12)
+ 03. Hydroelectric (04:22)
+ 04. Floodplain (04:33)(   Читать дальше...   )Жанр: IDM, Acid, AmbientПродолжительность: 00:20:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ACDC71D2D10D3558F6EEDD59A4DABEF2823782C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477801   (1010496) от 18.06.2021
+
+Korolova - AFTR:HRS SESSIONS 06 (2021-06-10) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alar & Korolova Feat. Yann Menge - Symphony(Dub mix)
+02. Thomas Gandey, Rafael Cerato & Antony Toga  - Freedom (Morttagua Remix)
+03. Jan Blomqvist, Alar & Korolova - Time Again
+04. Tinlicker - Past Life(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4C73B27144A3808326A14EFC55C5729A64DAB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477960   (1010499) от 18.06.2021
+
+Ofenbach - Ofenbach (2019) EP [FLAC|Lossless|tracks + .cue] <EDM, House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katchi (2:32)
+ 02. Rock It (2:26)
+ 03. I Got Burned (Feat. Tim Rogers) (2:38)
+ 04. Be Mine (2:42)(   Читать дальше...   )Жанр: EDM, House, Nu DiscoПродолжительность: 00:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A825EA126FCFD7FDE45AE00E5709DFCF35CFF04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318010   (1010591) от 17.06.2021
 
 Evitceles - Discography 23 Releases (2014-2021) Opal Tapes, Display [FLAC|Lossless|WEB-DL|tracks] <Abstract, Ambient, Experimental, Techno, Industrial>
@@ -554,141 +689,6 @@ The Gnome | Gnome & Spybey - Discography 16 Releases (2010-2021) Crime League, A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E7A53679C629E76DC5DE3A56089DC981FFAF479
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476817   (1011479) от 12.06.2021
-
-Marvel83' - Atlantis (2021) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Retrowave, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:20)
-02. Entering The Stratosphere (2:02)
-03. Beautiful Blue (4:40)
-04. On & On (6:01)(   Читать дальше...   )Жанр: Dreamwave, Retrowave, SynthwaveПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A47FD35419193EF3448F05F15C153D2FE1864A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476579   (1011504) от 12.06.2021
-
-Cold Cave - Fate In Seven Lessons (2021) [MP3|320 Kbps] <Synthpop, Darkwave, Electronic>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prayer From Nowhere [00:05:03]
-02. Night Light [00:04:29]
-03. Psalm 23 [00:04:10]
-04. Love Is All [00:04:34](   Читать дальше...   )Жанр: Synthpop, Darkwave, ElectronicПродолжительность: 00:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3EBBC20371F178015C472C7EC16BEB6A3A9B959
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476822   (1011515) от 12.06.2021
-
-Monolink - Under Darkening Skies (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Organic House, Downbeat>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laura (7:20)
- 02. The Prey (4:12)
- 03. We Don't Sleep (4:59)
- 04. Harlem River (4:38)(   Читать дальше...   )Жанр: Electronic, Deep House, Organic House, DownbeatПродолжительность: 01:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC20D3176EB8CEEDA068FD139A867FECA6A71FB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 898093   (1011572) от 11.06.2021
-
-Melorman - Discography 22 Releases (2006-2021) Sun Sea Sky Productions, Synesthesia Media [FLAC|Lossless]<IDM, Downtempo, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melorman - Digital Twilight (04:47)
- 02. Melorman - Exelon (02:44)
- 03. Melorman - Ninety (03:58)
- 04. Mokhov - Sea Dream (03:35)(   Читать дальше...   )Жанр: IDM, Downtempo, Ambient •Продолжительность: 11:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4981A99AFD6D00925B9255292ABF2B713F8EBD8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476485   (1011634) от 11.06.2021
-
-Inhmost - Everything Is New (2020) La Luna [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, IDM, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurulia (05:35)
- 02. Break Down (04:50)
- 03. Deeper Thoughts (05:17)
- 04. Everything Is New (06:55)(   Читать дальше...   )Жанр: Ambient, IDM, DowntempoПродолжительность: 01:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8CE52E2AFEC4DF0DC2FE89A45E5D1BCC7990715
 ```
 
 

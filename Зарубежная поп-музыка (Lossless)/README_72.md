@@ -1,3 +1,57 @@
+###  Публикация: 1207545   (780560) от 18.02.2018
+
+Руслана - Дикі Танці (2003) [FLAC|Lossless|image + .cue]<Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ой заграй ми, музиченьку
+02. Знаю я
+03. Плєс
+04. Аркан(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C588391433016AE89F9EBDBF787F9B9D26C156
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207476   (780568) от 18.02.2018
+
+DJ Piligrim - 3 Albums (2011-2014) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Way
+02. Yulduz (feat. Lola)
+03. Ты Да Я...
+04. Я Дышу Сердцем(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 02:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7024447AE7F2EDF8E9BDF22345C4BEAFF3EDBEA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207400   (780571) от 18.02.2018
 
 Giorgia - Oronero Live (2018) Deluxe Edition [FLAC|Lossless|tracks] <Pop>
@@ -641,60 +695,6 @@ Thomas Anders & Florian Silbereisen - Das Album (2020) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3C11F2247338F77AF18195100D7F6B695B2D076
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277091   (787002) от 19.01.2019
-
-Sarah Brightman - Hymn (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Classical Crossover, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hymn Overture (1:03)
-02. Hymn (4:28)
-03. Sogni (feat. Vincent Niclo) (4:18)
-04. Sky and Sand (4:12)(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B0D265EA12397F7491312A1A01F4887788AB99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276909   (787019) от 19.01.2019
-
-VA - Dreamlover vol.1 (1994) [FLAC|Lossless|image + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bryan Adams - Please Forgive Me
-02. Mariah Carey - Without You
-03. Michael Bolton - Said I Love You ... But I Lied
-04. Roxette - Almoust Unreal(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7566DB9ACDD176A03D3FC8CF24EBC40A167F024
 ```
 
 

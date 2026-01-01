@@ -1,3 +1,57 @@
+###  Публикация: 1112474   (843306) от 08.03.2017
+
+Luigi Tenco - Tenco (1966) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lontano, Lontano
+02. Io Sono Uno
+03. Uno Di Questi Giorni Ti Sposerò
+04. Come Tanti Altri(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A0529F16A5BA4064E09D052941BDC7F7E88336C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112190   (844226) от 07.03.2017
+
+Demis Roussos - Complete 28 Original Albums (2016) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844226.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 - On the Greek Side Of Mind (1971)
+CD02 - Forever And Ever (1973)
+CD03 - My Only Fascination (1974)
+CD04 - Auf Wiedersehen (1974)Жанр: PopПродолжительность: 27:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28B3383117064A315938E15B1CCA22198568B95C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378582   (844802) от 26.04.2020
 
 Charles Aznavour - After love (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson francaise>
@@ -656,60 +710,6 @@ CD2 (00:28:17)Треклист CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C5BCAAAC6588999643E9856A9B20A116D364B9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109728   (857062) от 28.02.2017
-
-Bebe Rexha - All Your Fault: Pt. 1 (2017) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857062.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Atmosphere
-2. I Got You
-3. Small Doses
-4. Fuck Fake Friends (feat. G-Eazy)(   Читать дальше...   )Жанр: PopПродолжительность: 00:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D46BDF486B7207B2F0DC7F361896ECF8C48DED33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109789   (857233) от 28.02.2017
-
-Waaktaar & Zoe - World Of Trouble (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долгожданный дебютный альбом нового проекта гитариста и основного композитора легендарной норвежской группы a-ha Пола Воктор-Савой (Pål Waaktaar-Savoy).01. Beautiful Burnout (3:55)
-02. Tearful Girl (4:01)
-03. World Of Trouble (3:57)
-04. Laundromat (3:59)(   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68BB0CDF1134AC5642532516449B5ACAA46F864
 ```
 
 

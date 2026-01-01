@@ -1,3 +1,138 @@
+###  Публикация: 1222259   (687490) от 28.04.2018
+
+VA - Toxic Nights Sensual Jazz Tracks (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matteo Curcio – Morbossa (Original Mix)
+02. Randy Phillips – Down To The Bone (Original Mix)
+03. Ingvi Thor Kormaksson – Enduring Love (Original Mix)
+04. Image Sounds – Jazz Lounge Pt.1 (Original Mix}(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:954B1C78DB6D7F92A3D73074FBA2193D3EC28631
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222225   (687494) от 28.04.2018
+
+Dorian Gray - Nostalgia for the Future EP (2018) Illegal Alien Records [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maya (02:52)
+ 02. Futuristic Past (05:52)
+ 03. It Was Advanced (07:07)
+ 04. Nostalgia For The Future (06:10)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE59380E776127277562A0F1CB88C1598721DC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134247   (687558) от 16.05.2017
+
+VA - Papa DJ Presents Cote D'azur Exclusive Party (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Brass - Shadow Of Dream  4:21
+02.  Andrea Cardillo - Leste  3:56
+03.  Marga Sol - Je T'aime  5:14
+04.  Stefano Carpi - She's Looking Me  4:09(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:28:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DAE6035A1F222333269370D4A7C4BEAA7B9C2B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134258   (687569) от 16.05.2017
+
+VA - Time Piano And Relax (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DeepCosmo - Silent  2:22
+02.  Arsen Movsisyan - Remember  4:05
+03.  Tiikk - Broken Piano  4:01
+04.  Nikolay Mikryukov - Happiness Island  6:07(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:09:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F124E631FE39A682ED881D0A199B03CDB31A1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134535   (687582) от 16.05.2017
+
+VA - Total Trance Selections Vol.04 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rodrigo Deem - You Said It All (feat. Karra) (Extended Mix)  7:52
+02.  Fabio XB & Marell - Can't Let Go (feat. Christina Novelli) (Extended Mix)  5:47
+03.  Alexandre Bergheau & Mohamed Ragab - At Night (Original Mix)  3:45
+04.  ReOrder - Spirit Of Ecstasy (Original Mix)  3:50(   Читать дальше...   )Жанр: TranceПродолжительность: 02:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A88E5092368376E9A3138E99F95E031000F4A51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 897162   (687629) от 12.05.2015
 
 Amon Tobin - ISAM (2011) [FLAC|Lossless|WEB-DL|24/44.1] <Rhythmic Noise, Field Recording, Electro, Dubstep>
@@ -560,141 +695,6 @@ Sven Laux - Schachmatt (2018) Whitelabrecs [FLAC|Lossless|WEB-DL|tracks] <Ambien
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37832F40AACF44BEC2D956AC48D0D999441AF567
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 659783   (690201) от 04.03.2022
-
-Bomfunk MC's - 2 Альбома (1999 - 2005) [FLAC|Lossless]<Breakbeat, House, Drum & Bass, Hip Hop>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Super Electric (3:53)
- 02. Put Ya Hands Up (3:42)
- 03. Where's The Party At (feat. Mighty 44) (4:05)
- 04. Back To Back (feat. Z-MC) (4:09)(   Читать дальше...   )Жанр: Breakbeat, House, Drum & Bass, Hip HopПродолжительность: 01:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C110EFCA0E0F9A7BA3FA1D39701C5462B11E7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534960   (690514) от 04.03.2022
-
-Bob Moses - The Silence in Between (2022) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Deep House, Hardcore House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seen it Coming (4:13)
- 02. Love Brand New (3:18)
- 03. Never Ending (4:02)
- 04. Time and Time Again (5:40)(   Читать дальше...   )Жанр: Electro House, Deep House, Hardcore HouseПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E5416AB4B67B03244DCE60082EF0D3F95D3C551
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534904   (690530) от 04.03.2022
-
-Blank & Jones - #WhatWeDoAtNight 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco, Indie Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beach (3:45)
- 02. Storm (2:40)
- 03. Lush (3:29)
- 04. Equator (3:13)(   Читать дальше...   )Жанр: House, Nu Disco, Indie DanceПродолжительность: 00:26:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C31577BDA77F27692167F89A1CF1229A8EBAE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028452   (690654) от 22.06.2016
-
-VA - Ministry Of Sound - Chilled House Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sigala - Give Me Your Love (John Newman & Nile Rodgers-The Rooftop Boys remix) (4:15)
-02. Mike Posner - I Took A Pill In Ibiza (Seeb remix) (3:19)
-03. Gorgon City - All Four Walls (feat Vaults) (3:12)
-04. Years & Years - Desire (feat Tove Lo) (3:23)(   Читать дальше...   )Жанр: Chill HouseПродолжительность: 04:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EAE0D2AD04F5EA1F6A117FD485E3C9E35AB3ADF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028326   (690660) от 22.06.2016
-
-VA - Defected Presents: The Opening Party Ibiza 2016 (2016) [MP3|320 кб/с] <Deep House, Tech House, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various - Defected Presents the Opening Party Ibiza 2016 (Continuous Mix 1) [01:02:45]
-02. Various - Defected Presents the Opening Party Ibiza 2016 (Continuous Mix 2) [01:05:49]
-03. Lee Walker - Freak Like Me (DJ Deeon vs. Lee Walker Remix) [05:47]
-04. Flume - Never Be Like You (Disclosure Remix) [03:46](   Читать дальше...   )Жанр: Deep House, Tech House, HouseПродолжительность: 05:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:004FA2EAC2FC20F0D81F5EC000ACF928AE0CD4FC
 ```
 
 

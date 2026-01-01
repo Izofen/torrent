@@ -1,3 +1,138 @@
+###  Публикация: 1451907   (1028067) от 04.03.2021
+
+VA - Warehouse Anthems: Drum & Bass, Vol. 10 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Technine - Black Ball (Original Mix) (04:30)
+02. Konfront.Audio - Tell Me (Original Mix) (06:02)
+03. Thomas Hayes, Joni Fatora - Neon (Flite Remix) (04:58)
+04. Greekboy - Come On (Original Mix) (05:55)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:16:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D7C03F98D9E7FCB830269E46F0901069FF0651
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451844   (1028070) от 04.03.2021
+
+VA - Warehouse Anthems: Drum & Bass, Vol. 5 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pandemic - Radians (Original Mix) (05:52)
+02. Bsm - Hold Tight (Fireflake Remix) (04:12)
+03. Formal One - Time (Original Mix) (03:50)
+04. Mr Breaks - Illusions (FuckDakz Remix) (03:53)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:472A1387A7F1C6ED1B3EE89E3AF4495F734C6560
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451937   (1028071) от 04.03.2021
+
+VA - Warehouse Anthems: Drum & Bass, Vol. 14 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hourx - Magic In My Mind (Original Mix) (04:34)
+02. One's Utmost - Bituminous Blast (Original Mix) (04:32)
+03. Unreal - Dubtrip (Original Mix) (05:55)
+04. Randomstar - LoveLoveLove (Original Mix) (03:56)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64555FD15252A14ACD0D1A012392038D36931FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451912   (1028079) от 04.03.2021
+
+VA - Warehouse Anthems: Drum & Bass, Vol. 11 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laydee Virus - Positive Growth (Original Mix) (04:36)
+02. Defa - Mad TNT (Original Mix) (03:41)
+03. Path Generator, Lily Garcia - Break Me (Original Mix) (06:10)
+04. Plastiks - Dark Mary (Original Mix) (06:18)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC65B55BD74BF0F3B0BF06E1BC2A7877B5AFD42D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451811   (1028082) от 04.03.2021
+
+VA - Warehouse Anthems: Drum & Bass Vol. 1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Totes - Let It Go (Mikael Wills Remix) (04:11)
+02. Durian Durian - Beat Control (Original Funkot Mix) (04:12)
+03. Junglist Mercer - The Beginning Of Creation (Original Mix) (05:29)
+04. Radias - Faraway (Original Mix) (06:18)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0EAAAD4CA7D4C9BCC2EEBFB429C9A0D6D66E18E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451851   (1028084) от 04.03.2021
 
 VA - Warehouse Anthems: Drum & Bass, Vol. 6 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
@@ -559,141 +694,6 @@ Guy Andrews (iambic, iambic², The Moving Dawn Orchestra) - Discography 20 Relea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49CF38A657B15DFB372ACFEBBB6899AF0DFDE0C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302512   (1028512) от 01.03.2021
-
-Thessa Torsing | upsammy - Discography 8 Releases (2018-2021) Nous'klaer Audio, Die Orakel, Dekmantel [FLAC|Lossless|WEB-DL|tracks] <IDM, Leftfield, Electro, Ambient, Techno>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flutter (05:21)
- 02. Spat (04:04)
- 03. Worm (04:51)
- 04. Metallic (03:14)Тип издания: WebЖанр: IDM, Leftfield, Electro, Ambient, Techno •Продолжительность: 03:54:07 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC4F2A18BA033165EA7A1493DDC9BF7C3AD62D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451316   (1028540) от 01.03.2021
-
-VA - Paerels II (2020) Nous'klaer Audio [FLAC|Lossless|WEB-DL|tracks] <Tech House, Leftfield, Ambient, Electro, IDM, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mattheis - Prism1 (Tidal Fields Version) (03:53)
- 02. Ben Buitendijk - Timetraveler (07:28)
- 03. Koraal - Vuurduin (06:59)
- 04. Amandra - Falbala (06:53)(   Читать дальше...   )Жанр: Tech House, Leftfield, Ambient, Electro, IDM, TechnoПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F5AEFEB04706EA43535F0E1F7BED8B276C26E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451369   (1028545) от 01.03.2021
-
-E-Talking - Techno Man's Land (2021) Going Good [FLAC|Lossless|tracks+.cue] <Electro, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Up Your Psyche (03:24)
- 02. Insider (03:46)
- 03. The Vaults (03:11)
- 04. A Sinuous Dream (03:53)(   Читать дальше...   )Жанр: Electro, Ambient, TechnoПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:320095AD71790756998C5A2F242BBCEA0FDB9187
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451324   (1028550) от 01.03.2021
-
-Vardenzenix - Imminence (2021) People Can Listen [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. EZ I (08:21)
- 02. Agogics (08:11)
- 03. The Attic (07:20)
- 04. Wilk (06:25)(   Читать дальше...   )Жанр: IDM, GlitchПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76CEB031B350B1DFC1D16396D63A3A88BBD34228
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451261   (1028555) от 01.03.2021
-
-mōshonsensu (moshonsensu) - Solemn Grandeur (2021) Abstrakt Reflections [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Glitch>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dialed - 4D3x (moshonsensu Remix) (04:58)
- 02. Pattern 2.45 (07:04)
- 03. Forsberg_Sofus (05:31)
- 04. Unbalanced Data (06:31)(   Читать дальше...   )Жанр: IDM, Ambient, GlitchПродолжительность: 00:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F486E9B177CFA79B789B0323B909080975D2C00
 ```
 
 

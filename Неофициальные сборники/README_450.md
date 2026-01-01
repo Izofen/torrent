@@ -1,3 +1,30 @@
+###  Публикация: 1286120   (714364) от 01.03.2019
+
+VA - Дискотека 2019 Dance Club Vol. 188 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka 2019!):
+01. Катя Чехова - Дискотека (NewRetro Remix) (3:54)
+02. Zeyn - Silence (3:48)
+03. Dj Vianu x Vict Molina - Save Me (2:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 29:22:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488CF0E52FAAF56C002E5A599A3C1B0D6C84BC57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130657   (714419) от 02.05.2017
 
 aQuaLuna - Classic Mix (1994 - 1999) [MP3|256 Kbps] <Acid Hard, Goa, Trance>
@@ -666,33 +693,6 @@ VA - Экспресс русских хитов на Hit FM (6) (2018) [MP3|256 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBACD7E2BFA522769C7C02AFFF688A48A4824381
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219200   (715733) от 13.04.2018
-
-VA - Torment Inside (2018) [MP3|320 Kbps] <Heavy, Power, Death Metall>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715733.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Phobia - Torment Inside
-002. Rhapsody Of Fire - Rain Of A Thousand Flames
-003. Burning Witches - Save Me (Acoustic Version) (Bonus Track)
-004. Masterplan - Take Me Home(   Читать дальше...   )Жанр: Heavy, Power, Death MetallПродолжительность: 11:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC35C2A34CFE408B858D947711E1CE474A7FC7E4
 ```
 
 

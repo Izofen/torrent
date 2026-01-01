@@ -1,3 +1,30 @@
+###  Публикация: 1111810   (846480) от 06.03.2017
+
+Rihanna - MP3 Play (2014) [MP3|320 Kbps] <RnB, Reggae>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Umbrella (feat. Jay-Z)
+02. Pon De Replay
+03. Push Up On Me
+04. SOS(   Читать дальше...   )Жанр: RnB, ReggaeПродолжительность: 04:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F293247B7AC913DF3A424C4E248419177F0FB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111815   (846492) от 06.03.2017
 
 Taj Mahal - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
@@ -665,33 +692,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD8871E133C5AA89F36C2E0A53B8B8FFBF4A97AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499646   (847598) от 02.10.2021
-
-VA - Music News vol.137 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847598.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. PlayingTheAngel feat. Rory - Доверяй Мне (02:52)
- 002. Adam Maniac & Melissa - Танцевать (03:04)
- 003. Aikko feat. ЮККИ - Лучше Всех (02:31)
- 004. AKVA - Аспирин (02:16)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 07:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF75BD33D633F5924BBE65CF83F3136A9F40E55A
 ```
 
 

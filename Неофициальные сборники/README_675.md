@@ -1,3 +1,30 @@
+###  Публикация: 1450175   (1029183) от 25.02.2021
+
+VA - Loud Hits Of The 90s (2021) [MP3|320 Kbps] <Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029183.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Matchbox Twenty - 3am
+002. Champs United - World In Motion
+003. Countdown Singers - Live For Loving You
+004. Graham Blvd - Everybody Plays The Fool(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 14:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3A26E03E3F0F5B0D865340DFFB940FCD90443EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450195   (1029185) от 25.02.2021
 
 VA - Best New Trap (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -668,33 +695,6 @@ VA - Vocal Deep & Chill House 2021 [MP3|320 Kbps] <Vocal Deep, Chill House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6440067BDE4D19948535EE28BC3F42ADAB59D8E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449128   (1029992) от 21.02.2021
-
-VA - Music News vol.74 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029992.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marcus Santoro & Isabelle Stern - It's Not About You (03:25)
- 002. Adam Hambrick - Broken Ladder (03:10)
- 003. Adelen - Jaded (02:30)
- 004. Adil Karaca - Xos G?ldin (03:13)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C6DB252304827AD2B0D699E38691680682D8B4
 ```
 
 

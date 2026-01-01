@@ -1,3 +1,165 @@
+###  Публикация: 1362879   (946462) от 25.02.2020
+
+Рома Жуков - Первый снег (1988) JAM, 2019, Remaster [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пыль мечты (8:00)
+02. Первый снег (5:45)
+03. Никто не в силах мне помочь (4:11)
+04. Прошу тебя, не верь словам (4:51)(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF80BAF7220E0E9F3A3B3031E1EB98E500C1A48F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361323   (946536) от 25.02.2020
+
+Малолетка (Акула) - Где-то звёзды (1999) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ночь (4:26)
+02. Увидимся (dj zoomer club mix) (4:09)
+03. Дождь (4:04)
+04. Я люблю тебя (4:27)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88ED192CC7C4E53A5098B2B52068C85AB5AC542D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362866   (946539) от 25.02.2020
+
+VA - Women Of 80s Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kylie Minogue - Hand On Your Heart 3:38
+02. Bette Midler - Wind Beneath My Wings 4:54
+03. Pretenders - 2000 Miles 3:39
+04. Tina Turner - I Don't Wanna Lose You 4:13(   Читать дальше...   )Жанр: PopПродолжительность: 01:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8583585809BCE72134A4CCAE087E961A5DD57F13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361326   (946565) от 25.02.2020
+
+Акула - Акула (2010) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Утро без тебя (3:23)
+02. Непонятно, почему (3:16)
+03. Она (3:13)
+04. Слова (3:21)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540DAFFBCE5D43549C01256393F4B990656B3C89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361324   (946568) от 25.02.2020
+
+Акула - Без любви (2002) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Полюби (3:38)
+02. Девочка (3:32)
+03. Я так хочу (3:54)
+04. Рада (3:33)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7506ACF63F2AC74F6B0235D045BE8054B26A8BC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362790   (946574) от 25.02.2020
+
+VA - Love to Love Compilation (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gianrico Leoni, Daniele Soriani & Dario Dee - My Body and My Soul (Chill Mix) (04:36)
+02. D-Chill - Around You (feat. Brooke Mitchell) (04:21)
+03. Nasini & Gariani - Rhythm of Love (Acoustic Piano Version) (feat. Dilu Miller) (03:37)
+04. Hearts Of Glass - Touch Me (Acoustic Live Version) (03:01)(   Читать дальше...   )Жанр: PopПродолжительность: 01:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA4118BBF84EE218E3CCE29EEE882D1A7FEB8F7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362747   (946575) от 25.02.2020
 
 VA - Dj Бинокль - Deep & Sexy Vol.01 (2004) [MP3|320 Kbps] <Italo-Disco, Italodance, Vocal>
@@ -534,177 +696,6 @@ Francesca Belmonte - Anima (2015) Deluxe Edition [MP3|320 кб/с] <Alternative 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6207F1988EDF51FEACA2410D902830F45DC8057B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981781   (949827) от 02.02.2016
-
-Bloc Party - Hymns (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Dance, Indie Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Love Within
-02. Only He Can Heal Me
-03. So Real
-04. The Good News(   Читать дальше...   )Жанр: Alternative Dance, Indie Pop, ElectronicПродолжительность: 01:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8935C9BC1D6B5383D7D4C2702A6A112FB315E79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981907   (949988) от 02.02.2016
-
-Andrea Lindsay, Luc De Larochelliere - C'est d'l'amour ou c'est comme (2012) 2015 GSI Musique [FLAC|Lossless|WEB-DL|tracks] <French Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le problème avec toi
-02. C'est d'l'amour ou c'est comme
-03. Mad dogs and englishmen
-04. Comme(   Читать дальше...   )Жанр: French PopПродолжительность: 00:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4230AC5AA5B6657F5EBA0E28A546286365299D25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 280954   (950340) от 10.01.2011
-
-Video Kids - The Invasion Of The Spacepeckers (1984) 2009, Break Records [APE|Lossless|image + .cue]<Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do The Rap (3:34)
-02. Cartooney Tunes (Incl.Happy Birthday) (4:24)
-03. La Bamba (4:14)
-04. I'm A Rock And Rollpecker (2:28)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 280986   (950342) от 10.01.2011
-
-Ани Лорак - Танцы (2010) [MP3|128-320 kbps]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Танцы (3:24)
-02. Нежность рассвета (3:48 )
-03. Верни мою любовь (дуэт с Валерием Меладзе) (4:14)
-04. С первого взгляда (Neomaster DJ's) (3:11)
-05. Every time you touch me (дуэт с Сергеем Лазаревым) (3:59)
-06. Солнце (DJ Alex Prime Remix) (4:38 )
-07. Розкажи (4:02)
-08. Три звичних слова (3:54)
-09. Увлечение (дуэт с Тимуром Родригесом) (3:36)
-10. А дальше (3:26)(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:309ABCA3F11BD7F644F594FC142E8C3C7BA3E636
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 624690   (950519) от 01.03.2013
-
-Dido - Girl Who Got Away (Deluxe Edition) (2013) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dido - Girl Who Got Away (Deluxe Edition) (2013)
-Год: 2013
-Жанр: Pop
-Продолжительность: 01:09:44
-Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:  (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28CC809EAED444FF6D3501D4E1874790A779BBBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089474   (950536) от 04.01.2017
-
-The Salsoul Orchestra - 8 Albums (1975-1982) Reissue [MP3|320 Kbps] <Funk-Soul, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из крупнейших в истории мировой музыки американский диско-биг-бэнд SALSOUL ORCHESTRA был организован в 1974 году человеком-легендой в популярной музыке, дирижером, композитором, аранжировщиком и барабанщиком Винсентом Монтаной-младшим (Vincent Montana-Jr.), первоначально входившим в состав легендарной филадельфийской группы MFSB. В Оркестр входило до 50 человек (   Читать дальше...   )Список альбомов:
-1975 - The Salsoul Orchestra (2012)
-1976 - Christmas Jollies
-1976 - Nice 'N' Naasty (2013)(   Читать дальше...   )Жанр: Funk-Soul, DiscoПродолжительность: 07:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7144F4BEB9ED30687C2209307BAC1965F3EBA64
 ```
 
 

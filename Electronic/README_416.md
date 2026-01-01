@@ -1,3 +1,138 @@
+###  Публикация: 1200735   (794976) от 22.01.2018
+
+Lunar Testing Lab - Discography 11 Releases (2008-2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Drone, Downtempo, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fur - Black Castles (Lunar Testing Lab Remix) (04:30)
+ 02. Specta Ciera - UFO Landing (Electromodule Remix) (04:39)
+ 03. Lunar Testing Lab - MK Naomi (04:45)
+ 04. Lunar Testing Lab - Mock Orange (LTL Remix) (04:37)(   Читать дальше...   )Тип издания: WEBЖанр: Downtempo/Ambient/IDMПродолжительность: 02:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24CD1CBF3F74D7E7768694F6FFC4246759FCC778
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200783   (794978) от 22.01.2018
+
+Damian Wasse - Music Colours (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damian Wasse - Colours Of The World (Intro Mix)
+02. Damian Wasse & Specific Slice - The Legend Of All Times (Original Mix)
+03. Damian Wasse - Memories (Original Mix)
+04. Damian Wasse - Battle For The Light (Classical Solution)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F067E3B641A74D695E7657C92178CF2D3110DEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200654   (794979) от 22.01.2018
+
+VA - Dark Uplifting Vol.3 (2018) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer  -  Forever (Extended Mix)  5:48
+02.  Cyril Ryaz  -  Dark Side (Extended Mix)  6:40
+03.  NoMosk  -  Black Light (feat. Maria Milewska) (Extended Mix)  5:57
+04.  R3dub  -  Red Sun (Extended Mix)  6:07(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF2C817D279CA90006DF33108BFE60052D364FE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509367   (795002) от 12.11.2021
+
+Indecent Noise - Everything Is Connected (Expanded & Extended) (2021) [MP3|320 Kbps] <Trance, Tech Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indecent Noise - Brightest Day (Original Mix) (02:13)
+02. Indecent Noise - White Lotus (Original Mix) (04:32)
+03. Indecent Noise & Noire Lee - Sunglasses At Night (Extended Original Vision) (07:17)
+04. Indecent Noise & OnTune - Visions Of The Dreamer (Extended Mix) (08:12)(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 01:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C108B7FDB2C1419983F1CA432CFB7E3662CED40C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200997   (795018) от 22.01.2018
+
+Brien Hindman - Cognitive Buffer Hypothesis (2018) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holocene (07:51)
+ 02. Trophic Cascade (04:28)
+ 03. Shinrin Yoku (04:07)
+ 04. The Veil (07:58)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA8D0CD87B5D3BCD6A0122F73EB35590C7969AB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200766   (795019) от 22.01.2018
 
 IsoQuant - Discography 4 Releases (2015-2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Dark Ambient>
@@ -555,141 +690,6 @@ Laliya - The Middle Way (2017) [MP3|320 Kbps] <Lounge, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F86CF719E4F4171BD363233DA5106963CE79775
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200439   (795695) от 21.01.2018
-
-VA - Hed Kandi 2017 (2016) [FLAC|Lossless|tracks] <Deep House, Vocal House, Soulful House, Disco House, Funky House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kungs & Cookin' On 3 Burners - This Girl (Fabich Remix) 4:20
-02. TIEKS - Sunshine (feat. Dan Harkna) (Zac Samuel Remix) 4:34
-03. Apexape - Joy & Pain 3:01
-04. Ben Delay - The Boy Is Mine (feat. Alexandra Prince) (Mark Lower Vocal Mix) 5:16(   Читать дальше...   )Жанр: Deep House, Vocal House, Soulful House, Disco House, Funky HouseПродолжительность: 05:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB1B29AA2BB8FAE0A71F4420F163938ECFD86C3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200630   (795699) от 21.01.2018
-
-VA - Winter Time Vol.6 (22 Premium Trax Chillout-Chillhouse-Downbeat-Lounge) (2018) [MP3|320 Kbps] <Chillout, Chillhouse, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Maretimo feat. Cafe Americaine  -  Rainy Season (Full Sunset Cut)  4:25
-02.  Frank Borell  -  Wind In The Desert (Abu Dhabi Mix)  4:50
-03.  Le Voyage  -  Poison (The Red Button Mix)  5:14
-04.  Sofa Sweeper  -  Rebeat Seventeen (Future City Mix)  4:47(   Читать дальше...   )Жанр: Chillout, Chillhouse, LoungeПродолжительность: 04:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9147A3AD7BCF1E645B8E18741DB2D3D004B6EEE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200507   (795701) от 21.01.2018
-
-Ludvig Cimbrelius - Dreaming The Night Sky (2018) Eternell [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serenade For The Night Sky (12:28)
- 02. Serenade For The Heart (Two Voices) (10:26)
- 03. Dreaming The Night Sky (35:16)
- 04. Serenade For The Heart (in D-minor) (09:44)Жанр: AmbientПродолжительность: 01:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A3A37DBC12E7A5DAB47D91B4EF38E7545DAC144
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200670   (795708) от 21.01.2018
-
-VA - Petit Boutique Vol.3 (20 Lounge Accessoires) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bar & Bar  -  Night in Rio (Radio Edit)  3:57
-02.  Marco Del Giudice & Daniele Soriani  -  Vuelvo Al Sur (Bandoneon Remix)  3:28
-03.  Juliana Pasini  -  Corcovado (Original Mix)  3:25
-04.  Bessie Boni & Massimo Mantovani  -  Stella By Starlight (Original Mix)  3:51(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E03A7FE31D20AB75D6D170341DF5809819A4295
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200147   (795710) от 21.01.2018
-
-VA - Summer Dance Mania (2010) [FLAC|Lossless|tracks] <Trance, Euro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Brooklyn Bounce - Club Bizarre (Djs From Mars Rmx) (4:57)
-02.Groove Coverage - Innocent (Club Mix) (3:33)
-03.Basslover United - Ghetto Supastar (Extended Mix) (4:16)
-04.Franky 8 - Rhytm & Drums 2010 (3:09)(   Читать дальше...   )Жанр: Euro House, TranceПродолжительность: 02:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F6DDE774AD81A5B0C890349B3D60119D2CEE120
 ```
 
 

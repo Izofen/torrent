@@ -1,3 +1,30 @@
+###  Публикация: 1396659   (745445) от 16.07.2020
+
+VA - Summer Throwback Spotify (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradisio, Marisa - Bailando - Video Edit 3:48
+02. Aqua - Barbie Girl 3:16
+03. Eiffel 65, Gabry Ponte - Blue (Da Ba Dee) - Gabry Ponte Ice Pop Radio 4:44
+04. Robin Thicke, T.I., Pharrell Williams - Blurred Lines 4:23(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956BE7BDE5864FF2DA8E45ABC79C7919C9484719
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020437   (745470) от 26.05.2016
 
 VA - Treasure Driving Melodic Uplifting (2016) [MP3|320 кб/с] <Uplifting Trance, Vocal Trance, Energy>
@@ -668,33 +695,6 @@ VA - Modern Disco Fever (2020) [MP3|320 Kbps] <Disco, Dance, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4370AB5CF5466AEE59A0B86978338A24E0CB63F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019951   (746893) от 25.05.2016
-
-VA - Cocktail Time: Synths and Guitar (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back to the Block - Desert Trip
-02. Toni Verde - Valle Serena
-03. Adam Morrison - Share The Way
-04. i95highway - Ingenious - Guitar Version(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FAFA134522028B41F3035EA0750ABF0DF5E3984
 ```
 
 

@@ -1,3 +1,190 @@
+###  Публикация: 1117624   (816898) от 23.03.2017
+
+VA - Dream Therapy (Top Deep Sleep Music, Dream Meditation, Sleep Yoga Nature Music) (2017) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Deep Sleep Hypnosis Masters - Massage Music  3:26
+02.  Deep Sleep Hypnosis Masters - Relaxing Theapy Music  3:19
+03.  Meditacao Espiritualidade Musica Academia - Chinese Meditation  3:52
+04.  Relaxing Night Music Academy - Ocean Waves  4:02(   Читать дальше...   )Жанр: Downtempo, Chillout, Ambient, New AgeПродолжительность: 01:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6A6DA01FCBA1A03D4893C366C8DD82CE4401B04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117589   (817035) от 23.03.2017
+
+VA - Tibetan Waves: Asian Ambient Relaxing Spirit, Deep Focus, Meditation Tibetan Music (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindfullness Meditation World - Serenity Soul
+02. Tibetan Meditation Academy - Healing Sounds (Chimes)
+03. Therapeutic Tibetan Spa Collection - Tibetan Meditation
+04. Buddhist Meditation Temple - Relaxing Bowls(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82BF060626922089ADC721683DA781E2FEC746E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117633   (817047) от 23.03.2017
+
+Gomer Edwin Evans - Music for Lovers (1992) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817047.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nights in Black Satin (30:01)
+2. Love on the Beach (29:47)Жанр: New Age, InstrumentalПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D9A2FC426E32972F4BA97FCB162E2538859C25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196572   (817293) от 06.01.2018
+
+Shinnobu - Libertus (2017) [MP3|320 Kbps] <Neo-Classical, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817293.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Orion	4:06
+2.	Between Etheric Dreams	5:08
+3.	Erminig Enigmatic World	5:23
+4.	Unusual	5:15(   Читать дальше...   )Жанр: Neo-Classical, Ambient, New AgeПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A7DF5EFDB3C02B3D7F549FD46E36E9335FA84EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382669   (817374) от 12.05.2020
+
+Asian Zen - Ambient Meditative Experience (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817374.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Yoga Trance 02:51
+2. Sun Salutation 03:06
+3. Awaken Your Energy 03:17
+4. Total Relaxation 03:18(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6407700E55FF17CE8FC531330C3EB9E5398006EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196653   (817440) от 06.01.2018
+
+ГештальТ - РекА (2014) OST [MP3|320 Kbps] <Electronic Pop Rock>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ЛунА
+02. КапканЫ
+03. ВеселА
+04. Я рядоМ(   Читать дальше...   )Жанр: Electronic Pop RockПродолжительность: 00:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6795E6C5005A672D2896524B71E13FBAFE5AED59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197064   (817571) от 06.01.2018
+
+Back to Earth - The Journey to the Inner Island (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age: Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Journey to Island B. One
+02. The Journey to Island A. Two
+03. The Journey to Island C. Three
+04. The Journey to Island K. Four(   Читать дальше...   )Жанр: New Age: RelaxationПродолжительность: 01:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677C2A0C389AC8009E370F1298F2395EFF58B6D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007557   (817595) от 17.04.2016
 
 Flaer Smin - 2 альбома (2014-2015) [MP3|320 кб/с] <New Age, Enigmatic, Electronic, Ambient>
@@ -506,195 +693,6 @@ George Winston - Remembrance (A Memorial Benefit) (2001) [MP3|320 кб/с] <Folk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83E2EC89E7D556D152AC649802BEEE4FDFF60112
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196839   (820415) от 04.01.2018
-
-ДиДюЛя - Лучшее (2010) 2CD [FLAC|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Один день в сентябре
-02. Посылка из Румынии
-03. Винил(   Читать дальше...   )Жанр: Instrumental |Продолжительность: 02:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCAD7E68050C2514346AAB711CFB574B5EE14AB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382374   (820766) от 10.05.2020
-
-Gealdýr (Gealdyr) - Valravn (2020) Soundtrack [FLAC|Lossless|Web-DL|tracks] <Nordic Folk, Pagan Folk, Ambient Folk>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valravn (3:19)
-02. Deyr Fé (2:19)
-03. The Ritual (3:09)
-04. The Seeress (3:05)(   Читать дальше...   )Производство: Arvur RecordsЖанр: Nordic Folk, Pagan Folk, Ambient FolkПродолжительность: 00:20:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74CFA613B904EE7FCE547538BB3D6A061EBA6028
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382375   (820768) от 10.05.2020
-
-Gealdýr (Gealdyr) - Sól (Sol) (2019) [FLAC|Lossless|Web-DL|tracks] <Nordic Folk, Pagan Folk, Ambient Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ginnungagap (5:13)
-02. Myrkvidr (3:55)
-03. Baldr (3:08)
-04. Kauna (7:00)(   Читать дальше...   )Производство: Arvur RecordsЖанр: Nordic Folk, Pagan Folk, Ambient FolkПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:475471253D317A74553B28E838098F9669D42B0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382007   (820880) от 10.05.2020
-
-Stu Dying - Study World: Relaxing Music and Ocean Waves For Studying (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820880.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Study World 01:55
-2. Tranquil Waters 02:24
-3. Work of the Composed 02:17
-4. Informative Fantasy	 01:09(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A039D7334B6E6FF62C2F4E35D1BEA4962F147CF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117043   (820916) от 21.03.2017
-
-Alison Krauss - Windy City (2017) Deluxe Edition [FLAC|Lossless|image + .cue] <Country, Bluegrass>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Losing You (2:52)
-02. It’s Goodbye and So Long to You (3:11)
-03. Windy City (3:16)
-04. I Never Cared for You (2:46)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 01:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:848C99D12D3E5B3FA66C0859A5B92553747C1753
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116136   (820920) от 21.03.2017
-
-VA - Tuff Turf: The Original Soundtrack (1985) [MP3|320 Kbps] <Pop Rock, Punk>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820920.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Southside Johnny & The Asbury Jukes - Tuff Turf
-2. The Jim Carroll Band - People Who Died
-3. Jack Mack & The Heart Attack - Green Onions
-4. The Jim Carroll Band - Voices(   Читать дальше...   )Жанр: Pop Rock, Punk, OSTПродолжительность: 00:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E0C65AE022A32D0C413C8E979FFB3CFF932B302
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116836   (821050) от 21.03.2017
-
-VA - Deep Relaxation and Wellness Playlist (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ying Srisati - Meltwater
-02. Jame Ornlamai - Healing Space
-03. Earth Kunchai - Relax
-04. Wanwisa Yuvaves - Ocean(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFD9C018940A83677A81DB85DE96588BFB018ACD
 ```
 
 

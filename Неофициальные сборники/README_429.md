@@ -1,3 +1,30 @@
+###  Публикация: 1222427   (685170) от 29.04.2018
+
+VA - German Top 50 Official Dance Charts 27.04.2018 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fatboy Slim - Right Here, Right Now (CamelPhat Radio Edit)
+02. Moguai, Zonderling - Lee
+03. Bingo Players, Goshfather - Everybody
+04. Steve Aoki, Daddy Yankee, Play-N-Skillz & Elvis Crespo - Azukita(   Читать дальше...   )Жанр: DanceПродолжительность: 02:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B47E08B9FC7B7A297FE1C0629CE2095F96D4E46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222404   (685293) от 29.04.2018
 
 VA - German Top 100 Single Charts 27.04.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -678,33 +705,6 @@ VA - German Top 100 Single Charts 21.08.2020 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1656F0504A4C4ADEBE110EBD6E779DA70988955D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289299   (686633) от 16.03.2019
-
-VA - Hot & Sweaty Nu Disco (2019) [MP3|320 Kbps] <Funky, Groove, Nu Disco, Indie Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lifelike - The Chase (Extended Mix)
-02. Anderson Paak Feat. T.I. - Come Down(N-You-Up & Nick Studer Remix)
-03. Francis Mercier & Zak Ria - Feels Like I'm Alive (Feat. Zak Ria)(Original Mix)
-04. Chevals - Fairy Tales (Original Mix)(   Читать дальше...   )Жанр: Funky, Groove, Nu Disco, Indie DanceПродолжительность: 03:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ECC760F5295FC52FC333FA22E8C58A358A3669D
 ```
 
 

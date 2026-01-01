@@ -1,3 +1,138 @@
+###  Публикация: 1137706   (665417) от 28.05.2017
+
+VA - Future Trance Vol. 80 (2017) [MP3|320 Kbps] <House, Trance, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zedd & Alessia Cara - Stay 3:31
+02.  Axwell Ingrosso feat. Kid Ink - I Love You 3:11
+03.  The Chainsmokers & Coldplay - Something Just Like This 4:07
+04.  Martin Garrix & Dua Lipa - Scared To Be Lonely (Brooks Remix) 3:21(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 03:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F759DF4AB82A0E8CC540E3256A6909356CC4DFAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137623   (665418) от 28.05.2017
+
+Maitreya - Avatar Kalki (2017) [MP3|320 Kbps] <Ethnic, Psychillout, Psybient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Om Namo
+02. Bhaifajyaguru
+03. Kalachakra
+04. MahaMrityunjaya(   Читать дальше...   )Жанр: Ethnic, Psychillout, Psybient, Relax, MeditationПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5295B9ED8DDDDC358EC39E6B40DF8AF2C4C182F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137788   (665427) от 28.05.2017
+
+VA - Erotic Massage Lounge - Sexy Chillout Obsession Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Guru - Addicted To Tantric Sex (Sensual Love Mix) 04:56
+02. From A To A - Perfect Pillow (New Age Mix) 05:00
+03. Once Upon A Time - Like You 04:10
+04. Melounge - Maldives Beach Sunset 05:02(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9CE3A83A7D047E2A1EC11775AD07778F949A86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537962   (665442) от 18.03.2022
+
+VA - Black Hole Trance Music 03-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Durand & Christian Burns - Almost Home (Extended Mix) [06:30]
+02. Siskin - Never Alone (Extended Mix) [07:45]
+03. Ciaran Mcauley & Clara Yates - Light A Rainbow (Extended Mix) [05:25]
+04. Cosmic Gate & Olivia Sebastianelli - We Got The Fire (Extended Mix) [07:04](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0436AC52B44599AEA45E7D87C61689337F8ABD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137509   (665564) от 28.05.2017
+
+VA - Summer Hits (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mivase - I Can't Give Up (Original Mix) 3:12
+02.  Russian Dolls & Nathia Kate - Always (feat. Robin Vane) (Original Mix) 4:24
+03.  WeareD - Assertive (Original Mix) 2:49
+04.  Frainbreeze - Signs Of Time (feat. Natune & Angel Falls) (Vadim Bonkrashkov Remix) 4:26(   Читать дальше...   )Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 01:18:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CB60E09896311C8768A80A4838CF1D12860F19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137698   (665645) от 28.05.2017
 
 VA - Pure Deep Sexy Vol 4 (2017) [MP3|320 Kbps] <Deep House>
@@ -560,141 +695,6 @@ VA - Beach House Anthems Volume 2 (2017) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD30E4594F98D3C8A9EDAEA698320CC469573AE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137588   (667992) от 26.05.2017
-
-VA - Ibiza Lounge Classic (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pindaric Spleen - Reciprocal Inhibition
-02. Hints of soul - Mixed Flowers
-03. Sombra Modos - Hora Tras Hora
-04. The Biosnakes - Sav(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:53:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03D8383AB7B0B87D1200ADD5FBB4528987CA6B29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137396   (667994) от 26.05.2017
-
-VA - Soul Relax Spa Senses Compilation Vol.3 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bengali Wave — Heaven & Hell
-02. Indian Dawn — Modern Earth
-03. Kasiah Brown — Blue Whisper
-04. Shakeyjake B. — Dreaming the Desert(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2B1DD98A9414FD7F94F4CE97C7B582B2A27C498
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224017   (668111) от 08.05.2018
-
-The Glitch Mob - See Without Eyes (2018) [FLAC|Lossless|WEB-DL|tracks] <Glitch, IDM, Dubstep>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter Formless (feat. Rituals of Mine)
-02. Take Me With You (feat. Arama)
-03. Disintegrate Slowly
-04. Keep On Breathing (feat. Tula)(   Читать дальше...   )Жанр: Glitch, IDM, DubstepПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC13303C56DCC33DE42D10A20D69C734B0444353
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224064   (668112) от 08.05.2018
-
-Carl Craig - Versus & Remixes Vol. 1 & Vol. 2 (2017-2018) Infiné | Beat Records [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Techno, Neo-Classical, Experimental, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Melody (Henrik Schwarz Remix) (07:42)
- 02. The Melody (Ishmael Ensemble Remix) (06:25)
- 03. At Les (Abul Mogard Remix) (10:26)
- 04. Desire (Secret Of Elements Remix) (09:12)(   Читать дальше...   )Тип издания: CD, WebЖанр: Tech House/Ambient/Techno/Deep HouseПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22D55956C2264C5800B87F53829AC584A7B28409
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224107   (668189) от 08.05.2018
-
-VA - Electrosounds Vol. 1 (1998) Globe [FLAC|Lossless|tracks+.cue] <Techno, IDM, Electro, Breakbeat>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Bug & Acid Maria - Electro Sex (06:09)
- 02. Dr. Mottes & Euphorhythm - Patrik (DJ Hell Rmx) (05:33)
- 03. Genlog - More Music (07:19)
- 04. Electro Nation - Fist-Man (06:02)(   Читать дальше...   )Жанр: Techno, IDM, Electro, BreakbeatПродолжительность: 01:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27CDB562A443DE221808DF187F70F4C33A4C50EB
 ```
 
 

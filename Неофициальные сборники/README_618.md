@@ -1,3 +1,30 @@
+###  Публикация: 986059   (932073) от 13.02.2016
+
+VA - Рок впрок 5 (2016) [MP3|320 kbps] <Рок, Поп-Рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мэнчестер - Бей в барабан
+02. Электропартизаны - Пока не поздно
+03. Иваново Детство - С тобой
+04. Альтависта - За несдавшихся врагу(   Читать дальше...   )Жанр: Рок, Поп-РокПродолжительность: 03:11:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1A4A08D1906D64DB2C4D1C0F1FA02F96E2E509
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093794   (932265) от 16.01.2017
 
 VA - Beauty Inside Dreamland (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Progressive>
@@ -668,33 +695,6 @@ VA - Club Dance Ambience Vol.98 (2017) [MP3|320 Kbps] <Dance, Club, Club House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5FC47BC68C61F9ABB019D034BAB8C5C0D7005D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985851   (933932) от 12.02.2016
-
-VA - Metal & Rock Collection (2016) [MP3|320 кб/с] <Metal, Rock, Hard-Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adrenaline Mob - Indifferent 04:30
-02. Axel Rudi Pell - Edge Of The World 05:18
-03. Black Veil Brides - New Religion 03:50
-04. China - That's A Lot Of Love 03:18(   Читать дальше...   )Жанр: Metal, Rock, Hard-RockПродолжительность: 03:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935429BD9D9FFA735BFA82EABB17B78AF3B8183A
 ```
 
 

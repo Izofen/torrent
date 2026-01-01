@@ -1,3 +1,138 @@
+###  Публикация: 1209660   (779157) от 28.02.2018
+
+VA - Dance All Night Vol. 1 (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex DJ Zeya - Marry Me 05:11
+02. Alex Sheavy - Vessel 02:54
+03. ArcticA - Anastasia (Last Sky Remix) 05:15
+04. Aveo - Colors 04:30(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A9419BB1D692474AD09ECA38D3D4E738BFF654
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209512   (779230) от 27.02.2018
+
+Fritz Kalkbrenner - Drown (2018) [FLAC|Lossless|WEB-DL|tracks] <Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter (07:07)
+ 02. Ride (07:16)
+ 03. #3 (01:29)
+ 04. Bleed (06:32)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 01:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08CD3B3F46BCA09800771D61C5EE3E23F89A3A8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209513   (779262) от 27.02.2018
+
+VA - Mount Everest: The Base Camp Mix (Mixed by Paul Oakenfold) (2018) [MP3|320 Kbps] <Progressive House, Trance, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Astronaut Ape & Sunselity  -  Sakura (Original Mix)  8:36
+02.  Paul Oakenfold  -  Deep Space (Original Mix)  7:10
+03.  Paul Oakenfold & Dan Rowe  -  Broken (Mick Parks And Danny Stubbs Remix)  7:31
+04.  Nex Tone  -  Reflections (Original Mix)  6:01(   Читать дальше...   )Жанр: Progressive House, Trance, Deep HouseПродолжительность: 06:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71890D89F1809BC56F3BD16C46433ED12211E312
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209511   (779295) от 27.02.2018
+
+VA - Sexy Lounge Music Songs Selection for Dj (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Copponi - At Midnight 03:45
+02. St. Project - L.A. Sunset 04:34
+03. Giacomo Bondi - A Noite Passa 04:40
+04. Brass - Boston Beat 04:47(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B515D5FA014FB0819B5BF18A2F89D2D8A299EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209425   (779298) от 27.02.2018
+
+VA - Hed Kandi Anthems & Artwork (2010) [FLAC|Lossless|tracks] <House, Electro, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Jamiroquai - Love Foolosophy (Knee Deep's Re-Edit) (6:15)
+02.Shakedown - At Night (6:43)
+03.Stone Bridge Feat. Therese - Take Me Away (Vocal Mix) (5:36)
+04.Soulshaker Feat. Lorraine Browne - Hypnotic Erotic Games (Soulshakers Orginal Club Mix) (6:43)(   Читать дальше...   )Жанр: House, Electro, DiscoПродолжительность: 05:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA07D00BEA66E49A891A6D3C5FB94A0093F9F94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209548   (779299) от 27.02.2018
 
 VA - Chilling Sounds, Vol. 6 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -560,141 +695,6 @@ VA - Sexy Miami Beach, Vol. 2 (2018) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E184E55F4E7C7CE2819E12CD1C9CF4DB9504488
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208674   (779817) от 23.02.2018
-
-Von Grall - Infinitum (2018) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infinitum (06:38)
- 02. Hyper Density (06:02)
- 03. Anthropology (06:06)
- 04. Emerald City (06:00)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245B2BD3C188A5BAF155C0A56DB5791BAC18ABFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208607   (779818) от 23.02.2018
-
-VA - Deep House Look in the Mirror, Vol. 1 (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kite Lost - Popular Odor
-02. DJ Mr Gogo - The Cellar of the Secrets
-03. Oriental Surprise - Oltre Muras
-04. Mister Gregor - Stop Range(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B479C27613FD782AC0F8812C4852142C7FF32181
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208516   (779821) от 23.02.2018
-
-FUCT TAPE - FUCT TAPE (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Berlin Nights 05:43
-02. Cave Drawings 04:56
-03. Jessy Lanza 05:29
-04. Don Caballero 04:38(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55DC6BA21CEBD9AC5E53B6F4D8619A7B98216786
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208620   (779994) от 22.02.2018
-
-Milieu - Amtrax Plus (2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Experimental, Glitсh>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterschool Trak (Daycare Pops Mix) (04:21)
- 02. Mono Field (02:43)
- 03. Star Bath (04:32)
- 04. Amtrac (Silverbus Mix) (03:43)(   Читать дальше...   )Жанр: IDM, Ambient, Experimental, GlitсhПродолжительность: 01:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3E854B3401DDBF01273568AF22E2D72821FB2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207729   (780101) от 21.02.2018
-
-VA - Best Of Trance 2018 Vol.01 (2018) [MP3|320 Kbps] <Trance, Progressive Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  PROFF  -  Innervate (Original Mix)  6:26
-02.  Andromedha  -  Rise (Original Mix)  6:00
-03.  Gregory Esayan feat. Dan & Sam  -  Innerspace (Dan & Sam Club Mix)  7:53
-04.  LTN  -  As Tears Go By (Original Mix)  7:07(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 02:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13040E548EEC5C6A029C9EA5D0A9F05372D47DF1
 ```
 
 

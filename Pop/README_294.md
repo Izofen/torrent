@@ -1,3 +1,165 @@
+###  Публикация: 1384071   (806159) от 18.05.2020
+
+Lara Fabian - Papillon(S) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papillon
+02. Je Suis A Toi
+03. Changer Le Jeu
+04. Par Amour(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF53B2CEDBE90ADDE89D98E5DF648BF245332A3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383946   (806163) от 18.05.2020
+
+Николай Носков - Блажь (1998) [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я тебя люблю
+02. Я не модный
+03. Дай мне шанс
+04. Сердца крик(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7373F3030373B227E51DAB6D9EFBD625C6F29D9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384094   (806173) от 18.05.2020
+
+VA - Ballads (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foreigner - I Want to Know What Love Is (2013 Remaster)
+02. Spandau Ballet - True (Single Edit)
+03. Dua Lipa - Homesick
+04. Paolo Nutini - Last Request(   Читать дальше...   )Жанр: PopПродолжительность: 03:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F3B217E70A0D39507BA521761328369255A5853
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198631   (806191) от 12.01.2018
+
+Camila Cabello - Camila (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Be The Same (03:46)
+02. All These Years (02:44)
+03. She Loves Control (02:57)
+04. Havana (Feat. Young Thug) (03:37)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19F0B88897691657E7D67D3939C5DBF9F047FB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198564   (806279) от 12.01.2018
+
+VA - 101 Party Hits (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806279.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Scissor Sisters  -  I Don't Feel Like Dancin'  4:10
+02.  Abba  -  Dancing Queen  3:49
+03.  Blondie  -  Heart Of Glass  4:12(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA5746D429F4913E6D58CED0206AA6FF8A73B10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198646   (806281) от 12.01.2018
+
+Мика Ньютон - Теплая река (2006) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро I
+02. Теплая река
+03. Цунами
+04. Пожарные(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA56A914272E762EAE52BB4C62768F0C1C00C26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198613   (806290) от 12.01.2018
 
 VA - 101 Girls Night (2017) [MP3|320 Kbps] <Pop>
@@ -530,168 +692,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21A92A890BD90B2D4D8FCAB8946D58D74085AB06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504775   (810208) от 24.10.2021
-
-ZAZ - Isa (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Les jours heureux
-02. Imagine
-03. De couleurs vives
-04. Ce que tu es dans ma vie(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95B756DE49A16C5D00EEF7AD0A5941EB451F005F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198248   (810261) от 10.01.2018
-
-Cybotron - Enter (1983) Reissue CD, Decision Records, 2013 [MP3|320 Kbps] <Electronic, Electro, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детроитский электро-форм проект, запущенный Ричардом Дэвисом и Хуаном Аткинсом в 1981 году. (Не путать с австралийской группой Cybotron, которая также выпускала электронную музыку.)01. Enter (5:37)
-02. Alleys Of Your Mind (3:33)
-03. Industrial Lies (6:13)
-04. The Line (5:02)(   Читать дальше...   )Жанр: Electronic, Electro, Synth-popПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C2CD300C2C80DC2750A66CEADA7EEE3F081869
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504665   (810355) от 24.10.2021
-
-Аркадиас - Танцор диско (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Танцор диско (4:03)
-02. Ах, эта женщина (5:05)
-03. Только ты необходима мне (3:24)
-04. Аккуратно (3:25)(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA38A56DFB53E31EF32B735D904BCCDEE59A6FBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504664   (810472) от 24.10.2021
-
-Аркадиас - Чувства-цунами (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чувства-цунами (4:54)
-02. Оригами (3:05)
-03. Солёный дождь (4:01)
-04. Влюблены (Элла) (5:27)(   Читать дальше...   )Жанр: PopПродолжительность: 01:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3BCDEEE03B7717E2323944B7CD8124F238B52D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118942   (811376) от 26.03.2017
-
-Baby's Gang - Challenger (2016) Deluxe Edition [MP3|320 Kbps] <Italo-Disco, Synth-pop >
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Challenger (05:18)
-02. Jamin (05:58)
-03. Happy Birthday (To My Mammy) (04:57)
-04. Happy Song (Remix) (05:38)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21B6B0841F5D87392049A6E8F77075C9B276898E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383514   (811581) от 15.05.2020
-
-T.P.H. Productions - The Party's Here! With The Beatles (2002) [FLAC|Lossless|image + .cue] <Pop, Cover, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Jude (4:00)
-02. Love me do (2:30)
-03. She loves you (2:20)
-04. Yesterday (2:10)(   Читать дальше...   )Жанр: Pop, Cover, OldiesПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBD931062AF298D0377EAD09B701B6DB35CF9B3E
 ```
 
 

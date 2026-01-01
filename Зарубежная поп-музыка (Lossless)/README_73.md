@@ -1,3 +1,57 @@
+###  Публикация: 1277091   (787002) от 19.01.2019
+
+Sarah Brightman - Hymn (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Classical Crossover, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hymn Overture (1:03)
+02. Hymn (4:28)
+03. Sogni (feat. Vincent Niclo) (4:18)
+04. Sky and Sand (4:12)(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B0D265EA12397F7491312A1A01F4887788AB99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276909   (787019) от 19.01.2019
+
+VA - Dreamlover vol.1 (1994) [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryan Adams - Please Forgive Me
+02. Mariah Carey - Without You
+03. Michael Bolton - Said I Love You ... But I Lied
+04. Roxette - Almoust Unreal(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7566DB9ACDD176A03D3FC8CF24EBC40A167F024
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276953   (787252) от 18.01.2019
 
 Eloy de Jong - Kopf aus - Herz an (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -642,60 +696,6 @@ ABBA ушла тихо, без официальных объявлений о р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD2005842F8DAD83FF6713A7CFCDCC8265F2F499
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387010   (792640) от 31.05.2020
-
-Пара Нормальных - Скандал во время рекламы (2010) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:37:03Трэклист: 01. Не улетай
-02. Поломана
-03. Ты не шаришь
-04. Скандал(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E68FCBD07CCCD1E3189CBFEC8A64437D8C8E731
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201468   (792699) от 24.01.2018
-
-VA - 2018 Grammy Nominees (2018) [FLAC|Lossless|tracks] <Pop, Hip Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792699.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом году вручать Grammy будут в воскресенье, 28 января, в 19:30 вечера (по местному времени) и не в Лос-Анджелесе. Впервые за 15 лет самая большая ночь музыки возвращается в Нью-Йорк  в Мэдисон-Сквер-Гарден. Но как всегда за несколько дней до этого звездного часа музыки выпускается диск с основными номинантами. Обычно награждение Grammy происходит в середине февраля, (   Читать дальше...   )01. Bruno Mars - 24K Magic  (3:46)
-02. Kelly Clarkson - Love So Soft  (2:52)
-03. Luis Fonsi & Daddy Yankee - Despacito (Feat. Justin Bieber) (Remix)  (3:50)
-04. Kendrick Lamar - Humble  (2:58)(   Читать дальше...   )Жанр: Pop, Hip HopПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA517C035B706A6FBDBCE67F6A1E8DABBB8D1FED
 ```
 
 

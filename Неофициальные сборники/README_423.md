@@ -1,3 +1,30 @@
+###  Публикация: 1290596   (678252) от 20.03.2019
+
+VA - Running Workout 2019 [MP3|320 Kbps] <House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flo Rida - GDFR (feat. Sage The Gemini & Lookas)
+02. Galantis - Peanut Butter Jelly
+03. Clean Bandit - Solo (feat. Demi Lovato)
+04. Anne-Marie - 2002(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A9CB36CC58C5F5437B23B1BB66BFF931C8D1EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029844   (678321) от 28.06.2016
 
 VA - Absolute Jazz (2016) [MP3|320 Kbps] <Jazz, Instrumental>
@@ -669,30 +696,6 @@ VA - DJ World Places Miracle (2016) [MP3|320 кб/с] <Funky, Disco, Electronica
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C06CDD47EB35BE2C04452592AF1749F35958B31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029544   (678608) от 28.06.2016
-
-VA - Ultimate Workout Dance Player (2016) [MP3|256 кб/с] <Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678608.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Laidback Luke - Bae (Feat. Gina Turner)Жанр: Club, HouseПродолжительность: 08:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE0350C95819B587262A46C0C23D5D08E3E59148
 ```
 
 

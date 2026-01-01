@@ -1,3 +1,30 @@
+###  Публикация: 1098223   (910888) от 29.01.2017
+
+VA - German Top 100 Single Charts 27.01.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910888.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Shape of You
+002. Clean Bandit - Rockabye (feat. Sean Paul & Anne-Marie)
+003. Ed Sheeran - Castle on the Hill
+004. Alan Walker - Alone(   Читать дальше...   )Жанр: PopПродолжительность: 05:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF2BA77C40E817449F27C4C17466377FC4CF332
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098091   (910918) от 29.01.2017
 
 VA - Музыкальное потрясение зимы на Русском радио выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
@@ -669,33 +696,6 @@ VA - Pure Wellness 1 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C1CB5188E591949D06841B822405EB79CA6ED3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097755   (912393) от 28.01.2017
-
-VA - Songbird Voices Of Romance (2017) [MP3|320 Kbps] <Jazz, Vocal, Easy Listening>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912393.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nina Landis - Songbird 3:22
-2. Christopher Cross - Arthur's Theme (Best That You Can Do) 4:25
-3. Kathy Troccoli - Dance With Me 4:25
-4. Matt Belsante - Nothing Can Change This Love 3:48(   Читать дальше...   )Жанр: Jazz, Vocal, Easy ListeningПродолжительность: 01:02:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B802BCEF0795BA021F8A85A7A010022A287DD84
 ```
 
 

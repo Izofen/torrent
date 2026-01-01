@@ -1,3 +1,84 @@
+###  Публикация: 1227079   (650379) от 24.05.2018
+
+VA - A State Of Trance (Mixed By Armin van Buuren) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren vs Shapov - The Last Dancer (Original Mix)
+02. Whiteout & Wilderness - Yalung (Original Mix)
+03. Tom Fall - Cyclone (Original Mix)
+04. Estiva - Bloom (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59764B7173F28FCE3C5DA1B47A809DD664D076DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227169   (650389) от 24.05.2018
+
+Sea Of Sin - Future Pulse (2018) [FLAC|Lossless|image + .cue] <ElectroPop, SynthPop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Live My Life
+02. Truth
+03. Hold On To Your Dreams
+04. Closer To Sin(   Читать дальше...   )Жанр: ElectroPop, SynthPopПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B4C923AFF31EBEFB95AE64B588973FAE8B59DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141303   (650432) от 10.06.2017
+
+VA - 2017 Music for Massage Relaxation Chillout [MP3|320 Kbps] <Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamans - Reach Heavens - Chillout Mix
+02. Seven24 - Behind the Sky - Chillout Mix
+03. Sad radio on Cassini - Clear Sky - Chillout Mix
+04. Georgy Om - Path - Chillout Mix(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 00:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA44DF45C3DD65009F5852B27BDD94E7515CC64D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141497   (650440) от 10.06.2017
 
 VA - 2017 Music For Shops - Background Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -617,87 +698,6 @@ ENiGMA Dubz - Genesis (2012) [FLAC|Lossless|tracks] <Dubstep, UK Garage, Drum & 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:032C1AE84007E36EC6E9AF3B6862419DAC7DFDED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141350   (652457) от 09.06.2017
-
-The Human Case - Living library (2017) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Human Case & MushiMan - Embryo (06:14)
-02. Chella Kutty (06:34)
-03. Nova (05:53)
-04. Fragile (04:31)Жанр: Psybient, Ambient, DowntempoПродолжительность: 00:23:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FFE834C8DE6187DEFEC4202C51ECE6C2F4DD4DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540484   (652543) от 30.03.2022
-
-VA - Best Summer Hits 2022 - 2023 [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Krees Waves, Stan Kayh - We Came For Love (3:16)
-02. NIEL - Behind Me (3:46)
-03. Biggoose, DzenB - On Fire (3:38)
-04. Lost House Rhythms, Falcos Deejay - Runnin' (3:25)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:700F4FEB5F57014D2953A5710DD3055F42D81EEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141156   (652550) от 09.06.2017
-
-VA - Ibiza Club Session (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  GrooveLoop - Hyperspace (Final Version)  3:38
-02.  Mariusz Chodorek - Heroes (Mariusz Chodorek Remix)  9:02
-03.  Karadjov - Octagon (Ula Remix)  7:22
-04.  Tranc3plant - Euphoria (Uplifting Mix)  5:36(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 05:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90032A4732A948F5A76390E1188C75BC9C11A7B0
 ```
 
 

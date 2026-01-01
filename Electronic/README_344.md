@@ -1,3 +1,150 @@
+###  Публикация: 1135307   (681295) от 19.05.2017
+
+VA - Intimacy, Vol. 04 (2017) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. M&D Substance - Organist (Camilo Remix) 07:13
+02. David Svedra - Love You 06:24
+03. Sasha Lyod - Knock Out (Aurora Solovey Drive Remix) 06:51
+04. Mike Denitz - Come Back 06:26(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D8E2689F8177B35DA8424998EB46F13FC324888
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135554   (681303) от 19.05.2017
+
+VA - Can You Feel The Stretching? (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Topmodel - Within 02:56
+02. Tempodata - Gems 02:56
+03. Tabish Green - Patch 03:03
+04. Tad Beef - Disclosed 03:03(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F56D6BA46FFBE3902238407C6CC19C3021A54E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135461   (681305) от 19.05.2017
+
+VA - Redux Presents The Uplifting Selection Vol.2 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riialto & F.G. Noise - Zika (original mix) (07:39)
+02. Six Senses - Return (original mix) (07:08)
+03. Eddie Lung - Sirius (The Enlightment remix) (07:25)
+04. Frank Dueffel - Entropy (original mix) (07:49)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D68E2FA44ADD1170CF3E59E715747DBCD41D9F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508079   (681535) от 09.06.2012
+
+VA - Ibiza Miami 2012 (Very Best Of) (08.06.2012) (2012) [MP3|320 кб/с]<Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dancing Machine - Mazo - Djos's Davis & Cyber Seb Radio Edit (3:27)
+02. Alex Oshean - Jump - Djs from Mars Radio Edit (3:28)
+03. Matt Myer - Rock On - DJ Sign Remix (6:33)
+04. Joshua Grey - Naked in the Rain - King Richard, Etienne Ozborne Mix (6:50)
+05. Vybrate - Getting High - Radio Edit (3:07)
+06. Agent Greg - Body & Soul (7:36)
+07. The Chris Montana Project - Deep Down (6:55)
+08. Felix Wellcom - Talk to Me - Radio Edit (3:12)
+09. Jim X Prods - Renegade Master (5:47)
+10. South Men - The Cell - Radio Edit (3:59)(   Читать дальше...   )2012Жанр: Club HouseПродолжительность: 02:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE43BD7E8BE0121CC9A2825DF6D8B2EDD74850C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508081   (681536) от 09.06.2012
+
+VA - Ibiza Summer Vibes: The Sound of The Party Island (2012) [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avicii - Sweet Dreams - Avicii Swede Dreams Mix (5:53)
+02. Chris Montana - Music - Original Ibiza Mix (6:22)
+03. Jolly - Knock On Your Heart - Vocal Mix (6:27)
+04. Syke'N'Sugarstarr - I Believe - Idriss Chebak Rework (5:37)
+05. Alesso - Loose It - Ibiza Mix (6:37)
+06. Martin Wright - Can You Feel It - Original Mix (5:52)
+07. Voltaxx - Hold Me Close - Original Mix (5:30)
+08. Jason Chance - Ain't Nobody - Vocal Mix (7:31)
+09. Jochen Pash - Rootz - Original Mix (6:52)
+10. Tim Royko - Everlasting Now - Club Mix (6:44)(   Читать дальше...   )2012Жанр: HouseПродолжительность: 02:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE51A09D4AE954B5A91FEA7B4D7A0FDA68A99488
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290117   (682076) от 18.03.2019
 
 øjeRum (ojeRum) - Nattesne (Eilean 85) (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Ambient, Neofolk>
@@ -556,147 +703,6 @@ Moonbootica - Future (2018) [FLAC|Lossless|WEB-DL|tracks] <Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E3511CFF0448D16A3D68EF49B24BBB551CF03E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507489   (683689) от 08.06.2012
-
-Alex Niggemann - Paranoid Funk (2012) [MP3|320 кб/с]<Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Wait (Extended Mix) (07:53)
-02.Street Therapy (09:37)
-03.Curious (07:21)
-04.Lovers feat. John Rydell (04:34)
-05.That Is...!? (Vinyl Cut) (07:38)
-06. Come Into My World (Vinyl Cut) (06:01)
-07.Parentless Child (Vinyl Cut) (06:32)
-08.Back 2 Basics feat. Benji (Vinyl Cut) (06:55)
-09.The Sweetest Thing feat. Daniel Solar (Vinyl Cut) (07:01)
-10.I Don't Care (Ride Mix Vinyl Cut) (06:21)(   Читать дальше...   )2012Жанр: Tech House, Deep HouseПродолжительность: 01:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5C98D0A0A59773F88800B17E134065A131DF7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289735   (684132) от 17.03.2019
-
-VA - Arabian Nights (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Deep-house, Downtempo, Electronica>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elias Fassos & RisK (Gr) - Sunset in Ayia Napa
-02. Stanisha - Emina
-03. Nikos Kaponis - Gypsy Day
-04. Arona - Shawq(   Читать дальше...   )Жанр: Lounge, Deep-house, Downtempo, ElectronicaПродолжительность: 01:31:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:828D78666F674B3B6A016FB7D9E552823FF839EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289750   (684231) от 17.03.2019
-
-VA - I Love Hard Trance (2019) [MP3|320 Kbps] <Trance, PSY-Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Microbots — Cosmic Evolution (Scot Project Remix) 08:33
-02. Hanney Mackoll — Sexy Dance 05:17
-03. Heartworx — Circle of 5th 04:36
-04. Killer Emo — Dream About You 09:00(   Читать дальше...   )Жанр: Trance, PSY-TranceПродолжительность: 02:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2DF1D3F44B5E803A6E68C8EA5D54E8A869AF321
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404181   (684269) от 23.08.2020
-
-Midnight Danger - Chapter 2: Endless Nightmare (2020) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Darksynth, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Visions (1:49)
-02. The Eyes of Darkness (4:15)
-03. Back From the Dead (4:07)
-04. Night Escape (4:43)(   Читать дальше...   )Жанр: Retrowave, Darksynth, SynthwaveПродолжительность: 00:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F6343B130A06D868E9277E1648261A3AF1D60B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404179   (684278) от 23.08.2020
-
-VA - Discover Trance 3 (2020) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Holliday - San Antonio Bay (Original Mix) (6:39)
-02. Nexus 3 - State of Wonder (Original Mix) (8:41)
-03. Peetu S - Guide Me (Rush Edit) (6:45)
-04. Ian Betts - Under Below (Original Mix) (8:06)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F4C1BAFB1489D6A2374FFD7874B8BC9E4D8F84E
 ```
 
 

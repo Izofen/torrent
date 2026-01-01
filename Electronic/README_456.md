@@ -1,3 +1,138 @@
+###  Публикация: 1103732   (883328) от 13.02.2017
+
+Above & Beyond - Anjunabeats, Volume 13 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cubicolor – Dead End Thrills (Extended Mix) (04:25)
+02. Luttrell – Need You (04:07)
+03. Above & Beyond – Save Me (feat. Zoë Johnston) (Schwartz & Fanizza Remix) (05:09)
+04. Spencer Brown – Vernal (04:05)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 05:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D2622CACDE0E0C80C0E1E5E312684CC99045D0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151740   (883330) от 04.04.2020
+
+Phaeleh - Discography 33 Releases (2008-2020) Afterglo, Undertow [FLAC|Lossless|tracks+.cue, tracks] <Dubstep, Ambient, Future Garage, Bass, Drum & Bass, Downtempo>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Losing You (02:46)
+ 02. Isolate (01:29)
+ 03. Afterglow (feat. Soundmouse) (02:10)
+ 04. Never Knew (02:31)(   Читать дальше...   )Тип издания: CD, WebЖанр: Dubstep, Ambient, Future Garage, Bass, Drum & Bass, Downtempo •Продолжительность: 14:15:53 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D213536C8C4CD185DDE518CE764287401BCA3ED1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103663   (883538) от 13.02.2017
+
+Deep Dish - Junk Science (1998) [APE|Lossless|image + .cue] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro - Morning Wood
+02. The Future Of The Future (Stay Gold)
+03. Summer's Over
+04. Mohammed Is Jesus...(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE47D1C246381C1B2E73EF626A831219BA70C6F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949352   (883566) от 10.09.2021
+
+n5MD - Label-Pack 192 Releases (2001-2021) [FLAC|Lossless|tracks+.cue, tracks]<IDM, Ambient, Glitch, Post Rock, Downtempo, Experimental, Leftfield, Shoegaze>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In (03:39)
+ 02. Example 2 (03:17)
+ 03. Example 3 (05:53)
+ 04. Example 4 (03:34)(   Читать дальше...   )Жанр: IDM, Ambient, Post Rock, Downtempo, Experimental, Leftfield, Shoegaze, Glitch •Продолжительность: 173:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE82DCE8742A37163D25EF01F6A4E0AFD6348B38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103817   (883630) от 13.02.2017
+
+VA - Schickimicki (2017) [MP3|320 Kbps] <Tech House, Deep House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danny Sinatra – Glimpse of Light (Radio Edit) 03:19
+ 02. Matto – I Never 04:31
+ 03. Ibiza Bitches – Be Happy (Deep House Lounge Version) 05:56
+ 04. Mattei & Omich & Re-Tide – Soul Man 06:28(   Читать дальше...   )Жанр: Tech House, Deep House, ElectronicПродолжительность: 03:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E0F174B756834856C7F27F24285374BA23AD07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103686   (883633) от 13.02.2017
 
 VA - TranceMission 2017 (Mixed by Feel & Roman Messer) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
@@ -556,141 +691,6 @@ VA - Scorchin' Sessions Vol. 1 (Mixed by Super8 & Tab) (2021) DJ Mix [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57CA740DCA3AD89310D35B621A43AE17F95419AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995202   (884770) от 11.03.2016
-
-Msdos - Goes Funky Town (2016) [MP3|320 кб/с] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death Squad (Original Mix)
-02. Downtown Crime (Original Mix)
-03. Rush For Brass (Original Mix)
-04. Operation (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0ADBC33CFF2E2F438D71AB3233587FED62E48C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372421   (885365) от 03.04.2020
-
-VA - Psytrance 2020 Volume 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885365.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sam Jones - Table Dennis (Extended Mix) (7:09)
-2. Jirah; Magnus - Furthest Reach (Extended Mix) (8:27)
-3. Beatman; Ludmilla - Sivam (Extended Mix) (6:00)
-4. Vini Vici; Astrix - Adhana (7:41)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C7CBF89BCEF9795F9D626E50DD3D531EDDC27B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372181   (885369) от 03.04.2020
-
-The 5th Galaxy Orchestra - Utopia Lounge (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chillout, Lounge>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Place Between Us (6:31)
-02. Night Cityscapes (4:02)
-03. Exotic Flavours (4:30)
-04. Cuckoo Beach (4:30)(   Читать дальше...   )Жанр: Deep House, Chillout, LoungeПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C2A5C7FC8A009256358EB77736F2B284B62687A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372077   (885389) от 03.04.2020
-
-VA - Workout Music 2020 [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885389.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Mike Zaloxx - Atomic (Original Mix) (4:03)
-2.GAVRIO - Dont Go (Original Mix) (3:37)
-3.Apaztron - 420 (Original Mix) (3:54)
-4.Tyranix - Ravin Through The Night (Original Mix) (4:05)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D88586A13CB0027A980CB98FEB4CC25EC6D06345
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372483   (885437) от 03.04.2020
-
-VA - Trip to Paris Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Butler - Romantic Paris (Original Mix) 02:28
-02. Iffar - Des Pois (Original Mix) 04:48
-03. Massimo Farao Trio - Round Midnight (Piano Jazz Trio, 05:20
-04. Andrea Beneventano - Soul Eyes 04:36(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:24:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16FEA9AE624673A1B57010EB64B5B24955D057CA
 ```
 
 

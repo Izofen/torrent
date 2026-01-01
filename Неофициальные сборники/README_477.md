@@ -1,3 +1,30 @@
+###  Публикация: 1396017   (749840) от 13.07.2020
+
+VA - Acoustic Chill by Deezer (2020) [MP3|320 Kbps] <Rock, R&B, Soul & Funk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749840.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Billie Eilish - when the party's over (3:19)
+2. Highland Peak - Trampoline (Acoustic) (3:33)
+3. Red Hot Chili Peppers - Road Trippin' (3:24)
+4. Jorja Smith, Burna Boy - Be Honest (Acoustic) (3:11)(   Читать дальше...   )Жанр: Rock, R&B, Soul & FunkПродолжительность: 03:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:694C1B0D9CA4FCFAAA6CC4E650836E890DB2DDC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281680   (749918) от 09.02.2019
 
 VA - Country Night (2019) [MP3|320 Kbps] <Country, Folk Blues>
@@ -665,33 +692,6 @@ Frank Duval - Compilation (2022) [MP3|320 Kbps] <Rock, Pop Rock, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:878888100F41DFFC711D8F83EE1CEF67639636A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523471   (751429) от 11.01.2022
-
-Dj kolhoz - Compilation (2021) [MP3|320 Kbps] <Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Последние поцелуи
-02. Вечер в Париже
-03. Вспомни...!!!
-04. Ласковый май(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1134F9E50019D4257B6BCE2053C51A1BAB2EFCB6
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1011429   (797025) от 27.04.2016
+
+VA - Ibiza 2015. Soulful Deep-House. Vol.2 В клубах (2015) [MP3|253-320 кб/с] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AusLex - Nepal  05:57
+02. Asadinho - Jaslemere (V1)  08:30
+03. Erasmus & Krieger - Monday Mood (Soukie & Windish remix)  06:48
+04. Dan Rubell - Do That Funk (DJ Fopp remix)  07:32(   Читать дальше...   )Жанр: HouseПродолжительность: 05:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95612B619A937E95D9B2DF52862D552C1573DA8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011285   (797026) от 27.04.2016
 
 VA - Styles Ultimate Tech Vocals (2016) [MP3|251-320 кб/с] <Funky, Soulful, Deep House, Tropical, Bigroom>
@@ -668,33 +695,6 @@ VA - Beatport Trance: Electro Sound Pack #87 (2020) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:645ED1B912C43C97F2D458C5B8DAF24CB907ADB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385350   (797766) от 24.05.2020
-
-VA - Rap NNM 2020 (Русский Выпуск) [MP3|320 Kbps] <Rap>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797766.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 10AGE - Зацелую (3:25)
-2. BoValigura & Alexander Kurilov - На Блоке (2:28)
-3. Caramel - Baby (2:53)
-4. ChipaChip - Терапия (3:34)(   Читать дальше...   )Жанр: RapПродолжительность: 04:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:671396A1B2420AF033C1352A70CE41FAE312C913
 ```
 
 

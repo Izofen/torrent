@@ -1,3 +1,36 @@
+###  Публикация: 601619   (998020) от 11.01.2013
+
+VA - Зимние Хиты На Love Radio (2013) [MP3|256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998020.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Тина Кароль - Вьюга-Зима
+002 Far East Movement feat. MNEK - Christmas In Downtown LA
+003 Bass Ace feat. DJ Skazka - Начнем Сначала
+004 Avicii feat. Andreas Moe - Last Dance (Vocal Radio Mix)
+005 А-Студио - Хочу Влюбиться
+006 Mylene Farmer - A L'ombre
+007 Диверсанты и Маня - Замуж За Деда Мороза
+008 Aura Dione - In Love With The World
+009 Лера Кондра - Кошка
+010 Movetown feat. Ray Horton - Here Comes The Sun (Radio Edit)(   Читать дальше...   )Жанр: РорПродолжительность: 06:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE87AAB54BBA599215BEBAC73D7D0957ABABF37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601514   (998067) от 11.01.2013
 
 VA - Electro Life 21 (by ZiP) (2012) [MP3|320 kbps]<Electro House, Dubstep, House>
@@ -808,33 +841,6 @@ VA - Best Of Lounge Music (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D8A8EDF27ED48FD3850C070CF53818643072687
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352580   (1000733) от 15.01.2020
-
-VA - Громкие новинки Января Vol 1 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000733.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Alicia Keys - Underdog (3:28)
-2.Ava Max - On Somebody (3:04)
-3.Bombay Bicycle Club - I Can Hardly Speak (3:59)
-4.Chiko.T.D, Ersin Ersavas - Namaste (2:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC997140A36CC02A0D2A59645F13EFBF129B8E69
 ```
 
 

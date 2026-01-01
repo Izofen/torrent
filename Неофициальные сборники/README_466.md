@@ -1,3 +1,30 @@
+###  Публикация: 1529609   (732518) от 07.02.2022
+
+Blue Tribe - Walks With Indian (compilation) (2022) [MP3|320 Kbps] <Native American, New Age, World>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Sun (05:14)
+ 02. Earth Spirit (05:04)
+ 03. Sacred Spirits (04:45)
+ 04. Daybreak (04:21)(   Читать дальше...   )Жанр: Native American, New Age, WorldПродолжительность: 02:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5394B4D91D0D2E551C9B1DEDC36A3A1A986B6EC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529740   (732531) от 07.02.2022
 
 VA - Pop Drive 2022 [MP3|320 Kbps] <Pop>
@@ -666,33 +693,6 @@ VA - World Music (Unified Land) (2022) 2CD [MP3|320 Kbps] <World Music>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B68DB0484606F3181463C78F286BF7861B2FAD19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398853   (734557) от 28.07.2020
-
-VA - 100 Greatest Songs Of The 90s (2020) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734557.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nirvana - Smells Like Teen Spirit [5:02]
-002. U2 - One [4:35]
-003. Backstreet Boys - I Want It That Way [3:33]
-004. Whitney Houston - I Will Always Love You [4:32](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 07:07:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64E69A9A814C1B1D3C91D673A45F6CD24EC3C789
 ```
 
 

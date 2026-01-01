@@ -1,3 +1,162 @@
+###  Публикация: 1121888   (799638) от 03.04.2017
+
+VA - Italo Disco - The Lost Legends Vol. 4 (2017) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799638.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ventura – Another Time (05:11)
+2. Love Kills – I Want To Become (06:19)
+3. G & M – Don't Let You Down (06:15)
+4. Christal – Fire Lady (06:16)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F7F433C825C3069AFC346311CED41BD2127BA6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121736   (799644) от 03.04.2017
+
+Oliver's Planet - Oliver's Planet (1979) LP [MP3|320 Kbps] <Electronic, Electro, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Sun (3:41)
+02. Let Me Fly To The Stars (2:52)
+03. Gonna Get You (2:44)
+04. Thoughts Of Love (2:41)(   Читать дальше...   )Жанр: Electronic, Electro, DiscoПродолжительность: 00:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C2D5F0C403D5F859CB7EC76F133DA972B3D0F26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121952   (799650) от 03.04.2017
+
+C.J. & Co - Devil's Gun (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devil's Gun (7:08)
+02. We Got Our Own Thing (9:24)
+03. Free To Be Me (5:05)
+04. Get A Groove In Order To Move (5:11)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5AF574BD83E83E7525FC40802B37B4D2360E221
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121816   (799668) от 03.04.2017
+
+Apple Jam - Beatlemagic (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересные диско-вариации тем Битлов в стиле Arabesque, ABBA и т.п.01. She Loves You (3:22)
+02. Lady Madonna (3:36)
+03. Eleanor Rigby (3:50)
+04. A Hard Days Night (3:44)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Pop, DiscoПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D75F93A6B20492ACE62DE87753E7E577A08F845
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273655   (799834) от 02.01.2019
+
+VA - Top Hits Winter 2019 (2019) 3CD [MP3|320 Kbps] <Pop, Dance, Hip Hop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Dance, Hip HopПродолжительность: 03:27:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2B63E19CE03D5C78F2FBCB150EEF436C8EB592
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273667   (799839) от 02.01.2019
+
+Rene Riche And Her Cosmic Band - Love In Space (1978) LP [MP3|320 Kbps] <Electronic, Space Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galactic Prelude (5:02)
+02. Magic Ride (6:03)
+03. Light Of Love (6:54)
+04. Love In Space (8:16)(   Читать дальше...   )Жанр: Electronic, Space DiscoПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E40FCF63925199D04D5320B370ADC8D9B945CEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273546   (799840) от 02.01.2019
 
 Tom Hooker - No Time To Say Goodbye (2018) [MP3|320 Kbps] <Italo-Disco>
@@ -533,168 +692,6 @@ Mode-One - Melodies Of Freedom (2018) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7121013BAFE12E1158FD8BDD65E9E49CC15C5191
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273385   (800628) от 01.01.2019
-
-Mirko Hirsch - Undercover - Free Christmas Edition (2018) Compilation, Remastered [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rick De Moore - It's Love (Maxi Version) (6:19)
-02. Dario Silver - Lonely In The Name Of Love (5:06)
-03. Dario Silver - Electric Heartbeat (6:36)
-04. Dario Silver - Computer Girl (5:34)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708E02F3D82C4E1254C0B0159ABEA8B5159A8B61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273499   (800636) от 01.01.2019
-
-Lisa - Lisa (1983) LP [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sex Dance (5:55)
-02. Invisible Love (5:17)
-03. Rocket To Your Heart (5:48)
-04. Mandatory Love (5:42)(   Читать дальше...   )Жанр: Electronic, Hi NRG, DiscoПродолжительность: 00:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5596C88E4090C0204649C941CB64DA861210117
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273381   (800637) от 01.01.2019
-
-Italoconnection - Metropoli (2018) 2CD, Expanded Edition [MP3|320 Kbps] <Synth-pop, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horizon (5:02)
-02. Humanize (3:56)
-03. Sleeping (4:41)
-04. King Of The Night (3:40)(   Читать дальше...   )Жанр: Synth-pop, Italo-DiscoПродолжительность: 02:27:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE73CD673C41C70A281F4C8DAB1A317F3B6ED88A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384850   (800849) от 22.05.2020
-
-Ёлка - Past Perfect (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800849.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я не такая, как вы!
-2. Синтетический мир
-3. Изоляция
-4. Красная роза(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17788CDA0B3AD45DFAECE9EF9D1F709EBA805DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 729984   (800877) от 16.01.2018
-
-VA - Absolute Music 74 (2013) 2CD [FLAC|Lossless]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляю вашему вниманию последний сборник хитов от Eva Records (Absolute). И хотя они уже были на трекере в Мр3, полагаю, что любители качественного звука не пройдут мимо. Только не отправляйте этот диск в каталог ретро. Пусть не смущает вас цифра 74- это не год издания и не период выхода композиций - это всего лишь номер сборника самых последних "свеженьких" (   Читать дальше...   )01. Avicii - Hey Brother (3:12)
-02. Pitbull feat. Kesha - Timber (3:24)
-03. Jason Derulo feat. 2 Chainz - Talk Dirty (2:57)
-04. Drake feat. Majid Jordan - Hold on Were Going Home (3:46)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208264977BA598FCE2F1E525CD01894A1059B3E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199095   (801024) от 16.01.2018
-
-Poppy - Poppy.Computer (2017) [FLAC|Lossless|tracks] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Poppy - 3:06
-02. Let's Make A Video - 2:51
-03. Bleach Blonde Baby - 3:30
-04. My Microphone - 2:52(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C386F3A4137F25860D16C31F832B02CB86EC4858
 ```
 
 

@@ -430,6 +430,33 @@ magnet:?xt=urn:btih:E4E2B40C44E971504EB762C549400DCFE95E6436
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 679487   (647888) от 14.07.2013
+
+Faith No More - Greatest Hits (2001) [FLAC|Lossless]<Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_647888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Care a Lot (Original Version) [4:05]
+02. Introduce Yourself [1:35]
+03. From Out of Nowhere [3:23]
+04. Epic [4:54](   Читать дальше...   )Жанр: AlternativeПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141424   (648368) от 11.06.2017
 
 Rise Against - Wolves (2017) [FLAC|Lossless|tracks + .cue] <Punk Rock,  Melodic Hardcore>
@@ -667,33 +694,6 @@ Wild Nothing - Indigo (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Shoegaze
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:906C83CBC5F5B2DB093F6797B3CFB4604D39248C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540483   (652718) от 30.03.2022
-
-The Fallen State - Between Hope & Disillusion (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running from the Sun (03:33)
-02. Wolves (03:33)
-03. Knives (03:35)
-04. River (03:43)(   Читать дальше...   )Жанр: Alt. Rock, Modern RockПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BBB9D0DE2426C482E92E5148F62C513A189AE1E
 ```
 
 

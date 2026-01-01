@@ -1,3 +1,30 @@
+###  Публикация: 1128851   (724353) от 27.04.2017
+
+Bob Margolin - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Chicago Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Whole Life
+02. Blues Lover
+03. In North Carolina
+04. Sweet (Little) Black Angel(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 02:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01AE35ECD85CEBD28E0474CBFB1EE856E1C2218E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128981   (724366) от 27.04.2017
 
 VA - 100-ка популярных весенних хитов на Europa Plus выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
@@ -664,33 +691,6 @@ ZODIAC - Reload (2017) Remix [MP3|320 Kbps] <Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99C3155BF67BD19387A904A002C243585BAB0C58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285012   (724770) от 24.02.2019
-
-VA - Stelllar Atmosphere Of Trance (2019) [MP3|320 Kbps] <Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724770.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gagauz - Flashback (Original Mix)
-002. Eryon Stocker - Uplift Your Mind (Original Mix)
-003. Perpetuous Dreamer - The Sound Of Goodbye
-004. Thomas B. - Go Back Home(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 09:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B87701B3E6E977C77CC694792955D249D1DB0DC
 ```
 
 

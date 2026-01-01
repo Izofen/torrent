@@ -1,3 +1,138 @@
+###  Публикация: 1489760   (923962) от 17.08.2021
+
+Eric "The" Taylor - The Guidance Of Ancestry (2019) Touched Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Lives (05:57)
+02. At Great Distance, The Valley View (11:57)
+03. Threshold (07:21)
+04. Structural Sky (05:19)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:16:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E253EAD0CB3FE59221554B0ECDED556EBD21C3F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366285   (924121) от 11.03.2020
+
+VA - Machine Prototype 13 (2020) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ernesto Ortega - Deep Thought (Joe De Renzo Remix) [06:15]
+02. Big Bunny - Atom (Sergii Petrenko Remix) [06:40]
+03. DJ Ex - Soze Ngiphinde (feat. Imasterz) (Radio Edit) [03:25]
+04. Denys Victoriano - Piece Of Your Heart (Radio Edit) [03:18](   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E04E3678EFB2088A514EF32CBF62B03C1DFB53D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366484   (924122) от 11.03.2020
+
+Nils Hoffmann - Once in a Blue Moon (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic House & Techno, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1.16699016 x 10^-8 hertz (02:03)
+02. Once in a Blue Moon (03:25)
+03. Wherever You Are (feat. Margret) (03:28)
+04. Second Sun (03:44)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, DowntempoПродолжительность: 00:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2727127D7E8D7F5903E0307F8CAB5422B50961DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366428   (924124) от 11.03.2020
+
+Seiji Takahashi - снег (2020) str012 [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ensilumi (02:28)
+ 02. thaw (07:03)
+ 03. stellar construction (03:48)
+ 04. tracing the river (03:47)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ExperimentalПродолжительность: 00:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A31871D4F5A150E03AF6C5A5F5D054910E84FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366447   (924127) от 11.03.2020
+
+Rob Clouth - Zero Point (2020) Mesh [FLAC|Lossless|WEB-DL|tracks] <Experimental, IDM, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirac Sea Birth (03:14)
+ 02. A Moirae Opening (00:38)
+ 03. Casimir (08:35)
+ 04. Emerging From (07:08)(   Читать дальше...   )Жанр: Experimental, IDM, AmbientПродолжительность: 01:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7889319A2EED656D6BB11F27BD4F18987F7BD8C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366284   (924129) от 11.03.2020
 
 VA - Machine Prototype 12 (2019) [MP3|320 Kbps] <House, Deep House>
@@ -558,141 +693,6 @@ X-Dream - X-Dream Remixed (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADFDC4F01080F6A6247C45A973DDD25DBE1CA66F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366147   (925728) от 10.03.2020
-
-V.A. - Coffee Bar Lounge, Vol. 17 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miper - Move On (Original Mix)
-02. Weathertunes - Grand View (Original Mix)
-03. Lazy Hammock - Naked Being (Original Mix)
-04. Twentyeight - Stars (Original Version)(   Читать дальше...   )Жанр: Easy Listening, Lounge, DowntempoПродолжительность: 01:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7D6EB1E022F1A33101B330121B869ED6BFB92A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095172   (926080) от 20.01.2017
-
-Sterling Angel - Eden (2009) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Innocence 6:42
-02. Faith 6:38
-03. Sacrifice 6:14
-04. Back To You 6:11(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D799CC5238FE40BFFF42D12004EB9DB712B8887
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987127   (926091) от 17.02.2016
-
-VA - French Plates 2016 (2016) [MP3|320 кб/с] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SIGNS - Ketama
-02. The Plesk - Machination
-03. The Clamps - South Shaker
-04. Kantyze - Sworn(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:191C61F85D70BF50FF929AD000D2BE97C8F41211
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095158   (926124) от 20.01.2017
-
-Sterling Angel - Obsession (2008) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Betrayal
-02. Taken Over Me
-03. Oasis
-04. Loved By You(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4299BC59D40ED2F7A85840BA692B9F67C574FDAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987130   (926222) от 17.02.2016
-
-Mage - Everything Is Changing (2016) [MP3|320 кб/с] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Night (Original Mix)
-02. Where You Belong (Original Mix)
-03. Troubles in the Shade (Original Mix)
-04. I Feel This Sound (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BD114126E721DF3F221E1A3DEBA6887A5ADC4C1
 ```
 
 

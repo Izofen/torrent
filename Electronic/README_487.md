@@ -1,3 +1,150 @@
+###  Публикация: 1222943   (968696) от 08.02.2020
+
+Tell - Discography 6 Releases (2014-2018) [FLAC|Lossless|tracks] <Deep House, House, Downtempo, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Lost 200€ In A Club (04:23)
+ 02. Cool Bananas (Stringmix) (04:45)
+ 03. Starry Night (05:56)
+ 04. Camel Ride (07:21)Тип издания: Web, VinylЖанр: House/Deep HouseПродолжительность: 03:00:43 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4196E94AF6C57214E1C7A3432234BD6D4E6F6BCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976421   (968760) от 18.01.2016
+
+VA - Planet Dream Vol. 1 (1998) 2CD [FLAC|Lossless|tracks + .cue] <Trance, Euro House, Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scooter - No Fate (R.O.O.S. Mix 1) (7:31)
+02. Three 'N One Presents Johnny Shaker - Pearl River (3:44)
+03. Moby - James Bond Theme (3:10)
+04. Dance 2 Trance - Power of American Natives 98 (DJ Quicksilver Radio Cut) (3:29)(   Читать дальше...   )Жанр: Trance, Euro House, Progressive TranceПродолжительность: 01:17:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB85632D628AD834E982566706C188C0C1A63759
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976559   (968806) от 18.01.2016
+
+Lenzman - Golden Age (2016) EP [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Got My Mind Made Up (04:54)
+02. Golden Age (feat Steo) (05:14)
+03. Never Enough (feat. Forren) (05:15)
+04. Homie Don’t Play That (04:51)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85D1C70554DA988BC08C0257F50C6B97049FC1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617026   (968849) от 15.02.2013
+
+Chill Out Allstars - Sunset Lounge Classics (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something
+ 02. The Situation
+ 03. Flying
+ 04. One Minute
+ 05. In the Mood
+ 06. Island
+ 07. Easy Living
+ 08. Magic Moment
+ 09. Sun Spirit
+ 10. MidnightЖанр: Downtempo, Lounge, ChillOutПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE102189E900FB4F309B542CAB86021F027EDDAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616778   (968850) от 15.02.2013
+
+VA - The Cult of Lounge (2013) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manyus Joan Eta - Silvia (06:25)
+02. Noochie vs. Bridget - Sunshine (04:41)
+03. ITB Sea - Bacon Four (04:50)
+04. Agio-Lax - Suspirium (03:57)
+05. Didascalis - Nightbreeze (05:26)
+06. Supaquartet - Five Weeks (03:40)
+07. Elaphe Guttata - Uncertain Future (04:10)
+08. Sunday Job - Ms Frency Is Late (06:30)
+09. DJ Stella - Indonesian (04:33)
+10. Higgen - Lark (04:37)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A716991A8402E33BFC881908FA82F19D9282F0CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 817967   (969166) от 17.01.2016
 
 Traxtorm records - Hardcore Italia podcast 1-106 (2011-2016) (обновляемая)[MP3|128 кб/с]<Hardcore>
@@ -573,153 +720,6 @@ Bob Sinclar, Dimitri From Paris - Knights Of The Playboy Mansion (2011) 2CD, Mix
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1D18832EADAB35B830E38A7D198C4A75A5FA2A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616893   (973260) от 11.02.2013
-
-VA - Defqon.1 (2012) [FLAC|Lossless]<Hardstyle, Hardcore, Hardtrance>
-
->>Electronic
->>Hardstyle, Jumpstyle, Hardcore (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hardstyle, Hardcore, HardtranceПродолжительность: 01:10:39
-
-01. Lucien Foort - Karma Sutra (1:54)
-02. Dirtcaps & The Million Plan - Beautiful (3:28)
-03. Lee Mac - Insurgency (1:56)
-04. Stana - Risks & Trix (1:57)
-05. Organ Donors - Kickin' On Wax (4:35)
-06. Brian Sahnaji & Drumcell - Structure (1:27)
-07. Sasha Carassi - Hanger (Original Mix) (1:27)
-08. Dr. Rude - Slash (4:03)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616856   (974055) от 11.02.2013
-
-VA - Valentine's Day Collection: King Street Sounds 20 Years Essentials (2013) [MP3|320 кб/с]<Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heather Johnson - Washes Over Me (Rasmus Faber Epic Vocal Mix) (Rasmus Faber Epic Vocal Mix)
-02. DJ Roland Clark, Urban Soul - Before You Reach For Love (Joey Negro Club Mix)
-03. Blaze - Most Precious Love (DF's Future 3000 Mix)
-04. Chris Perez, Louie Gorbea - R U Feeling Me (Alex Kenji Main - feat. Miss Patty)
-05. Barbara Tucker, Tuccillo - One Desire (Abel Ramos Ibiza With Love Mix)
-06. Boyd Jarvis - Don't Deny Love (Mondo Grosso Edit - feat. Lisa Rudolph)
-07. Heather Johnson - Happiness (Ogawa & Unic Remix)
-08. Kimara Lovelace - Only You (ST's Phat & Insane Vox)
-09. Studio Apartment - I'm In Love (Rasmus Faber Epic Remix - feat. Ron Carroll)
-10. Dj Pierre - Good Luv (Wild Pitch Vocal - feat. Queen Mary)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A308AE29A879BF9A5A46B1B4C31336626432CF9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356508   (974329) от 03.02.2020
-
-Tangerine Dream - Recurring Dreams (2020) Studio/Compilation, 2019 [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sequent 'C' 2019 (02:27)
-02. Monolight (Yellow Part) 2019 (07:40)
-03. Tangram Set 1 2019 (Excerpt) (05:44)
-04. Horizon 2019 (Pt. 1) (06:46)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1349BB2A7B20B88A718611F9B49DC551ACAA2AD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357515   (974340) от 03.02.2020
-
-New Arcades - Returning Home (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrosynth, Dreamwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Movies (Original Mix) (3:22)
-02. Into The Unknown (Original Mix) (3:53)
-03. If Only You Could See (Original Mix) (4:17)
-04. Further (Original Mix) (3:59)(   Читать дальше...   )Жанр: Synthwave, Retrosynth, Dreamwave, Retrowave, OutrunПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F39980525A587DD1F74BCA96CA9957B04E01D3F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357464   (974346) от 03.02.2020
-
-Schwarz & Funk - The Deeparture Sessions (2015) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge, Nu Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Point of No Return (6:25)
- 02. Communication (4:36)
- 03. Bleach of the Night (5:42)
- 04. Paresse (5:46)(   Читать дальше...   )Жанр: Electronic, Chillout, Lounge, Nu JazzПродолжительность: 01:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B513C1E3567DD8A6DAEFAB17220C9EEBB4D32B
 ```
 
 

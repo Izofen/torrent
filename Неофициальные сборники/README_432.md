@@ -1,3 +1,30 @@
+###  Публикация: 1221954   (689433) от 27.04.2018
+
+VA - The Light And Warm (2018) [MP3|320 Kbps] <New Age, Ambient, Relaxation,>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слушание мантр или просто музыки релакс направления способно ввести сознание в состояние медитации. Подобная практика обладает очищающим воздействием, которое обязательно со временем приносит результаты – снятие стресса и напряжений, улучшение работоспособности и памяти, увеличение жизненных сил, сияние души любовью и радостью01. Midori - The Light and Warmth
+02. Patrick Bernard - Sita Ram Hanuman Mantra
+03. Wychazel - Akasha
+04. Akoviani - Transgressus III(   Читать дальше...   )Жанр: New Age, Ambient, Relaxation,Продолжительность: 04:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5AF612D8180E5B347A60480B864A3FDFB72C9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134370   (689455) от 15.05.2017
 
 VA - Hed Kandi Beach Body (2016) [MP3|320 Kbps] <House, Deep House, Disco>
@@ -677,33 +704,6 @@ VA - Record Super Chart #486 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46566370739C6775DF79D94C38AB18E6EB059955
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133917   (691407) от 14.05.2017
-
-VA - Hotline Reggaeton: Master DJ Mix (2017) [MP3|320 Kbps] <Reggaeton, Latino Hip>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691407.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Unic - Rikiti (Feat. El Chacal, El Micha, Los Desiguales, Chocolate, Insurrecto) (Remix 2016) 8:06
-002. Jacob Forever - Hasta Que Se Seque El Malecon 3:07
-003. Alex Sensation - Bailame (Feat. Yandel & Shaggy) 3:56
-004. El Chacal - Song Love (Feat. Divan)Жанр: Reggaeton, Latino HipПродолжительность: 05:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662F991D9E47B67353C7C5EB60B3CD34A1A055D0
 ```
 
 

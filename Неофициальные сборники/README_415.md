@@ -1,3 +1,27 @@
+###  Публикация: 339022   (668851) от 19.05.2011
+
+VA - Едем На Моря!!! (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C9F57635B740305142E891C4A952099B7A3F9AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 338876   (668859) от 19.05.2011
 
 VA - Brazilian Hits (1959) [MP3|320 kbps]<Instrumental,Brazilian,Oldies>
@@ -668,33 +692,6 @@ VA - Русская Дискотека ХХ Века - 11 (2010) [MP3|320 Kbps]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F0DDBA12392B4CBE494BEA0551F9CAA1265DCFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030619   (670250) от 02.07.2016
-
-VA - Planet Pop: Summer Version 04 (2016) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670250.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adele - Send My Love (To Your New Lover)
-002. Lucius - What We Have (To Change)
-003. Gwen Stefani - Where Would I Be?
-004. Bahari - California(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92550BF5B450DCF21362CBD2791C4A90D8F3768
 ```
 
 

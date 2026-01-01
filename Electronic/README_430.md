@@ -1,3 +1,138 @@
+###  Публикация: 1008317   (815508) от 18.04.2016
+
+David Guetta Feat. Nicki Minaj, Bebe Rexha & Afrojack - Hey Mama (2015) Remixes EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Mama (Afrojack Remix) (3:18)
+02. Hey Mama (Glowinthedark Remix) (4:16)
+03. Hey Mama (Noodles Remix) (5:04)
+04. Hey Mama (Modern Machines Remix) (4:13)(   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 00:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50BC93667174E3AAD852C808A235C17CED199AB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117595   (815624) от 24.03.2017
+
+VA - Rituals Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ignat Shamko - Ice City  5:57
+02.  Redlounge Orchestra - Rigby Reardon  4:13
+03.  Foundland - Strange Event (Nothern Sky)  5:24
+04.  Baque In Beat - Working On  6:00(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2BE6E10A5522412033A5F8300BD5183CD368D81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117799   (815628) от 24.03.2017
+
+VA - Most Played Tracks (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  John Slater - Boogie Down (Original Mix)  4:59
+02.  Anbargo - Anbargo (Original Mix)  5:26
+03.  Lykov - I Have A Choice (Original Mix)  4:40
+04.  Plastik Night - Bono (Original Mix)  4:15(   Читать дальше...   )Жанр: HouseПродолжительность: 01:24:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09BC9F1357A29965BF1757293069666C1DF79C42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008182   (815826) от 18.04.2016
+
+The Disco Biscuits - Dominican Holidaze, Punta Ca (2015) Live [FLAC|Lossless|WEB-DL|tracks] <Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:44)
+01. I Remember When (7:55)
+02. Resurrection (12:16)
+03. Crickets (16:31)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:27:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8298CE55397ED3BC1671DD23E2D81954DB34248A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008413   (815827) от 18.04.2016
+
+VA - Breaks 4 Humanity Vol.2 (2016) [MP3|320 кб/с] <Drum & Bass, Breaks>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abstract Illusion - Refuge  (05:26)
+02. BBeta - LSB (04:42)
+03. Blue Digital Orchestra - People Come Together (03:54)
+04. CIMA - Wild One (03:56)(   Читать дальше...   )Жанр: Drum & Bass, BreaksПродолжительность: 01:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF9BDE6539E238595E6E06B3B892FF4968CDFD93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504041   (815968) от 21.10.2021
 
 VA - The Essential Downtempo: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -557,141 +692,6 @@ VA - Blow It Up (2016) [MP3|320 кб/с] <House, Progressive House, Electro Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52B3FF359BB8AD9DB806D7BEC3C616BD64A2DF13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196983   (818509) от 05.01.2018
-
-VA - New Year Party 2017 (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic – Shake It Shake It (radio edit) 03:08
-02. Clubhunter – Tell Me (Turbotronic radio edit) 02:58
-03. Bsharry – Seven Nation Army (Melbourne mix) 06:07
-04. Daniel Rosty – Time 2 Bounce 03:56(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D227F3B6230314FCF1C32BFF4EA87F4BFDE24FBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117426   (818794) от 22.03.2017
-
-VA - DJ Zen - Serial Chillers (2017) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Downtempo, Psychill, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asura - Eternal Sunshine (Ambient Version) (06:54)
- 02. Kliment - Jaia Flower (07:38)
- 03. Suduaya - Nomad (07:36)
- 04. E-Mantra - Daydream (06:27)(   Читать дальше...   )Жанр: Psybient, Ambient, Downtempo, Psychill, Progressive TranceПродолжительность: 07:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7113FFFFCD0DEDB20B34A76B694A096414ABE248
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382629   (818977) от 11.05.2020
-
-E-Mantra - Night Guardian (2020) Melusine Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, Psy-Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shepherd (06:48)
-02. The Sky Beings (05:28)
-03. Spirits Of The Wind (05:59)
-04. Night Guardian (06:15)Жанр: Psybient, Downtempo, Psy-TranceПродолжительность: 00:24:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AF4E8A4D11C0179D1F50C4D4AC0F6C57C0B5DDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196895   (819069) от 05.01.2018
-
-VA - Markus Schulz - Global DJ Broadcast - New Year’s Rehab (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aiiso - Autumn Leaves
-02. Jam & Spoon - Odyssey to Anyoona (Jamie Stevens & Uone Remix)
-03. Jeremy Olander - Araoz
-04. Gabriel & Dresden featuring Sub Teal - White Walls(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F2B96226014A37275D85D41543CE73016664ECD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117408   (819109) от 22.03.2017
-
-VA - Mega Dance Party 2017 (2016) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - Bulta (radio edit)
-02. DJ Observer & Flip Capella - Reason (feat Mariana Bell - Flip Capella Deep mix radio edit/Color Baaash Anthem 2016)
-03. Condor - Feel U (feat Adina - radio edit)
-04. DJ E-Maxx - La Bomba (radio edit)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87BEA87AA8EF6F0C61698FEF567C4DAADD9FC0EA
 ```
 
 

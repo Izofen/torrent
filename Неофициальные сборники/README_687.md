@@ -1,3 +1,30 @@
+###  Публикация: 1606484   (1044373) от 22.01.2023
+
+VA - Classic Rock (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Petty And The Heartbreakers - American Girl (3:34)
+02. The Doors - Roadhouse Blues (4:03)
+03. Whitesnake - Here I Go Again 87 (4:35)
+04. Foreigner - Cold as Ice (3:20)(   Читать дальше...   )Жанр: RockПродолжительность: 04:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E3F83387861325EFE670F9D215465164A36413
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606486   (1044382) от 22.01.2023
 
 VA - ЕвроХит Топ 40 Europa Plus 20.01.2023 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Day In Hits 2023 Genres Navigator (2023) [MP3|320 Kbps] <Electro House, Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F7BE2E1C837B022E73FC93AB59943987650D5E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603433   (1045743) от 09.01.2023
-
-VA - New Years Eve Ultimate House Party (2022) [MP3|320 Kbps] <Club, Progressive, Afro House, Groove>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliver Gunning - Uncertain Sky (Mimo Remix)
-02. Saintrop - Back in My Life
-03. D Seven - Pianodance (South Blast Showtime Mix)
-04. Q-Busta - This Feels Like(   Читать дальше...   )Жанр: Club, Progressive, Afro House, GrooveПродолжительность: 01:48:06 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A976EAAC31803F8C3D61473D653842BFA04B399
 ```
 
 

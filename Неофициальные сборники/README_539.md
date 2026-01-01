@@ -1,3 +1,30 @@
+###  Публикация: 1504592   (810335) от 24.10.2021
+
+VA - Music News vol.143 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810335.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lady Gaga - Bad Romance (Vadim Adamov & Hardphol Radio Edit) (03:19)
+ 002. ABBA - Just A Notion (03:31)
+ 003. Alesso & Marshmello feat. James Bay - Chasing Stars (Stripped) (02:45)
+ 004. All1 - Мелодия (02:25)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 06:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF11FEC876B2B7587695B3863F086C7F13F814D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504684   (810344) от 24.10.2021
 
 VA - Top 100 Hardstyle Dance Energy (2021) [MP3|320 Kbps] <Hard Dance, Hardstyle>
@@ -668,33 +695,6 @@ VA - Nu Metal Heaven (2020) [MP3|320 Kbps] <Metal, Nu-Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CC4996967B01F0AAF89AF11AB5C367B43EF24EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383315   (811726) от 15.05.2020
-
-VA - Today's Best Ballads (2020) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811726.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Taylor Swift - Lover (Remix) (3:41)
-2.Ed Sheeran - Best Part of Me (feat. YEBBA) (4:03)
-3.Dermot Kennedy - All My Friends (4:07)
-4.Lilla Vargen - Why Wait (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 02:56:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C98481CAEE7EA998D68C243E700B7D7F81E0414
 ```
 
 

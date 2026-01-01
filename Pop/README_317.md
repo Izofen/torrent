@@ -1,3 +1,165 @@
+###  Публикация: 869177   (892594) от 14.02.2015
+
+VA - Radio 538: Hitzone 72 (2015) 2CD[FLAC|Lossless]<Pop, Dance, Top40>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мне приходилось уже выкладывать из этой серии диск из своей коллекции (помнится купленный по случаю за границей). И диск заезжен у меня до дыр. Именно поэтому слежу за появлением новых релизов из этой серии. И Вам рекомендую.CD1:
+01. Omi - Cheerleader (Felix Jaehn Remix)  (3:02)
+02. David Guetta ft. Sam Martin - Dangerous  (3:25)
+03. Anouk & Douwe Bob - Hold Me  (3:51)(   Читать дальше...   )Жанр: Pop, Dance, Top40Продолжительность: 02:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FCB6525501A7F04A7F2A3E5ABF38B635085974
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101794   (892935) от 08.02.2017
+
+Karizma Duo - Unplugged (2017) [MP3|320 Kbps] <Pop, Acoustic, Covers>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasing Cars
+02. Torn
+03. Against All Odds
+04. Cry Me a River(   Читать дальше...   )Жанр: Pop, Acoustic, CoversПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2F55AB0C923BF9271C743BFA1D9DCCAA1526F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370671   (893513) от 29.03.2020
+
+Waxahatchee - Saint Cloud (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxbow (02:53)
+02. Can’t Do Much (03:44)
+03. Fire (03:37)
+04. Lilacs (03:15)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33E9A020C13D9E040C9A66405F23B217A47C56C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370825   (893517) от 29.03.2020
+
+Балаган Лимитед - Что я наделала (2002) [MP3|320 Kbps] <Pop, Folk, Country>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Что я наделала (4:23)
+02. Казачок (3:29)
+03. Частушки (3:59)
+04. Три часа (3:22)(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DFB8A87F076635AE1ABEF96BF751489D5861BEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370819   (893565) от 29.03.2020
+
+Балаган Лимитед - Не губи любовь (2000) [MP3|320 Kbps] <Pop, Folk, Country>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тапочки (3:50)
+02. Ты мне - я тебе (3:57)
+03. Не Губи Любовь (3:42)
+04. Маменька (4:17)(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B5AE550AA40919020E0CCEC2F5FAD84776D3B95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370749   (893571) от 29.03.2020
+
+Пропаганда - Кто-то играет в любовь (2003) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я сама (4:20)
+02. Кто-то играет в любовь (3:23)
+03. Дождь (3:41)
+04. Кто? Кто ? (Youbon remix) (3:55)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A806343B0664DCE264E1B25A9A1A59F0EBF683C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993927   (893572) от 06.03.2016
 
 Стрелки - Прости, прощай, не вспоминай... (2016) [MP3|320 кб/с] <Pop>
@@ -526,168 +688,6 @@ CD2:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D00D417CA0B0CF5AE3CA8182FD1E5814F81CD6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101239   (896150) от 06.02.2017
-
-VA - Italian Style: Everlasting Italo Dance Compilation Vol.6 (2017) [MP3|320 Kbps] <Italo Disco, Euro-Disco, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ken Martina - Another Melody (BCR Extended NRG Mix)  6:49
-02.  Ranger - Time (BCR Extended Smack Mix)  6:46
-03.  Modern Boots - Tears Of A Broken Heart (BCR Extended Airliner Version)  7:00
-04.  Dean Corporation - App Me (BCR Extended Fasten Mix)  5:24(   Читать дальше...   )Жанр: Italo Disco, Euro-Disco, Hi-NRGПродолжительность: 02:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87A9BF6B6D579198E6821B39DA3758825CA4AA0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370586   (896684) от 27.03.2020
-
-Леонид Агутин - TOP 30 (2015) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896684.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мир зелёного цвета
-2. На сиреневой луне
-3. Всё в твоих руках
-4. Аэропорты(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F47D0915190C978ADD5BC3E930FCE6F44E371E4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370441   (896698) от 27.03.2020
-
-Леонид Агутин - La Vida Cosmopolita (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_896698.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Funky Cha
-2. Quédate
-3. Y Quién Eres Tú
-4. Just a Rainy Day (feat. Al Di Meola)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:699F17460E1B894196CCCA3F1A093964DCD0910F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370442   (896842) от 27.03.2020
-
-Митя Фомин - Апрель (2020) EP [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896842.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ПятницаВечер
-2. Преступно
-3. Одиночество в толпе
-4. Надышаться тобой(   Читать дальше...   )Жанр: PopПродолжительность: 00:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B3A72203411BFD3DAF108AF0646808D491395B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370486   (896915) от 27.03.2020
-
-Little Dragon - New Me, Same Us (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold On (03:30)
-02. Rush (03:29)
-03. Another Lover (04:26)
-04. Kids (04:31)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D66D75B8CF5369C8DEABA8B2646D258F6EBE89E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370418   (897031) от 27.03.2020
-
-Branjo Sound - I Wanna Dance Bump (1978) LP [MP3|320 Kbps] <Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cock A Doodle Do (5:30)
-02. Thank You Baby (5:02)
-03. That's Good (4:21)
-04. I Wanna Dance Bump (4:08)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73C91F04E006F8DCCA52A7A3CF6993860362B6A
 ```
 
 

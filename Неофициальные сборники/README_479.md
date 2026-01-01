@@ -1,3 +1,30 @@
+###  Публикация: 1281338   (753243) от 07.02.2019
+
+Kiss - Kiss Live (2019) [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Rock And Roll All Nite
+02 – Detroit Rock City
+03 – King Of The Night Time World
+04 – Deuce(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29AD2ACCFF6F3CF95B0C5646DF932D30FF93F6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281219   (753372) от 07.02.2019
 
 VA - RnB Soul Mix: Hit Channel (2019) [MP3|320 Kbps] <R&B, Soul>
@@ -665,33 +692,6 @@ VA - Lost In Paradise: Sunny Reggae (2020) [MP3|320 Kbps] <Reggae, Ska, Riddim, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81119D9CEC4CA9E0DEDD566FB1C44E0AAE6FDDA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018543   (755521) от 20.05.2016
-
-VA - Guitar Collection 4 (2016) [MP3|320 кб/с] <Instrumental, Acoustic, Blues-Rock >
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755521.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Daryl Stuermer - Heavy Heart    05:17
-002. Boyce Avenue - Game of Thrones (Main Theme)    02:26
-003. Dizzy Mizz Lizzy - Mindgasm    03:54
-004. Nicolas de Angelis - Moliendo Cafй    02:48(   Читать дальше...   )Жанр: Instrumental, Acoustic, Blues-RockПродолжительность: 07:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87F4C3B2B22C9B3E59D80FAA12F2312E14FA4C00
 ```
 
 

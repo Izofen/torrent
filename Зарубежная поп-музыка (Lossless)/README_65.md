@@ -1,3 +1,57 @@
+###  Публикация: 1025062   (711961) от 11.06.2016
+
+Linda Jo Rizzo - Fly Me High (The Album) (2015) [FLAC|Lossless|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly Me High    07:20
+02. There's A Fire    05:37
+03. Only One Night    07:34
+04. Heartflash    05:58(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F51BA05FA39EAD68408DDC0CED4B23B1A0B64E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025059   (712112) от 11.06.2016
+
+Laid Back - Unfinished Symphonies (1999) [FLAC|Lossless|image + .cue] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Key To Life (3:27)
+02. Walking (4:12)
+03. Pop The Question (3:56)
+04. Cool Down Max (4:03)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1469F9820E138E31D4C366B6A6CB45F23C045C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025156   (712133) от 11.06.2016
 
 VA - Billboard 1986 - 1989 vol.5 (unknown year) Unofficial Release [APE|Lossless|image + .cue] <Pop, Pop Rock>
@@ -643,60 +697,6 @@ VA - BRAVO Hits 97 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F3B1F1E0B4C9C23DB1CB3A498CB799790E225B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129685   (720321) от 29.04.2017
-
-VA - 100 Hits Sunday Morning Songs (2017) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Dance, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну какой релиз публиковать субботним предпраздничным утром - конечно 100 Hits: Sunday Morning Songs. Этим сборником британский лейбл Demon Music Group продолжает серию боксетов для самых различных слушателей (ссылку на серию NNM-Club вы найдете в конце релиза). Сдесь собраны спокойные, светлые и умиротворяющие композиции со всего света. 100 мягких мелодий собраны (   Читать дальше...   )CD1:
-01. Kris Kristofferson - Sunday Morning Comin' Down  (4:33)
-02. Johny Cash - It Ain't Me Babe  (3:04)
-03. Lulu - The Man Who Sold The World  (3:51)(   Читать дальше...   )Релиз состоялся: 17 февраля 2017Жанр: Dance, Pop, RockПродолжительность: 06:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B187667912098D3F6F8FAD72AF6995110B2BC6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129834   (720338) от 29.04.2017
-
-VA - 538 Hitzone 81 (2017) 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Electronic, Dance, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boef - Habiba (3:35)
-02. Anne-Marie - Ciao Adios (3:19)
-03. Kensington - Bridges (3:38)
-04. Burak Yeter feat. Danelle Sandoval - Tuesday (3:59)(   Читать дальше...   )Жанр: Top 40, Pop, Rock, Indie, Electronic, R&B, Soul, Ballad, Hip Hop, Electronic, Dance, Dancepop, Trance, Electro, Pop Rock, Pop RapПродолжительность: 02:26:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C504A049E721CFEAD4ACCA3A2B7A7C1673F9B767
 ```
 
 

@@ -1,3 +1,135 @@
+###  Публикация: 1488663   (1001743) от 12.08.2021
+
+V.A. - Bossanova Lounge (2021) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ituana - Tape Loop
+02. Amazonics, Apollinare Rossi, Julie Benson - Portuguese Love
+03. Sarah Menescal - Cryin'
+04. Ituana - Overprotected(   Читать дальше...   )Жанр: Bossa Nova, LoungeПродолжительность: 01:25:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D098D70F78F304F5FE09431132CA82E6C4D744
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141809   (1001879) от 11.01.2020
+
+Joel Tammik (Rajaleidja) - Collection 15 Releases (2004-2019) [FLAC|Lossless|tracks+.cue, tracks] <Glitch, Dub, Ambient, Abstract, Minimal, Dub Techno, IDM, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aja Algus (04:21)
+ 02. Tuuletekkeline (08:34)
+ 03. Linnutee (06:55)
+ 04. Aeg Maha (05:57)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Glitch, Dub, Ambient, Abstract, Minimal, Dub Techno, IDM, Experimental •Продолжительность: 13:27:00 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F5727AA4F1A155E26BF6060227293A1FBB8C7FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351820   (1001885) от 11.01.2020
+
+VA - Dream Dance Vol.88 (2020) [MP3|320 Kbps] <Trance, Progressive House, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001885.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Dream Dance Alliance - Save Me From Myself (Edit) 3:06
+02. Armin van Buuren feat. Ne-Yo - Unlove You (Club Mix) 2:43
+03. ATB feat. KARRA - The Only One (Short Edit) 3:55(   Читать дальше...   )Жанр: Trance, Progressive House, Vocal TranceПродолжительность: 03:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1C093434B1C295BCC84AECB62E88B7A86133993
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351573   (1001952) от 11.01.2020
+
+Lane 8 - Brightest Lights (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Deep House, ProgressiveПродолжительность: 01:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51685F631BB225CDB5E9A6A8C554F9D21327A902
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351800   (1001956) от 11.01.2020
+
+Andromeda - The Remixes (2005) Yellow Sunshine Explosion [FLAC|Lossless|tracks+.cue] <Psy-Trance, Progressive Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ManMadeMan - 1920 (Andromeda Remix) (07:02)
+ 02. Alternate Vision - Different Perspective (Andromeda Remix) (07:47)
+ 03. Artax - Greetings Of Psychaosis (Andromeda Remix) (08:45)
+ 04. Blue Vortex - Deep (Andromeda Remix) (08:49)(   Читать дальше...   )Жанр: Psy-Trance, Progressive TranceПродолжительность: 01:13:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A598300DE87C2B96DCCDDDB6653225769A43EE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316795   (1001981) от 11.08.2021
 
 Anders Ilar - Discography 29 Releases (2002-2021) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, IDM, Ambient, Dub Techno, Acid, Glitch>
@@ -555,141 +687,6 @@ Sole Massif & Jacob Newman - Santraukos (2019) [FLAC|Lossless|WEB-DL|tracks] <Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:592DC8D2B904D750CF8A835D918FFAC4E5D64A58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350827   (1003010) от 07.01.2020
-
-Above & Beyond - Live @ The New York Expo Center, United States 2019-12-31 [MP3|~245 Kbps (V0)] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond - Hideaway
-02. Above & Beyond ft. Zoe Johnston - Always (Above & Beyond Club Mix)
-03. Mat Zo ft. GQ - The Next Chapter
-04. Fatum & Genix & Jaytech & Judah - All In(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95B1B2869CEB4245585B00EC6B90B56CA7F56D06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350595   (1003012) от 07.01.2020
-
-Dinka - A Date With Dinka (2014) 2CD, DJ Mix, Compilation [FLAC|Lossless|tracks + .cue] <Progressive House, EDM>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roul and Doors – Assiduity
-02. Marcus Schossow, Mike Hawkins & Pablo Oliveros – Ulysses
-03. Deniz Koyu – Ruby
-04. Roul and Doors – Melody In Harmony(   Читать дальше...   )Жанр: Progressive House, EDM |Продолжительность: 01:10:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E14DED0F1005FB2C3225D2A58711DE2874B764
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350634   (1003017) от 07.01.2020
-
-Igor Pumphonia - Elixir Of The Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alone Tonight (Original Mix) (5:11)
-02. Aqua Pure (Original Mix) (5:54)
-03. Elixir Of The Soul (Original Mix) (9:34)
-04. Emotion (Original Mix) (5:22)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69DD10CC696F5F43168C27951FE90F1744624C86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350774   (1003023) от 07.01.2020
-
-DJ Eric Foster - Night Light (2004) [FLAC|Lossless|image + .cue] <House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Milky Way
-03. Plastmassa
-04. Speed(   Читать дальше...   )Жанр: House, TranceПродолжительность: 01:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A78995F6CCE3FC95689CCA20197967B7DBCE9779
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483801   (1003052) от 07.08.2021
-
-Overmono - fabric presents Overmono | Unmixed + DJ Mix (2021) Fabric Worldwide [FLAC|Lossless|WEB-DL|tracks] <House, UK Garage, Breakbeat, Techno, Drum & Bass>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overmono - So U Kno (05:44)
- 02. Artwork - The Soul (Mixed) (01:48)
- 03. Foremost Poets - MoonRaker (02:28)
- 04. Milanese - Billy Hologram (03:52)(   Читать дальше...   )Жанр: House, UK Garage, Breakbeat, Techno, Drum & BassПродолжительность: 03:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4437692807FBDF6217A012493AF6E467D7E861A2
 ```
 
 

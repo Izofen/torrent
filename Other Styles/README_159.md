@@ -1,3 +1,193 @@
+###  Публикация: 1371654   (886921) от 02.04.2020
+
+Art of Empathy - End Of I (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Neofolk, Darkwave, Atmospheric>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Souls Shine Brightest (06:48)
+02. End Of I (06:29)
+03. Here Comes Everybody (06:02)
+04. Their Playground (08:04)(   Читать дальше...   )Жанр: Neofolk, Darkwave, AtmosphericПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F1A6BA29762C2832F51205E673222132F634CB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 13292   (887271) от 17.02.2015
+
+"Солярис, Зеркало, Сталкер" 1990-1999
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Сталкер - Тема
+Сталкер - Поезд
+Солярис - Болезнь
+Солярис - Станция
+Солярис - Слушая Баха (Земля)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494655   (887713) от 08.09.2021
+
+Guy Sweens - Rise of the Inca (2021) [MP3|320 Kbps] <New age, Ethnic, Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viracocha
+02. Inti Raymi
+03. Cusco
+04. The Power of Stones(   Читать дальше...   )Жанр: New age, Ethnic, Native AmericanПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A910CE733E6CAE39981F88C047E53E63E8559B71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994672   (887788) от 09.03.2016
+
+Omnia - Naked Harp (2015) [MP3|320 кб/с] <Folk, World, Celtic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Morning in May  03:08
+02. The Flutterby Set  04:42
+03. Eleanor Plunkett  02:43
+04. The Fairy Queen  02:50(   Читать дальше...   )Жанр: Folk, World, CelticПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA85238EE5D1596FDDAA9E2E46DEC7C3AD229475
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 145860   (887976) от 01.04.2020
+
+Enigma - Greatest Hits (2008) 2CD Digipack Edition [FLAC|Lossless|image + .cue] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out From The Deep (Short Radio Edit) (3:27)
+02. Seven Lives (4:25)
+03. Goodbye Milky Way (5:53)
+04. Following The Sun (Radio Edit) (4:16)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 02:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B012AB3BBDA7ABBA29D8A46D12F779F76BFD3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 224083   (887981) от 01.04.2020
+
+Bliss - 8 Альбомов (1997-2007) [FLAС|Lossless|tracks] <Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1997 - Flying Free
+1997 - The Journey
+1999 - Through These Eyes(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 07:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C0664D4DAF34DBFC370F39275A81AC9FABF7FCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 513757   (888049) от 01.04.2020
+
+VA - Музыка гармонии сна (2008) [FLAC|Lossless|image + .cue] <Relax, New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прохлада и чайки (1:57)
+02. Прилив (5:28)
+03. Музыка океана (9:03)
+04. Южный закат (1:41)(   Читать дальше...   )Жанр: Relax, New ageПродолжительность: 01:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA9956FA93FC0AEAF0AE3B965974A5648A7A9FA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 185154   (888065) от 21.03.2010
 
 Balkan Beat Box - Blue Eyed Black Boy (2010) [MP3|320 кб/с]<Electronica / Rock Gypsy / Balkans Folk / Ethnic>
@@ -538,214 +728,6 @@ VA - Accordion Collection (2009) [MP3|320 kbps]<Instrumental | Accordion>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B77CA45A5103D0B3BA1C18E6F6D20B17BA977655
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102522   (890612) от 09.02.2017
-
-Paul Mauriat - Tout Pour la Musique & Roma Dalla Finestra (1982) Compilation, Remastered, 2013, Vocalion [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tout Pour La Musique (1982)
-01. Souvenirs (Memory) (Lloyd Webber; Eliot; Nunn) (3:33)
-02. Tout pour la Musique (Berger) (2:55)
-03. Staccato (Mauriat; Gambus) (2:48)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB60695DD88369EF16A698390B52F063C184DFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 762415   (890664) от 03.03.2014
-
-Martin Nemec - Angel Voices (1994) [FLAC|Lossless]<New ega, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Macrocosmos - 1 (04:48)
- 02. Inspired Nature (05:20)
- 03. Nature Godhead (04:26)
- 04. Song Of The Waves (04:42)
- 05. Source Of Life (06:05)
- 06. Nada Brahma (07:41)
- 07. Magic Of Rain (05:42)
- 08. Archetypus (03:31)
- 09. Microcosmos (04:34)
- 10. Macrocosmos - 2 (04:14)Жанр: New Age, Meditative, RelaxПродолжительность: 00:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13CFA62B37A21DAF7EC83EC4B3E3BB9C5FA1158
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 762546   (890718) от 03.03.2014
-
-Waykey - Waykey (2007) [FLAC|Lossless]<New Age, Native American>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(3:46) 01. Dream Catcher
-(4:11) 02. Spirit voices
-(5:53) 03. Valle del Alto
-(6:26) 04. Wairapa muspuni
-(7:19) 05. Wayraman
-(4:19) 06. Anquayllu
-(4:17) 07. Blue sky
-(6:02) 08. Dance with spirits
-(5:05) 09. Qapaq ñan
-(5:00) 10. Vilkamayu(   Читать дальше...   )Жанр: New Age, Native AmericanПродолжительность: 01:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1E8AEB98A5AFC5CA0262F1F2966BCA06F9AD340
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 639421   (891008) от 05.04.2013
-
-Philip Wesley - Heart to Hands: A Solo Piano Retrospective 2002-2012 (2012) [MP3|320 кб/с]<New age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(5:04) 01. Lamentations of the Heart
-(4:29) 02. Wings to Freedom
-(6:41) 03. Light & Shadow
-(2:40) 04. Comfort & Joy
-(7:10) 05. Dark Night of the Soul
-(3:26) 06. At This Moment
-(4:45) 07. Leaving the Darkness Behind
-(3:19) 08. Love Remembered
-(5:06) 09. The Unknown
-(4:23) 10. Equestrian Dream(   Читать дальше...   )Жанр: New age, Instrumental, PianoПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B0C1787B439BF75E2A66AB2E09329D6F812907
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 867802   (891361) от 15.02.2015
-
-John Frizzell - Лофт / The Loft (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles (01:56)
-02. Vincent Sees The Body (01:51)
-03. Luke Interrogated (01:15)
-04. Chris & Marty See Sarah Dead (02:15)
-05. Ann Meets Chris (01:45)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 00:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C315127AB1BCAC9F03B749A9984431F295FDEE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993555   (891498) от 07.03.2016
-
-OLIGARKH - Анатолий (2016) [MP3|320 кб/с] <Folk, Hip-Hop, Electronic, Break, BeatTrap>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аллилуйя
-02. На речке
-03. Все вместе
-04. Игорь(   Читать дальше...   )Жанр: Folk, Hip-Hop, Electronic, Break, BeatTrapПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617ABB2594A99B43D883AC540E20299711B626E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993009   (891529) от 07.03.2016
-
-Ветер Всем - Выдох (2015) [FLAC|tracks|Lossless]<Folk-Rock, Experimental Folk, Ambient Ethno>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891529.jpg" />
-</div>
-
-
-###  Подробнее
-
-[06:25] 01. Молодка
-[03:57] 02. Дороженька
-[02:42] 03. Калина
-[06:43] 04. По Морю(   Читать дальше...   )Жанр: Folk-Rock, Experimental Folk, Ambient EthnoПродолжительность: 00:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F103713C1019B82535EEBEBECB6758EDA0EB9522
 ```
 
 

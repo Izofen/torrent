@@ -1,3 +1,30 @@
+###  Публикация: 1481308   (1008267) от 03.07.2021
+
+VA - The Great Jazz Code (2021) [MP3|320 Kbps] <Jazz, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008267.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Immanuel Wilkins - Part 4. Guarded Heart
+002. Rob Mazurek - Autumn Pleiades
+003. Norah Jones - Nightingale
+004. Mindi Abair - Momo(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 09:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFABBF8E663AEB3CF87A0737D26B54AF2323EF24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481305   (1008288) от 03.07.2021
 
 VA - Everybody Clap: Disco Party (Vol.04) (2021) [MP3|320 Kbps] <Disco, Remix>
@@ -668,33 +695,6 @@ VA - New Latin Hot Playlist (2021) [MP3|320 Kbps] <Latin, Reggaeton, Dancehall>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD22A8A1497BA0B823CD4FEE070CB9BEB85D563F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479253   (1009572) от 24.06.2021
-
-VA - Chillout Deep Sounds (2021) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009572.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Project Blue Sun - Lost In Your Eyes
-002. Amethystium - Nightfall
-003. Marshall Watson - A Door In The Sky
-004. Begin - Super Barrio(   Читать дальше...   )Жанр: Chillout, Ambient, Downtempo, LoungeПродолжительность: 12:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B10BC4EF0A35A05DB7B108423A96414F4B35F92B
 ```
 
 

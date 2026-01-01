@@ -1,664 +1,692 @@
-###  Публикация: 1384088   (806347) от 18.05.2020
+###  Публикация: 1505717   (802940) от 28.10.2021
 
-Nevercenter CameraBag Pro 2020.1 [En]
+Brandy Kills - The Silent And The Blocked (2018) [FLAC|Lossless|image + .cue] <Synth-pop, Post-punk>
 
->>Архив торрентов
->>Архив 4Apple
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806347.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802940.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CameraBag позволяет мгновенно применить одну из сотен прекрасных предустановок к вашим фотографиям и видео, а затем погрузиться глубже с помощью интуитивно понятных профессиональных настроек и пользовательских предустановок. Внимание CameraBag к интуитивно понятным инструментам и рабочим процессам не сводится к простому редактированию изображений, а к тому, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: NEVERCENTERПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+01. The Night Of Death And The Holy Rose (4:05)
+02. Sin In Me (7:09)
+03. Jetpack (6:27)
+04. Icy Helly (4:31)(   Читать дальше...   )Жанр: Synth-pop, Post-punkПродолжительность: 00:42:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8CB54FB858BA85C56D55516265BA314047B885E
+magnet:?xt=urn:btih:A7EA4975568F32EBD5AECD1B64BE82ECB53BDF6D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384043   (806350) от 18.05.2020
+###  Публикация: 1199023   (802941) от 14.01.2018
 
-KCNcrew Pack 05-15-20 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806350.jpg" />
-</div>
-
-
-###  Подробнее
-
-KCNcrew Pack - это огромнейший сборник серийников на софт под Mac OS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и каждый месяц обновляется!Тип издания: macOS SoftwareРелиз состоялся: 15.05.2020Разработчик: iSerialПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51B811C6D19FE9D74CD169FFC46C4D5E0AFE6107
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384025   (806351) от 18.05.2020
-
-4K Stogram Pro for Mac 3.0.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806351.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K Stogram — это десктопный клиент Instagram для Mac, который позволяет скачивать и сохранять фотографии любого пользователя Instagram. Приложение, кроссплатформенно и имеет открытый исходный код. Просто введите имя пользователя или вставьте ссылку на фотографию и нажмите «Follow User». Попробуйте! Также вы можете использовать 4K Slideshow Maker для создания слайд-шоу.Тип издания: macOS SoftwareРелиз состоялся: 18.05.2020Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A8AC098A339AD75DB8E7AB7F04B4343292294A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384178   (806352) от 18.05.2020
-
-Taurus 5 - Taurus 5 (1980) LP [MP3|320 Kbps] <Hard Rock, Prog Rock>
+The Go Getters - Love & Hate (2017) [MP3|320 Kbps] <Rockabilly>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806352.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802941.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. La Haine Des Gens (4:56)
-02. La Fille Du Diable (3:56)
-03. Toujours Ce Meme Reve (3:43)
-04. Quand Je Te Vois (5:03)(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 00:34:28
+01. Love & Hate (03:07)
+02. Maria (04:10)
+03. Red Hot Mama (03:44)
+04. Don't Get Started (03:28)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:35:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2ADF2985896D01B4DBD7BA39944B5EA092D1E4BA
+magnet:?xt=urn:btih:5938065DEE55EB203126BE711CBEB4A17FACA4A7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384105   (806353) от 18.05.2020
+###  Публикация: 1505455   (802942) от 28.10.2021
 
-IconJar 2.4.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все ваши иконки отлично организованы в удобный интерфейс
-Разработанный, чтобы сделать жизнь разработчиков приложений и дизайнеров немного легче, IconJar представляет собой легкий и удобный органайзер иконок для вашего Mac.
-
-Если вы дизайнер или просто-напросто кто-то, чья линия работы включает в себя работу со значками (или глифы), то вы знаете, как громоздким оказывается (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.05.2020Разработчик: Davey Heuser and Curtis HardПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F33F7BA5C9534C56D2DC320BFEB4AB8521BDD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384130   (806354) от 18.05.2020
-
-Max de Wardener - Where I Am Today (2004) Accidental Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Glitch, Minimal>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luster (04:37)
- 02. Automatic (02:58)
- 03. Until My Blood Is Pure (02:52)
- 04. Noises From A Small Planet (05:05)(   Читать дальше...   )Жанр: Ambient, IDM, Glitch, MinimalПродолжительность: 00:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E944750A3FEF4F0B01196FA2F990322903E056E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384092   (806355) от 18.05.2020
-
-FigrCollage 2 v2.6.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806355.jpg" />
-</div>
-
-
-###  Подробнее
-
-FigrCollage - программа для создания удивительных композиций, коллажей и мозаик, из любых цифровых изображений и текста. Приложение поддерживает обработку изображений в форматах JPG, PNG, TIFF, и дает возможность сохранять готовые файлы в высоком качестве.Тип издания: macOS SoftwareРелиз состоялся: 18.05.2020Разработчик: SilkenMermaid TechnologiesПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E85B504FB27F5CB80AB72C2EBEEEDBDD9C9A7BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384038   (806357) от 18.05.2020
-
-iBarcoder 3.11.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cristallight iBarcoder - профессиональный генератор штрих-кодов Mac для создания любого количества отдельных или последовательных штрих-кодов, и их печати в виде красочных этикеток со штрих-кодом в собственном стиле, любого размера или формы или их экспорта в виде файлов графических изображений в обычном векторном и растровом изображении.Тип издания: macOS SoftwareРелиз состоялся: 30.04.2020Разработчик: Cristallight SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972DA8F2DAEE7471953A5BB2B044364E533EE39D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383899   (806358) от 18.05.2020
-
-Сто к одному (16.05.2020) WEBRip [H.264] [MP4|1280x720]
-
->>Мультимедиа и прочее
->>Мобильное Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C664418D2003E46F4484699738E0EC5F5D9A582
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198592   (806360) от 12.01.2018
-
-7Б - 13 декабрь (2018) Single [MP3|320 Kbps] <Rock>
+Marshall - Old Rockers Never Die (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806360.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802942.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. 13 декабрьЖанр: RockПродолжительность: 00:03:56
+01 - Wake up America (00:04:56)
+02 - Coltan Wars (00:05:34)
+03 - Burn the Ships (00:04:31)
+04 - The Rope (00:04:44)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1CB87752BD3AC063C50A0ED8FA7900E83654E1B
+magnet:?xt=urn:btih:1F5A2DA6E5113A05E8F3BC750197BA25BC5D6986
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198620   (806361) от 12.01.2018
+###  Публикация: 1198962   (802943) от 14.01.2018
 
-Black Rebel Motorcycle Club - Wrong Creatures (2018) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Garage Rock, Indie Rock>
+VA - Hamid Production - The Best Of 2017 [MP3|192-320 Kbps] <Pop, Dance, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802943.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Arash & Mohombi - Se Fue
+002 Anca Pop - Ederlezi
+003 Katy Perry - Roulette
+004 Mozhdah - Boro(   Читать дальше...   )Жанр: Pop, Dance, TranceПродолжительность: 05:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE5E69BC62E0C3175C35107340CF293796F2B6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505547   (802944) от 28.10.2021
+
+Chicago - Love Songs (2005) [FLAC|Lossless|tracks + .cue] <Rock, Jazz Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806361.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802944.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DFF (01:54)
-02. Spook (03:45)
-03. King Of Bones (03:56)
-04. Haunt (05:50)(   Читать дальше...   )Жанр: Blues Rock, Garage Rock, Indie RockПродолжительность: 00:59:12
+01. You're The Inspiration
+02. If You Leave Me Now
+03. Saturday In The Park
+04. Hard To Say I'm Sorry / Get Away(   Читать дальше...   )Жанр: Rock, Jazz RockПродолжительность: 01:17:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C0BEC71296A1E0A1B65DF401F64F5EED1BCE6A0
+magnet:?xt=urn:btih:9BEA7F572F3204F441CCE4CD974AA94F281D35EE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198703   (806362) от 12.01.2018
+###  Публикация: 1198897   (802945) от 14.01.2018
 
-Марина Цветаева | Пишу на своём чердаке (2015) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806362.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Пишу на своём чердаке» – пронзительные дневниковые записи М. И. Цветаевой, написанные в один из самых тяжёлых периодов русской истории – голодные, разрушительные послереволюционные годы. Сергей Эфрон, муж поэтессы, служит в добровольческом отряде белой гвардии. Марина Цветаева и дочь Ариадна, две поэтические души, живут в Москве в условиях, при которых другие гибнут, (   Читать дальше...   )Жанр: Биография, мемуарыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71224581F97FEEB398490180766CA975478B2D44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198623   (806363) от 12.01.2018
-
-Last Autumn's Dream - Fourteen (2017) Japan [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806363.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rise An' Shine
-2. Go!
-3. Siren
-4. I Don't Wanna Wait(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7A58A9F609961B62A3085C385909B7DE343155
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198693   (806364) от 12.01.2018
-
-Человек безвозвратный (2006) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судьбы нескольких семей из обыкновенного провинциального города, которые незнакомы друг с другом, но их жизни оказываются неразрывно связанными и взаимозависимыми. Двенадцать главных героев, и каждый борется со своими "демонами" по-своему. И все-таки всех их объединяет - поиск человеческого счастья, любви, душевного покоя.Производство: Россия / Cineline Studio, ZG FilmЖанр: ДрамаРежиссер: Екатерина ГроховскаяАктеры: Галина Логинова, Екатерина Редникова, Сергей Крапивенцев, Елена Валюшкина, Анна Чурина, Михаил Ремизов, Ольга Зайцева, Алёна ЯковлеваПродолжительность: 01:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F70FDE523550A41DEDA412C2A3650A7704CB7286
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198590   (806365) от 12.01.2018
-
-Сруб - Скорбь (2018) [MP3|320 Kbps] <Post-Punk, Dark Folk, Occult Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806365.jpg" />
-</div>
-
-
-###  Подробнее
-
-"...Когда я возвратился, в маленьком доме царила мертвая тишина, покойник, по русскому обычаю, лежал на столе в зале, поодаль сидел живописец Рабус, его приятель, и карандашом, сквозь слёз, снимал его портрет; возле покойника молча, сложа руки, с выражением бесконечной грусти, стояла высокая женская фигура; ни один артист не сумел бы изваять такую благородную (   Читать дальше...   )01. По Ягоды
-02. Вспять
-03. В чаще, где пал крест
-04. Храни(   Читать дальше...   )Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 00:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAA100D633261FDDF82EB4E22F7B0F5601E84C3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875184   (806366) от 12.01.2018
-
-VNDL - Discography 6 Releases (2011-2015) Hymen Records, Abstrakt Reflections, etc. [FLAC|Lossless|WEB-DL]<IDM, Glitch, Abstract, Experimental, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jyogi (03:36)
- 02. Folli (03:05)
- 03. Tileu (03:38)
- 04. Oto2 (03:31)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Glitch, Abstract, Experimental, Ambient •Продолжительность: 00:29:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88B33039637B59D7103CC9A151EFC1396C28D0E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198573   (806367) от 12.01.2018
-
-Хоккей. Молодёжный Чемпионат мира 2018. Финал. Швеция — Канада (05.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806367.jpg" />
-</div>
-
-
-###  Подробнее
-
-06 января 2018 года, суббота. 04:00 МСК
-42-й  Чемпионат мира по хоккею с шайбой среди молодёжных команд 2018 года
-Финал.
-Швеция — Канада(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 02:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69922A8F104FED228EB78728C887D1224A371C0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198530   (806368) от 12.01.2018
-
-Chronos - Inner Darkness (2017) [MP3|320 Kbps] <Ambient, Psychill, Downtempo>
+VA - Future Electronic Chillout - Top Downbeat Lounge Grooves (2018) [MP3|320 Kbps] <Downtempo, Chillout>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806368.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802945.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Inner Darkness
-02. I’m Not Pretty
-03. NESK (Mother Healing Version)
-04. Anatomy Of The Fear(   Читать дальше...   )Жанр: Ambient, Psychill, DowntempoПродолжительность: 01:35:47
+01.  Moon Pub  -  Across The Horizon (Spheric Dance Mix)  4:52
+02.  Kling One  -  Going Up (Mystical Electronic Downtempo Mix)  5:04
+03.  Kevin Engelstein  -  Until We See The Ocean (Balearic Downtempo Mix)  4:45
+04.  Ryan Pearce  -  Use Your Words (Melancholic Downbeat Mix)  4:39(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:05:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D749510C75C9A3AEA164F30210122C04A38AE19
+magnet:?xt=urn:btih:29BC6CE9B38B485504C6064747E0D51AA118F5CA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198601   (806369) от 12.01.2018
+###  Публикация: 1505744   (802946) от 28.10.2021
 
-Venetian Snares - She Began To Cry Tears Of Blood Which Became Little Brick Houses When They Hit The Ground (2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Breakcore>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shriek She Made When She Died Was Erased By The Sound Of Lightning (04:12)
- 02. He Was Shot By One Of Brian's Children Holding The Cats Hostage In A Cardboard Box (05:05)
- 03. They Watched Him Detonated On The Linoleum Twisting (03:29)
- 04. She Began To Cry Tears Of Blood Which Became Little Brick Houses When They Hit The Ground (06:07)(   Читать дальше...   )Жанр: IDM, Glitch, BreakcoreПродолжительность: 00:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275CE425B95A2E351477703343BA3CCE0847D66E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198562   (806370) от 12.01.2018
-
-Преподобный Ефрем Сирин | Избранные творения (2012) [PDF, DJVU]
+С. Тимченко (сост.) | Утешения старца Кирилла (Павлова). Духовные наставления (2018) [PDF, DJVU]
 
 >>Разное (категория книг)
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806370.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802946.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Избранные сочинения одного из самых великих учителей Церкви и богословов преподобного Ефрема Сирина написаны в четвертом веке, однако и в двадцать первом веке не потеряли ни йоты своей актуальности. Все так же святой Ефрем научает нас видеть свои грехи и дает средства к взращиванию в своем сердце добродетели. Так, например, в этом томе мы прочитаем о вспыльчивости (   Читать дальше...   )Жанр: ПатрологияФормат: PDF, DJVU
+Если по немощи нашей и придётся впасть в те же грехи, в которых милосердие Божие простило нас, то мы не должны отчаиваться. Если и тысячу раз согрешим, но потом опять прибегнем к покаянию, то снова очистимся от скверн и от соделанных нами беззаконий.
+
+Пусть никто не отчаивается в своём спасении, ведь примеры святых указывают нам, что люди всякого сословия и пола (   Читать дальше...   )Жанр: Православие. Духовно-просветительное изданиеФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D35C8FF6860BAD41BFB9BA647666FE00A5DE339
+magnet:?xt=urn:btih:3012143FB1FA5C89047B5657C74F04092C6F8EF9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198711   (806371) от 12.01.2018
+###  Публикация: 1198848   (802947) от 14.01.2018
 
-MediaHuman YouTube to MP3 Converter 3.9.8.19 (0901) RePack (& Portable) by ZVSRus [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы любите слушать музыку на YouTube или Vimeo, но хотите делать это без интернета. Или нужно скачать саундтрек нового фильма с YouTube. А может быть, сохранить аудиокнигу и слушать ее потом в машине? Тогда наш конвертер YouTube в MP3 является отличным выбором для вас.Язык интерфейса: Русский | Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D90F00AA6E71F419FE0B78DBBC354A22258CEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198267   (806372) от 12.01.2018
-
-VA - Supermoon Chilling Tunes (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lo-Fi>
+York - Peace (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806372.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802947.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Sweetadelic  -  Figures Of Repetition  5:51
-02.  PNP  -  Falling  4:00
-03.  Alberto Margheriti  -  Blue Away  3:49
-04.  Oliver Russ  -  Galaxy (Relex Version)  7:00(   Читать дальше...   )Жанр: Downtempo, Chillout, Lo-FiПродолжительность: 03:00:55
+01.  Farewell To The Moon  6:33
+02.  Angels Will Help You  5:32
+03.  The Awakening  5:05
+04.  Inmortal  6:21(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 01:16:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:955E519F0DA1AD116561592B5DEC9EA3044A6C8D
+magnet:?xt=urn:btih:874CA8A0DD372516F8D7A8BB1E099653731BA7B8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198571   (806373) от 12.01.2018
+###  Публикация: 1505866   (802948) от 28.10.2021
 
-С. М. Диманштейн | Борьба ленинизма с люксембургианством: национально-колониальный вопрос (1933) [DJVU]
+OmniPlayer Pro - Media Player 1.4.8 [Multi]
 
->>Научная и техническая литература
->>Историческая литература
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806373.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802948.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Доклад охватывает в основном национально-колониальный вопрос и базируется на работах Ленина и Сталина, неоднократно занимавшихся критикой люксембургианства. Автор пользовался также работами тт. Клары Цеткин, Краевского и других, писавших на эту тему. В докладе он использовал свои печатные труды по этому вопросу, а также доклад в институте народов Востока и ассоциации (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+OmniPlayer Pro для Mac - это универсальный медиаплеер практически для любого видео и аудио формата в macOS. Он обладает мощными функциями с современным и простым интерфейсом. Вы можете использовать его для простого воспроизведения различных HD-видео 4K / 1080P / 720P и обычного / без потерь звука с помощью аппаратного декодирования. Богатые функции OmniPlayer позволяют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2021Разработчик: Omi Software Studio, Inc.Поддерживаемая ОС: macOS 10.13+Субтитры: ass, ssa, srt, idx и subЯзык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1F525B9343AEFD19F4C129B88AB4423669542F2
+magnet:?xt=urn:btih:E24A9B408CDA5B4B692F1F448F25AE2B77B8DC7E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198106   (806374) от 12.01.2018
+###  Публикация: 1198745   (802949) от 14.01.2018
 
-Michał Wolski (Michal Wolski) - Collection 8 Releases (2012-2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Dub Techno, Experimental>
+VA - Black Hole Trance Music 01-18 (2018) [MP3|320 Kbps] <Trance>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806374.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802949.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The New World (07:07)
- 02. Moment By Moment (06:26)
- 03. Polar Day (10:30)
- 04. No Beginning No End (07:23)Тип издания: WEBЖанр: Techno/AmbientПродолжительность: 00:31:26
+01.  Jam & Spoon  -  Odyssey To Anyoona (Markus Schulz vs. Jam El Mar Remix)  4:16
+02.  Alex Karweit  -  Choosing His Angels (Extended Club Mix)  7:33
+03.  Ferry Corsten  -  Wherever You Are (feat. HALIENE) (Solis & Sean Truby Extended Remix)  6:49
+04.  Dirkie Coetzee  -  Nymeria (Extended Mix)  5:34(   Читать дальше...   )Жанр: TranceПродолжительность: 02:38:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3BF32EAB033197DB1167D6065C6AA25D82896553
+magnet:?xt=urn:btih:A7EF61E892EE5A96184BAD86229C6201E78918C2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198687   (806375) от 12.01.2018
+###  Публикация: 1505548   (802950) от 28.10.2021
 
-Tina Brooks - The Waiting Game (1961) 2002, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+VA - Beatport Hardstyle: Electro Sound Pack #360 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802950.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Fury - Fair Enough
+002. Al Storm - Flashbacks
+003. Rob Iyf & Al Storm - Bitter, Sweet
+004. Korsakoff - Ready To Go(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, ElectroПродолжительность: 07:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F315D3DC176959A78EC4B3F05082B4F1F85C91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198644   (802951) от 14.01.2018
+
+VA - Lemongrass Garden Vol.8 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Marc Hartman  -  Love Can Save The Day (To Roberto Concina)  5:36
+02.  Eskadet  -  Stars In Your Eyes  5:54
+03.  Malkou  -  Chateau De Vincennes  3:49
+04.  Roberto Bronco  -  Rollin  5:02(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F59583FA9EB9F291BBF9BB8E9CCF210325628B43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505421   (802952) от 28.10.2021
+
+Asoka - 3 albums (1971-2009) [FLAC|Lossless|tracks + .cue] <Prog Rock, Hard Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа образовалась в начале 70-х в Мальмё, Швеция на обломках группы "Taste Of Blues", позже "Take Off". Трое из членов этих групп - Клас «Clabbe» Эрикссон, Роберт «Роббан» Ларссон и Патрик Эриксон объединились с братьями Кентом «Тджоббе» Бенгтссоном и Альфом «Даффи» Бенгтссон, сформировав группу Асока. В 1971 вышел одноимённый дебютный альбом (   Читать дальше...   )--------------------------
+
+01. Visst är det bättre, men int' är det bra (3:51)
+02. Jag gick mig åt körka (4:32)(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic Rock |Продолжительность: 02:38:00 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BBEC0224FC56663C22DD99462348EC5119DB1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198911   (802953) от 14.01.2018
+
+Jeremy Steig - Jigsaw (1992) Triloka Records [FLAC|Lossless|image + .cue] <Jazz Fusion>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806375.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Talkin' About [07:42]
-02. One For Myrtle [04:41]
-03. Dhyana [06:55]
-04. David The King [06:43](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:44
+01. Washington Place [04:02]
+02. Seascape [04:49]
+03. While My Lady Sleeps [05:53]
+04. Tears For Charlie Street [04:54](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:51:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE3E3848B00904DB8A6DEC27505E213A7B328282
+magnet:?xt=urn:btih:6CE50380C5BC2BC7BF6772F561F22220996325B9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198704   (806376) от 12.01.2018
+###  Публикация: 1505400   (802954) от 28.10.2021
 
-Thlaaflaa - Discography 5 Releases (2014-2015) [FLAC|Lossless|WEB-DL|tracks|24Bit] <Experimental, IDM, Glitch, Abstract, Ambient>
+The Black And Blues Band - Flick The Switch (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Electric Blues>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806376.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802954.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Daybreak (03:41)
- 02. Early Morning Walk (03:18)
- 03. Permanent Things (03:09)
- 04. Noon (03:41)(   Читать дальше...   )Тип издания: WEBЖанр: Experimental, IDM, Glitch, Abstract, Ambient •Продолжительность: 00:42:18
+01 - Flick the Switch (00:04:59)
+02 - Coming Home (00:03:11)
+03 - Where the River Flows (00:04:02)
+04 - Been Down This Road (00:03:50)(   Читать дальше...   )Жанр: Blues Rock, Electric BluesПродолжительность: 00:44:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E44507A5B3772534B16852C616D985CF91E15A70
+magnet:?xt=urn:btih:B7D310E65B320E118987A107E44C179A84632AAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198842   (802955) от 14.01.2018
+
+VA - Best Of LW House II (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Audiowhores  -  Sometimes (Sean Finn Recall)  5:56
+02.  JB & Charlie Hedges  -  Best Night Oml (Pt. 2) (Lindo Martinez Remix)  7:01
+03.  Damon Hess & Emilie Cunliffe  -  Dancefloor (Original Mix)  5:21
+04.  Afrojack  -  Chords (George F, Eran Hersh & Darmon 'Blow Your Mind' Remix)  9:03(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800C76E3BAF0631BB5173F4E52346DFE863715DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199043   (802956) от 14.01.2018
+
+Cannonball Adderley - Alto Giant (1969) 1996, Nippon Crown [WavPack|Lossless|image + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scavenger [11:28]
+02. Sweet Emma [04:21]
+03. Ballads Medley [08:11]
+04. This Here [09:29](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E763B90FBAE7033F93AA3385AD09B1CE8E729D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198593   (802957) от 14.01.2018
+
+VA - Chilling Me Softly (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Active Waves - Cafe Montmatre  03:23
+02. LPA City - Maspalomas Sunset  05:02
+03. Makia Blue - Nauthiz  03:23
+04. Dark and Light - To See You Again  03:37(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B731BB1047E41C2DD07FEDE2125970CBD6465045
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505817   (802958) от 28.10.2021
+
+Мэри Пикфорд. В старом Мадриде / In Old Madrid (1911) WEBRip [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм не очень хорошо сохранился. И не всегда понятно, что происходит. Я всё так понял - Хосе знакомится с Зельдой. Взаимные чувства, но родители против. Молодёжь придумывает всякие хитрости, чтобы побыть вдвоем. И в конце концов, Хосе предпринимает решительный шаг и весьма остроумный - вместе с Зельдой он перебирается через бурную горную реку. Родители не могут (   Читать дальше...   )Производство: США, Independent Moving Pictures Co. of America (IMP)Жанр: Комедия, короткометражный, немое киноРежиссер: Томас Х. ИнсАктеры: Мэри Пикфорд, Оуэн МурПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:11:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E211525B23B9130B8C5B1EB48E517CE46089C06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198837   (802959) от 14.01.2018
+
+VA - Best Of LW Tech House II (2018) [MP3|320 Kbps] <Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  CamelPhat  -  Under The Influence (Original Mix)  6:17
+02.  Charlie Hedges & Ashton Russell  -  These Feelings (Extended Mix)  5:46
+03.  Michael Bibi  -  Magic Carpet (Original Mix)  5:54
+04.  Tommy Vercetti  -  Don't Understand (Original Mix)  6:38(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 03:20:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:883CAFE5C1FB0D033C587C0C90B61DCDCAFB047C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505582   (802960) от 28.10.2021
+
+NDKH - If Heaven Is A Lie (2021) [MP3|320 Kbps] <Progressive Metalcore, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  - Trauma , [02:22]
+02.  - Behelit (feat. FRCTRD) , [04:50]
+03.  - Adonis (feat. Child Of Waste) , [04:30]
+04.  - El Dj0ntos , [05:47](   Читать дальше...   )Жанр: Progressive Metalcore, DeathcoreПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F634691378AC302395E3A668296AF87F3D0DD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198766   (802961) от 14.01.2018
+
+VA - Black Hole House Music 01-18 (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roger Shah & Aisling Jarvis  -  Call Me Home (Extended Mix)  9:16
+02.  Reddfield  -  You’ll Feel Love (Original Mix)  6:48
+03.  Alain Ducroix & NotAndrew  -  Unstoppable (Extended Mix)  4:04
+04.  Kokaholla & Quinn Bates  -  Lucky Ones (Original Mix)  3:47(   Читать дальше...   )Жанр: HouseПродолжительность: 01:26:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3A7436D8080CA525FD73134484A35F84A79B0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505531   (802962) от 28.10.2021
+
+The Alan Parsons Project - Tales of Mystery and Imagination : Adgar Allan Poe (1976) Remastered, 1987,  Mercury [FLAC|Lossless|image + .cue] <Art Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alan Parsons добился высокой репутации студийного мастера совместной деятельностью с самыми выдающимися исполнителями на рубеже 60-70-х годов. Свою карьеру в студии он начал, когда Beatles взялись за работу над альбомом Abbey road. В 1971 году Alan появился в качестве звукорежиссера у Paul McCartney на записи Wild Life и Red Rose Speedway, однако свое настоящее "боевое (   Читать дальше...   )01. A Dream Within a Dream (instrumental) (4:13)
+02. The Raven (3:57)
+03. The Tell-Tale Heart (4:38 )
+04. The Cask of Amontillado (4:33)(   Читать дальше...   )Жанр: Art Rock, Prog RockПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD74E3E1BAC4227DAE2CA01804AC315BF2BE213E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505688   (802963) от 28.10.2021
+
+Sadao Watanabe - Minha Saudade (2001) Universal [FLAC|Lossless|tracks + .cue] <Bossa Nova, Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manha de Carnaval [5:40]
+02. Samba em Preludio [5:42]
+03. Child's Play [3:49]
+04. Talk to the Moon [5:54](   Читать дальше...   )Жанр: Bossa Nova, Crossover JazzПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:825938AD04EA155286E66A7201E81BDFF86DE451
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199037   (802964) от 14.01.2018
+
+Julian Cannonball Adderley and Strings (1955) 1988, Emarcy [WavPack|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Cover the Waterfront [02:32]
+02. A Foggy Day [02:46]
+03. Surrey with the Fringe on Top [02:36]
+04. Two Sleepy People [03:05](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB781AD75084E742B91A75D253EC80C94C03156
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199056   (802965) от 14.01.2018
+
+Биатлон. Кубок Мира 2017-2018. 5-й Этап. Рупольдинг (Германия). Женщины. Эстафета (13.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802965.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 января 2018 года, суббота. 16:30 МСК
+5-й этап Кубка Мира по биатлону 2017-2018. Рупольдинг (Германия)
+Женщины. Эстафета 4x6 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:22:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7825432930E0C3848CECF15F10DFC3C253FBD79C
 ```
 
 

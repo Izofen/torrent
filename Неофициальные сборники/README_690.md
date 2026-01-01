@@ -1,3 +1,30 @@
+###  Публикация: 1842757   (1048898) от 16.12.2025
+
+VA - Snowflakes And Rhythms (2025) [MP3|320 Kbps] <Pop, Dance, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048898.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luis Fonsi - Despacito (03:50)
+ 002. Cheat Codes - Go To Hell (02:27)
+ 003. Gloria - Parler A La Lune (03:05)
+ 004. Josue Rene - Umbral (03:30)(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 11:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43D984B2607ED70C2509F6587A8A2DF4BC0D46F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843145   (1049145) от 19.12.2025
 
 VA - Midnight Whiskey Blues 2 (2025) [MP3|320 Kbps] <Blues>
@@ -430,7 +457,7 @@ magnet:?xt=urn:btih:19D41B3F4BD2244B1907DA7DBA5E85052793081C
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844729   (1050242) от 
+###  Публикация: 1844729   (1050242) от 27.12.2025
 
 VA - ЕвроХит Топ 40 Europa Plus 26.12.2025 [MP3|320 Kbps] <Pop, Dance>
 
@@ -452,6 +479,222 @@ VA - ЕвроХит Топ 40 Europa Plus 26.12.2025 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE4321B881A160A1291079E75031225E15E5BD02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844397   (1050328) от 29.12.2025
+
+VA - Merry Christmas At the Hammond Organ (2025) [MP3|320 Kbps] <Jazz, Blues, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050328.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Denzel Sachs - Have Yourself A Merry Little Christmas [04:11]
+002. Jan Verkroost - Jingle Bells [02:33]
+003. Leigh Harline - When You Wish Upon [04:13]
+004. George Conedy - O Come All Ye Faithful [03:26](   Читать дальше...   )Жанр: Jazz, Blues, InstrumentalПродолжительность: 08:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBEE1ABFB093D649D466FE828166E07581F82A0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844923   (1050368) от 29.12.2025
+
+Erik Gronwall - Voice Of Rock - Compilation (2009-2025) [MP3|320 Kbps] <Hard rock, Glam rock, Pop rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Great Unknown (& H.e.a.t) ❂ Into The Great Unknown 2017
+02. Higher (Winner Of Idol) ❂ The Idol Years 2009
+03. Livin' On A Prayer (& Bon Jovi) ❂ Eriksplanations Vol. 2 2025
+04. Fearless (& New Horizon) ❂ Gate Of The Gods 2022(   Читать дальше...   )Жанр: Hard rock, Glam rock, Pop rockПродолжительность: 05:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:557528C8813E3A6238C025E4518E6D0F639AAD91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844932   (1050403) от 28.12.2025
+
+VA - Record Super Chart 27.12.2025 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AY YOLA - Homay (4:04)
+02. David Guetta & Sia - Beautiful People (3:07)
+03. Calvin Harris & Clementine Douglas - Blessings (3:39)
+04. Rudimental & Khalid - All I Know (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC67879830CC08C4CD5AA23E44010669D9F183C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844326   (1050411) от 28.12.2025
+
+VA - No name compilation part 33 Electronic Deep Chill House Other (2025) [MP3|320 Kbps] <Electronic Deep Chill House Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Stive Morgan - On Thin Ice
+02 - Sardø - Corazón Sin Fronteras
+03 - Reteox - Faded Years
+04 - Echønova - Forgive Me(   Читать дальше...   )Жанр: Electronic Deep Chill House OtherПродолжительность: 00:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F00658652469EA6E355AFD5DB39DA6A68470CCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844857   (1050414) от 28.12.2025
+
+VA - No name compilation part 35 Electronic, Vocal, Other (2025) [MP3|320 Kbps] <Electronic, Vocal, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sergey Chekalin - New Year's Greetings for 2026!!!
+02 - Bad Boys Blue & Jk Sax - You're Woman (Saxophone Remix)
+03 - Smtve - Send My Love
+04 - Dj Calma - December(   Читать дальше...   )Жанр: Electronic, Vocal, OtherПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A2EF3A81B2CA950D39FE3D6FF05B5C639EBAE6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844855   (1050415) от 28.12.2025
+
+VA - No name compilation part 34 Electronic, Vocal, Other, Ai (2025) [MP3|320 Kbps] <Electronic, Vocal, Other, Ai>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Smtve - I Have Everything Now Except
+02 - Riltim - Retona
+03 - Smtve - Let You Down
+04 - Smtve - Heart is Gone(   Читать дальше...   )Жанр: Electronic, Vocal, Other, AiПродолжительность: 00:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F147EB64E9995505E1DF7C410220E4C069C0683
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844843   (1050416) от 28.12.2025
+
+VA - Party Time 2.0 (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Nu Disco, Disco House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Sophie Ellis Bextor - Murder On The Dancefloor (Zillionaire Mix)
+02-Dua Lipa - Dance The Night (De Soffer Mix)
+03-Beyonce X Purple Disco Machine - Hypnotized By Texas Hold Em (Bass Cowboy Bootleg)
+04-De Soffer - Cry For You(   Читать дальше...   )Жанр: Club House, Nu Disco, Disco House, DanceПродолжительность: 1:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C5E3BF20F8AC70BA0990675613EB0050D6AF642
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844805   (1050418) от 28.12.2025
+
+VA - Fortune Teller Blues - Smming up the Results (2025) [MP3|320 Kbps] <Blues, Blues rock, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050418.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Playing For Change - Fly Like an Eagle [04:19]
+002. Popa Chubby - I'm Going Down [05:31]
+003. Def Leppard - Stand By Me [03:11]
+004. Professor Louie & The Crowmatix - Stick To The Plan [05:25](   Читать дальше...   )Жанр: Blues, Blues rock, InstrumentalПродолжительность: 08:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD37F7C4320E76FFE4C47E1B12C8216AD1DE377
 ```
 
 

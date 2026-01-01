@@ -1,3 +1,57 @@
+###  Публикация: 1142764   (641190) от 15.06.2017
+
+Joe Wilder - The Pretty Sound & Jazz from 'Peter Gunn' (1959) 2003, Collectables [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harbor Lights [03:41]
+02. I Hear Music [03:22]
+03. It's So Peaceful in the Country [05:03]
+04. Autumn in New York [05:05](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7952DF4EE6ACAA489901566F436A502C414B251A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142728   (641192) от 15.06.2017
+
+Bobby Short - Loves Cole Porter & Guess Who's in Town (1971, 1987) 2CD, 2001, Collectables [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641192.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Rap Tap on Wood [02:41]
+02. You've Got That Thing [03:27]
+03. You Don't Know Paree [03:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E585747F25FBA0A1A4D1D53B4318058C298B20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542062   (641223) от 05.04.2022
 
 Budapest Ragtime Band - Annyi arc Ismeros  (2007) [FLAC|Lossless|tracks + .cue] <Ragtime>
@@ -20,6 +74,37 @@ Budapest Ragtime Band - Annyi arc Ismeros  (2007) [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F9F9FC1F0199ED04B376A6C0BB2A532AB45B43F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518757   (641263) от 04.07.2012
+
+Jazzpospolita - Impulse (2012) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_641263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Co Myslisz O Wandalizmie?
+02. Czerwona Flaga (Ale Ja Sie Kapie)
+03. Pasazer U-Boota
+04. Pobudzenie
+05. Ciezkie Powietrze
+06. Grzyb
+07. Nigdy Nie Pada Na Gornym Mokotowie
+08. Protest Song?Жанр: JazzПродолжительность: 00:45:50
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -593,109 +678,34 @@ magnet:?xt=urn:btih:4D73EA540617BCF384697AAC2E198B12A3BEE70B
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142475   (642966) от 14.06.2017
+###  Публикация: 518201   (642759) от 03.07.2012
 
-Marcus Malone - A Better Man (2017) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. House Of Blues  (04:20) 
-02. Better Man  (05:05) 
-03. Too Long Gone  (04:07) 
-04. Just Another Heartache  (03:11) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE658E056B6DB3E6AEB5F3593404413CC8824AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142429   (642980) от 14.06.2017
-
-Chick Corea - Rendezvous In New York (2003) 2CD, Stretch [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+Marcus Miller - Renaissance (2012) Victor Entertainment [FLAC|Lossless]<Jazz, Jazz fusion, Rhythm and blues, Rock, Funk, Smooth jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642980.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_642759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Armando's Rhumba (feat. Bobby Mcferrin) [04:59]
-02. Blue Monk (feat. Bobby Mcferrin) [05:35]
-03. Concierto De Aranjuez / Spain (feat. Bobby Mcferrin) [08:15](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 02:05:21
+01. Detroit (5:46)
+02. Redemption (6:10)
+03. February (4:15)
+04. Slippin' Into Darkness (9:17)
+05. Setembro (Brazilian Wedding Song) (6:39)
+06. Jekyll & Hyde (6:31)
+07. Interlude: Nocturnal Mist (1:16)
+08. Revelation (4:47)
+09. Mr. Clean (5:01)
+10. Goree (Go-ray) (5:39)(   Читать дальше...   )Жанр: Jazz, Jazz fusion, Rhythm and blues, Rock, Funk, Smooth jazzПродолжительность: 01:14:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:349C1288AC618D4174D4A23E6BDF56607728EEDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292692   (643080) от 31.03.2019
-
-Happy Day Singers - Gospel-Songs (1998) Box Set, 3CD, Compilation [FLAC|Lossless|image + .cue] <Gospel, Funk / Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643080.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01.	When The Saints
-02.	Swing Low
-03.	Bridge Over Troubled Water / Still Water Run Deep(   Читать дальше...   )Жанр: Gospel, Funk / SoulПродолжительность: 02:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8348B738942747443D76C765667956BDD2D1237D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142435   (643112) от 14.06.2017
-
-Kapok - Flatlands (2012) Kytopia [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [01:54]
-02. Missing Link [05:24]
-03. Up [03:00]
-04. Nausicaa [07:09](   Читать дальше...   )Жанр: Avant-Garde Jazz, Modern CreativeПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA203BA1731709DDA461BF00274DB70AD5B3BB3
+нет
 ```
 
 

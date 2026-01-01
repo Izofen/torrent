@@ -1,3 +1,198 @@
+###  Публикация: 648719   (851685) от 26.04.2013
+
+Nicolas Jeandot - Metamorphose (2013) [MP3|320 кб/с]<New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  Crazy Tribute (3:36)
+02.  Electro Zen (3:32)
+03.  Alhambra Electro (3:10)
+04.  Fairy Song (4:05)
+05.  Abyss (3:57)
+06.  Rhodes Dance (3:07)
+07.  Human Evolution (3:26)
+08.  Flying Above the Waves (2:31)
+09.  Deep-Sea Angel (3:43)
+10.  Reminiscences (2:58)(   Читать дальше...   )Жанр: New ageПродолжительность: 00:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7222EA73071D842495426DB0060F6C786840FDB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000766   (851799) от 29.03.2016
+
+VA - The Best World Instrumental Hits (2009) Vol.1,2,3 (6CD) [FLAC|Lossless|tracks] <Instrumental, Easy Listening, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francis Lai - Emmanuelle   03:22
+02. Paul Mauriat - Aloette   02:11
+03. James Last - Little Man   03:22
+04. Ricky King - La Corrida   03:12(   Читать дальше...   )Жанр: Instrumental, Easy Listening, New AgeПродолжительность: 07:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0218929DF42FC59E116FA2DA939B764A5BDA3DC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110726   (851961) от 03.03.2017
+
+Guy Sweens - Karmic Journey (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Human Nature
+02. Varanasi
+03. Cause and Effect
+04. Inner Strength(   Читать дальше...   )Жанр: New Age, Ambient, WorldПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F648F535FA63C0C08847C06C45235AD23FE9057A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000518   (852051) от 29.03.2016
+
+Anuna - Cynara (2001) [FLAC|Lossless|tracks + .cue] <Celtic, Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Igitur Servus
+02. An Oiche
+03. Riu Riu
+04. Incantations(   Читать дальше...   )Жанр: Celtic, FolkПродолжительность: 00:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:020C12B2BFCF05243F621EA3947E76E1F78B9C69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001843   (852053) от 29.03.2016
+
+Немного Нервно - День Габриэля (2016) [MP3|320 кб/с] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852053.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник «День Габриэля» вошли восемь тех самых песен, которые «А на каком они альбоме? А пока ни на каком». Все, чего вы так долго ждали. И кое-что совершенно новое. Треки записаны в сотрудничестве с четырьмя разными студиями в Запорожье, Москве, Эдинбурге и Воронеже. В числе приглашенных музыкантов проявились Владимир Кристовский (Uma2Rman), Василий Уриевский, (   Читать дальше...   )01. Поцелуй меня, я - ирландец (feat. В. Кристовский)
+02. Габриэль
+03. Тяжко мені
+04. Восхождение (feat. А. Чикуров)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:28:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A515D6E4C984FC06D34CE19F66BB809BEF28D740
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110720   (852089) от 03.03.2017
+
+Guy Sweens - Karmic Journey (2017) [MP3|320 Kbps] <New Age, Ambient, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Human Nature
+02. Varanasi
+03. Cause and Effect
+04. Inner Strength(   Читать дальше...   )Жанр: New Age, Ambient, WorldПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E32CF03B52B4EFEA4713790CEE06A7F8BD339EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110624   (852093) от 03.03.2017
+
+Light? - Pink & Grey (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Traditional Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pink#1 (8:24)
+02. Pink#2 (6:14)
+03. Pink#3 (9:30)
+04. Grey#1 (11:07)(   Читать дальше...   )Жанр: New Age, Traditional ElectronicПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D1E302B6819583F358C4112E7D21C8765479CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110628   (852095) от 03.03.2017
 
 Manu Delago - Metromonk (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, World, Ambient, Hang>
@@ -566,216 +761,6 @@ magnet:?xt=urn:btih:10A2A12073CF45008A0D13901609D0B9AD10B9D7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54987459F48F25C33AE0CF649CBDE9B4506034F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647763   (854568) от 24.04.2013
-
-Koji Kondo - The Legend of Zelda Ocarina of Time - Hyrule Symphony (1999) [FLAC|Lossless]<Game, Instrumental, Symphony>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Title - 04:03
-02. Kokiri Forest - 02:10
-03. Hyrule Field - 03:47
-04. Hyrule Castle - 02:10
-05. Lon Lon Ranch - 03:26
-06. Kakariko Village - 03:06
-07. Goron City - 02:58
-08. Zora's Domain - 03:41
-09. Gerudo Valley - 04:33
-10. Ganondorf - 01:06(   Читать дальше...   )Жанр: Game, Instrumental, SymphonyПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377019   (854588) от 20.04.2020
-
-Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack, Metal, Electro>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854588.jpg" />
-</div>
-
-
-###  Подробнее
-
-|05:02| 01. Mick Gordon, Chad Mossholder - Hell On Earth
-|05:33| 02. Mick Gordon - Cultist Base
-|03:37| 03. Mick Gordon, Chad Mossholder - Blood Harvesting
-|07:51| 04. Mick Gordon, Chad Mossholder - Soul Extraction(   Читать дальше...   )Жанр: Soundtrack, Score, Industrial Metal, Electro-Industrial, Dark AmbientПродолжительность: 04:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A2B25F2D9BEF4B8559464E2D6A8DFED6AF8299
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550721   (854638) от 23.03.2014
-
-John Tesh - 4 альбома (1998 - 2002) [MP3|320 кб/с]<New age, Instrumental, Orchestral, OST, Easy listening>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-CD1 (00:55:43):
-
-(4:02) 01. Book Of Days
-(4:07) 02. Desert Rose
-(4:40) 03. This I Promise You
-(4:27) 04. Can't Live A Day
-(3:48) 05. I Do (Cherish You)
-(3:25) 06. Marching Season
-(4:14) 07. I Knew I Loved You
-(3:19) 08. Angel Eyes(   Читать дальше...   )Жанр: New age, Instrumental, Orchestral, OST, Easy listeningПродолжительность: 01:50:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881F7C7B7CE0A5FE533D6EAE250A127083BE9B50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 304458   (854654) от 08.03.2011
-
-John Murphy - 28 недель спустя / 28 Weeks Later (2007) [MP3|320 kbps]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854654.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cottage Attack (2:35)
-2. 28 Theme (3:32)
-3. Welcome To Britain (2:25)
-4. Firebombing London (2:35)
-5. London Deserted (2:24)
-6. Kiss Of Death (2:53)
-7. Scooter Through London (3:18)
-8. Going Home (2:38)
-9. Alice Is Alive! (2:23)
-10. Don Abandons Alice (2:59)(   Читать дальше...)Жанр: ScoreПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC516EB5E5E5C6C9B37353A5A53DB0A3F9ADFCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377017   (854699) от 20.04.2020
-
-Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack, Metal, Electro>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854699.jpg" />
-</div>
-
-
-###  Подробнее
-
-|05:02| 01. Mick Gordon, Chad Mossholder - Hell On Earth
-|05:33| 02. Mick Gordon - Cultist Base
-|03:37| 03. Mick Gordon, Chad Mossholder - Blood Harvesting
-|07:51| 04. Mick Gordon, Chad Mossholder - Soul Extraction(   Читать дальше...   )Жанр: Soundtrack, Score, Industrial Metal, Electro-Industrial, Dark AmbientПродолжительность: 04:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:443960AF57B54091BD1A49E733305DB1EDABB31C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 191150   (854710) от 10.04.2010
-
-Phurpa (2001-2009) - 6 albums (Discography) [MP3|128-320 kbps] <Tibetian Ritual Music of Bon Tradition, Ritual Drone Ambient>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Master (55:19)Жанр: Tibetian Ritual Music of Bon Tradition, Ritual Drone AmbientПродолжительность: 00:55:19
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 189999   (854726) от 10.04.2010
-
-Henry Mancini - The Pink Panther (1963) [MP3|320 kbps]<Jazz/Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854726.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Pink Panther Theme 2:40
-2. It Had Better Be Tonight (Instrumental) 1:48
-3. Royal Blue 3:13
-4. Champagne And Quail 2:48
-5. The Village Inn 2:39
-6. The Tiber Twist 2:52
-7. It Had Better Be Tonight (Vocal) 2:00
-8. Cortina 1:57
-9. The Lonely Princess 2:31
-10. Something For Sellers 2:52(   Читать дальше...   )Жанр: Jazz/SoundtrackПродолжительность: 00:29:33
-
-## Скачать торент
-```bash
-нет
 ```
 
 

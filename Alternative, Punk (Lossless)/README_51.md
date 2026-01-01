@@ -1,3 +1,84 @@
+###  Публикация: 1134027   (689360) от 15.05.2017
+
+Dreamcar - Dreamcar (2017) [FLAC|Lossless|tracks] <Alternative Rock, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участники No Doubt Тони Канал, Том Дюмон и Эдриан Янг объединили усилия с вокалистом AFI Дэйви Хавоком. Их целью было создание музыкального проекта, который мог бы зарифмовать творческие искания 80-х и настоящего времени. «Отсылки к эпохе «новой волны» вы найдете с легкостью, — рассказывал Канал в интервью RS. — Но от пластинки у вас наверняка будет свежее послевкусие. (   Читать дальше...   )01. After I Confessed
+02. Kill for Candy
+03. Born To Lie
+04. On The Charts(   Читать дальше...   )Жанр: Alternative Rock, New WaveПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:328748956EECBFEEC9E596738CCAC1ACECCC974A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403599   (690606) от 20.08.2020
+
+Bright Eyes - Down in the Weeds, Where the World Once Was (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pageturners Rag (03:57)
+02. Dance and Sing (04:30)
+03. Just Once in the World (03:28)
+04. Mariana Trench (03:41)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:54:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4BAE7D8F97187EAAAEC44BF0E98EDB496421DD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288492   (694186) от 12.03.2019
+
+The Faint - Egowerk (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694186.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Child Asleep 4:39
+2 Chameleon Nights 3:32
+3 Life’s a Joke 4:52
+4 Alien Angel 3:38(   Читать дальше...   )Жанр: Rock, Alternative Rock, IndieПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E821F6AF03FABD2524A5DB232CF78285E3DA27C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288719   (694301) от 12.03.2019
 
 Husbandry - Bad Weeds Never Die (2017) EP [FLAC|Lossless|tracks + .cue] <Hard Rock, Post-Punk, Post-Hardcore>
@@ -614,87 +695,6 @@ Alex Napping - Mise En Place (2017) [FLAC|Lossless|tracks] <Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5D8B4BBC03F900E61BAA002C61E2D5CA0C54227
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402288   (701956) от 14.08.2020
-
-Pinegrove - Marigold (2020) Japan / Bonus Tracks [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dotted Line (04:20)
-02. Spiral (00:56)
-03. The Alarmist (04:01)
-04. No Drugs (02:48)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C81FB81807EA16DF2CC2BADAFD56AD7537D29853
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026665   (702304) от 16.06.2016
-
-Тартак - Ввічність (2015) [FLAC|Lossless|image + .cue] <Alternative Rock, Hip-Hop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Як би хотілося  (04:44)
-02.  Зміст  (03:24)
-03.  Шановні бандити  (03:52)
-04.  Десь там  (02:58)(   Читать дальше...   )Жанр: Alternative Rock, Hip-HopПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A52E4D5BDFDDD4D616541B2BA5BD92C15D7330
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132252   (702931) от 08.05.2017
-
-The Franklin Electric - Blue Ceilings (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702931.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Know the Feeling (3:41)
-2. Someone Just Like You (4:23)
-3. Burning Flame (3:00)
-4. Save Yourself (3:55)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:073C044A688EFA50C50AD09BDB747CC7B8EDCB35
 ```
 
 

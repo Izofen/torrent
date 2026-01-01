@@ -1,3 +1,30 @@
+###  Публикация: 1610609   (1041924) от 09.02.2023
+
+IQ - IQ40 – Forty Years Of Prog Nonsense Archive Collection (2023) 2 CD, [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Missile [00:07:01]
+02. Guiding Light [00:11:04]
+03. Nostalgia/Falling Apart At The Seams [00:10:43]
+04. The Road Of Bones [00:09:09](   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 02:15:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:164FF8C6129C40FEF52CDED426B05D155E02ADAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437737   (1041964) от 05.01.2021
 
 Larkin Poe - Self Made Man (2020) [MP3|320 Kbps] <Rock, Blues>
@@ -668,33 +695,6 @@ Skrizhali - В холодном свете (2023) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D917E7437579BA808A50DD4991C2672C727C5BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607240   (1044080) от 26.01.2023
-
-Silent Hope - Silent Hope (2023) [MP3|320 Kbps] <Gothic Rock, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sealed with Sorrow [00:04:06]
-02 - Different Pain [00:03:17]
-03 - Safer in the Shadows [00:04:14]
-04 - Never Wanted to Be Alone [00:04:58](   Читать дальше...   )Жанр: Gothic Rock, Gothic MetalПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E646C61268CC06BDC53652C00980CFD5D13A1E
 ```
 
 

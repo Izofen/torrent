@@ -1,3 +1,138 @@
+###  Публикация: 1398249   (736199) от 25.07.2020
+
+Warner Case - dance music for dancing, vol. 1-2 (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. running into danger (to feel alive) (3:56)
+02. ATM (3:50)
+03. impeccable (3:09)
+04. metroloops (4:42)(   Читать дальше...   )Жанр: EDM, Tech House, TechnoПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEFF08B1F691476972B7F9C9F99BDCA90C787336
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 816589   (736372) от 29.01.2022
+
+V.A. - Cafe Del Mar - XX (Volumen Veinte) (2014) 2CD [FLAC|Lossless]<Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736372.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Nightmares On Wax - So Here We Are
+02. Goldfrapp - Jo
+03. Seahawks - Look At The Sun(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy Listening |Продолжительность: 01:59:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7DBB1274290F49FBB604800F2B46300C0BD567
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 68614   (736505) от 17.05.2014
+
+Massive Attack - 4 Albums (1991-2003) [FLAC|Lossless|image + .cue] <Trip Hop, Leftfield, Downtempo, Abstract Hip Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все началось в далеком 1988 году, когда на обломках распавшегося хип-хоп коллектива The Wild Bunch Роберт 3D Дель Найа (Robert Del Naja), Грант Daddy G Маршалл (Grant Marshall) и Эндрю Mushroom Воулэз (Andrew Vowles) решили сформировать новую музыкальную группу Massive Attack.Список альбомов:
+1991 - Blue Lines
+1994 - Protection
+1998 - Mezzanine(   Читать дальше...   )Жанр: Trip Hop, Leftfield, Downtempo, Abstract Hip HopПродолжительность: 03:57:48
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398196   (736656) от 24.07.2020
+
+VA - Ultra Cardio Dance & Aerobic Hits 2020 Workout Collection [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groovy 69 - House Party (Fitness Version 128 (4:15)
+02. D'Mixmasters - Supalonely (Fitness Version 128 B (4:00)
+03. Red Hardin, The Team - Loco Contigo (Fitness Version 128 (3:45)
+04. Movimento Latino - Mamacita (Fitness Version 128 Bpm (4:00)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98746178B74B0B2A2F324CCB37FC5A028D2AD162
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397930   (736682) от 24.07.2020
+
+Alle Farben - Out Of Space (2020) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alle Farben & Chill Mafia - Intro (1:12)
+02. Alle Farben & Graham Candy - She Moves (Far Away) (Out Of Space Mix) (6:48)
+03. Alle Farben & Justin Jesso - As Far As Feelings Go (Out Of Space Mix) (5:16)
+04. Alle Farben & Chill Mafia - Luminous Bright (6:46)(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:353115A8B744C8F56EAA0D6BA334D493CCD56157
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397929   (736690) от 24.07.2020
 
 Airstream - The Book of Sounds (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo, Lounge>
@@ -556,141 +691,6 @@ VA - India Gets Physical Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B98C31AE6CBAD1516A484332A70365764E95D266
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217908   (740239) от 07.04.2018
-
-VA - DJ Robert Miles - In The Mix (1997) Mixed [MP3 (image + .cue)|320 Kbps] <Breakbeat, Goa Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane - Offshore (4:14)
-02. Goldie - Inner City Life (3:35)
-03. Prana - Geomantik (4:10)
-04. D-Saw - Track 7:22 (2:51)(   Читать дальше...   )Жанр: Breakbeat, Goa Trance, Progressive TranceПродолжительность: 01:15:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CE60CD8EF5078F43BE89AC5CF2C84B7074D0C5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217964   (740240) от 07.04.2018
-
-VA - Sensual Lounge Vibes (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Worldtraveller - Maui Pie (Living Room Surf St Mix) 4:21
-02. Marga Sol - Butterflies 6:51
-03. Don Gorda Project - Symbolic Interaction 6:24
-04. Desiree Paris - Behind The Door 6:53(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11F1EC8A24321F643E08AE45A0B18E2A22F0FF30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217999   (740248) от 07.04.2018
-
-Fief - Fief III (2017) [MP3|320 Kbps] <Dungeon Synth, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dodecahedronous Questing 2:56
-02. Secret Shops 3:40
-03. The Sword That Sang 4:15
-04. Innkeeper 4:11(   Читать дальше...   )Жанр: Dungeon Synth, AmbientПродолжительность: 00:29:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B07FF9904208D26CDAAEBDB04F7B1163B036B2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217992   (740319) от 07.04.2018
-
-VA - Spring Club Tunes 2018 [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Ross - Example 03:55
-02. Jake Jones - You (feat Addie - Quoala remix) 03:33
-03. Alan Marvin - Memories (feat Scarlett Quinn) 03:39
-04. DeLoops - OK Without You (Oddboy remix) 03:44(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7681B98DE2A0DD7EBE7E87D274694EB79DB30A1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283324   (740337) от 16.02.2019
-
-VA - Black Hole Trance Music 02-19 (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giuseppe Ottaviani feat. Clara Yates - Why (Extended Mix)
-02. Ferry Corsten & Ilan Bluestone - We're Not Going Home (Extended Mix)
-03. Andy Moor & Somna feat. Monika Santucci - Free Fall (Extended Mix)
-04. Driftmoon & Eco - They'll Never Find Us (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2246C61B6DCDA1885F06B9A1D37930A47F58884
 ```
 
 

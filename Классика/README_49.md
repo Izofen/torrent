@@ -1,3 +1,63 @@
+###  Публикация: 285209   (935232) от 21.01.2011
+
+Jon Lord & Royal Liverpool Philarmonic Orcestra - To Notice Such Things (2010) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Notice Such Things: I. As I Walk Out One Evening
+ 02  To Notice Such Things: II. At Court
+ 03. To Notice Such Things: III. Turville Heath
+ 04. To Notice Such Things: IV. Stick Dance
+ 05. To Notice Such Things: V. Winter Of A Dormouse
+ 06. To Notice Such Things: VI. Afterwards
+ 07. Evening Song
+ 08. For Example
+ 09. Air On A Blue String
+ 10. AfterwardsЖанр: ClassicalПродолжительность: 00:54:24
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984770   (938263) от 09.02.2016
+
+Khatia Buniatishvili - Kaleidoscope - Mussorgsky, Ravel, Stravinsky (2016) [MP3|320 кб/с] <Classical, Piano>
+
+>>Классика
+>>Фортепиано
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Promenade
+02. I. Gnomus
+03. Promenade
+04. II. Il vecchio castello(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:01:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E67DEB7026F00746BB417082847B16CBE6B9723
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984702   (938597) от 09.02.2016
 
 Strato-Vani - Ballroom 1 (2015) [MP3|320 кб/с] <Classical, Pop>
@@ -646,60 +706,6 @@ Grieg - Piano Concerto in A minor, op. 16
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E869D5ACFCD0208E1C23312607CA15BE65EBEE01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978523   (956058) от 29.01.2016
-
-Gershwin - Second Rhapsody - Piano Concerto in F, Porgy and Bess: Symphonic Suite (1995) [FLAC|Lossless|image + .cue] <Classical, Orchestral, Symphonic>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto in F, for piano & orchestra
-01. Allegro (12:24)
-02. Adagio - Andante con moto (13:58)
-03. Allegro agitato (06:43)(   Читать дальше...   )Жанр: Classical, Orchestral, Symphonic, Modern, Concerto, Opera, Suite, Variations, Overture, Tone Poem, Rhapsody, Show TuneПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97CF6754ED022172EB0AD721F2EF1A1DBE1D8FE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980427   (956112) от 29.01.2016
-
-Izar Melting Pot Ensemble - The Melting Pot (2015) [FLAC|Lossless|tracks + .cue] <World, Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный взгляд на мировую классическую музыку средневековья!01. La Rotta / La Rotta della Manfredina (Italy, 14th Century) (4:25)
-02. Polska after Zakarias Jansson (2:47)
-03. Longa Sultan Yakah (2:40)
-04. La Quarte Estampie Royal (France, 13th Century) (5:59)(   Читать дальше...   )Жанр: World, Classical CrossoverПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10D32E33741F743415EA73E8F8B28E88251297E9
 ```
 
 

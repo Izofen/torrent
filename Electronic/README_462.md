@@ -1,3 +1,139 @@
+###  Публикация: 1493473   (895457) от 03.09.2021
+
+Little Jam - Alone in the Desert (1997) [FLAC|Lossless|tracks + .cue] <Electronic, Trance, Breakbeat, House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Memorial Day
+02 - Flaming Star
+03 - The Great Bear
+04 - Alone In The Desert(   Читать дальше...   )Жанр: Electronic, Trance, Breakbeat, HouseПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47020B2FA51B3A05F64245EDCAB2FE370E53ACB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493132   (895618) от 03.09.2021
+
+Paul van Dyk - Live @ Main Stage, Exit Festival, Serbia (2021-07-10) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talla 2XLC & Andreas Kraemer - Adagio For Strings (PvD Intro Edit)
+02. Fuenka - Callisto
+03. Carl Cox - Family Guy (Jon Rundell Remix)
+04. Spektre vs. Max Graham vs. Joel Gershom - Together vs. One Hundred vs. Equinox (Paul van Dyk Mashup)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27A678D5335750D8960F99B94405A108C02D58F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993426   (895864) от 05.03.2016
+
+VA - Chillify The Best In Chillout & Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skendo - Romantic Beach Dinner [03:04]
+02. Jupiter Jack - Blank Space [04:34]
+03. Miss Caramelle & Miguel Lando - Behind the Horizon (Cafe del Luna Mix) [05:38]
+04. Tom Hold - Journey [05:29](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95F337DDB0AF2297962FC4EE0E0C12E6A63FEE23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101320   (896292) от 06.02.2017
+
+VA - Chillout February 2017: Top 10 February Relaxing Chill Out and Lounge Music  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Denis Arson - First Contact - Chillout Mix
+02. Airform - Dream - Chillout Mix
+03. Jentarix - Indian Summer - Chillout Mix
+04. Suntise - Erotic Wav - Chillout Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:40
+Лейбл: Chillout Best & Hits - CHILLOUTBEST 011
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54281F120F3E07F1F544465B7A241B3BD3B34646
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101476   (896296) от 06.02.2017
+
+VA - Pure Lounge Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hollow Skies - Shadeness - Single Mix
+02. Comatrixx - Aya Napa Files - Sunday Morning Mix
+03. Axel Felltonny - Body De Luxe (Naked-In-The-Water-Mix)
+04. Comatrixx - C´est la nuit - Moonshadow Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B277CAEC61A749246294A66ED0778CB7F737138
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101126   (896418) от 06.02.2017
 
 VA - The Beautiful World Of Ambient Vol.1 (2017) [MP3|320 Kbps] <Ambient, Downtempo>
@@ -563,141 +699,6 @@ Alexander Ananyev (Beautumn, Sleepy Town Manufacture, Dirty Owl) - Discography (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E72441F48C2780B57146337E1DF9337DBB36CAF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370309   (898460) от 26.03.2020
-
-The Orb - Abolition of the Royal Familia (2020) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Dub, Ambient, Abstract>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daze (Missing & Messed up Mix) (02:52)
-02. House of Narcotics (Opium Wars Mix) (06:07)
-03. Hawk Kings (Oseberg Buddhas Buttonhole) (04:57)
-04. Honey Moonies (Brain Washed at Area 49 Mix) (05:02)(   Читать дальше...   )Жанр: Downtempo, Dub, Ambient, AbstractПродолжительность: 01:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBE29994E0E66EEF02757CB475F6CF9026594F7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370237   (898476) от 26.03.2020
-
-Johnny Jewel - Digital Rain (2018) [FLAC|Lossless|tracks + .cue] <Dark Ambient, Electronic>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digital Rain (05:19)
-02. Black Pyramid (01:00)
-03. The City Of Roses (02:36)
-04. Double Exposure (01:59)(   Читать дальше...   )Жанр: Dark Ambient, ElectronicПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED618D4E464B5067653C91C1E9AD1ED8BB2138B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370140   (898524) от 26.03.2020
-
-VA - Kontor Sports: Nonstop Powermix 2020.03 (2020) [MP3|320 Kbps] <House, Electronic, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VA - Kontor Sports Nonstop Powermix 2020.03 (Continuous DJ Mix) 1:04:15
-02. Loud Luxury feat. Brando - Body 2:43
-03. Danny Бvila - Beautiful Girls 2:42
-04. Mike Candys - Pump It Up 2:23(   Читать дальше...   )Жанр: House, Electronic, DanceПродолжительность: 02:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE8747A4E80D3F0CD80E6D44B63FB46CB399EC06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370138   (898529) от 26.03.2020
-
-Satin Jackets - Solar Nights (The Remixes) (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Northern Lights (Antenna Remix) (5:40)
- 02. Mirage (Anoraak Remix) (3:33)
- 03. Athena (NTEIBINT Remix) (4:22)
- 04. Automatic (The Oddness Remix) (6:17)(   Читать дальше...   )Жанр: Electro, House, Nu DiscoПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED6E59F1B8BF821A3CCC52BA4CA1F6D00EC9450
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370156   (898535) от 26.03.2020
-
-Alex Spite - Melodic Cosmonaut (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898535.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Never Give Up (5:36)
-2. Astral (6:36)
-3. Get Better (5:19)
-4. Melodic Cosmonaut (5:20)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCCF50069599583955FD0E35E2769CFDA8865DF
 ```
 
 

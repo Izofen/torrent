@@ -1,3 +1,189 @@
+###  Публикация: 1390760   (782253) от 17.06.2020
+
+Robert Wyatt - EPs (1974-1978) 1999 Box Set 5 CD, Compilation [FLAC|Lossless|tracks + .cue] <Jazz, Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роберт Уайатт (англ. Robert Wyatt; 28 января 1945, Бристоль) — британский музыкант, один из создателей влиятельной в прогрессивном роке группы Soft Machine. Женат на английской художнице и авторе песен Альфреде Бенж.01. Was a Friend (5:48)
+02. Maryan (6:46)
+03. A Sunday In Madrid (6:58)
+04. Free Will and Testament (4:33)Жанр: Jazz, Folk, World, & CountryПродолжительность: 00:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43DE6C0F10792791C640F8A64A7A8C0D4998697
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390696   (782673) от 16.06.2020
+
+Johnny Cash - Johnny Cash At San Quentin (1969) [FLAC|Lossless|tracks + .cue] <Rock,  Country Rock, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big River (1:56)
+02. I Still Miss Someone (1:52)
+03. Wreck Of The Old 97 (2:05)
+04. I Walk The Line (3:29)(   Читать дальше...   )Жанр: Rock,  Country Rock, FolkПродолжительность: 00:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9815A224C485AC5C83D7A49C5EC20D032BFE561
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390331   (782686) от 16.06.2020
+
+John Martyn - One World (1977) CD album, Reissue 1990 [FLAC|Lossless|tracks + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dealer (4:59)
+02. One World (4:10)
+03. Smiling Stranger (3:30)
+04. Big Muff (6:30)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C401800900FA31FDAE4E9733BED257631DD7DB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390677   (782694) от 16.06.2020
+
+The Byrds - Sweetheart Of The Rodeo (1968) Remastered 1997 [FLAC|Lossless|tracks + .cue] <Folk Rock, Country Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Ain't Going Nowhere (2:36)
+02. I Am A Pilgrim (3:41)
+03. The Christian Life (2:32)
+04. You Don't Miss Your Water (3:50)(   Читать дальше...   )Жанр: Folk Rock, Country RockПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5081507E256D1E395FDAF010760C23A627AD664F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205803   (782852) от 12.02.2018
+
+Armik - Discography (32CD) (1994/2018) [MP3|320 Kbps] <Nuevo Flamenco, Spanish Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Nuevo Flamenco, Spanish GuitarПродолжительность: 03:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB6714181B2F524AD5DA0CE9B42B1E5A11728630
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390368   (782990) от 15.06.2020
+
+Giorgio Costantini - Universound (432 Hz) (2012) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age, Modern Classical, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alba Mundi: The Sound of the Planets (432 Hz version) (3:07)
+ 02. Life (432 Hz version) (2:46)
+ 03. Stardust - (432 Hz version) (3:18)
+ 04. Perdutamente (432 Hz version) (3:48)(   Читать дальше...   )Жанр: Electronic, New Age, Modern Classical, PianoПродолжительность: 00:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96EE87121340583ACD1DC4F37FD22243E75789CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205788   (783204) от 11.02.2018
+
+Valefim Planet - Oscillation (2018) [MP3|320 Kbps] <Chillout, Enigmatic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783204.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Amen
+2.Christe
+3.Oscillation
+4.Come With Me(   Читать дальше...   )Жанр: Chillout, Enigmatic, New AgeПродолжительность: 00:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9EB6F2EFD482C6F41DE3A3375EF6C8B4560D7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389730   (783348) от 14.06.2020
 
 Giorgio Costantini - Atmosphere (432 Hz) (2015) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age, Modern Classical, Piano>
@@ -504,195 +690,6 @@ magnet:?xt=urn:btih:E9F6B77946B4FF7409BEC4771ABC41F809EA671E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:761F83ACCC0DF539C087EC730796FC0C72CAEFE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124304   (785780) от 11.04.2017
-
-The Nexion-Project - Voices of the Ascension (2011) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dawn  (02:15) 
-02. Passing Time  (02:08) 
-03. The Second World  (03:09) 
-04. Fly Away  (03:14) (   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31E5EA7D1B6FA34BE3CA6FFB7B4302D5DA15CCDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124095   (785908) от 10.04.2017
-
-VA - Going in Style / Уйти красиво (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dean Martin - Memories Are Made of This (02:17)
-02. Sonny Rollins - St. Thomas (06:46)
-03. Mark Ronson - Feel Right (03:43)
-04. Otis Redding - Hard To Handle (02:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D695079EC7B0639DB9CD66DF55654A92AF7AA5C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124093   (785910) от 10.04.2017
-
-VA - Going in Style / Уйти красиво (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dean Martin - Memories Are Made of This (02:17)
-02. Sonny Rollins - St. Thomas (06:46)
-03. Mark Ronson - Feel Right (03:43)
-04. Otis Redding - Hard To Handle (02:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36AA2CEED75A83E547B48D2E246F8103A9746E5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124071   (785927) от 10.04.2017
-
-Mixed Choir под управлением М. Попсавова - Страстная пятница - Bulgarian Orthodo (1993) [FLAC|Lossless|tracks + .cue] <Orthodox Liturgy>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Great Litany (Velika ektenia) [6'13"]
-02. Good-Looking Joseph (Blagoobraznii Jossif) [8'05"]
-03. Grave-Wailing (Nadgroben plach) 20:44
-04. Eulogitarium [06:16](   Читать дальше...   )Жанр: Orthodox LiturgyПродолжительность: 01:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:270A002BEE164A55CEDD39D4B10834C02C581B6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124005   (785931) от 10.04.2017
-
-Clookai - Massage Gold (2008) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternity [00:06:32]
-02. Touch of the Dove [00:06:08]
-03. The Secret Place [00:08:12]
-04. Stolen Moments [00:05:34](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C34666CA5EAA4961F10544F7686F5D35676E65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123630   (786077) от 09.04.2017
-
-ДахаБраха - Ягудки (2007) [MP3|320 Kbps] <NeoFolk, Country, Ethnic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шо З-под Дуба (03:48)
-02. Русалочки (01:49)
-03. Пані (03:28)
-04. За Дуби (02:20)(   Читать дальше...   )Жанр: NeoFolk, Country, EthnicПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:336EB932A445EEF224C5E8661BEB28FB32ED0F0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123889   (786167) от 09.04.2017
-
-Hooman Rad - Quiet Dream of a Sweetbrier (2017) [MP3|320 Kbps] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quiet Dream of a Sweetbrier (00:05:28)
-02. Italian Coffee (00:04:43)
-03. All of What There Is (00:05:19)
-04. Very Special Proud Man (00:05:41)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E63B6D50D3C6D4541AEA35ED75B8AF4B8EF4AA5
 ```
 
 

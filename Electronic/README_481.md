@@ -1,3 +1,138 @@
+###  Публикация: 1090694   (946093) от 07.01.2017
+
+VA - Winter 2017: Best Of Inception (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Julian Wess – Switch (Original Mix) 07:30
+02. Chriss V – Sunfall Tale (Nerutto Remix) 05:32
+03. Nistirenko – Summer in the Future (Original Mix) 05:40
+04. Niklas Grosswald – The Blueprint (Not Okay Remix) 06:47(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5F5D1573D5EF97193735F58A0ED5622E23152BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090563   (946115) от 07.01.2017
+
+VA - Music For SPA: Relaxing Chill Out Music For SPA (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Maa - Elasia  4:38
+02.  Suntise - Erotic Wav (Chillout Mix)  2:45
+03.  Moonnight - To Save Love (Chillout Mix)  3:40
+04.  DJ Rostej - Minutes of Stories (Chillout Mix)  2:46(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B58C103B470919D8FEC4DF755C98C4753CB808
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090539   (946137) от 07.01.2017
+
+VA - Armada Deep Top 10. January (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juliette Claire - Somebody Else's Lover
+02. Cheney - All About You
+03. Tai - Paradise
+04. Richard Judge - Wide Awake(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E328B6DEA8C8F638DFD2CC467B8A41C7F7C392
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 173579   (946225) от 10.02.2010
+
+Puff Dragon - Sazanami (2005) [MP3|320 kbps]<Dub, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sazanami
+02. Qi Gong
+03. Chinese Radio (Beijing Taxi Version)
+04. Marine Drive(   Читать дальше...   )Жанр: Dub, AmbientПродолжительность: 01:05:09
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362898   (946513) от 25.02.2020
+
+V.A. - Vintage Cafe: Lounge & Jazz Blends Vol. 16 (Special Selection) (2020) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazzystics & Apollinare Rossi - Riders on the Storm
+02. Jamie Lancaster - Take It Easy
+03. Michelle Simonal - Reminiscing
+04. STEREO DUB & Karen Souza - Back Down South (Bossa Nova Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20ADE4F5C909CF354130AD536C8D8084327F44FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982877   (946526) от 04.02.2016
 
 Scooter - Ace (2016) [MP3|320 кб/с] <Techno, Jumpstyle>
@@ -551,141 +686,6 @@ VA - Trance Up In A Dream (2017) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D29763D2D1123346F019ED0326F33CF07AB75D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090245   (947690) от 06.01.2017
-
-VA - Deep House Christmas Selection (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Pirupa - I Can C through U (Original Mix) 6:17
-02.  Luca Elle - Tormento 5:58
-03.  Barbara Tucker - You Want Me Back (Paolo Madzone Zampetti 2015 Vibe Rmx) 6:41
-04.  Dennis Cialella - Don't Stop Movin' (feat. Andrea Carnell) (Vinnie Campisi Minimal Mix) 7:42(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:23:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF5DB3452FCABE5D21BAE451F6286F5105EC46DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090292   (947698) от 06.01.2017
-
-VA - Ibiza Chillout Songs: Best Of 2017 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lofty Right - Lazy (Urban Lounge Instrumental Mix) 4:28
-02.  r.f.n. - Bell Hotline (Whip It Version) 4:16
-03.  Amar Lidan - Arabic World (Buzuq Edit) 4:26
-04.  Dalia - Sorrow And Joy (Pulse Version) 4:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7CF4FDF5D0E70B8DC54FD66132A5905A169453
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090488   (947720) от 06.01.2017
-
-VA - Urban Lounge Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Gorda Project - Greenwood 5:35
-02.  Enrico Donner - Wind Of The Spirit 6:33
-03.  Cane Garden Quartet - Chillaxinґ 5:13
-04.  Baghira - Nightbeat 5:58(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5067ABC750D05D1C840E2E149FC823B094BB17B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362555   (948231) от 24.02.2020
-
-Paul Haslinger - Exit Ghost (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Electronic, Contemporary Instrumental, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948231.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:45| 01. The Faltering Sky
-|03:14| 02. Intrinsic
-|03:28| 03. Room 3
-|01:58| 04. Exit Ghost(   Читать дальше...   )Жанр: Electronic, Contemporary Instrumental, AmbientПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:393432FFC698C8C2DC893B39311D5381CA064D18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982184   (948356) от 03.02.2016
-
-VA - Erotic Hush Moments: Best of Intimate Downbeat Moments and Relaxation (2016) [MP3|320 кб/с] <Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symbol Chains - Hotel Del Mar - Relaxed Waves Mix
-02. The Platternes - Magnets (You and Me) - Intimate Sex Machine Mix
-03. Spectral Analyzer - Deja Vu - Easy Listening Lounge Medition Mix
-04. The Ex-Factor - Aloha from the Stars - Down Beat City Big Pad Mix(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D7EA6176CB45CA24CC5AF046567DC0EA19936C4
 ```
 
 

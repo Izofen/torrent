@@ -1,3 +1,30 @@
+###  Публикация: 1030619   (670250) от 02.07.2016
+
+VA - Planet Pop: Summer Version 04 (2016) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670250.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adele - Send My Love (To Your New Lover)
+002. Lucius - What We Have (To Change)
+003. Gwen Stefani - Where Would I Be?
+004. Bahari - California(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C92550BF5B450DCF21362CBD2791C4A90D8F3768
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030826   (670252) от 02.07.2016
 
 DJ AFFecta - Dream About You (2016) [MP3|320 Kbps] <Deep House, House>
@@ -671,33 +698,6 @@ VA - Top 50 Official Dance Charts 22.03.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:302E0CE8D76CE25856AC8AFF41BE75ED48F337C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536953   (670590) от 14.03.2022
-
-VA - 90's One Hit Wonders (2022) [MP3|320 Kbps] <Pop, Dance, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vanilla Ice - Ice Ice Baby
-02. MC Hammer - U Can't Touch This
-03. Hanson - MMMBop
-04. The Cranberries - Zombie(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 02:24:46 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F5AFD4E3304F05BC44384984051CCE96EC60E47
 ```
 
 

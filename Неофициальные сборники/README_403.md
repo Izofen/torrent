@@ -1,3 +1,30 @@
+###  Публикация: 1031363   (652171) от 04.07.2016
+
+Timur Mingazov - MBS Mix #27 (Why Spring- - Deep House Apr `16) | (2016) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Music Born In Silence Intro
+ 1.Yotto – Crosswalk
+ 2.Kyle Watson – Moments
+ 3.Sons Of Mafia – Chimera(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EFAE80FDD8DEC930819903DD23CA0019A695C58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031364   (652173) от 04.07.2016
 
 Timur Mingazov - MBS Mix #26 (Spring Song / Trance Mar`16) (2016) [MP3|320 Kbps] <Deep House>
@@ -698,33 +725,6 @@ magnet:?xt=urn:btih:B9F25CB6942AEAAAEADC973DED0E1F6CAACED28E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B72EB72C50551B74A65BBDD703C2EB10107849E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226805   (653483) от 22.05.2018
-
-VA - Дискотека 2018 Dance Club Vol.179 от NNNB (2018) [MP3|320 Kbps] <Club, Deep House, Synth Pop, Dance и другие>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1
-01. DJ Vartan & DJ Shevtsov - Side By Side (3:29)
-02. Soroush Yarahmadi - Big Elephant (Original Mix) (3:54)
-03. ItaloBrothers - Looking Back Someday (3:28)(   Читать дальше...   )Жанр: Club, Deep House, Synth Pop, Dance и другиеПродолжительность: 18:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92033BEEE7A22E5E61C9006BCD98426FD159D3AD
 ```
 
 

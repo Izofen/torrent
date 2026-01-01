@@ -1,3 +1,192 @@
+###  Публикация: 1121286   (800463) от 02.04.2017
+
+Benjamin Wallfisch - A Cure for Wellness / Лекарство от здоровья (Original Soundtrack Album) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hannah and Volmer (04:35)
+02. Nobody Ever Leaves (01:49)
+03. Bicycle (02:00)
+04. The Rite (03:42)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:625CDE32AE61D8E25C3377E01810ADB49687E00D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120721   (800483) от 02.04.2017
+
+Раймондс Паулс - В тональности Раймондса Паулса (1983) [MP3|320 Kbps] <Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Беспокойный пульс
+02. Печаль
+03. Испанский мотив
+04. Всё твоё(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE31549499C5DF3AF6297F5F7FBA7C32B99DC97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121073   (800494) от 02.04.2017
+
+David Arnold and Michael Price - Sherlock / Шерлок (Collection Original Television Soundtrack) (2012-2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Was Different (03:49)
+02. Doing a Good Thing (02:17)
+03. 3 Suspects (02:11)
+04. Pick Up (05:15)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 05:02:41 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EEFD027677F901F12DB02BDEA332E5B8D19E4B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121071   (800498) от 02.04.2017
+
+Nick Cave & Warren Ellis - Hell or High Water / Любой ценой (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800498.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nick Cave & Warren Ellis - Comancheria (02:05)
+02. Townes Van Zandt - Dollar Bill Blues (03:01)
+03. Nick Cave & Warren Ellis - Mama's Room (02:49)
+04. Ray Wylie Hubbard - Dust of the Chase (05:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329E673917768170466EA41A9242B4FB551A3EF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121285   (800500) от 02.04.2017
+
+Benjamin Wallfisch - A Cure for Wellness / Лекарство от здоровья (Original Soundtrack Album) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hannah and Volmer (04:35)
+02. Nobody Ever Leaves (01:49)
+03. Bicycle (02:00)
+04. The Rite (03:42)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC7E4F69ED6865D7F0805897EBD5B8570FF8635
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120726   (800503) от 02.04.2017
+
+Раймонд Паулс - Музыка из кинофильма 'Двойной капкан' (1986) [MP3|320 Kbps] <Pop, Instrumental>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мотто
+02. Танец в баре
+03. Танец с накидкой
+04. Вдвоём(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDFBE0B6BC1923465DC191C5557EA5C02073315B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121596   (800506) от 02.04.2017
+
+Mars Lasar - Utopia (2017) [MP3|320 Kbps] <New Age, Ambient, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond Utopia
+02. As It Should Be
+03. Cosmopolitan Skies
+04. Magnetism(   Читать дальше...   )Жанр: New Age, Ambient, ChilloutПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E9901E9BA12A02E943C462313974BEF4EF18F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120763   (800551) от 02.04.2017
 
 Людмила Николаева и ансамбль 'Русская душа' - Сирень цветёт (1997) [FLAC|Lossless|image + .cue] <Folk-Pop>
@@ -506,195 +695,6 @@ Ryan Farish - United (2017) [MP3|320 Kbps] <Electronic, Downtempo, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6EC8DCCF04EFB94386C97D3A4D953EDAC3F2D81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120686   (802049) от 31.03.2017
-
-Harry Gregson-Williams - Live by Night / Закон ночи (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Coughlin (02:59)
-02. Albert’s Girl (02:45)
-03. The Getaway (03:05)
-04. Aftermath (02:55)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9499C45AFB520F3C744E7AA5C5AA76069BFD6007
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120683   (802092) от 31.03.2017
-
-Harry Gregson-Williams - Live by Night / Закон ночи (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Coughlin (02:59)
-02. Albert’s Girl (02:45)
-03. The Getaway (03:05)
-04. Aftermath (02:55)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D02D9777F18AA69564907CF58EAAEAFDAC9BA1ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498590   (802379) от 14.01.2018
-
-Братина - 8 альбомов (2003-2014) [MP3|320 Kbps] <Folk, Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802379.jpg" />
-</div>
-
-
-###  Подробнее
-
-2003 - Вдоль по линии Кавказа
-2005 - Горы вы Кавказские
-2007- По морю было по хвалынскому
-2007- Прости, звезда(   Читать дальше...   )Жанр: Folk, Казачья песняПродолжительность: 07:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D35702142F16C5E065AE87647AC47C7C80B1795
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198624   (802705) от 14.01.2018
-
-Jonny Greenwood - Phantom Thread / Призрачная нить (2018) Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Indian Classical, Experimental>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phantom Thread I (03:36)
-02. The Hem (02:43)
-03. Sandalwood I (02:40)
-04. The Tailor of Fitzrovia (02:31)(   Читать дальше...   )Жанр: Indian Classical, ExperimentalПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D669D862BDAD91849EA63D485F473AB343AEF21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198731   (802711) от 14.01.2018
-
-Mike Lazarev - Dislodged (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dislodged (4:03)
- 02.  Distant (2:36)
- 03. Absent (2:28)
- 04. Healing (1:58)(   Читать дальше...   )Жанр: New Age, Piano, Modern ClassicalПродолжительность: 00:26:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECFBF0B7039CCF736D8A79E5819FAB0EFA413067
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199178   (802713) от 14.01.2018
-
-Padma Previ - Divine Visions (2007) [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sa Nah Piteva (6:48)
-02. Gayatri Mantra (6:45)
-03. Om Namah Shivaya (8:48)
-04. Mandu Samanavarcasa (6:53)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB44DDE609B07F66D0B50079EB6BC44FD0C759F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199039   (802813) от 14.01.2018
-
-David Arkenstone - Deep Sleep (2017) [MP3|320 Kbps] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Breathe (10:50)
-02.  Lightdancer (10:12)
-03.  Deep Blue (9:53)
-04.  Floating (10:08)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 02:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A861CF123BBA58EE8B00ECC252D42EBFDE8DB7
 ```
 
 

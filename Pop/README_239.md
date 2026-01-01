@@ -1,3 +1,173 @@
+###  Публикация: 514899   (657845) от 24.06.2012
+
+VA - Different Shades Of Savage (2011) 2CD [APE|Lossless]<Italo-Disco, Synth-pop, Italodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_657845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G.A.N.G. - Incantations (Vocal) :: 09:42
+02. Joey Moon - Angelica (Original) :: 06:30
+03. Rose - Magic Carillon (Vocal) :: 06:09
+04. Tango - Computerized Love (Original) :: 05:16
+05. Lena - Run To Me (Extended Version) :: 04:53
+06. Frank Raja - Born To Be Alive (Original) :: 06:02
+07. Limit Eccitation - In The Dark (Original) :: 05:12
+08. Wilson Ferguson - I'm Singing Again (Extended Version) :: 05:47
+09. Paula Evans - Ciao (Extended Version) :: 05:10
+10. Savage - So Close (Hijack Remix) :: 05:20(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, ItalodanceФормат: 2xCD, Compilation, RemasteredПродолжительность: 02:10:53
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140012   (658140) от 04.06.2017
+
+Francis Rimbert - Bionic Orchestra (1979) LP [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Ambient>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Comete (3:43)
+02. Voices Of Paradise (3:28)
+03. The Last Day (5:08)
+04. Eire (3:24)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, AmbientПродолжительность: 00:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41BD69C2BFB8F33BBE83579514B4770B30FA9F27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539433   (658199) от 25.03.2022
+
+VA - Italo Disco Legacy (2017) Original Motion Picture Soundtrack [MP3|320 Kbps] <Electronic, Stage & Screen, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fred Ventura - The Years (12'' Maxi Version) (6:17)
+02. Body Electric - Magic Electronic (Previously Unreleased 12'' Maxi Version) (7:17)
+03. Simona Sierra - Muchacho (12'' Maxi Version) (6:00)
+04. Alba - Philomena (6:46)(   Читать дальше...   )Жанр: Electronic, Stage & Screen, Italo-DiscoПродолжительность: 01:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A809772B34BBFF1B996A0C47FC41976627E3C881
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225688   (658594) от 17.05.2018
+
+VA - Top Of The Pops '1975 (2018) 3CD [FLAC|Lossless|tracks + .cue] <1970s, pop, rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодняшним релизом начинаю небольшую (пока) серию путешествий по победителям топов прошлого века.
+Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители в основном из британского сингла.
+Эти программы (   Читать дальше...   )CD1:
+01. ABBA - S.O.S.  (3:21)
+02. David Essex - Hold Me Close  (3:53)
+03. Bay City Rollers - Bye Bye Baby  (2:52)(   Читать дальше...   )Жанр: 1970s, pop, rockПродолжительность: 02:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:155AC6B9DB9EF05DCF36D79DBF5704290C62B946
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139598   (658776) от 03.06.2017
+
+Cigarettes After Sex - Cigarettes After Sex (2017) [MP3|320 Kbps] <Indie Pop, Dream-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K. (05:20)
+02. Each Time You Fall in Love (04:50)
+03. Sunsetz (03:35)
+04. Apocalypse (04:50)(   Читать дальше...   )Жанр: Indie Pop, Shoegaze, Dream-PopПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDB2539EC68BEC9C7B813CCC1D7A5C07CDC1723B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903127   (658873) от 30.05.2015
+
+VA - Nu Disco (2015) [MP3|320 кб/с]<House, Disco, Indie Dance, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nikko Alonzo - You Must Be Mine [05:42]
+02. Holiness Code - Sunburn [06:42]
+03. Anturage & Sergey Silvertone - Love is not a Game (feat. Lena Grig) [06:16]
+04. MKDJ & Dopammina - Bass Face [08:37](   Читать дальше...   )Жанр: House, Disco, Indie Dance, Nu-DiscoПродолжительность: 04:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B27A12AC5D269D0EB2A5957C660A3C8473BB24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539118   (659044) от 24.03.2022
 
 VA - Workout (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -533,168 +703,6 @@ I Signori Della Galassia - Iceman (1979) Reissue LP, Medical Records LLC, 2013 [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A6D0B6CFD3CFDDE9BEC5D6C710FC37FD950224B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538002   (663289) от 20.03.2022
-
-VA - Delicious Pop (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maroon 5 - Sugar
-02. OneRepublic - Counting Stars
-03. Shawn Mendes - There's Nothing Holdin' Me Back
-04. Katy Perry - The One That Got Away(   Читать дальше...   )Жанр: PopПродолжительность: 02:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE77C0CA1ADAD43F30C0E133803F7E50088C1CE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138328   (664212) от 29.05.2017
-
-VA - New Generation Italo Disco - The Lost Files Vol.3 (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Michael - Love Games (BCR Extended Italian Mix) 7:32
-02.  Alan Brando - Don't Close Your Eyes (BCR Vocal Lugano Version) 7:51
-03.  Miko Vanilla - My Romance (BCR Extended Italian Mix) 6:19
-04.  Ken Martina - Change Your Heart (BCR Torino Extended Mix) 6:39(   Читать дальше...   )Жанр: Italo Disco, Spacesynth, Hi NRGПродолжительность: 01:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5BC2AD5D4D208CA28179A1F4277EAF35349DA1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138535   (664214) от 29.05.2017
-
-Stars On 45 Proudly Presents The Star Sisters - Tonight ! 20.00 Hrs. Remix (2007) [FLAC|Lossless|image + .cue] <Europop, Schlager, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Star Sisters Remix 2007  (03:44) 
-02. A Tribute To Marilyn Monroe  (04:23) 
-03. Alexander's Ragtime Band  (03:07) 
-04. Cry Me A River  (03:53) (   Читать дальше...   )Жанр: Europop, Schlager, EurodanceПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4637E5D81BCF9496F545ED64B2A31EAEF047C25A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138508   (664322) от 29.05.2017
-
-Hans Edler - Space Vision (1979) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady In Black (4:16)
-02. It's Over (4:24)
-03. At The Speed Of The Light (3:55)
-04. Melt Down (4:37)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D5A2E4CCA68A25163BD34F82CE97C8ADAB3F79C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138475   (664323) от 29.05.2017
-
-Cheryl Ladd - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Vocal, Disco, Pop Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cheryl Ladd - американская актриса, певица и писательница. Шерил Джин Стоппелмор родилась в Хьюроне, Южная Дакота и переехала в Голливуд в 1970 году, чтобы начать музыкальную карьеру и вскоре записала песню для одного из анимационных проектов студии Hanna-Barbera. Тогда же она стала солисткой женской группы Josie and the Pussycats и выступала под псевдонимом Черри (   Читать дальше...   )01. Think It Over (3:23)
-02. Walking In The Rain (3:02)
-03. Skinnydippin' (3:17)
-04. I Know I'll Never Love This Way Again (3:42)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Vocal, Disco, Pop Rock, BalladПродолжительность: 01:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A0112DE89808D0230CB15F8F2739C54641C0A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138441   (664383) от 29.05.2017
-
-Dogs Of War - Dogs Of War (1977) LP [MP3|320 Kbps] <Electronic, Space-Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spaciula (4:38)
-02. Future Jungle (6:39)
-03. Intergalactic Tactic (4:36)
-04. Love Pirata (4:58)(   Читать дальше...   )Жанр: Electronic, Space-Rock, DiscoПродолжительность: 00:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2F6EAFF09F2DF9F472852851CBA71942D9CF06B
 ```
 
 

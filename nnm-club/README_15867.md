@@ -1,3 +1,184 @@
+###  Публикация: 1034848   (632512) от 14.07.2016
+
+Парикмахерская 3 / Barbershop: The Next Cut  (2016) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632512.jpg" />
+</div>
+
+
+###  Подробнее
+
+С момента событий, описанных во второй части картины прошло более 10 лет. Кэлвин и его верная команда все еще в деле, однако, сама парикмахерская претерпела множество изменений. И первое, что бросается в глаза - присутствие представительниц прекрасного пола в некогда исключительно мужской компании...Производство: США, Cube Vision, Metro-Goldwyn-Mayer (MGM)Жанр: комедияРежиссер: Малкольм Д. ЛиАктеры: Айс Кьюб, Ники Минаж, Энтони Андерсон, Реджина Холл, Коммон, Гарсель Бове, Трой Гэрити, Деон Коул, Майкл Рейни мл., Седрик «Развлекатель»Перевод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D1E2414961226312D187B901A6EAA003A8A2FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034965   (632513) от 14.07.2016
+
+Журнал | Детектив. Факты. Загадки. Версии №7 (2016) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632513.jpg" />
+</div>
+
+
+###  Подробнее
+
+В номере: исторические тайны, гипотезы и расследования.
+Данный журнал является специальным приложением к газете "Оракул".Жанр: История, криминалистика, детективФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B038E08EA6F621DBEB9F5158EBA5CA55505EAE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034775   (632514) от 14.07.2016
+
+VA - Deep Space Night Vol.4 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aashya - Deep Space Night Sofa Session
+02. Tim Engelhardt - Watching Swans
+03. Riccicomoto - La Nuit
+04. Nadja Lind - Ignore & Block (Terry Lee Brown Jr. dub)(   Читать дальше...   )Жанр: Deep House, Chill House, MinimalПродолжительность: 04:38.05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC16C72966FB22D85A6748A370B34713CE274F70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034788   (632515) от 14.07.2016
+
+Benny Benassi - Danceaholic (2016) [MP3|192 Kbps] <House, Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Benny Benassi -  Danceaholic 3:35
+02. Benny Benassi & Chris Brown -  Paradise (Radio Edit) 3:53
+03. Benny Benassi & MOGUAI -  Gangsta (Radio Edit) 3:21
+04. Benny Benassi -  Universe (feat. BullySongs) 3:21(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 00:52:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A88264035D728B9C15CEE38020FD2715784F6AE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034634   (632516) от 14.07.2016
+
+И. М. Ермаков | Социальные и гносеологические корни религии (1958) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-Атеистическая  пропаганда  —  один  из важнейших  участков  идеологической  работы  среди  трудящихся  города  и  деревни.  Она  является  неотъемлемой частью  нашей  борьбы  за  коммунистическое  воспитание  советского  человека  —  творца  и  преобразователя  жизни.  Без преодоления  религиозной  идеологии,  ее  влияния  на  отдельные  слои  населения  немыслимо  коммунистическое  воспитание (   Читать дальше...   )Жанр: История, религиоведение, политология, гносеология, социологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A429D2CFBD46432E4B3D0710A783CC4BFBE6784C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034989   (632517) от 14.07.2016
+
+Solid Stone - Introspection (2016) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solid Stone - Introspection (5:09)
+02. Solid Stone - Broken (6:28)
+03. Solid Stone & Wellenrausch - Ursa Major (7:21)
+04. Solid Stone - Profound (4:49)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61526094E2D10556B47BB07AB8C93A7C4A1CDC7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034798   (632518) от 14.07.2016
+
+Erika - Deaf Dumb & Blonde (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killer
+02. Heroes Of Heartbreak
+03. Suckerpunch
+04. Drama(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 0:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A045EDB24DD5CBD77A46D1D288341C2CB9596FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 681958   (632534) от 22.07.2013
 
 Alice Francis - Gangsterlove (2013) [MP3|320 кб/с]<Nu Swing, Nu Jazz, Electronic>
@@ -147,6 +328,30 @@ Golden Boy / Золотой парень [1995, OVA, 6] DVDrip upconvert raw + r
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99C3FAB5C46FFB3A3F61FD6921772133D78F3E18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520081   (632565) от 08.07.2012
+
+Остров сокровищ / Treasure Island (2012) HDRip
+
+>>След.
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта новая адаптация любимого классического романа Р.Стивенсона применяет свежий и смелый подход, чтобы создать захватывающую, остросюжетную картину. Двухсерийная драма повествует о Джиме Хокинсе, который неожиданно вливается в мир пиратства, когда обнаруживает карту сокровищ капитана Флинта. Но Долговязый Джон Сильвер не остановится ни перед чем, чтобы прибрать всё (   Читать дальше...   )Производство: Великобритания, ИрландияЖанр: ПриключенияРежиссер: Стив БэрронАктеры: Эдди Иззард, Тоби Регбо, Руперт Пенри-Джонс, Дэниэл Мейс, Филип Гленистер, Дональд Сазерленд, Элайджа Вуд, Ширли Хендерсон, Нина Сосанья, Джофф БеллПеревод: Профессиональный многоголосный - (лицензия)Продолжительность: 03:02:13
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -453,221 +658,6 @@ Third World War - Third World War 2 (1973) 2001, TW Records [MP3|320 Kbps] <Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B128984139F6CEF1C8844882DB61C7F87BD63441
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034858   (632590) от 14.07.2016
-
-Jon Secada – Heart, Soul & A Voice (1994) [APE|Lossless|image + .cue] <RPop Rock, Rhythm & Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whipped
-02. Take Me
-03. If You Go
-04. Good Feelings(   Читать дальше...   )Жанр: RPop Rock, Rhythm & BluesПродолжительность: 00:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADF5D7F2B00441E737F7A716692DD23A171BD5F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035018   (632591) от 14.07.2016
-
-Audioglider - Subaquamarine (2016) [FLAC|Lossless|tracks] <Deep House, Progressive House, Electronica>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stockholm Syndrome
-02. Aerial View
-03. Edison Spark
-04. The Keymaster(   Читать дальше...   )Жанр: Deep House, Progressive House, ElectronicaПродолжительность: 01:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5AEE8A89D890AFACDF446206F98560C4EED0894
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034582   (632592) от 14.07.2016
-
-Adrenaline Mob - Men Of Honor (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mob Is Back    04:34
-02.  Come On Get Up    04:10
-03.  Dearly Departed    04:57
-04.  Behind These Eyes    05:33(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D8B35883C8E5CCB3004D999D85CA2F7ABB8D21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034823   (632593) от 14.07.2016
-
-Tinsley Ellis - Red Clay Soul (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Think About
-02. Givin' You Up
-03. Callin'
-04. Anything But Go(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB1F609EA4B8D576FBD2B62FC4DC5B5092FF1CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034824   (632594) от 14.07.2016
-
-VA - Top 100 Massive DJs Infinity (2016) [MP3|320 Kbps] <Trance, Progressive, Stadium Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632594.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren & Bullysongs -  Freefall (Heatbeat Extended Remix) 5:19
-002. Mark Sixma & Emma Hewitt -  Restless Hearts (Club Mix) 5:44
-003. Gareth Emery -  Huracan (Ben Gold Remix) 5:27
-004. Feel & Adara -  Disappear (DRYM Remix) 4:36(   Читать дальше...   )Жанр: Trance, Progressive, Stadium TranceПродолжительность: 09:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98A6C02A5122BBF19757A5D45BF8B02D5AABA153
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034520   (632595) от 14.07.2016
-
-The Lizards - Reptilicus Maximus (2015) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ton On The One (feat. David Lanik)
-02. Evil Eyes (feat. Frank Marino)
-03. Incurable
-04. Crash (feat. Vinnie Moore)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 0:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3527D1BECAB45C285FFC26425E59C5D00B38583B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035005   (632596) от 14.07.2016
-
-VA - Bonzai & Friends 500 - Remixes (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Breaks, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phi Phi - Hiccup (East Cafe Remix) (7:16)
-02. East Cafe - Minus Ten (Gai Barone Ode To That Night Remix) (7:44)
-03. Alexey Lisin & Alexandra Pride - Sum Of Space feat. Alexandra Pride (Matan Caspi Remix) (6:50)
-04. Airwave - Vega Shining (Satinka Remix) (10:18)(   Читать дальше...   )Жанр: Progressive House, Breaks, Tech HouseПродолжительность: 02:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E05101FC7AB892B54340F6561245416C56AB77A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034850   (632597) от 14.07.2016
-
-А. И. Соболев | Народная демократия — новая форма политической организации общества (1953) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возникновение и развитие народной демократии необходимо рассматривать конкретно-исторически, ибо, как учит опыт народно-демократических стран Европы и Азии, народная демократия имеет этапы своего развития, и в зависимости от этапа меняется ее классовое содержание.
-
-Первый этап — это этап антиимпериалистической, антифеодальной революции, в ходе которой возникает народная (   Читать дальше...   )Жанр: История, политологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FCE5F4F4FCBA4DD477D25D8DD76DE130F07299D
 ```
 
 

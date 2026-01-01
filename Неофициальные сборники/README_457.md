@@ -1,3 +1,30 @@
+###  Публикация: 1218284   (723213) от 09.04.2018
+
+VA - Живи стильно! Наслаждайся музыкой с Hit FM (5) (2018) [MP3|256 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723213.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алёна Свиридова - Ранен
+002. Alex Simons - Вчера
+003. Тома Полак - Отпусти
+004. Тамерлан & Алена - Давай Поговорим(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5C96DC96B5869E6FE4C99EB48578E8875C7E830
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218399   (723215) от 09.04.2018
 
 VA - History Of Female Vocal (2018) [MP3|320 Kbps] <Vocal Trance>
@@ -668,33 +695,6 @@ VA - Alterportal HITS 16 Vol. 93 - May (2016) [MP3|128-292 кб/с] <Alternative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1624AC1BB150FAB6480071A627B2FAF2400DBA5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128851   (724353) от 27.04.2017
-
-Bob Margolin - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Chicago Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Whole Life
-02. Blues Lover
-03. In North Carolina
-04. Sweet (Little) Black Angel(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 02:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01AE35ECD85CEBD28E0474CBFB1EE856E1C2218E
 ```
 
 

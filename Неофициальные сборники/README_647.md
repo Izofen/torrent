@@ -1,3 +1,36 @@
+###  Публикация: 610447   (990574) от 29.01.2013
+
+VA - Drum and Bass Pro V.3 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shapeshifter - Twin Galaxies (The Upbeats Remix)
+02. Awakening State - Out There (Subsonik VIP Mix)
+03. Edward Oberon, Blade, Sopheye - Butterflies (Original Mix)
+04. Sunny Crimea - Ain't No Game (Original Mix)
+05. Hammock - I Can Almost See You (Need a Name Tribute)
+06. Switch Technique - Rude Soul
+07. mSdoS - Dimensions (LM1 Remix)
+08. PostML - It's Time
+09. Skyweep - Sweet Sunday (Original Mix)
+10. Paul SG - Do It But Do It Right (Original Mix)(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 04:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E9F2C0F07684300FCDB025EF66E9C7194CF5E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608314   (990590) от 29.01.2013
 
 VA - Club Dubstep №26 - Club Dubstep №26 (2012) [MP3|320 кб/с]<Dubstep>
@@ -730,39 +763,6 @@ VA - Хиты Под Водочку (2013) [MP3|256 кб/с]<Шансон>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A689A864FD5E1B3DF77F59C83198E7AD5B87BEC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608780   (992259) от 27.01.2013
-
-VA - Радио Шторм - NeРусский Шторм - 86 (2013) [MP3|128-320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akces - I Feel Lucky (Radio Edit)
-02. Akon - That Na Na
-03. Alex Clare - Too Close (Slider & Magnit Remix)
-04. Alex Gaudino feat. Jrdn - Playing With My Heart (Radio Edit)
-05. Angeliya - Love Is Life
-06. Armin Van Buuren feat. Fiora - Waiting For The Night (Radio Edit)
-07. Arsenie - New Bang Bang
-08. Ask Embla - I Fell In Love
-09. Belinda - En La Obscuridad
-10. Cascada - GloriousЖанр: Pop, DanceПродолжительность: 02:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4CEFC4DC744E98C9049A7718BE60EB957AC72D9
 ```
 
 

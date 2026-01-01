@@ -1,3 +1,30 @@
+###  Публикация: 1020820   (743947) от 27.05.2016
+
+VA - Sun Goes Down: Chill Party (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743947.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sev Bastian - Little More
+002. Skendo - Romantic Beach Dinner
+003. Cablu - Stalkerman
+004. Mari Billa - Kids of the Moon(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD993D36B07790B053F7433D8CB4221B5CDB63C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020885   (743955) от 27.05.2016
 
 VA - Tropical Island Paradigm (2016) [MP3|236-320 кб/с] <House, Progressive House, Indie Dance>
@@ -662,33 +689,6 @@ Dread Zeppelin - The Song Remains  (2020) Compilation [MP3|320 Kbps] <Reggae, Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C912FE830929D53C79CB9083ECD2E47717B89D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396659   (745445) от 16.07.2020
-
-VA - Summer Throwback Spotify (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paradisio, Marisa - Bailando - Video Edit 3:48
-02. Aqua - Barbie Girl 3:16
-03. Eiffel 65, Gabry Ponte - Blue (Da Ba Dee) - Gabry Ponte Ice Pop Radio 4:44
-04. Robin Thicke, T.I., Pharrell Williams - Blurred Lines 4:23(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956BE7BDE5864FF2DA8E45ABC79C7919C9484719
 ```
 
 

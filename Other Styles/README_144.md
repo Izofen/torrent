@@ -1,3 +1,192 @@
+###  Публикация: 1196839   (820415) от 04.01.2018
+
+ДиДюЛя - Лучшее (2010) 2CD [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. Один день в сентябре
+02. Посылка из Румынии
+03. Винил(   Читать дальше...   )Жанр: Instrumental |Продолжительность: 02:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCAD7E68050C2514346AAB711CFB574B5EE14AB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382374   (820766) от 10.05.2020
+
+Gealdýr (Gealdyr) - Valravn (2020) Soundtrack [FLAC|Lossless|Web-DL|tracks] <Nordic Folk, Pagan Folk, Ambient Folk>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valravn (3:19)
+02. Deyr Fé (2:19)
+03. The Ritual (3:09)
+04. The Seeress (3:05)(   Читать дальше...   )Производство: Arvur RecordsЖанр: Nordic Folk, Pagan Folk, Ambient FolkПродолжительность: 00:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74CFA613B904EE7FCE547538BB3D6A061EBA6028
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382375   (820768) от 10.05.2020
+
+Gealdýr (Gealdyr) - Sól (Sol) (2019) [FLAC|Lossless|Web-DL|tracks] <Nordic Folk, Pagan Folk, Ambient Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ginnungagap (5:13)
+02. Myrkvidr (3:55)
+03. Baldr (3:08)
+04. Kauna (7:00)(   Читать дальше...   )Производство: Arvur RecordsЖанр: Nordic Folk, Pagan Folk, Ambient FolkПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:475471253D317A74553B28E838098F9669D42B0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382007   (820880) от 10.05.2020
+
+Stu Dying - Study World: Relaxing Music and Ocean Waves For Studying (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820880.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Study World 01:55
+2. Tranquil Waters 02:24
+3. Work of the Composed 02:17
+4. Informative Fantasy	 01:09(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A039D7334B6E6FF62C2F4E35D1BEA4962F147CF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117043   (820916) от 21.03.2017
+
+Alison Krauss - Windy City (2017) Deluxe Edition [FLAC|Lossless|image + .cue] <Country, Bluegrass>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Losing You (2:52)
+02. It’s Goodbye and So Long to You (3:11)
+03. Windy City (3:16)
+04. I Never Cared for You (2:46)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 01:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:848C99D12D3E5B3FA66C0859A5B92553747C1753
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116136   (820920) от 21.03.2017
+
+VA - Tuff Turf: The Original Soundtrack (1985) [MP3|320 Kbps] <Pop Rock, Punk>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820920.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Southside Johnny & The Asbury Jukes - Tuff Turf
+2. The Jim Carroll Band - People Who Died
+3. Jack Mack & The Heart Attack - Green Onions
+4. The Jim Carroll Band - Voices(   Читать дальше...   )Жанр: Pop Rock, Punk, OSTПродолжительность: 00:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E0C65AE022A32D0C413C8E979FFB3CFF932B302
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116836   (821050) от 21.03.2017
+
+VA - Deep Relaxation and Wellness Playlist (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ying Srisati - Meltwater
+02. Jame Ornlamai - Healing Space
+03. Earth Kunchai - Relax
+04. Wanwisa Yuvaves - Ocean(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD9C018940A83677A81DB85DE96588BFB018ACD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116825   (821056) от 21.03.2017
 
 Shiva - Hand Of Fate (2017) [MP3|320 Kbps] <New Age>
@@ -505,195 +694,6 @@ New Age, Creative Mind Master, Asian Zen - Home Zen Learning (2020) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE2D7DA2F5F62192B5031DF9FED7FA9CBC011048
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381723   (824466) от 08.05.2020
-
-Secret Garden - Nocturne The 25th Anniversary Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Classical, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824466.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nocturne (3:14)
-2. Song From A Secret Garden (3:33)
-3. Adagio (2:55)
-4. Serenade To Spring (3:15)(   Читать дальше...   )Жанр: New Age, Classical, InstrumentalПродолжительность: 01:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B009C5304C4631A5D20913622AF66D686B6B9E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381789   (824481) от 08.05.2020
-
-Кватро - Тебе поем (2020) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824481.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Kyrie Eleison
-2. Благослови, Душе моя, Господа
-3. Богородице, Дево, Радуйся
-4. Херувимская песнь (Павел Чесноков)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:33:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE967F0A2925B97F219E0790DE355A589DBB20E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381473   (824688) от 08.05.2020
-
-Asian Zen - Fresh Meditation Soundtrack (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824688.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Oriental Bliss 02:56
-2. Flashes of Water 03:13
-3. Relaxing Oriental Rhythms 03:36
-4. Healing Treasure 03:17(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1463754727DF014FDBB2AF7FC29EB78340FD1248
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381516   (824690) от 08.05.2020
-
-Asian Zen - Peaceful Zen Lullabies (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824690.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dream Sleep Song 03:24
-2. Sleep for Mom & Dad 03:37
-3. Natural Sleep Aid 03:31
-4. Gentle Piano Lullaby	 03:08(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ADA9BC3DC5366EC6786F227C5D683301D2C996D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381318   (824693) от 08.05.2020
-
-Asian Zen, Soothing Sounds - Harmony of Yoga After Hard Day (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824693.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Divine Healing 04:30
-2. Yoga Exercises 02:56
-3. Art of Meditation 02:56
-4. Sacred Prayers 03:05(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33EC54587855C90A3F9F762B91B6DFDB815CF731
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381840   (824805) от 08.05.2020
-
-Terry Scott Taylor - The Music of Armikrog. (2015) [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme Armikrog
-02. Hot and Beefed (The Zipkicker)
-03. Scaly Maps
-04. The Squarely Beast(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E6A334F2DF1EE29AA96DC0DF4C56F8730B572AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 880985   (826004) от 24.03.2015
-
-James Bay - Chaos And The Calm (2015) [FLAC|Lossless]<Indie Pop, Indie Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Craving
-02. Hold Back The River
-03. Let It Go
-04. If You Ever Want To Be In Love(   Читать дальше...   )Жанр: Indie Pop, Indie FolkПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9332A0865A94EF484B0D8F4F3EFFF351CEDB2440
 ```
 
 

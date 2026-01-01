@@ -1,3 +1,30 @@
+###  Публикация: 1139955   (657813) от 04.06.2017
+
+VA - Tropical Serenity: 100 Relaxing Sounds (2017) [MP3|320 Kbps] <Downtempo, Chillout, Ambient, Relax>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657813.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Tequila Sunset - Kiss (feat. Namwann) (Original Mix) 3:57
+002.  Chillaxing Jazz Kollektion - Every Good Thing 4:58
+003.  Robien M - Catch A Glimpse 4:12
+004.  Ingo Herrmann - Amorph (Original Mix) 3:09(   Читать дальше...   )Жанр: Downtempo, Chillout, Ambient, RelaxПродолжительность: 07:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBDEF2AE3FD039CF6D6E7B267F5909C7ACB3C3F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225891   (657824) от 18.05.2018
 
 VA - Lady And The Sun (2018) [MP3|320 Kbps] <Rap, Hip Hop, RnB>
@@ -710,33 +737,6 @@ VA - USA Hot Top 40 Singles Chart 6 June (2015) [MP3|~245 кб/с (V0)]<Dancehal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE0A70F8C3D204DB5E9311E9379AB0C441061254
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903369   (659065) от 30.05.2015
-
-VA - Summer Dance Hits (2015) [MP3|320 кб/с]<Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Froidz - Enjoy The Silence (Froidz Club Remix Edit)
-02. Sandro Silva - Firestarter (Original Mix)
-03. Charming Horses feat. Emma Carn - You And I (Original Mix)
-04. Wildstylez & Audiotricz - Turn The Music Up! (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 05:09:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B198CFCB4C8324F1F8CF4217D37968CE4E1AB88E
 ```
 
 

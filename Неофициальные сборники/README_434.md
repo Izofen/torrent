@@ -1,3 +1,30 @@
+###  Публикация: 1028040   (692975) от 21.06.2016
+
+VA - Chilling with Endless Nights (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solanos - Night Fishermen [5:36]
+02. Sixty4 - Subraum [5:20]
+03. Kaxamalka - Sirocco [5:43]
+04. Don Gorda Project & Boring Sax - Hand in Hand [6:08](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86AF8EE77138F89E792808B4E40CA3EDC7ECE543
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221542   (693177) от 25.04.2018
 
 VA - 125 Keep World DJ Loaded (2018) [MP3|256-320 Kbps] <Progressive, Future House, Electro>
@@ -650,33 +677,6 @@ VA - Chillout Classical Study (2016) [MP3|320 кб/с] <Downtempo, Chillout, Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24AC1CF8BB95361E416D138D5FB9CD09BB9D08F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027949   (694844) от 20.06.2016
-
-VA - Extra Trance: Bonus [07] (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ayla - Ayla (Omar Sherif 2016 Remix) (6:49)
-02. Solis & Sean Truby - Flashlight (Original Mix) (5:37)
-03. Alex Ender - KSU (Extended Mix) (6:05)
-04. Masters & Nickson feat. Justine Suissa - Out There (Robert Nickson 2016 Extended Remix) (7:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE5DB7488C0FB37893AD3742AA6BB865A46C2C7
 ```
 
 

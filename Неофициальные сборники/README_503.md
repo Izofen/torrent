@@ -1,3 +1,30 @@
+###  Публикация: 1209135   (779529) от 25.02.2018
+
+VA - PSY: Megapack Psychodelic Trance (2018) [MP3|320 Kbps] <Psy Trance, Psychodelic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blastoyz  -  Mandala (Original Mix)  5:58
+02.  Strange Blotter & Mystic  -  Ozrayen (Original Mix)  7:52
+03.  Mindwave  -  3 6 9 (Original Mix)  8:45
+04.  Spectrum Noise  -  Journey (Original Mix)  6:16(   Читать дальше...   )Жанр: Psy Trance, PsychodelicПродолжительность: 06:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:199E2900D4566B36FFDC6A7F8189ABB7769B4F3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209210   (779530) от 25.02.2018
 
 VA - Empire Records - Deep Blue (2018) [MP3|320 Kbps] <Deep House>
@@ -667,33 +694,6 @@ Gon Haziri feat Luar - DY (2018) Remix [MP3|320 Kbps] <Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEFDA315B4AC72780FF4CE39BB8141D5CCF85AC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207408   (780487) от 18.02.2018
-
-VA - Enigma Alive Vol.3 (2018) [MP3|320 Kbps] <New Age, Enigmatic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empire Of Love - Mysterious
-02. Tarena - The Secret of Life
-03. Rejean Paquin - The Hierophant
-04. Shinnobu - Angeli Hierusalem(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 03:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E375DD5D8E8E958DE128DCBFF4C38695BBEAD28
 ```
 
 

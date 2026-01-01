@@ -1,3 +1,57 @@
+###  Публикация: 1453802   (1026707) от 12.03.2021
+
+VA - Piano Classics - Relaxing Classical Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florian Christl - Vivaldi Variation (Arr. for Piano from Concerto for Strings in G Minor, RV 156) (01:54)
+02. Olga Scheps - Memories of a Promenade II (03:26)
+03. Florian Christl - Schumann Variation (on a Theme from Piano Concerto in A Minor, Op. 54: I) (02:30)
+04. Olga Scheps - Gymnopédie No. 1: Lent et douloureux (03:07)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A68607B80C07E143A70F52740411516E30CFDA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452931   (1027370) от 08.03.2021
+
+J.S. Bach - Solo Cantatas for Bass BWV56, 82 & 158 (2019) [FLAC|Lossless|WEB-DL|image + .cue] <Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ich habe genung in C Major, BWV 82:
+01. I. Aria. Ich habe genung (6:47)
+02. II. Recitativo. Ich habe genung (1:26)
+03. III. Aria. Schlummert ein, ihr matten Augen (8:55)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A6BB7A887CA56DAAD7DCCFC9C539EDD7B6CA08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449850   (1029497) от 23.02.2021
 
 Royal Philharmonic & Roqueville Orchestras - Soft Rock Hits (2008) Box Set, 3 CD [FLAC|Lossless|image + .cue] <Soft Rock, Neoclassical>
@@ -647,60 +701,6 @@ Symphony no. 5 in B-flat major, D 485:(   Читать дальше...   )Жан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:354208CB9BFB3CA36947D1EC36D9EB85EC6B3DD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608162   (1043455) от 01.02.2023
-
-VA - Classical Music: Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jan-Olav Wedin - Piano Concerto No. 21 in C Major, K. 467 II. Andante Elvira Madigan (6:55)
-02. Freddy Kampf - Piano Sonata No. 8 in C Minor, Op. 13 Pathétique II. Adagio cantabile (6:02)
-03. Roland Pöntinen - Suite Bergamasque, L. 75 III. Clair de lune (5:36)
-04. Freddy Kempf - Gaspard de la nuit, M. 55 I. Ondine. Lent (6:36)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:968CA961C75393D4B71F8A484F4DEB95BC3A0739
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605988   (1044431) от 22.01.2023
-
-Hélène Grimaud - Hélène Grimaud plays Rachmaninoff and Shostakovich (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044431.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rachmaninoff Vocalise, Op. 34 No. 14 (Arr. for Violin and Piano) (with Lisa Batiashvili) (5:38)
-2. Cello Sonata in G Minor, Op. 19 Rachmaninoff Cello Sonata in G Minor, Op. 19 - III. Andante (with Jan Vogler) (5:21)
-3. Piano Sonata No. 2 in B Flat Minor, Op. 36 Rachmaninoff Piano Sonata No. 2 in B Flat Minor, Op. 36 - I. Allegro agitato (9:50)
-4. Piano Sonata (   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DDDDC6461395FB3D215BF544F3F26917BE236F0
 ```
 
 

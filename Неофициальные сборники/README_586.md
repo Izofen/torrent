@@ -1,3 +1,30 @@
+###  Публикация: 1103842   (883639) от 13.02.2017
+
+VA - Зимняя русская радиоволна (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883639.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Стас Костюшкин - Бабушка 2:58
+002. Lega - Она Мой Diamond 3:31
+003. Ira Smith - Мир В Тебе 3:12
+004. Егор Крид - Мало Так Мало 3:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279EF977EC8DCF075E8C064833DCF558AA8AE49B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103831   (883640) от 13.02.2017
 
 VA - Музыкальное потрясение зимы от Русского радио выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
@@ -673,33 +700,6 @@ VA - Empire Records - Dancenudisco 8 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAD2FF81B7FEECD518AA52947103F839DC60CF01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103548   (886074) от 12.02.2017
-
-VA - Planet of Chillout: Fifteen Organic Downtempo and Chillout Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anuwat Chamroon - Funky Organs
-02. Doktor Gigi - Rich and Healthy
-03. Thai Ragga Collective - Sunny Afternoon
-04. Baramee Thawan - Sunthat(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B251D2B090500BFDC1917607952893D05BC3425
 ```
 
 

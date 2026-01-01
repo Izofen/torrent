@@ -1,3 +1,138 @@
+###  Публикация: 1007819   (819899) от 16.04.2016
+
+VA - Urban Dance Battle Nation (2016) [MP3|320 кб/с] <House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mykel Mars - White Beach (DJ Absinth EDM Edit) 03:20
+02. Tony Wong - Born for EDM (Muscle Mix) 03:37
+03. The Betatesters - Drop That (EDM Cardio Mix) 03:24
+04. Robby Schulz - Breathtaking (EDM Workout Anthem) 04:32(   Читать дальше...   )Жанр: House, Progressive, DanceПродолжительность: 02:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:256FBBBD829D6636AC224537A1BD9401F41E6A61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007754   (819900) от 16.04.2016
+
+VA - Venera Music Vol.4 (2016) [MP3|320 кб/с] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aleksey Skvortsov - Into the Unknown 06:45
+02. Alex Greenhouse - Everyday U Need a 5un5hine 09:02
+03. Anton Seim - Pleasure Time (Manchus Remix) 07:00
+04. Argonautica - Counterpoison 05:13(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:07:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D43E96ED01C9977155597B16CC34BE9E0459E92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007572   (819901) от 16.04.2016
+
+Giash - Brightness Is All (2016) [FLAC|Lossless|WEB-DL|tracks] <Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The North beast (2:24)
+02. Mouth Of Warnow (7:28)
+03. Lack Of Patterns (9:19)
+04. Next Door (6:46)(   Читать дальше...   )Жанр: MinimalПродолжительность: 01:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B04E81766BEA42DB6B00FC5ABD4FC47A3BE9BE0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007844   (819902) от 16.04.2016
+
+VA - Progressive House Components (2016) [MP3|320 кб/с] <House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quadran - Rumour (Thorin Remix) 07:18
+02. Fulagie - Tantrina 05:44
+03. LucianZ - Beautiful Moments (Club Mix) 06:41
+04. Lolo - Travel the World in 10 Minutes (Chris M Progressive Mix) 10:00(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 02:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A78ABCD29EBB23F93D86A0A6C78ABDDCEAC223
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116932   (820425) от 21.03.2017
+
+Infected Mushroom - Return to the Sauce (2017) [FLAC|Lossless|CD|tracks+.cue] <Psy-Trance, Electro House>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infected Mushroom - Flamingo (8:36)
+02. Infected Mushroom - Manipulator (6:28)
+03. Infected Mushroom - Return To The Sauce (7:43)
+04. Infected Mushroom - Groove Attack (6:44)(   Читать дальше...   )Жанр: Psy-Trance, Electro HouseПродолжительность: 01:10:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E191B74D890FC9A24734906EF9437186EE0385
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126483   (820499) от 10.05.2020
 
 Pjusk - Discography 10 Releases (2007-2019) 12k [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Minimal, Techno, Ambient>
@@ -553,141 +688,6 @@ Mi Chan - In The Night (2017) [MP3|320 Kbps] <Trance,Progressive Trance,Upliftin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80FA6244A845E584C45A950F854111C2190992FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196478   (822552) от 03.01.2018
-
-VA - Focus On Nicholas Van Orton (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicholas Van Orton - Artras (Original Mix) [08:35]
-02. Nicholas Van Orton - Flamas (Original Mix) [08:25]
-03. Nicholas Van Orton - Radient (Original Mix) [07:07]
-04. Nicholas Van Orton - Hay Grises (Original Mix) [08:15](   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 02:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B15E1E00920132F4A2C5BD5AF40D875C7ADE715F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196704   (822554) от 03.01.2018
-
-VA - Transire Recordings Best Of 2017 (Mixed by Lightform) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nakhiya - Ephemeral (Abide Remix)
-02. Aldo Moro - Bahamontes (Imida Remix)
-03. Abide - Him (Lightform Remix)
-04. Dawid Jurzyk - Flying Green (Alex DJohn Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:26:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2B2C5D66BF4EBF38E882CDDB15C3A2DAF4B0CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382037   (822650) от 09.05.2020
-
-X-Men - Atmosfera (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822650.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Atmosfera (6:54)
-2. Back To The Groove (7:04)
-3. Ion - Eco Road (Remix) (7:47)
-4. Psychedelika (6:52)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 00:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C88D0BF26D712273BD2513C00B7549C2A872EE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381909   (822657) от 09.05.2020
-
-VA - Early Morning Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - A Dream in Your Eyes (Original Mix)
-02. Michael E - Let It Rain (Original Mix)
-03. Charlie North - Saltwater (Ambient Mix)
-04. Marie Therese - Gin & Tonic (Pier-O Bossa Chill Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D8F38723134E69D5F69B97F00014029F8EA2FB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382038   (822660) от 09.05.2020
-
-VA - Progressive & Psy Trance Pieces, Vol. 23 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822660.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. WHITENO1SE - Take Me Higher (5:09)
-2. Symphonix - Crystal Black (5:48)
-3. GHOST RIDER - Soul Recover (Normalize Remix) (6:51)
-4. Zyrus 7 - The Expanse (6:04)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E590BECDC55DEFA7105482F5AF33686CBF858686
 ```
 
 

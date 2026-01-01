@@ -1,3 +1,204 @@
+###  Публикация: 598975   (999148) от 07.01.2013
+
+Андрей Сигунов - Bessame Mucho (2011) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999148.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Тико-Тико
+2.Ноктюрн
+3.Besame Mucho
+4.Мой ласковый и нежный зверь
+5.Карусель
+6.Baila con migo
+7.Yesterday
+8.Бегут года
+9.Piccola samba
+10.Cumbia gitana(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B51B4E6567E481E7218CF1E9174166511477A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597622   (999681) от 05.01.2013
+
+VA - Narada Guitar 2  The Best of Two Decades (2000) [MP3|320 кб/с]<Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Don Ross - Michael Michael Michael Don Ross (4:11)
+ 2. Artie Traum - Safety In Numbers Artie Traum (6:31)
+ 3. Randy Roos - Ray's Passage Randy Roos (5:48)
+ 4. Billy McLaughlin - Candleman Billy McLaughlin (6:19)
+ 5. Willie and Lobo - Havana Vieja Willie and Lobo (5:04)
+ 6. Alex de Grassi - It Ain't Necessarily So Alex de Grassi (4:30)
+ 7. Jesse Cook - Rattle And Burn Jesse Cook (3:48)
+ 8. Eric Tingstad - The Craftsman Eric Tingstad (3:38)
+ 9. Oscar Lopez - The Flavor Oscar Lopez (4:00)
+ 10. Laurence Juber - New Jersey Left Laurence juber (4:09)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 02:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40E9402853263ED9D61592F3A518258B1E76D9D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352228   (1000880) от 15.01.2020
+
+Kenneth Hooper - Directions (2020) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000880.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Directions (8:19)
+2.All Who Wander (8:15)
+3.Trailblazers (6:20)
+4.Springtime Dreaming (9:20)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9766A27218E70EB97ACB7B62050D1CB1CC65DDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351473   (1000892) от 15.01.2020
+
+7 часов спустя (Обратный отсчёт) / 7 Hours to Go (Original Motion Picture Soundtrack) - EP (2016) [MP3|128 Kbps] <OST, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mohammed Irfan feat. Sarodee Borah & Sugat Shubham - Tere Naina
+02. Nikhil DSouza feat. SugaT, Shubham & Hanif Shaikh - Zinda Hota Mein
+03. Jubin Nautiyal feat. SugaT, Shubham & Hanif Shaikh - Zinda Hota Mein (Reprise)
+04. Hanif Shaikh - Dalinder Dance(   Читать дальше...   )Жанр: OST, SoundtrackПродолжительность: 00:21:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E8328AC2162823F2C45010D643862284D0D468E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352292   (1000894) от 15.01.2020
+
+Frantz Amathy - Heavenly Ways (2004) [FLAC|Lossless|tracks + .cue] <New Age, Relax, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Wind of Love (6:21)
+02. Heavenly Ways (9:35)
+03. Mystery (4:54)
+04. Crystal Song (5:09)(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 01:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E93916572FEA2A13FB4147D40AFDB908FDF11B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 740114   (1000958) от 14.01.2020
+
+Era & Arielle Dombasle - Arielle Dombasle By Era (2013) /Special Edition/ [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ave Maria (Inspired By The Ave Maria / Gonoud) (4:02)
+02. Cold Song (From 'Cold Genius' King Arthur Opera) (3:29)
+03. Adagio For Strings (Era Version / Edit Agnus Dei) (3:57)
+04. Sins (From 'Miserere') (3:31)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E73FAF98A4569F40464EFFD3FFA0FC0D195C90ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 710427   (1000966) от 14.01.2020
+
+Karunesh - Sounds of the Heart (1987) [FLAC|Lossless|tracks + .cue] <New Age, Downtempo, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clouds & Wings [6:27]
+02. Wu-wei [5:31]
+03. Fantasy Dancer [4:22]
+04. Back Home [6:10](   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:448EBD6B4E57E1565F2EA68C9D0F16E27DED2E70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489174   (1001163) от 14.08.2021
 
 David Garrett - Music (2012) [FLAC|Lossless|image + .cue] <Instrumental Pop, Instrumental Soft Rock, Classical>
@@ -512,192 +713,6 @@ Firefall - Great Collection (2021) [FLAC|Lossless|image + .cue] <Country Rock, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5620FD7C08872F56873DB9D0D5E010995C2A5CF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647055   (1004040) от 03.08.2021
-
-Dragoslav Pavle Aksentijevic - Древнее Сербское Псалмопение XIII-XIV вв. (2007) [MP3|320 кб/с]<Православные песнопения>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Православные песнопенияПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CAD397C45BEAB5A3148894B584B13515F02A70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349314   (1004225) от 02.01.2020
-
-Shinnobu - The Enigma III (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etheric Worlds III (4:57)
-02. Warriors of Light (5:31)
-03. Mirages (feat. Angelux Ruddy) (5:28)
-04. Enigma from Man (feat. Angelux Ruddy) (8:13)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2DD8F2B531D81D51F8898845B5FF9C612D243A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348680   (1004272) от 02.01.2020
-
-Ani Tsering Wangmo - Immeasurable Joy (2006) [FLAC|Lossless|tracks + .cue] <Tibetan Chants>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Siddhi Yang (5:49)
-02. She Nying Yang (6:06)
-03. Tarai Yang (6:52)
-04. Mani Yang (8:31)(   Читать дальше...   )Жанр: Tibetan ChantsПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4777DA693CDE2B26AAA461300654A41483CFF19D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349436   (1004436) от 01.01.2020
-
-VA - Fiesta Latina 2019 (80 Big Latin Hits 2019/2020!) [MP3|320 Kbps] <Latin, Reggaeton, Salsa>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somos del Barrio – Con Calma (Reggaeton Version)
-02. Grupo Extra – A Traves del Vaso (Bachata Version)
-03. Charanga Habanera – Traicionera
-04. Somos del Barrio – Loco Contigo (Reggaeton Version)(   Читать дальше...   )Жанр: Latin, Reggaeton, Salsa, BaciataПродолжительность: 04:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:549987BF72CA37B8B95B71D040DC2423D12207EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485551   (1005204) от 27.07.2021
-
-Gheorghe Zamfir - Pan Flute Improvisations (1988) [FLAC|Lossless|image + .cue] <Instrumental, Folk, World>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gheorghe Zamfir - румынский музыкант, играющий на модернизированной версии румынского национального инструмента, пан-флейте (най), которая состоит из 20-30 трубок, с расширенным звуковым диапазоном и большим количеством тонов. Gheorghe Zamfir стал известен широкой публикев 1960-х, в частности, благодаря швейцарскому музыканту Marcel Cellier, исследователю румынской (   Читать дальше...   )1. Domasnea (5:14)
-2. Jebel (4:41)
-3. Arad (6:54)
-4. Oltera (6:46)(   Читать дальше...   )Жанр: Instrumental, Folk, WorldПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE6AD143B079E8F6FFE7F17D0299CFE61C7810D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485618   (1005257) от 26.07.2021
-
-Нейромонах Феофан - Акустика, Ч.2 (2021) [MP3|320 Kbps] <Folk, Acoustic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005257.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пасынок Правил (Акустическая Версия)
-2. Замиренье (Акустическая Версия)
-3. Дрова (Акустическая Версия)
-4. Везде Пляшу (Акустическая Версия)(   Читать дальше...   )Жанр: Folk, AcousticПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43AA388DE73D693D6409128DF5BB9B6ED73C40B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484500   (1005931) от 21.07.2021
-
-Jim Brickman - Bedtime Story Volumes Two & Three (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. Touch of Dreams (08:55)
-02. Chamomile (08:39)
-03. Bedtime Breeze (07:56)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:24:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A18295C171323EB7044A2C31AE99150EA3D66B51
 ```
 
 

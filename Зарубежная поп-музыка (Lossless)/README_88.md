@@ -1,3 +1,59 @@
+###  Публикация: 629864   (931274) от 13.03.2013
+
+Justin Timberlake - The 20/20 Experience (Deluxe Edition) (2013) [FLAC (tracks+cue)|Lossless]<Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, R&BПродолжительность: 01:19:26
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 754452   (932008) от 08.02.2014
+
+I Break Horses - Chiaroscuro (2014) [FLAC|Lossless]<Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. You Burn (4:59)
+02. Faith (3:49)
+03. Ascension (4:57)
+04. Denial (3:40)
+05. Berceuse (4:41)
+06. Medicine Brush (7:03)
+07. Disclosure (4:47)
+08. Weigh True Words (4:07)
+09. Heart To Know (7:41)Жанр: Electronic, PopПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8A180A5C9602188C8426D2E0FB998337D9274F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093880   (932272) от 16.01.2017
 
 Red Box - The Circle & The Square (1986) Reissue, 2008, Cherry Pop [APE|Lossless|image + .cue] <Alternative Pop, New Wave, World Music>
@@ -701,74 +757,6 @@ Raffaella Carra - Raffica Carra (2007) 2CD [APE|Lossless]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFE069E0FC1A2E6E0317E8179A55885D2F0ABD2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 752873   (938354) от 04.02.2014
-
-Toto Cutugno - Insieme (2004) 2CD [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Serenata (3:50)
-02. Solo Noi (4:05)
-03. Insieme 1992 (4:28)
-04. Voici Les Cles (French Version Of-Nel Cuore E Nei Sensi) (4:10)
-05. Because (I Love You) (English Version) (4:09)
-06. Anna (3:53)
-07. C'est Venice (4:27)
-08. En Chantand (French Version Of-Cantando) (4:28)
-09. Et Si Tu N'Existais Pas (Oasis) (4:23)
-10. Mademoiselle Ca Va (4:16)(   Читать дальше...   )Жанр: PopПродолжительность: 02:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA9B465F9E7A9A069EEA153B9B854B17E6C94CB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 283542   (938415) от 18.01.2011
-
-Engelbert Humperdinck - Greatest Hits And More (2CD) (2007) [APE|Lossless]<Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-В СССР Энгельберт Хампердинк пользовался большой популярностью в 1970-е гг., в первую очередь, благодаря официально выпущенным пластинкам фирмы <Мелодия> (два миньона и один альбом-сборник).
-Первый приезд с гастролями в Россию состоялся в 2003 году, когда в Кремлевском дворце в Москве прошли два концерта Энгельберта.
-Через семь лет, 3 апреля 2010 года, Энгельберт вновь дал концерт в Москве (Крокус-сити-холл). В том же 2010 году на международном конкурсе молодых исполнителей "Новая волна" Энгельберт Хампердинк выступил перед многочисленными (в том числе из России) гостями фестиваля в Юрмале (Латвия).01. What A Wonderful World
-02. Ten Guitars
-03. Funny Familiar Forgotten Feelings
-04. My World (Il Mondo)
-05. Can't You See
-06. There's A Kind Of Hush
-07. My Marie
-08. Sweetheart
-09. Dance The Night Away
-10. Sometimes When We Touch(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:19:55
-
-## Скачать торент
-```bash
-нет
 ```
 
 

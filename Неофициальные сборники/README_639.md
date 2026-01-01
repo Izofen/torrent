@@ -1,3 +1,30 @@
+###  Публикация: 975732   (972033) от 15.01.2016
+
+VA - Beatport Best Of 2015 Top 100 (2016) [MP3|320 кб/с] <Tech House, Deep House, House, Indie Dance / Nu Disco, Electro, Progressive, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972033.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kollektiv Turmstrasse - Sorry I Am Late 08:10
+002. Technasia, Green Velvet - Suga 06:42
+003. Sugarstarr ft. Alexander - Hey Sunshine (Antonio Giacca Remix) 06:44
+004. Gregory Porter - Liquid Spirit (Claptone Remix) 06:25(   Читать дальше...   )Жанр: Tech House, Deep House, House, Indie Dance / Nu Disco, Electro, Progressive, TechnoПродолжительность: 09:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B72CAE4BF58EEF35629074E9F0F6A66BE5C20B2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975731   (972097) от 15.01.2016
 
 VA - Best Of 2016 Party Dance (2016) [MP3|320 кб/с] <Dance, Pop, Club>
@@ -698,33 +725,6 @@ VA - Love Classics Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrum
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:165D1A8EEEA9E253111D0FB3677EA19231257F31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974846   (974583) от 13.01.2016
-
-VA - Prometheus: Trance Party (2016) [MP3|320 кб/с] <Progressive Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974583.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adrian Font - Anxiety
-002. Beat Service & Ana Criado - An Autumn Tale (Radio Edit)
-003. Sunset & Mino Safy - Prometheus (Iversoon & Alex Daf Remix)
-004. Line Pursuit - Ravenna (Extended Mix)(   Читать дальше...   )Жанр: Progressive Trance, ElectroПродолжительность: 11:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153CDDB4E18C7CB807CD66C2D665810400EDED72
 ```
 
 

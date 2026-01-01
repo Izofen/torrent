@@ -1,3 +1,138 @@
+###  Публикация: 1302512   (1028512) от 01.03.2021
+
+Thessa Torsing | upsammy - Discography 8 Releases (2018-2021) Nous'klaer Audio, Die Orakel, Dekmantel [FLAC|Lossless|WEB-DL|tracks] <IDM, Leftfield, Electro, Ambient, Techno>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flutter (05:21)
+ 02. Spat (04:04)
+ 03. Worm (04:51)
+ 04. Metallic (03:14)Тип издания: WebЖанр: IDM, Leftfield, Electro, Ambient, Techno •Продолжительность: 03:54:07 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC4F2A18BA033165EA7A1493DDC9BF7C3AD62D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451316   (1028540) от 01.03.2021
+
+VA - Paerels II (2020) Nous'klaer Audio [FLAC|Lossless|WEB-DL|tracks] <Tech House, Leftfield, Ambient, Electro, IDM, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mattheis - Prism1 (Tidal Fields Version) (03:53)
+ 02. Ben Buitendijk - Timetraveler (07:28)
+ 03. Koraal - Vuurduin (06:59)
+ 04. Amandra - Falbala (06:53)(   Читать дальше...   )Жанр: Tech House, Leftfield, Ambient, Electro, IDM, TechnoПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74F5AEFEB04706EA43535F0E1F7BED8B276C26E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451369   (1028545) от 01.03.2021
+
+E-Talking - Techno Man's Land (2021) Going Good [FLAC|Lossless|tracks+.cue] <Electro, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Up Your Psyche (03:24)
+ 02. Insider (03:46)
+ 03. The Vaults (03:11)
+ 04. A Sinuous Dream (03:53)(   Читать дальше...   )Жанр: Electro, Ambient, TechnoПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:320095AD71790756998C5A2F242BBCEA0FDB9187
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451324   (1028550) от 01.03.2021
+
+Vardenzenix - Imminence (2021) People Can Listen [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. EZ I (08:21)
+ 02. Agogics (08:11)
+ 03. The Attic (07:20)
+ 04. Wilk (06:25)(   Читать дальше...   )Жанр: IDM, GlitchПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76CEB031B350B1DFC1D16396D63A3A88BBD34228
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451261   (1028555) от 01.03.2021
+
+mōshonsensu (moshonsensu) - Solemn Grandeur (2021) Abstrakt Reflections [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Glitch>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dialed - 4D3x (moshonsensu Remix) (04:58)
+ 02. Pattern 2.45 (07:04)
+ 03. Forsberg_Sofus (05:31)
+ 04. Unbalanced Data (06:31)(   Читать дальше...   )Жанр: IDM, Ambient, GlitchПродолжительность: 00:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F486E9B177CFA79B789B0323B909080975D2C00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451317   (1028559) от 01.03.2021
 
 VA - Paerels (2017) Nous'klaer Audio [FLAC|Lossless|WEB-DL|tracks] <Electro, Ambient, Leftfield, IDM, Tech House, Acid>
@@ -553,141 +688,6 @@ Mirage Of Deep - The Best Of Mirage Of Deep (2023) [MP3|320 Kbps] <Balearic, Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:297E585A393ED570AFF4C1743B37121E1152FB7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156174   (1029157) от 25.02.2021
-
-Tim Koch (10:32, Thug) - Discography 16 Releases (1999-2021) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Leftfield, Abstract, Downtempo, Experimental, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estranger (06:43)
- 02. Disfugue (05:07)
- 03. Dreitark (06:24)
- 04. Hankert (06:16)Тип издания: CD, WebЖанр: IDM, Leftfield, Abstract, Downtempo, Experimental, Ambient •Продолжительность: 15:40:59 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96563E06B29A492EE736490A27954AC5A43E1199
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450173   (1029187) от 25.02.2021
-
-Subchord - Label Pack 4 Releases (2018-2021) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Altone - Mex (06:23)
- 02. Asphalt Layer - Endless Waves (06:14)
- 03. Intrip - Subday (07:35)
- 04. Le Code - Headspace (05:36)(   Читать дальше...   )Тип издания: WebЖанр: Dub Techno, Ambient •Продолжительность: 03:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6DA1B7A1D0C55CBE1DF9EE180250B53662D8BC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450119   (1029190) от 25.02.2021
-
-VA - Space Fly, Vol. 1: A Magic Chill Trip Presented by Frank Borell (2009) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Trip-Hop, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airstream - Outer Space (Meditation Lounge Mix) (6:34)
-02. Dreamscape - The Seven Sense (Behind the Horizon Mix) (5:12)
-03. Manoa - Jumeira Drive (Highway Mix) (6:27)
-04. Frank Borell - Minded 2 Say (Chillout Mix) (7:14)(   Читать дальше...   )Жанр: Chillout, Trip-Hop, LoungeПродолжительность: 02:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BB03845A6919B125330E5E80B86ADC05B627A1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450347   (1029197) от 25.02.2021
-
-Anthéne (Anthene) - The Slow Wave (2021) Giraffe Tapes [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rearview (05:04)
- 02. Sentries (04:52)
- 03. This Lonely Path (04:00)
- 04. Outside Looking In (04:36)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F987C3B4797FCD0D11B61959B84CE6D20EA1341
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450313   (1029203) от 25.02.2021
-
-Ilkae - Questionable Casino (2021) Eerik Inpuj Sound [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cast Aside (03:58)
- 02. Oneirogen (II) (06:03)
- 03. Lesser Crimes (02:20)
- 04. Yttria & Ceria (06:43)(   Читать дальше...   )Жанр: IDM, Glitch, ExperimentalПродолжительность: 01:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0A6260A72B34E455EE25E0C8729F282C38164D
 ```
 
 

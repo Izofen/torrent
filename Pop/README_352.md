@@ -1,3 +1,165 @@
+###  Публикация: 1458324   (1024068) от 28.03.2021
+
+Eva Eva Eva - Eva Eva Eva (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Me Please Forever (3:34)
+02. Vedrai (2:51)
+03. Do (3:09)
+04. Argentina (3:54)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19B6E187348FE2973D818634CE7C5617BDE9DA0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457972   (1024099) от 27.03.2021
+
+*NSYNC ('N Sync) - No Strings Attached (2000) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bye Bye Bye (3:21)
+02. It's Gonna Be Me (3:13)
+03. Space Cowboy (4:24)
+04. Just Got Paid (4:11)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AA68FFFA42D147DECEAE72C2C6829B1BFA116D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458012   (1024176) от 27.03.2021
+
+Inga & Anete Humpe - Swimming With Sharks (серия "Другие восьмидесятые") (1987) [MP3|320 Kbps] <German Pop, Synthpop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Careless Love
+02. Idiot
+03. No Longer Friends
+04. Conspiracy(   Читать дальше...   )Жанр: German Pop, Synthpop, New WaveПродолжительность: 00:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E1E9AD9CF6BDEE8FFE7898EEB5DDFD67711DDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457280   (1024377) от 26.03.2021
+
+Thomas Anders - Cosmic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Rider
+02. Undercover Lover
+03. Ready For Romance
+04. Je Ne Sais Pas(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED3C1A28ED189B8686EE91ACADB679E9727975E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457466   (1024379) от 26.03.2021
+
+Vanessa Mai - Mai Tai (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sommerwind (2:35)
+02. Leichter (2:53)
+03. Morgenlicht (2:56)
+04. Vanessa Mai, Fourty - Mitternacht (3:03)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60BA633E833F7581D5D40637C3640B56D0BDD8E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457192   (1024523) от 25.03.2021
+
+Taylor Swift - Evermore (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Willow
+02. Champagne Problems
+03. Gold Rush
+04. ‘Tis The Damn Deason(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 01:15:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6176C4CC790C6708155817622524EED983DA8906
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457234   (1024588) от 25.03.2021
 
 Наташа Морозова - Russian Enigma (2013) [MP3|320 Kbps] <Pop, New Age, Classical>
@@ -531,168 +693,6 @@ magnet:?xt=urn:btih:1B9E5BD3C188150C1E4AB99732D4393AF56C0EBE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C38DD130159267AF558AA31AA3A5ECCA935CF436
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455580   (1025622) от 19.03.2021
-
-Roosevelt - Collection 6 Releases (2013-2021) [FLAC|Lossless|tracks + .cue, tracks] <EDM, Indie Pop, Nu Disco, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy Way Out (4:35)
-02. Strangers (3:41)
-03. Feels Right (4:35)
-04. Closer to My Heart (4:44)(   Читать дальше...   )Жанр: EDM, Indie Pop, Nu Disco, Synthpop |Продолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A6BD97B7D3CD3E2DD7C6DF4D662839E9C7B085
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455320   (1025627) от 19.03.2021
-
-Чё Те Надо? - Где найти мужчину? (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Где найти мужчину? (3:10)
-02. Она работает на скорой врачом (3:31)
-03. Чайничек (2:56)
-04. Снег летит (3:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33F4981B6ECEF39599F795BF0FA508111D9BBC2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455592   (1025664) от 19.03.2021
-
-Андрей Яшин - От А до Я (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Инструментал #1 (3:52)
-02. Лето улетело (5:08)
-03. Снова ветер и дождь (4:52)
-04. Забудь (5:39)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF88692AC5E2E6DD520F2377FD9367E56651D874
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455123   (1025814) от 18.03.2021
-
-Doves - The Universal Want (2020) Japan / Bonus Tracks [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carousels (04:51)
-02. I Will Not Hide (04:15)
-03. Broken Eyes (04:15)
-04. For Tomorrow (05:28)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7660710B4E67EE6548F5777F3380579E0BB3A59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454972   (1025939) от 17.03.2021
-
-Joy - Joy (Все золото мира) (2000) Unofficial Compilation МЕККОФОН Russia [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch By Touch '2001 Featuring – Area 51 3:38
-02. Touch By Touch '98 (Extended Rap Rmx) 5:20
-03. Felicidad (Single Version)	3:55
-04. Hello (Extended Version)	5:33(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FDDC91732BD69D6ABE5E6C7508E3AACF1555EFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454987   (1025954) от 17.03.2021
-
-Silent Circle - Всё Золото Мира (2000) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonlight Affair 2001
-02. Touch In The Night '98
-03. Stop The Rain In The Night
-04. Touch In The Night (Original)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE836B472FB38FB307FA94DAB81E99F95D742F42
 ```
 
 

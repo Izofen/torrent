@@ -1,3 +1,36 @@
+###  Публикация: 506778   (683445) от 08.06.2012
+
+VA - СупердискотЭка Радио Рекорд 80-х 50/50 (2012) [MP3|256 kbps]<Disco|Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683445.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 East 17 - Let It Rain
+002 Ленинград - Www
+003 Apache Indian - Boom Shack-A-Lak
+004 С. Ротару - Хуторянка
+005 Modern Talking - Just We Two (Mona Lisa)
+006 Отпетые Мошенники - Девушки
+007 R.e.m. - Losing My Religion
+008 Иванушки Int. - Реви
+009 Mazzy Star - Flowers In December
+010 Ласковый Май - Белые Розы(   Читать дальше...   )2012Жанр: Disco|DanceПродолжительность: 08:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2CCC08BDFBB9CBA7AEA488F73AF7627E6B3137B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 507743   (683561) от 08.06.2012
 
 VA - Жаркая Июньская Дискотека (2012) [MP3|256 кб/с]<Pop>
@@ -671,33 +704,6 @@ VA - The Official UK Top 40 Singles Chart 15.03.2019 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9DC4A9CF08E9025049A2F91BB80D1ADB0F7C8BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289565   (684458) от 17.03.2019
-
-VA - Electro House Without Framework (2019) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684458.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gareth Emery - Call To Arms
-002. Dash Berlin Feat. Bo Bruce - Coming Home
-003. Luke Bond - Clockwork
-004. Super8 & Tab - Blockchain(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 11:05:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84B7E16113226AAFD57CC34E99B22AC895F5C5AD
 ```
 
 

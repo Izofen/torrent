@@ -1,3 +1,138 @@
+###  Публикация: 1473227   (1013825) от 28.05.2021
+
+Solomun - Nobody Is Not Loved (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocean (feat. Jamie Foxx) (3:38)
+ 02. Home (3:41)
+ 03. Your Love Gives Me Gravity (feat. Planningtorock) (4:40)
+ 04. The Center Will Not Hold (3:50)(   Читать дальше...   )Жанр: EDM, Tech House, Deep HouseПродолжительность: 00:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BE39FB11307E6B0DD9FC35474BAEC7F4DEA9A4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473057   (1013867) от 28.05.2021
+
+Laidback Luke - Tomorrowland Friendship Mix (2021-05-20) [MP3|320 Kbps] <House, Electro House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bleu Clair & Ootoro - Beat Like This
+02. ID - ID
+03. Laidback Luke & TUJAMO - S.A.X. w/Diplo & SIDEPIECE - On My Mind
+04. DJ Huguito - Tsunami w/ID - ID(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D8EC0DED0F9BF6C368B1AE7488023DEDAC3159
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472627   (1014166) от 26.05.2021
+
+VA - Armada Record Box - REMIXED I (2021) [MP3|320 Kbps] <Deep House, Progressive House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kidnap feat. Leo Stannard - Moments (Ben Bohmer & Nils Hoffmann Extended Remix)
+02. Lifelike & Kris Menace - Discopolis 2.0 (MEDUZA Extended Remix)
+03. Sian Evans - Hide U (Tinlicker Extended Remix)
+04. Morgan Page feat. Lissie - The Longest Road (deadmau5 Extended Remix)(   Читать дальше...   )Жанр: Deep House, Progressive House, ElectronicПродолжительность: 04:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA9E5DEE33CF067115863943EB521C3A2F3027C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472532   (1014362) от 25.05.2021
+
+VA - Synthwave Dreams, Vol. 16 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born In '82 - Goodbye Synthwave (4:18)
+02. TELEGIMNASTIKA - MIR (Ruslan Mustafin 'zero gravity' remix) (6:06)
+03. Aurolab - Anna (The Vermins Remix) (4:13)
+04. Bingo Wode - Black T-Shirts No More (6:21)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A87EC2D3F737C3B17F25D0B67089982F12E3C6AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472015   (1014513) от 24.05.2021
+
+Temple - The Ashes Belong To You (feat. Grant Bissett) (2021) [MP3|320 Kbps] <Dark Ambient, Drone, Lo-Fi>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Random Tunnel (feat. Grant Bissett) [00:20:13]
+02 - Apophenia (feat. Grant Bissett) [00:18:33]
+03 - Near Perfect Horses (feat. Grant Bissett) [00:15:43]
+04 - Ephemeral (feat. Grant Bissett) [00:17:16](   Читать дальше...   )Жанр: Dark Ambient, Drone, Lo-FiПродолжительность: 01:23:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65554687F5FDEFBCC2F92BF81945BA772C0E6C4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973538   (1014647) от 23.05.2021
 
 Dave Gahan - Hourglass Remixes (2008) [FLAC|Lossless|tracks + .cue] <EBM, Synthpop, Techno, Minimal>
@@ -560,141 +695,6 @@ BCee & Charlotte Haining - Life As We Knew It (2021) [FLAC|Lossless|Web-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10A8E44B362AA2089A28233E5D11051312D56F5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468235   (1017197) от 07.05.2021
-
-ilan Bluestone - Impulse (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ilan Bluestone - Taking You There
-02. ilan Bluestone ft Gid Sedgwick - Paid For Love
-03. ilan Bluestone ft Giuseppe De Luca - Look At Me Now
-04. ilan Bluestone with Maor Levi ft Alex Clare - Hold On(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:11:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E7A06009D1BD4537764F7A7CF293F5CD8528E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468098   (1017221) от 07.05.2021
-
-VA - The Mastermix Collection – Chillout (2021) [MP3|320 Kbps] <DJ Sets, Chill, Deep House, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mastermix - After Dark: Chilled Vibes
-02. Mastermix - Chilled Pop
-03. Mastermix - Chilled Dance
-04. Mastermix - Chilled 80s(   Читать дальше...   )Жанр: DJ Sets, Chill, Deep House, ChilloutПродолжительность: 02:27:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D9AC472EB5A8232A3B72C1433A73B04BA0ACE5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468168   (1017234) от 07.05.2021
-
-ScAnDroid Experiment's - Scribendarum (2021) авторская раздача [MP3|320 Kbps] <Experimental, Ambient, Downtempo>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1
-01. Fontibus Potentia (Original Mix)
-02. Pulsus Planetae (Original Mix)
-03. Non Opus Est ad Finem (Original Mix)(   Читать дальше...   )Жанр: Experimental, Ambient, DowntempoПродолжительность: 01:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2415D6D4977D4A572F6DED5ABD86E30510EE9D11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307949   (1017516) от 05.05.2021
-
-Nebulae Records - Label Pack 8 Releases (2018-2021) [FLAC|Lossless|WEB-DL|tracks] <IDM, Electro, Acid, Ambient>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arctor - Acid Huckster (08:50)
- 02. Sound Synthesis - Night Visions (06:37)
- 03. Featherstone - The Seeker (05:58)
- 04. Zodiac Childs & MOY - Sixth Sense (05:52)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Electro, Acid, Ambient •Продолжительность: 04:30:25 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A0821DBCC9A9B372CC11969FF83DC1E9305958B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467861   (1017561) от 05.05.2021
-
-ScAnDroid Experiment's - Necessity of Rest (2021) авторская раздача [MP3|320 Kbps] <Experimental, Lo-Fi, Downtempo>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Overcome The Silence
-03. Quiet Rhythms of the City
-04. Necessity(   Читать дальше...   )Жанр: Experimental, Lo-Fi, DowntempoПродолжительность: 00:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BA66344EF67F7FF75F791F53F938F467D4FCC3
 ```
 
 

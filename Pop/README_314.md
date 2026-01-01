@@ -1,3 +1,166 @@
+###  Публикация: 1373026   (881816) от 05.04.2020
+
+Юрий Антонов - Крыша дома твоего / Музыка и песни из кинофильмов (2002) [FLAC|Lossless|image + .cue]<Pop Rock, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_881816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop Rock, RetroПродолжительность: 01:18:45Трэклист: Крыша дома твоего.
+01. Жизнь
+02. Вот как бывает
+03. Море(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E1854ED00A85E4F5D4FAC0969E7F1EF51A64E54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493682   (882256) от 11.09.2021
+
+Lady Gaga - Dawn Of Chromatica (2021) [MP3|320 Kbps] <Pop, Electro, Dance-Pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alice (LSDXOXO Remix) (Feat. LSDXOXO) 2:40
+02. Stupid Love (COUCOU CHLOE Remix) (Feat. Coucou Chloe) 2:37
+03. Rain On Me (Arca Remix) (Feat. Ariana Grande, Arca) 4:23
+04. Free Woman (Rina Sawayama & Clarence Clarity Remix) (Feat. Rina Sawayama, Clarence Clarity) 3:54(   Читать дальше...   )Жанр: Pop, Electro, Dance-Pop, HouseПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDCB3DE7A0E741B9414E3A28339BFBEF7D8D48A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495257   (882299) от 11.09.2021
+
+Lady Gaga - Dawn Of Chromatica (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Remixes, Electropop, Pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alice (LSDXOXO Remix)
+02. Stupid Love (COUCOU CHLOE Remix)
+03. Rain On Me ft. Ariana Grande (Arca Remix)
+04. Free Woman (Rina Sawayama & Clarence Clarity Remix)(   Читать дальше...   )Жанр: Remixes, Electropop, Pop, HouseПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B774A3C13A283955FF7576F99749431FA59A994E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495262   (882463) от 11.09.2021
+
+Uropa - Harmony (1980) LP [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harmony (6:40)
+02. She Was Fine (4:17)
+03. Turn Me Off - Turn Me On (6:29)
+04. Feeling High (8:35)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B3CA53AC6ED6B5FD159611731CFEB9A4F57CEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995913   (882582) от 12.03.2016
+
+Tanita Tikaram - Closer To The People (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glass Love Train
+02. Cool Waters
+03. The Way You Move
+04. Closer To The People(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F69EB02F10F3295667DC0FD0414F7F4920B30699
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 871109   (882698) от 20.02.2015
+
+VA - Pure... Crooners (2011) Box Set, 4CD [FLAC|Lossless]<Pop, Vocal Pop, AM Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882698.jpg" />
+</div>
+
+
+###  Подробнее
+
+По многочисленным просьбам одноклубников ускоряю публикацию всего того что есть у меня в серии Pure... Вот дошла очередь до Crooners, а ведь в переводе с английского это просто эстрадные певцы. Как то не принято у нас называть зарубежных поп-заезд эстрадными певцами. Хотя многие из современных великих подходят под это определение.
+Вот и здесь собраны звезды - великие (   Читать дальше...   )CD1:
+01. Andy Williams - Where do I begin (Love story)  (3:12)
+02. Tony Bennett - A taste of honey  (2:54)
+03. Perry Como - Magic moments  (2:40)(   Читать дальше...   )Жанр: Pop, Vocal Pop, AM PopПродолжительность: 03:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4759763F29BC53CF57EA4DC5785E711DDA4AB4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995691   (882844) от 12.03.2016
 
 VA - Got Hits! Perfect Pop Album (2003) [FLAC|Lossless|tracks + .cue] <RnB, Swing, Europop>
@@ -534,166 +697,6 @@ P!nk (Pink) - I'm Not Dead (2006) [FLAC|Lossless|tracks + .cue]<Pop, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31301F2802F2AF48ECBEF49A6659515FE2A55D1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372094   (885447) от 03.04.2020
-
-Сергей Лазарев - Лазарев (2012) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:06:52Трэклист: 01. Make You Say
-02. Take It Off
-03. Stumblin'
-04. Under The Moon(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C0B14CD10CEFC30B44720C579400D2816129CD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372526   (885456) от 03.04.2020
-
-Anna Burch - If You're Dreaming (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Sleep (04:36)
-02. Party's Over (02:42)
-03. Jacket (03:36)
-04. So I Can See (03:22)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1838B7F074EE4AD39767375A3502C33DF09C94EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372505   (885618) от 03.04.2020
-
-Tops - I Feel Alive (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Direct Sunlight (03:27)
-02. I Feel Alive (02:34)
-03. Pirouette (03:06)
-04. Ballads & Sad Movies (03:28)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A6978F9ABC4D4D94BD59B05D3791226927DAF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103420   (885808) от 12.02.2017
-
-Kinnie Lane - V (2017) [FLAC|Lossless|tracks] <Pop, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Je te suivrai
-02. Heartbreaker (feat. Loup)Жанр: Pop, Female VocalПродолжительность: 00:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A308A31164163F682682C566DEDA3C54ACD43949
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995317   (885995) от 10.03.2016
-
-VA - Romantic Collection: Лирика (1999) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Несчастный Случай - Генералы Песчаных Карьеров (4:14)
-02. Алсу - Зимний Сон (4:21)
-03. Борис Моисеев - Глухонемая Любовь (5:19)
-04. Алла Пугачева - Не Отрекаются Любя (4:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB06272A757CE70945E3C05A05259B5DE8F40233
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870276   (885996) от 18.02.2015
-
-VA - Pure... 80s Remixes (2014) [FLАС|Lоssless]<Pop, Electronic, Dancepop, Hi NRG, Disco, Funk / Soul, New Wave, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nena - 99 Red Balloons (Club Mix) - 4:44
-02. Men At Work - Down Under (Extended Mix) - 5:24
-03. A Flock Of Seagulls - I Ran (Album Version) - 5:02
-04. B.A.D. (Big Audio Dynamite) - E = MC² (Extended Remix) - 6:28(   Читать дальше...   )Жанр: Pop, Electronic, Dancepop, Hi NRG, Disco, Danceflor, Funk / Soul, New Wave, Synthpop, Pop RockПродолжительность: 05:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC79D3C6DB0DE1BA8373996C10C41DEB4EA54DF
 ```
 
 

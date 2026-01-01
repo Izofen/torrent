@@ -1,3 +1,141 @@
+###  Публикация: 1030014   (676672) от 29.06.2016
+
+VA - Relaxation and Deep Sleep (2016) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Igge Scoce - Abyssal Voyage
+02. Jonathan Carlile - Ambient Uplifting
+03. David Hollandsworth - Artic Sun
+04. Emlyn Ellis Addison - Breaking Ground Ambient Soundbed(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 01:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D2EBF4F12B993AD76BCC20AB85D16C66ED6BBD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536376   (676686) от 11.03.2022
+
+Johan Tronestam - Best of Johan Tronestam 2010-2013 (2015) [FLAC|Lossless|WEB-DL|tracks] <Berlin-School, Space Music>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acceleration (6:40)
+02. I'm Already There (5:50)
+03. The Ancient Pulse Still Beats (6:24)
+04. Lake Vostok (6:24)(   Читать дальше...   )Жанр: Berlin-School, Space MusicПродолжительность: 01:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB058A531AEF529C41535139E81EBBFDD4C232BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136048   (676721) от 21.05.2017
+
+Omnimar - Poison (2017) [MP3|320 Kbps] <Synth-pop, Synthwave, Darkwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Poison 1:40
+02	I Go On On My Own 4:06
+03	Out Of My Life 5:55
+04	I Wanna Know Now 4:15(   Читать дальше...   )Жанр: Synth-pop, Synthwave, DarkwaveПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E09FE7EB4C189396D78ABD57C15A1E84249278
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135666   (676730) от 21.05.2017
+
+Erasure - World Be Gone (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New-Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676730.jpg" />
+</div>
+
+
+###  Подробнее
+
+17-й студийный альбом британского электронного дуэта ERASURE!
+«World Be Gone» следует за диском «The Violet Flame» (2014) и продолжает дальнейшее празднование 30-летия группы.
+Лонгплей включает 10 новых треков, написанных, исполненных и спродюсированных самими Erasure и сремикшированных Мэтти Грин (Matty Green).
+(   Читать дальше...   )01.  Love You To The Sky 4:26
+02.  Be Careful What You Wish For! 3:21
+03.  World Be Gone 3:40
+04.  A Bitter Parting 3:13(   Читать дальше...   )Жанр: Synthpop, New-WaveПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64AD2D11370ECFDD25E07DB9B07E1DC1E8DAF29D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030123   (676782) от 29.06.2016
+
+VA - Electrotastic Vol.22 (2016) [MP3|320 Kbps] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Louis -  Combustion 3:38
+02. Zeeza -  Right On (Extended Mix) 4:08
+03. Kid Massive & East Freaks -  Ready to Rock 5:23
+04. Tiefblau -  D.O.Y.S 4:38(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB466C1B4C4254E8E20AA07370673646F1927484
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135850   (677002) от 21.05.2017
 
 Faderhead - Anima In Machina (2016) Limited Edition, Compilation [FLAC|Lossless|image + .cue] <Synthpop, EBM>
@@ -560,141 +698,6 @@ Argus - Pure Love / Pure Chill-out Vol.1 (2019) [MP3|320 Kbps] <Ambient, Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82404C843383073B6776A0A80ECD3B1DC0B6A225
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508762   (678289) от 10.06.2012
-
-The Prodigy - Their Law (2005) The Singles 1990-2005 [FLAC|Lossless]<Breakbeat, Hardcore, Big Beat>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_678289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Firestarter :: 04:40
-02. Their Law :: 05:35
-03. Breathe :: 05:34
-04. Out of Space :: 05:00(   Читать дальше...   )Жанр: Breakbeat, Hardcore, Big BeatФормат: CD, CompilationПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029843   (678317) от 28.06.2016
-
-VA - Balkan Connection Summer 2016 (2016) [MP3|320 Kbps] <Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subconscious Tales - Helligkeit [07:51]
-02. Praveen Achary, Vlada D'Shake - Public Secret (Praveen Achary Remix) [06:48]
-03. Matter, Jorgio Kioris - Pushin' (Matter's Pushin Too Hard Remix) [08:37]
-04. Rick Pier O'Neil, Dio S, Desaturate - Nonchalance (Rick Pier O'Neil & Desaturate Remix) [07:23](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 06:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE67F30AC0A7F5A94C1EDB8D435BD2372476FFD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290544   (678351) от 20.03.2019
-
-VA - Vocal Anthems Miami (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel & Rimsky feat. Diana Leah - One Last Time (Adip Kiyoi Extended Remix)
-02. Roman Messer & DJ Xquizit feat. OSITO - Empire Of Our Own (Alexander Popov Extended Remix)
-03. Ruslan Radriges & Neurofunq feat. Tiff Lacey - Wonderfull (Extended Mix)
-04. Adip Kiyoi feat. Christina Novelli - Carousel (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7744B01AD428A095A38B4099D4BA55677BFDCED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290552   (678368) от 20.03.2019
-
-VA - Anjunabeats In Miami (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond feat. Marty Longstaff - Flying By Candlelight (Above & Beyond Extended Club Mix)
-02. Above & Beyond x Spencer Brown feat. RBBTS - Long Way From Home (Extended Mix)
-03. Andrew Bayer feat. Alison May - In My Last Life (In My Next Life Extended Mix)
-04. Gabriel & Dresden feat. Jan Burton - You (Myon & Elevven Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:673C1625E626457BFA8AC703253964B939860DFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029663   (678465) от 28.06.2016
-
-VA - Energizing Workout Hits (2016) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Newell And Jess Glynne And Dj Cassidy - Kill The Lights (Audien Remix)
-02. Andy Vayel - Pleasant Pain (Original Mix)
-03. Anthony Vince - Want To Dance (Radio Mix)
-04. Antoine Clamaran Feat. Lulu Hughes - Hallelujah (Extended Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 08:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CC429F0B588EDC5978087045F327BF3F0867B23
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 601823   (997870) от 12.01.2013
+
+Landing - Wave Lair [EP] (2012) [MP3|320 кб/с]<Post Rock, Shoegaze, Dream Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patterns
+02. Resonance
+03. Cover Bare Arms
+04. Wave LairЖанр: Post Rock, Shoegaze, Dream PopПродолжительность: 00:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88087E62DA18AC1946DE09497B3F4AAF517CAA93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601338   (998107) от 11.01.2013
 
 Cockpit - Mission To Rock [EP] (2008) [MP3|320 кб/с]<Rock>
@@ -699,33 +726,6 @@ Brian Bennett Band - Rock Dreams (1977) [MP3|320 Kbps] <Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A92737CCEE839C7501F52A1192F08A6E3094B86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481702   (1008164) от 04.07.2021
-
-Paul Weller - Fat Pop, Volume 1 (2021) Limited Deluxe 3CD Edition [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Round The Floor [00:02:56]
-02. Serafina [00:02:50]
-03. Crowboy [00:03:06]
-04. Into The Sea [00:02:42](   Читать дальше...   )Жанр: RockПродолжительность: 3CD, 01:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F0B4C1410DA7A7BA04713DE72F63A5E76D1D76
 ```
 
 

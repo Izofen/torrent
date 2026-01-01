@@ -1,3 +1,30 @@
+###  Публикация: 1089369   (951928) от 03.01.2017
+
+VA - Empire Records - Chill Out 6 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mick Thammer - First - Chill Mix
+02. Eli Escobar - Can't Stop Dancing (feat. Nomi Ruiz)
+03. Danny O - Destiny (feat. Mira)
+04. Bernd Filz - Sungarden(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:02:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31DAAC3FFEBF00BBD9E1D68D333E544379F599CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089357   (951932) от 03.01.2017
 
 VA - Empire Records - Chill Out 7 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -668,33 +695,6 @@ VA - On The Wave Of My Memory: Hit 70-80s (2016) [MP3|320 Kbps] <Pop Rock, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2FA5336CA1CE2DA86893410BFE5C7CD9008F3E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361538   (953748) от 20.02.2020
-
-VA - Listen Life: Neo Classical Collection (2020) [MP3|320 Kbps] <Neo Classical, Instrumental>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ricky King - Sail Along Silv'ry Moon
-02. Rhian Sheehan - Reaching The Moon
-03. Shida Shahabi - All In Circles
-04. Frédéric Scarfone - La Livri(   Читать дальше...   )Жанр: Neo Classical, InstrumentalПродолжительность: 05:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC4EF96C48194BC8385371775F6118A3BB029845
 ```
 
 

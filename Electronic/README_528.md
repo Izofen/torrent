@@ -1,3 +1,137 @@
+###  Публикация: 1441605   (1037460) от 22.01.2021
+
+VA - Black Hole Trance Music 01-21 (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JES & Oliver Smith - Don't Let It End (Extended Mix)
+02. Will Atkinson - Rush (Extended Mix)
+03. Alexander Popov & Planet Perfecto - Bullet In The GunЖанр: TranceПродолжительность: 02:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E924FB914284B782920417EEA6869A3760EAA757
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441621   (1037466) от 22.01.2021
+
+VA - Coffee & Fireplace: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brazil Beat - Walk on By (02:50)
+02. Gabrielle Chiararo - Don't Know Why (03:16)
+03. Giacomo Bondi - Nothing Compares 2 U (04:11)
+04. Brazil Beat - Englishman in New York (03:52)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75AEFA13ED19420A17CEA05CE7F61DB355472FCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441661   (1037467) от 22.01.2021
+
+VA - Aly & Fila - FSOE Top 20: January (2021) [MP3|320 Kbps] <Trance, UpliftingTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ahmed Romel - Road To Vilna (Extended Mix)
+02. Sam Laxton - Waiting For The Sun (Extended Mix)
+03. David Forbes & Paul Denton - Out Of Order (Extended Mix)
+04. Assaf & Dave Neven - Transcend (Extended Mix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 02:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:288D7889831C1142E9BB0A6276F777C2B26A76A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441681   (1037513) от 22.01.2021
+
+VA - The Sound Of Christmas Gifts (2020) MixCult Records [FLAC|Lossless|WEB-DL|tracks] <Deep House, Deep Techno, Minimal, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anas M - Dubz (Im'pulse Remix) (07:28)
+02. Artyom Kozlov - Clouds (06:24)
+03. CGeorge - Unjustified Sadness (09:53)
+04. COR100 - Contact (Bolgarin Deep Mix) (24Bit) (08:54)(   Читать дальше...   )Жанр: Deep House, Deep Techno, Minimal, AmbientПродолжительность: 04:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E0F2FEEDA7ACE9405C8831C62331849C169D37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441606   (1037526) от 22.01.2021
+
+VA - Markus Schulz - Global DJ Broadcast - with guest Dennis Sheperd (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz  played:
+01 Omnia - Eternity
+02 Ilan Bluestone ft. Jan Burton - Rule The World
+03 Nikhil Prakash & Adrian Alexander - Whirlwind(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6016AF2A67498F2E2D5B718483FFC9C7CE21F350
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615668   (1037539) от 26.02.2023
 
 Eguana - Resurrected (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Future Garage>
@@ -558,141 +692,6 @@ VA - Space Odyssey - Trip Seven: New Year's Voyage 2021 (2021) [MP3|320 Kbps] <S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCCD9A65099663A892D03E5A6E2D8D69EFF80AC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440784   (1038511) от 18.01.2021
-
-VA - Soft, Deep & Dark #1-5 (2017-2020) Seven Villas Music [FLAC|Lossless|WEB-DL|tracks] <Deep House, Dub Techno, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mind Groove; Pablo Bolívar - Inside You (6:39)
-02. Francisco Aguado - Aimless Dreams (6:14)
-03. Anton Kubikov - Echoma (6:57)
-04. Pablo Bolívar - Probably Never (7:22)(   Читать дальше...   )Жанр: Deep House, Dub Techno, Downtempo |Продолжительность: 02:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED90AED385A1DF3FBB369E78EA81ECBDC9C123D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440591   (1038770) от 17.01.2021
-
-VER:WEST(Tiesto) - Aftr:hrs Sessions 01 (2021-01-14) [MP3|320 Kbps] <Tech House, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Innellea - Mars's Moon
-02. Ross Quinn - Away With Me (Fideles Remix)
-03. Spada - I Don't Think I Can Stay
-04. Kölsch - Left Eye Left(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 00:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D3CCC10E6223E05DA722E20446C4C93384435BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440432   (1038772) от 17.01.2021
-
-VA - Dreaming Silent Worlds: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Finland & Aaskoven - Melzi (Original Mix)
-02. Michael Е - Cloudburst (Original Mix)
-03. Ben Pierre, Beamy - Miriam (Original Mix)
-04. Eskadet - Garden of the Senses(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02643BE53C3284187F74D2E9149F7E9515CAF834
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613910   (1038787) от 21.02.2023
-
-VA - A State Of Trance - Celebration Weekend (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & Cosmic Gate - REFLEXION (ASOT 2023 Anthem) (Extended Mix) [5:34]
-02. Andrew Rayel - Lifeline (Extended Mix) [5:45]
-03. Ben Gold - Rest Of Our Lives (Extended Mix) [9:13]
-04. Giuseppe Ottaviani & Jess Ball - Silhouettes & Outlines (Extended Mix) [6:22](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:789D05DCCA83D7CC183ABE1B978F9CF92398D95A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440422   (1038807) от 17.01.2021
-
-mind.area - No Enemy Of Progress (2020) [MP3|320 Kbps] <Electro, EBM, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enemy Of Progress (4:20)
-02. Gone Life (3:42)
-03. Failure (4:48)
-04. Parasite (4:00)(   Читать дальше...   )Жанр: Electro, EBM, IndustrialПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A23FC871A368EA20DAFB31A4FF5907553432FE5
 ```
 
 

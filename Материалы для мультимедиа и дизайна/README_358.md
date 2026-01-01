@@ -1,3 +1,51 @@
+###  Публикация: 1500869   (839354) от 07.10.2021
+
+Шаблоны - Creative Market - Sticker Mockup Bundle Logo Branding - 5142909 [PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839354.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом наборе 140 макетов стикеров.Формат: PSD, JPGРазрешение файлов: 4500x3500-6048x4032
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B718E5B8210DE34072C2A170A9F982F8750B1F05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500975   (839465) от 07.10.2021
+
+3D модели - 3ddd - Городской Автобус [Corona|V-Ray|*.max, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839465.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автобуса марки KamazФормат: Corona|V-Ray|*.max, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F2C5EA0C0D17E572E2B85F020824A60A7539DFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500865   (839476) от 07.10.2021
 
 Шаблоны - Creative Market - Noissue Shipping Labels Mockup Set - 6451656 [PSD]
@@ -583,56 +631,6 @@ magnet:?xt=urn:btih:B27CDCE33B00F853CE94798421FCA3F2524AFF9F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9AA278E380D9F10F63EB926EB12BAE668DE6671
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499734   (845819) от 03.10.2021
-
-3D модели - Daz 3D - Cyberpunk Weapon Bundle - 80158 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cyberpunk Weapon для DAZ 3D из категории Props
-Для Genesis 8 .Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4108CE998FCB34D8AE8CF6075EB153382DCF1EDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499735   (845821) от 03.10.2021
-
-3D модели - Daz 3D - Cyberpunk MEC Droid and Weapons Bundle - 82421 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cyberpunk MEC Droid and Weapons для DAZ 3D из категории Props
-Для Genesis 8 .Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687F1944C2013DCA4A3867B99EE61A8ADC6CE10A
 ```
 
 

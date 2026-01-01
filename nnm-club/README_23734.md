@@ -1,79 +1,27 @@
-###  Публикация: 599567   (998943) от 08.01.2013
+###  Публикация: 605421   (995901) от 19.01.2013
 
-Владимир Контровский | Забытое грядущее [2009] [FB2][TXT][JAVA (jar+jad)]
+VA - Live at What Hi-Fi? Cafe (2007) [FLAC|Lossless]<Jazz, Jazz Vocal>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998943.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995901.jpg" />
 </div>
 
 
 ###  Подробнее
 
-вадцать первый век. На берегу озера Онтарио Нат Бампо, тезка героя Фенимора Купера, принимает последний бой. Белая раса, наслаждавшаяся жизнью и забывшая, что любой народ живет только до тех пор, пока продолжает себя, обречена. Ее место занимают другие, а белых стариков загоняют в резервации расовых реликтов.
-
-И падает на Землю зловещая тень ядерного гриба.
-
-Двадцать девятый век. Будущее — такое, которого лучше бы не было. На развалинах выжженного мира продолжается беспощадная война потомков детей-индиго с властителями-элами, бросившими в бой солдат-клонов. Будущее взывает к настоящему, прося о помощи, но будет ли этот крик услышан и понят?Формат: FB2,TXT,JAVA (jar+jad).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83EE3D9C4F1D4E26241C3D381FA86B4C4C8551E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599511   (998950) от 08.01.2013
-
-Евгений Панаско | Десант из прошлого [1988] [RTF, FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодому инспектору Интерпола Сбитневу поручается его первое дело: по заявлению профессора Компотова (заведующего кафедрой научной фантастики в Европейском университете гуманитарных исследований) из всех библиотек мира внезапно исчезла книга «Десант из прошлого» некого Гонсалеса. Профессор считает книгу не дрянным фантастическим романом (чем она на самом деле и является), а детальной инструкцией террористического акта, связанного с перемещением во времени. Расследование, начавшееся как рутинная проверка заявления чудака-буквоеда, неожиданно закручивается в головоломную серьезную историю.Формат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1826D7B075BCFE8DBB18E4976204D50BABCC1410
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600419   (998952) от 08.01.2013
-
-VA - Top 100 Зимний драйв - 2013 (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Ferrari - Te Pego E Pa (Official Remix 2013)
-02. Samo'L - Двигаем Телами
-03. DJ Smash feat. Radio Killer - Save Me Tonight
-04. СтаЯ feat. Murzin Denis - Не Я (Radio Version)
-05. Доминика - Зима
-06. 5sta Family - Без Ума
-07. Misty & Тельман - Только Ты
-08. Вячеслав Самарин - Снег Кружит
-09. Винтаж и ChinKong - Свежая Вода
-10. Animal ДжаZ и МакSим - ЖивиЖанр: PopПродолжительность: 06:05:17
+01. Jacintha - The Look of Love  [04:10]
+02. Jacintha - California Dreaming  [05:42]
+03. Lauren White - Blue Bayou  [05:46]
+04. Eden Atwood - Meditation  [05:48]
+05. Jacintha - So Danco Samba  [03:14]
+06. Jim Brock - O Vazio  [06:57]
+07. Jacintha - Manha De Carnival  [06:12]
+08. Bernstein - Gabriela Lena Frank : The Mestizo Waitz  [03:13]
+09. Lauren White - Superstar  [04:32]
+10. Jacintha - Que Sera Sera  [05:12](   Читать дальше...   )Жанр: Jazz, Jazz VocalПродолжительность: 01:12:09
 
 ## Скачать торент
 ```bash
@@ -83,448 +31,120 @@ VA - Top 100 Зимний драйв - 2013 (2013) [MP3|256 кб/с]<Pop>
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599051   (998953) от 08.01.2013
+###  Публикация: 604958   (995904) от 19.01.2013
 
-Above & Beyond - Group Therapy Radio 009 (2013-01-04) [MP3|256 кб/с]<Trance, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audien - Wayfarer (Original Mix) (Anjunabeats)
-02. Coe - Watching Your Shadow (Original Mix) (High Contrast)
-03. Edu - Gaza (Original Mix) (Monster Tunes)
-04. Bluestone - Sinai (Original Mix) (Anjunabeats) (Record Of The Week)
-05. Sunny Lax - Miele (Original Mix) (Songbird)
-06. Eximinds - Revolved (Original Mix) (Anjunabeats)
-07. Allen Watts - Skin Deep (Sedi Remix) (PHW)
-08. Ost & Meyer - Here We Go (Original Mix) (Anjunabeats)
-09. Lana Del Rey - Summertime Sadness (Cedric Gervais Remix) (CDR)
-11. Signum - First Strike (Juventa Club Mix) (Armada)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 01:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06701BC22FAEA41BAE5206EDA7FC4AB90563462E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599659   (998957) от 08.01.2013
-
-Михаил Зуев | Социальные сети. Все моменты - от легкого старта до раскрутки и монетизации [2012] [unpacked]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершенно реальные, на 100% проверенные и умопомрачительно элементарные способы получать выгоду из социальных сетей, даже если вы никогда прежде ими не пользовались! Это — первый в Рунете комплексный пошаговый курс, обучающий работе со всеми основными социальными сетями («Твиттер», ЖЖ, «Фейсбук», «ВКонтакте», «Мой Круг» и т. д.).
-Изучив мультимедийный курс «Социальные сети», вы полностью освоите функциональность социальных сетей с технической точки зрения и будете абсолютно точно знать, как их применить для раскрутки себя или своего бизнеса.Жанр: Бизнес, Социальные сетиФормат: MP3Продолжительность: 6:03:03
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600343   (998959) от 08.01.2013
-
-SynWrite Editor 4.6 build 570 [Multi/Русский]
+Фотография - Фотограф Ирина Жиркова
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998959.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995904.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SynWrite Editor - мощнейший текстовый редактор для программистов и обычных пользователей. SynWrite - редактор исходного кода, поддерживает возможность разработки программ более чем на 70 языках. В том числе Java, C++, JavaScript, Pascal, Perl, HTML, XML, PHP, SQL и других. SynWrite обладает TDI-интерфейсом, а значит позволяет открыть сразу несколько файлов в отдельных вкладках. Помимо этого в SynWrite имеется целый ряд вспомогательных инструментов, облегчающих написание кода.Название программы: SynWrite EditorЯзык интерфейса: Multi/Русский
+Фотография - Фотограф Ирина ЖирковаРазрешение файлов: ~  500x750 ~ 800x800
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0D7E8375BF643A2F1DE8C8DC06C07D34DEDA1C99
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 600127   (998961) от 08.01.2013
+###  Публикация: 603689   (995905) от 19.01.2013
 
-Grief Of Emerald - It All Turns To Ashes (2012) [MP3|320 kbps] <Symphonic Death / Black Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. And Yes It Moves (04:35)
-02. God Of Carnage (04:11)
-03. Where Tears Are Born (04:20)
-04. It All Turns To Ashes (04:42)
-05. Cage Of Pain (05:00)
-06. When Silence Became Eternal (04:13)
-07. Warstorms (04:55)
-08. Stormlegion (Warstorms Part II) (04:39)
-09. The Third Eclipse (03:56)Жанр: Symphonic Death / Black MetalПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D923BA04810B15E6C8E007A059F83A308B59CCC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599819   (998962) от 08.01.2013
-
-Ending Tyranny - Perpetual Greed (2013) [MP3|320 кб/с]<Brutal Deathcore>
+Whispers In The Shadow - The Rites Of Passage (2012) [MP3|320 кб/с]<Gothic Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998962.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995905.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Exordium
-02. Enveloped
-03. Continuous Expansion
-04. Rapacity In Nature
-05. The Dark Age
-06. Below The Global Throne
-07. The Overseer
-08. Altered Existence
-09. Harvesting The Unknown
-10. Purely Infected RebirthЖанр: Brutal DeathcoreПродолжительность: 00:32:15
+1 (path 29)
+2 The Rites Of Passage
+3 Words Made Flesh
+4 Call To Arms
+5 Back To The Wound
+6 The Tempest
+7 Reinvention
+8 Wormwood Star
+9 Transmutation Babalon
+10 Secret Of Silence(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:49:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDD75242DD23852323A9237533C8577BC00FE06A
+magnet:?xt=urn:btih:CD4BF6238317D7C5F52B9BBD419C518327B19FBA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599444   (998964) от 08.01.2013
+###  Публикация: 605287   (995910) от 19.01.2013
 
-T.R.A.M. - Lingua Franca (2012) [MP3|320 кб/с]<Progressive Metal, Fusion, Experimental>
+Armin van Buuren - A State of Trance Episode 596 (17-01-2013) [MP3|256 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998964.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995910.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Seven Ways Till Sunday (4:47)
-2. Consider Yourself Judged (4:45)
-3. Endeavor (6:25)
-4. HAAS Kicker (7:09)
-5. Hollywood Swinging (3:37)
-6. Inverted Ballad (3:12)Жанр: Progressive Metal, Fusion, JazzПродолжительность: 00:29:57
+01. Andy Moor & Betsie Larkin - Love Again (Andrew Rayel Remix) (Ava)
+ 02. Denis Kenzo feat. Sveta B. - Lullaby Lonely (Progressive Mix) (Infra Progressive)
+ 03. Audien - Warfayer (Anjunabeats)
+ 04. Vadim Spark - Lost Angeles (Club Mix) (Vendace)
+ 05. Kyau & Albert - All Your Colours (Euphonic)
+ 06. Steve Brian & Cressida - Casablanca (Tool Trance)
+ 07. Eximinds - Revolved (Anjunabeats)
+ 08. Antillas & Dankann - Synapse (Soundpiercing)
+ 09. Dennis Sheperd & Cold Blue feat. Ana Criado - Fallen Angel (Lange Remix) (High Contrast)
+ 10. Armin van Buuren & Markus Schulz - The Expedition (ASOT 600 Anthem) (Original Mix)Жанр: TranceПродолжительность: 01:57:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:955AF48407324F11BE68FDF9D312CA2B13BAA9F1
+magnet:?xt=urn:btih:8B757B2FF87A07BD8489944223D2BDD74745B56C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599117   (998965) от 08.01.2013
+###  Публикация: 605022   (995912) от 19.01.2013
 
-Roger Shah - Magic Island Music for Balearic People 242 (04-01-2013) [MP3|256 кб/с]<Trance, Progressive House>
+Velcra - 3 Альбома (2002-2007) Дискография [FLAC|Lossless]<Industrial Metal | Electronic | Rapcore | Female Vocal>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998965.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995912.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1st hour:
-01. Temple One - Aquamarine (Original Mix)
-02. Giuseppe Ottaviani ft Amba Shepherd - Lost For Words (Snatt & Vix Remix)
-03. Alex M.O.R.P.H feat. Shannon Hurley - Monday Morning Madness (Alexander Popov Remix)
-04. Sean Tyas ft. Julie Thompson - What I Am (Original Mix)
-05. Signum - Come Around Again (Roger Shah Banging Retro Remix)
-06. Setrise vs. Johann Stone - MNE (DJ Feel Remix)
-07. 2 Reezone - Polarity (Original Mix)
-08. Majera - Nothing Is Forever (Matt Bukovski Remix)
-09. Rikkaz & Vast Vision - Denpasar (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 02:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6D4763E97C5C6DA8695803FC64C7CD9759CB3B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599576   (998968) от 08.01.2013
-
-Крис Юэн | Похождения в Амстердаме [2009] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чарли Ховард – популярный (в широких кругах) автор детективных романов. И он же – популярный (в узких кругах) профессиональный вор, выполняющий только СЕРЬЕЗНЫЕ заказы. Когда загадочный американец предлагает Чарли украсть для него в Амстердаме две простенькие статуэтки, Ховард не сразу, но соглашается, осознав, что за этим заказом кроется ЧТО-ТО.
-И там действительно много чего кроется: старая история о пропаже бриллиантов, кровавое убийство загадочного американца, огромные деньги, охота на самого Чарли, гангстеры, полиция…
-Детективщик-вор превращается в вора-детектива. При этом его больше всего волнуют три вещи: удастся ли ему заполучить те самые большие деньги? сумеет ли он отстоять свое доброе имя писателя? и наконец – выйдет ли он из тупика, в который его завел последний, еще не дописанный роман?Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1808BA567E40C85CA8A33CC75A4D2BD83B7DBADE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599510   (998969) от 08.01.2013
-
-Рана Дасгупта | Токио не принимает [2007] [RTF, FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рейс на Токио отменяется.
-
-Пассажиры, застрявшие в крошечном аэропорту, развлекают друг друга данными историями.
-
-Сказанием о сыне Роберта Де Ниро, дочери Мартина Скорсезе и их могущественных врагах – магах…
-
-Притчей о двойниках, обреченных любить ОДНУ и ТУ ЖЕ ЖЕНЩИНУ… Легендой о китайском юноше-парикмахере, которому ВСЕГДА СОПУТСТВОВАЛА УДАЧА…
-
-Тринадцать историй из ТРИНАДЦАТИ городов – мегаполисов Европы, Азии, США и Латинской Америки.
-(   Читать дальше...   )Формат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE7CBB8C9A67273FA3EB56F53B36CB7A3139F39E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598540   (998970) от 08.01.2013
-
-Сьцяна - 3 альбома+сборник (2002-2010) [MP3|150-320 кб/с]<Alternative>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вясна.by [00:03:26]
-02. Дэжа вю (Фэст Залатая восень) [00:03:58]
-03. Калыханка [00:03:19]
-04. Ліхтары (Фэст Залатая восень) [00:03:13]
-05. Можна быць [00:03:06]
-06. На БАСах! [00:04:23]
-07. НезалежныЯ — Можна быць [00:03:03]
-08. Я еду (N.R.M. cover) [00:04:23]Жанр: AlternativeПродолжительность: 00:28:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5929F1A98BDD6F79CD9262D791F96CE27616ED8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600028   (998971) от 08.01.2013
-
-Джакомо Ванненес | Лучшее прощение - месть [1993] [DJVU]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Остросюжетный детектив рассказывает о преступлениях международной мафии - ее самого "интеллектуального" крыла, занимающегося похищением, сбытом и фальсификацией художественных ценностей, а затем пускающие "отмытые" деньги на оружие, наркотики, подкуп политиков, террористические акты.
-Противостояние организованной, щедро финансируемой преступности и следователей-одиночек, рядовых сотрудников Интерпола создает напряженное силовое поле этого захватывающего романа.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EA438040C5666B0C40D3A329B78DD9985ADBF77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600315   (998972) от 08.01.2013
-
-VA - Tropiques Dancefloor 2013 (2012) [MP3|320 кб/с]<Dance, Pop,Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998972.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. DJ Ken - DJ Ken Pr sente Dancehall Party 4:13
-2. Lylloo (Feat. Matt Houston) - Tu Y Yo 3:04
-3. Le la Chicot - Lov Intas 4:00
-4. Marvin - Sans Toi 4:06
-5. Colonel Reyel - Toi Moi 3:26
-6. Moussier Tombola - Logobitombo (Corde Sauter) 3:31
-7. Milca (Feat. Passi) - La Vie Va Donner 4:13
-8. Kalash (Feat. Lieutenant) - Pran Pi 3:14
-9. Ls - Jet T oublierai 4:17
-10. Dj Jairo - Kalin 4:13(   Читать дальше...   )Жанр: Dance, Pop,ClubПродолжительность: 01:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C04C5274007D51EBE1528FBF5674F89862615945
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599484   (998973) от 08.01.2013
-
-Ultrageist - 2 (2012) [MP3|320 кб/с]<Experimental Mathcore>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998973.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Process (Fight Me Joe) 04:20
-2. Emotion Lotion 03:05
-3. Gin-Dependance Day 04:30
-4. What Are You Waiting For? 02:54
-5. Golden 03:58Жанр: Experimental MathcoreПродолжительность: 00:18:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA5739F51DA26DDB73B903435675967A601C3EC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599476   (998974) от 08.01.2013
-
-Star Monarchy - Volume 1 (2012) [MP3|~190 кб/с (V2)]<Progressive Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998974.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Biosfear (feat. Rody Walker of Protest the Hero) (4:54)
-2. Monarchy (feat. Dan Tompkins ex-Tesseract) (4:14)
-3. 11 Years (feat. Bjorn "Speed" Strid of Soilwork) (3:18)
-4. Romanov Throne (feat. Mike Semesky of Ordinance) (4:07)
-5. Artilect (feat. Ben Dixon) (3:58)
-6. Ashes (feat. Dan Tompkins of Tesseract) (3:27)
-7. Transhuman (feat. Sean Dailey of The Better Death) (4:26)
-8. Suicide By Star (feat. Ben Dixon) (3:26)
-9. The Royal Isolate (feat. Mike Semesky of Ordinance) (4:48)
-10. Lord of the Flys (feat. Rody Walker of Protest the Hero) (4:31)Жанр: Progressive MetalПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0004C256A8FE02193F8AF7504BC2B7809E3B322C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599709   (998975) от 08.01.2013
-
-Tad Morose - Undead (2000) [WavPack|Lossless]<Power / Heavy Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:52]
-02. Servant Of The Bones [04:54]
-03. Another Time Around [04:06]
-04. Where The Sun Never Shines [04:00]
-05. Order Of The Seven Poles [04:45]
-06. Undead [03:39]
-07. No Tears In The Rain [04:27]
-08. Intro/Lord On High [05:51]
-09. Corporate Masters [03:20]
-10. No Wings To Burn [03:46](   Читать дальше...   )Жанр: Power / Heavy MetalПродолжительность: 00:45:24
+<<<
+----------------------------------------------------------------------------
+01. The Big Sleep
+02. White Knuckle Mountains
+03. New Recruit
+04. Dusk Becomes A Dawn
+05. Dead End Lane
+06. We Must Start Again
+07. Nautifungus
+08. Higher State Of Truth(   Читать дальше...   )Тип издания: ДискографияЖанр: Industrial Metal | Electronic | Rapcore | Female VocalПродолжительность: 00:46:43 >>>
 
 ## Скачать торент
 ```bash
@@ -534,115 +154,30 @@ Tad Morose - Undead (2000) [WavPack|Lossless]<Power / Heavy Metal>
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599854   (998976) от 08.01.2013
+###  Публикация: 605163   (995914) от 19.01.2013
 
-Castles - You, The Organ Grinder (2012) [MP3|~245 кб/с (V0)]<Mathcore/Stoner/Noise Rock>
+Eddie Baytos & The Nervis Bros. - Take Some Mambo Time (1991) [FLAC|Lossless]<Blues-Zydeco>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998976.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995914.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. You, The Organ Grinder
-02. The Reverend
-03. I Started Rattling
-04. Diamond Heel
-05. Dispute in A#
-06. Streets, Streams and Shallows
-07. Colossus Cnut
-08. Transylvania
-09. Twist Your Blood
-10. PyramidsЖанр: Mathcore/Stoner/Noise RockПродолжительность: 00:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B29B37EB7E8F135B6B88A33677000C6616B1AF1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600525   (998977) от 08.01.2013
-
-Журнал | Всему свету по совету №24 [декабрь 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличный женский журнал с советами на все случаи жизни. Близится новый год, поэтому выпуск посвящен организации этого чудесного праздника. А так же постоянные рубрики, домашние советы.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C319F2AA40A1E91FA4D5777C2673CE84DC487C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599462   (998980) от 08.01.2013
-
-Above The Earth - Above The Earth [EP] (2012) [MP3|128 кб/с]<Progressive Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998980.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Unmasked (Intro) (01:03)
-2. Trapeze (feat. Jakub Zytecki) (05:59)
-3. You (05:07)
-4. Eden (feat. Aleksandra Djelmash of Destiny Potato) (04:40)
-5. All Our Dreams (feat. Adam "Nolly" Getgood of Periphery) (06:52)Жанр: Progressive MetalПродолжительность: 00:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF682B4518B5AAA21051BE75AB2397A8656C21D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599665   (998981) от 08.01.2013
-
-Aeternitas - La Dance Macabre (2004) [APE|Lossless]<Sympho Gothic Metal >
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Der Erste Prediger (3:29)
-02 - Kaiser & Kaiserin (4:02)
-03 - Kruppel (3:53)
-04 - Edelmann & Edelfrau (4:55)
-05 - Jurist (3:38)
-06 - Nonne (4:47)
-07 - Kardinal (3:49)
-08 - Papst (4:53)
-09 - Abt (3:40)
-10 - Konig (4:04)(   Читать дальше...   )Жанр: Sympho Gothic MetalПродолжительность: 00:58:29
+01. Blind Suspicion
+ 02. Painted Dream
+ 03. Don't Beat Yourself Up
+ 04. Come Together
+ 05. Do Sumpin'
+ 06. Lonely Man
+ 07. Post Man
+ 08. I Ain't Drunk
+ 09. Take Some Mambo Time
+ 10. Loiusanne(   Читать дальше...   )Жанр: Blues-ZydecoПродолжительность: 00:51:39
 
 ## Скачать торент
 ```bash
@@ -652,54 +187,121 @@ Aeternitas - La Dance Macabre (2004) [APE|Lossless]<Sympho Gothic Metal >
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599175   (998982) от 08.01.2013
+###  Публикация: 605434   (995918) от 19.01.2013
 
-Свет погасшей звезды (1991) SATRip
+Профессия  репортер. Из логова зверя (2013.01.19) SATRip
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998982.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995918.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Документальный фильм о судьбе актрисы Валентины Серовой.Жанр: ДокументальныйПродолжительность: 00:43:48
+"Профессия-репортер" - это цикл телевизионных репортажей на актуальные темы современного мира. Это интересный, острый социальный или экстремальный репортаж. В каждом еженедельном репортаже заложен свой конфликт, актуальность и проблематика. Каждый корреспондент программы - уникален и преподносит свою, индивидуальную точку зрения на ту или иную проблему, событие или явление. Если в Вашем городе, регионе или стране происходят важные события или необычные явления, если это остро и актуально, пишите нам, и мы обязательно приедем к Вам.В выпуске: Он плакал и просил о помощи. Ему поверили и вышли на улицы. И только он знал, что Ирина никогда не вернется. О чем молчал Алексей Кабанов? Кто помогал ему, а кто не поверил? Что станет с детьми убийцы?
+Эксклюзивные кадры из логова зверя и хронология преступления — в специальном выпуске программы «Профессия — Репортер».Жанр: ДокументальныйПродолжительность: ~ 00:14:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC772E7CD703E98ACB4F5163317A8C6DA4686093
+magnet:?xt=urn:btih:83B43CDE3F5E7ABA21169971C00BEFE661E41417
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599985   (998985) от 08.01.2013
+###  Публикация: 605008   (995919) от 19.01.2013
 
-Dominus - The First 9 (1996) [WavPack|Lossless]<Death Metal>
+VA - Deep House Masters (2013) [MP3|320 кб/с]<Deep House>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998985.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995919.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dancing With Magic [03:11]
-02. Soul Damnation [02:41]
-03. Final Journey [04:36]
-04. The Burning Maid [04:09]
-05. Ancient Emperor [04:00]
-06. Next Living Obliging [03:15]
-07. Confront The 9 [03:40]
-08. Second Palace [03:34]
-09. The Crystal demon [04:00]
-10. Final Journey Part II [02:20]Жанр: Death MetalПродолжительность: 00:35:32
+01. Gabriel Marchisio and Keshia - I Don't No (Retro Lounge Mix)
+02. Pedro Costa - By Your Side (Chris Rubz Remix)
+03. DL3R - Sarasvati
+04. Hector Moran - Ying Feng
+05. Mark Faderfaz - Take Me to the Rhythm
+06. Sandro Peres feat. Raphael - Music Is My Life (Soul Mix)
+07. Funk Force - Walking Dance
+08. Atomic Electrolab - Me and You
+09. Pedro Costa - Indian Flute
+10. Jeancarlo Santin - AmelieЖанр: Deep HouseПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:615686AAE837CAB7333910DBFDB8787E8AE06591
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605273   (995921) от 19.01.2013
+
+VA - 15 Top Trance Hits (2013-01) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. W&W - Lift Off (Original Mix)
+ 02. Markus Schulz ft Ana Diaz - Nothing Without Me (Antillas & Dankann Club Mix)
+ 03. Planet Perfecto - Bullet In The Gun (Eddie Halliwell Remix)
+ 04. Emma Hewitt - Rewind (Mikkas Remix)
+ 05. Solarstone vs Scott Bond - 3rd Earth (Heatbeat Remix)
+ 06. Roger Shah ft Adrina Thorpe - Island (Antillas Club Mix)
+ 07. Tritonal vs Super8 & Tab - Arc (Radio Edit)
+ 08. Heatbeat - Chow Mein (Noah Neiman Remix)
+ 09. Yahel & Liya - Creatures (Paul Oakenfold Remix)
+ 10. RAM & Alex M.O.R.P.H. - Grotesque (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:08:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE23C3BC611F0A5B003FE08BCC9E5DAA3ED387BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605174   (995922) от 19.01.2013
+
+Elliott and the Untouchables - Danger Zone (1997) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Little Woman
+ 02. Ain't No Big Thing
+ 03. More Than That
+ 04. Empty Heart
+ 05. Where Were You
+ 06. Check Out Time
+ 07. Crazy 'Bout You
+ 08. Why Baby Why
+ 09.  J.T.'s Groove
+ 10. Danger Zone(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:56
 
 ## Скачать торент
 ```bash
@@ -709,23 +311,30 @@ Dominus - The First 9 (1996) [WavPack|Lossless]<Death Metal>
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 595642   (998986) от 07.01.2013
+###  Публикация: 605156   (995924) от 19.01.2013
 
-Новогодний конкурс от DG Win&Soft
+Eddie and Vaan Shaw - Naked (2009) [FLAC|Lossless]<Blues,Acoustic>
 
->>3
->>66
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998986.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новогодний конкурс от DG Win&Soft 
-Поздравляем одноклубников с наступающим Новым годом и Рождеством!
-Продолжая традицию отмечать праздники проведением общественных мероприятий, объявляем о проведении конкурса информационных  материалов (текстовых статей, очерков, обзоров) по Программному Обеспечению.Тематика: любая, на выбор автора.(   Читать дальше...   )
+01. Me And My Boy
+02. Lick Skillet
+03. Greedy Man
+04. Voices Crying
+05. Mississippi Sax
+06. Greenville Bound
+07. My Friend Roscoe
+08. Black Eyed Peas
+09. Pickin' Cotton
+10. Motel 6(   Читать дальше...   )Жанр: Blues, AcousticПродолжительность: 00:51:35
 
 ## Скачать торент
 ```bash
@@ -735,25 +344,445 @@ Dominus - The First 9 (1996) [WavPack|Lossless]<Death Metal>
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598572   (998987) от 07.01.2013
+###  Публикация: 605200   (995925) от 19.01.2013
 
-Семь психопатов / Seven Psychopaths (2012) DVDRip [Line]
+Panadda Reungwut - Feel By Panadda (2009) [FLAC|Lossless]<Vocal Jazz>
 
->>3
->>9
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998987.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995925.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Непутевый писатель потерял вдохновение и никак не может справиться с новым сценарием. Волей случая он оказывается втянутым в похищение собаки, затеянное его эксцентричными дружками. Выясняется, что украденное животное — любимый пёс главного местного гангстера, которому ничего не стоит в два счета вычислить и уничтожить оболтусов.Жанр: Комедия, КриминалРежиссер: Мартин МакДонаПродюсер: Грэхэм Броадбент, Питер Чернин, Мартин МакДонаАктеры: Колин Фаррелл, Сэм Рокуэлл, Кристофер Уокен, Вуди Харрельсон, Том Уэйтс, Эбби Корниш, Желько Иванек, Майкл Питт, Майкл Стулбарг, Габури СидибеПеревод: ДублированныйПродолжительность: 01:45:38
+01. When I Fall In Love  [03:14]
+02. It Had To Be You  [03:58]
+03. Quando Quando Quando  [04:31]
+04. How High The Moon  [02:51]
+05. Someone To Watch Over Me  [04:16]
+06. I've Got You Under My Skin  [04:04]
+07. Body And Soul  [04:30]
+08. A Time For Love  [04:05]
+09. I Could Have Danced All Night  [03:32]
+10. If Ever I Would Leave You  [02:35](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61AEAE1F157C94FDF5475BD5375C5B40D6396394
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605529   (995926) от 19.01.2013
+
+[Wallpapers] vodopad
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлены фотографии водопадов разных стран.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE21FE67E8E69353349D8A4DF667F92171011D77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605309   (995927) от 19.01.2013
+
+Markus Schulz - Global DJ Broadcast (17-01-2013) [MP3|256 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lange - Hold That Sucker Down (Intro Mix)
+ 02. Ferry Corsten - Kudawudashuda
+ 03. Aerofoil vs. E&G - One Word (Markus Schulz Big Room Reconstruction)
+ 04. Markus Schulz Featuring Ana Diaz - Nothing Without Me (Markus Schulz Return to Coldharbour Remix)
+ 05. Gal Abutbul & Sigal Cohen - Patana (Tucandeo Remix)
+ 06. Lana Del Rey - Summertime Sadness (Cedric Gervais Remix)
+ 07. SkyKeeper - Tornado 2013 (Reload Mix)
+ 08. DNS Project - ShatterЖанр: TranceПродолжительность: 01:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94F659797979F8DD5BEBEE190584933AEDC5B3DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605155   (995933) от 19.01.2013
+
+Angellore - Errances (2012) [MP3|192 кб/с]<Atmospheric Doom Metal/Gothiс Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dans Les Vallсes Eternelles (8:23)
+02. Tears Of Snow (8:23)
+03. I Am The Agony (6:49)
+04. Weeping Ghost (4:30)
+05. Errance (2:14)
+06. ...Where Roses Never Die... (7:30)
+07. Shades Of Sorrow (8:28)Жанр: Atmospheric Doom Metal/Gothiс MetalПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0F0DAE61DB25548CFF170A182A89680C63548D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605303   (995934) от 19.01.2013
+
+Psychic - 1 album, 1 single (2012-2013) Discography [MP3|192-320 кб/с]<Progressive Metal, Djent>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive Metal, DjentПродолжительность: 00:42:23
+1. Samara´s Dream 05:27
+2. Paranormal Cats 04:05
+3. Compression of Damage Melusine 404 05:58
+4. Octopussy 04:33
+5. Sky Trajection 04:51
+6. Heretic Error of Magnetic Forces 05:50
+7. Dolly in the Christmas Blood 04:32
+8. Wicker 03:58
+9. Katy Perry - I Kissed a Girl (Psychic REMIX) 03:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE7B485C7B363190BB7B94631EEAC64ECF70BCB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605124   (995940) от 19.01.2013
+
+Kalorin Nemayothin - Feel by Kal (2009) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Till  [03:28]
+02. Night And Day  [03:29]
+03. As Time Goes By  [02:57]
+04. Tea For Two  [03:12]
+05. For Sentimental Reason  [04:02]
+06. Stranger In Paradise  [04:25]
+07. Where Or When  [03:45]
+08. I Get A Kick Out Of You  [03:46]
+09. Dream  [02:32]
+10. It's Magic  [03:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605299   (995941) от 19.01.2013
+
+Ronski Speed - True to Trance (January 2013) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferry Corsten - WKND
+ 02. Eleven.Five - The Way We Were (Toby Hedges Remix)
+ 03. ID - ID
+ 04. Dennis Sheperd feat. Molly Bancroft - Silence (Steve Brian Remix)
+ 05. ID - ID
+ 06. Christian Burns, Paul Oakenfold & JES - As We Collide (Orjan Nilsen Remix)
+ 07. ID - ID
+ 08. Andain - What It's Like (Sneijder Remix)
+ 09. Aly & Fila vs. John O'Callaghan - VapourizeЖанр: TranceПродолжительность: 01:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC70743D1C5A6A9CDE94FE63ED8B6CDFCF37D70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605408   (995947) от 19.01.2013
+
+Angellore - 2 EP (2008-2009) [MP3|128 кб/с]<Atmospheric Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Atmospheric Doom MetalПродолжительность: 00:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE408B204B67033AD7D29DDF0B6CE8AD932C4BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605186   (995948) от 19.01.2013
+
+Zaraza - 2 альбома + Demo (1994 - 2003) Дискография [MP3|320 кб/с]<Industrial Doom Metal/Experemental Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Necessary (13:26)
+02. 24 Hours (6:21)
+03. A Quickie (Screw Rave) (3:06)
+04. A Foreplay (Screw Seduction) (1:59)
+05. A Screw (5:28)
+06. Zaraza (16:23)
+07. Slavic BlasphemyЖанр: Industrial Doom Metal/Experemental MetalПродолжительность: 02:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49A9E4BA4A0A58593B02C093BCD891323C1DF8FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603187   (995951) от 19.01.2013
+
+VA - Clubbers Night Vol.2 - 50 Essential House Tunes (2012) [MP3|320 kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Deepshakerz - Silbidos 013 (07:52)
+02. Deniz Koyu - Hydra (07:05)
+03. Dabruck - I Found Love (Feat. Ollie James) (07:42)
+04. Jean Elan - What It Takes - Club Edit (03:16)
+05. DBN - Inside Out (06:15)
+06. DJ Shevtsov - Moscow Girls (Feat. Mic E.P.) - Sean Finn Dub Mix (06:30)
+07. Syke'N'Sugarstarr - So Alive - Tito & Slider Dub (06:34)
+08. Cosmic Funk - I'll Never Stop (Feat. Max'C) - Ian Osborn & Nicolas Francoual Remix (06:57)
+09. Kaelig - Bring Back (Feat. Jayhem) - Yves Murasca & Ezzy Safaris NeXu5 Big Room Edit (04:02)
+10. Tom Geiss - No More Tomorrows (Feat. Max C) - Alex Shaje & Luciano Vargas Remix (06:51)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB18251CF19BEA0361426C7F888F2F1A6B5B91E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605105   (995954) от 19.01.2013
+
+Quo Vadis - 2 альбома (2000 - 2010) [WavPack|Lossless]<Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caducus [05:58]
+02. Blood For Oil [04:37]
+03. Bomba And Fire [05:42]
+04. Blach Horizons [03:54]
+05. Chaos [06:55]
+06. Dreams [03:37]
+07. Cross Of Gold [05:13]
+08. East Vs West [04:25]
+09. Nimue [05:55]
+10. Evil Dad [03:00](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:54:06
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605061   (995957) от 19.01.2013
+
+The Symbioz - 1 альбом + 1 EP (2011-2012) [FLAC|Lossless] <Hardcore / Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hardcore / Metal |Продолжительность: 00:10:18
+
+01 | Без права на майбутнє | 01:11
+02 | Шлях поневірянь | 03:09
+03 | Мовчання | 03:22
+04 | Світ щасливих людей | 02:35
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600977   (995959) от 18.01.2013
+
+Дмитрий Петров | Полиглот. Французский с нуля за 16 часов! (01-08 из 16 уроков) [2013] SATRip (Обновляемая)
+
+>>След.
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интеллектуальное реалити-шоу "Полиглот. Французский с нуля за 16 часов!" - продолжение проекта телеканала "Россия К" по изучению иностранных языков. В роли преподавателя вновь выступает Дмитрий Петров - настоящий полиглот, в активе которого более 30 языков.
+После курсов английского и итальянского, Дмитрий Петров приглашает телезрителей в мир французского языка. Неизменными остаются главные принципы обучения: нарастающая мотивация - каждый день эффект очевиден; язык - это не только слова, не только грамматическая структура, но и система образов, эмоций и ощущений - их-то и надо развивать; комбинаторика - каждая новая группа слов дает на порядок больше комбинаций.
+Курс состоит из 16 уроков. В группе студентов вновь 8 человек.Жанр: Иностранные языкиПродолжительность: ~ 06:00:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603162   (995960) от 18.01.2013
+
+Марьина роща [1-16 серия из 16] (2012) SATRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарная Марьина роща - один из районов Москвы, который на протяжении нескольких десятилетий становился приютом для тех, кто не в ладу с законом - спекулянтов, мошенников и воришек. Здесь всегда можно было приобрести поддельные документы, фальшивые ассигнации или сбыть краденое. Но в 40-х годах разгул бандитизма здесь приобретает невиданный размах. Расцвет "воровских малин" и притонов, дерзкие налеты, грабежи и убийства – явления, с которыми милиция была не в силах справиться.Жанр: Драма, Детектив, ИсторияРежиссер: Александр ХванАктеры: Александр Домогаров, Евгения Крюкова, Виталий Кудрявцев, Сергей Комаров (II), Савва Гусев, Елена Доронина (IV), Яна Львова, Наталья Литвинова, Виктор Тереля, Дмитрий Смирнов (V), Артем Лысков, Виталий Горшков, Виктор Маркин (II), Олег Алмазов, Сергей Потапов (II), Юрий Шлыков, Борис Романов, Константин Желдин, Петр Зайченко, Ольга Науменко, Татьяна Мухина (III), Егор Баринов, Людмила Давыдова (II), Ирина Гордина, Полина Лунегова, Татьяна Чернопятова, Алексей Михайлов (II), Ксения Баринова, Игорь Филиппов, Дмитрий Гусев, Евгений Харланов, Михаил Горский, Анастасия Платонова, Сергей Дьячков, Константин Глушков, Михаил Солодко, Максим Макаров, Игорь Огурцов, Сергей Василюк, Анна Гуляренко, Георгий Пицхелаури, Павел Абраменков, Артем Кобзев, Андрей Лукьянов, Наталья Паламожных, Андрей Тартаков, Артем Хван, Сергей Неробеев, Вадим Померанцев, Павел Крайнов, Марина Блейк, Станислав Житарев, Сергей Неудачин, Сергей Тезов, Любовь Фирсова, Георгий Панагопулос, Андрей Сорока, Сергей Кагаков, Андрей Арзяев, Степан Куликов, (   Читать дальше...   )Перевод: Не требуется (Русский)Продолжительность: 16 х ~ 00:43:57 серия
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605039   (995961) от 18.01.2013
+
+Nik Software Color Efex Pro 4.005 [Eng]
+
+>>След.
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Color Efex Pro™  — большой набор фотографических фильтров для Adobe Photoshop, которые предназначены для улучшения ваших цифровых фотографий. В состав пакета входит большое количество фильтра и  различных эффектов. Они помогают выполнить цветокоррекцию, ретуширование и многие другие операции. Интерфейс пакета выполнен в стиле плагина DigitalFilmTools с возможностью увеличения размера окна и просмотром изображений до и после применения выбранных фильтров и эффектов.
+Возможности плагина:
+● 52 фильтра и 250 различных эффектов для улучшения фотографий
+● Уникальная технология U Point позволяющая гибко корректировать отдельные участки изображения
+● Новые фильтры: Film Grain, Film Effect, Glamour Glow, Selective Contrast, High Key, Low Key, Polaroid Transfer, Cross Balance
+● Инструмент выделения (Selective tool), позволяющий применять эффект только к выделенной области изображенияНазвание программы: Color Efex Pro  4Релиз состоялся: октябрь 2012Тип издания: Mac OS X softwareЯзык интерфейса: Eng
+
+## Скачать торент
+```bash
+нет
 ```
 
 

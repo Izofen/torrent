@@ -1,3 +1,30 @@
+###  Публикация: 1139077   (661305) от 01.06.2017
+
+VA - Yin-Yang Deep House Music Vol.02 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661305.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nico Stojan feat. Iannis Ritter - Dedicated
+002. FonnikDeep - Love (Broken Instrumental)
+003. James Silk - La Noche
+004. Sound Slave - Lost in Lost Angeles City (Deephope Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1133D38CE3E24867F3091779AB2F7257806541DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139061   (661391) от 01.06.2017
 
 VA - The Land Of Romance (2017) [MP3|320 Kbps] <Pop, Rock Lyric>
@@ -656,33 +683,6 @@ VA - SpaceSynth & ItaloDisco Hits Vol.25 (ot Vitaly 72) (2017) [MP3|320 Kbps] <I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CC2F82360C6B8FC41746DDFC374D1F56B80FF35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138547   (663237) от 30.05.2017
-
-VA - SpaceSynth & ItaloDisco Hits Vol.24 (ot Vitaly 72) (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Italian Party - Tonight (Where Is the Love) (Italian Extended Mix) 6:55
-02.  Raf Coney - I See You Later 7:29
-03.  The Crosslines - Angel Eyes 5:35
-04.  Stylove - Sail Away 5:34(   Читать дальше...   )Жанр: Italo Disco, SpacesynthПродолжительность: 04:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C4F9D692A9D371219CBE19508D0CBEBD93D8581
 ```
 
 

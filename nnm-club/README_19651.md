@@ -1,649 +1,694 @@
-###  Публикация: 1122902   (793511) от 06.04.2017
+###  Публикация: 1274855   (791694) от 09.01.2019
 
-Nicky Romero - Live @ Ultra Music Festival 2017-03-25 [MP3|256 Kbps] <Electro House, Progressive House>
+DJ Emerson - At The Controls (2018) [MP3|320 Kbps] <Techno, Tech House>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793511.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791694.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Nicky Romero ft. Eric Lumiere - The Moment (Novell) (Orchestral Intro Edit)
-02.Sunstars - Flames w/ Mark Knight & Koen Groeneveld - Put Your Hands Up (Acappella)
-03.Ed Sheeran - Shape Of You (Melo.Kids Remix)
-04.Trilane & Yaro ft. Max Landry - Miss Out (Nicky Romero Edit)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 00:58:24
+1. Namtrak – What You Need (DJ Emerson Remix)6:02
+2. DJ Emerson – XLR8r (New Edit)5:38
+3. DJ Emerson – Etonic (Original Mix)6:35
+4. DJ Emerson – Boy Got Bass (Original Mix)6:44(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 04:37:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C59E9C7EBBCC3773082C73B6B9EB56742924E940
+magnet:?xt=urn:btih:BD40576BD019B35E1ECFE15F6D3EC709E20160CD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122891   (793512) от 06.04.2017
+###  Публикация: 1274981   (791695) от 09.01.2019
 
-Газета | Советчица. Приусадебное хозяйство [Украина] №4 (184) (апрель 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не обойдены вниманием и владельцы домашних ферм — здесь они находят ответы на многие вопросы по содержанию (   Читать дальше...   )Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A013403CCCDF44361C553E5126A2FB7A6469AE01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122769   (793513) от 06.04.2017
-
-VA - Most Comfort Melodies for Spa: Deep Sleep Sounds for Meditation (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Native American Music Consort — Most Comfort Melodies for Spa
-02. Spa Music Paradise Zone — Breathe & Beneficial Rain
-03. Soothing Music Academy — Hypnotic Music
-04. Bedtime Stories Unit — Music for Spa(   Читать дальше...   )Жанр: New AgeПродолжительность: 03:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE281C1E923A75A42A3F7C7809350A58828F72FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122713   (793514) от 06.04.2017
-
-VA - Chill Out Classics (2016) [MP3|320 Kbps] <Downtempo, Chillout, Vocal>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Matt Darey & Kate Louise S - See The Sun (Original Mix)  5:35
-02.  York & Jennifer Paige - Lost Under The Sun (Max Denoise & Harnam Remix)  5:28
-03.  Asheni - Only Magic  6:26
-04.  Ayla - Angelfalls  4:24(   Читать дальше...   )Жанр: Downtempo, Chillout, VocalПродолжительность: 02:23:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3634EF62FC6589D93E1475881F8D011C57883D54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123017   (793515) от 06.04.2017
-
-Aiseesoft Burnova 1.0.6.61821 RePack by вовава [En]
+BestReminder v2019.01.09.09 Final [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793515.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791695.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Burnova - это профессионал DVD, который создает локальные видео с компьютера или загрузки и делает онлайн-фильмы с YouTube, Vimeo и т.д. На диск DVD / ISO / папку.Язык интерфейса: Английский
+Ну кто из нас не забывал поздравить близких друзей, родственников, сотрудников, знакомых с каким нибудь событием или знаменательной датой!
+Может это день рождения, или юбилей, а может крестины, или может годовщина свадьбы?
+А когда же поздравить? Когда покупать подарки? Какого же числа праздник?
+Эта версия программы - ни что иное, как новый свет от предыдущей Birthday. (   Читать дальше...   )Разработчик: Похилько Д.Ю. aka KilyaЯзык интерфейса: Русский, английский, украинский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E339A553EDACEC55A15D4F67B7A97DC54AC7069D
+magnet:?xt=urn:btih:EBFD122EB49563904A3413D49C63BB6226EFCC81
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123019   (793516) от 06.04.2017
+###  Публикация: 1274895   (791696) от 09.01.2019
 
-Газета | Тайны вселенной №4 (2017) [PDF]
+VA - Soul Connection: True Love (2019) [MP3|320 Kbps] <DnB, Dubstep>
 
->>Журналы
->>Другие журналы
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793516.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791696.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Тайны вселенной» – Познавательное издание, в котором каждый читатель найдет для себя интересную тему. На страницах журнала множество рубрик, посвященных различным областям знаний, в которых освещаются последние достижения науки и техники. Читая материалы этого издания вы откроете тайны генной инженерии и альтернативной энергетики, узнаете о последних разработках (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
+001. Highpro - Conflict (Original Mix)
+002. Vital - Clarted
+003. Brookes Brothers - Every Minute
+004. Bakground - Clubjammerz(   Читать дальше...   )Жанр: DnB, DubstepПродолжительность: 08:22:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3C738F63DC5DE6D5D9025AE6EF4E796B2E8458B
+magnet:?xt=urn:btih:19E2EA826115FC4093822893F3098DF839A73943
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122889   (793517) от 06.04.2017
+###  Публикация: 1274749   (791697) от 09.01.2019
 
-Газета | Готовим вкусно! №4 (164) (апрель 2017) [PDF]
+Журнал | Автомир [Россия] №2 (январь 2019) [PDF]
 
->>Журналы
->>Кулинарные журналы
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793517.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791697.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Готовим вкусно" - издание для тех, кто любит вкусно приготовить, вкусно поесть, вкусно угостить друзей. Красочное издание для радушных хозяек. В нем рассказывается, как принимать гостей и сервировать стол. В каждом номере - кулинарные рецепты изысканных и "модных", повседневных блюд, и блюд национальной кухни, здорового питания и экономной кулинарии: (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+«Автомир» — еженедельный журнал, полностью посвященный автомобилям. Основные темы издания: автоновости, тестдрайвы, концепт-кары, российские и международные выставки и автогонки, московские автосалоны и дилеры, советы экспертов по автоправу и многое другое.
+Проект ставит перед собой цель донести до читателя максимум полезной информации об автомобилях и обо всем, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E82125D3F36C235D1AC13C6B2C388CBFAB62C9B5
+magnet:?xt=urn:btih:100438E5F47A9B3850C76F1AA1464A41262025BC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122783   (793518) от 06.04.2017
+###  Публикация: 1274948   (791698) от 09.01.2019
 
-П. С. Гуревич | Буржуазная пропаганда в поисках теоретического обоснования (1978) [DJVU, PDF]
+VA - Soft Rock Nuggets (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
 
->>Разное (категория книг)
->>Публицистика
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793518.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791698.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В наши дни, в условиях развертывающегося идеологического противоборства двух мировых систем, буржуазия стремится всячески усовершенствовать и укрепить свой пропагандистский аппарат, теоретики и практики буржуазной пропаганды систематически обновляют ее идеологический арсенал. В книге доктора философских наук П. С. Гуревича анализируется эволюция буржуазного манипулирования (   Читать дальше...   )Жанр: История, политология, психология, социология, философияФормат: DJVU, PDF
+01. Foreigner - Blue Morning, Blue Day
+02. Chicago - Little One
+03. Daryl Hall & John Oates - When the Morning Comes
+04. America - Don't Cross the River(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:43:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FFB03C645A1E1A694C7407873E1A800112577BD
+magnet:?xt=urn:btih:967B7CC533A689DC4E66503AA89580DEA712543F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122776   (793519) от 06.04.2017
+###  Публикация: 1274945   (791699) от 09.01.2019
 
-В. В. Обухов | Идеологические диверсанты (1978) [DJVU, PDF]
+VA - Overload: Pop Rock Music (2019) [MP3|320 Kbps] <Indi, Pop, Rock>
 
->>Разное (категория книг)
->>Публицистика
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793519.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге на конкретных примерах показывается, как современная буржуазная пропаганда капиталистических государств, стремясь скрыть свои истинные цели и рядясь при этом в одежды «нейтральности», «объективности», использует печать, радио, телевидение для отравления умов, для психологического воздействия на широчайшую аудиторию в целях подрыва системы социализма.Жанр: История, политология, экономика, психологияФормат: DJVU, PDF
+001. Avantgardet - Walk Of Shame
+002. Hazey Eyes - Scars (Ukiyo Remix)
+003. Horses Without Makeup - Forget About Chlorine
+004. Vasas Flora Och Fauna - Leevi & The Leavings(   Читать дальше...   )Жанр: Indi, Pop, RockПродолжительность: 09:11:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DBB7F113FC9468D6256CF904E066F6FBC4AAA278
+magnet:?xt=urn:btih:2013A3998D6A30D313D2757F623A4D8D9BB2735B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122922   (793520) от 06.04.2017
+###  Публикация: 1275031   (791700) от 09.01.2019
 
-John Wetton & Geoffrey Downes - Icon3 (2009) [FLAC|Lossless|image + .cue] <Progressive Rock, Melodic Rock>
+Джин-Тоник - Нетакой (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791700.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Нетакой (feat. Ксения Стрижакова)
+2. Вдруг это всё (feat. Алексей Кортнев)
+3. Селфи (feat. Валерий Сюткин)
+4. Старпёрская (feat. Евгений Маргулис)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F946C75BB70A00A6186BA5E54009BB27656DE07B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275067   (791701) от 09.01.2019
+
+Kauan - Pirut (2013) [FLAC|Lossless|Web-DL|tracks] <Funeral Doom, Folk Metal, Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I (4:58)
+02. II (4:42)
+03. III (5:15)
+04. IV (8:01)(   Читать дальше...   )Производство: Blood Music - BLOOD-040Жанр: Doom Metal, Folk Metal, Post-Metal, Funeral DoomПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E46CB3C916DEEF491243D6D9E2E45677C61C00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274609   (791702) от 09.01.2019
+
+Dropzone 3.7.0 [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793520.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791702.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Twice The Man I Was o4.43
-02. Destiny o5.52
-03. Green Lights And Blue Skies o4.25
-04. Raven o3.58(   Читать дальше...   )Жанр: Progressive Rock, Melodic RockПродолжительность: 00:53:33
+Dropzone - удобная утилита для автоматизация рутинных действий.
+Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что macOS заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.01.2019Разработчик: Aptonic LimitedПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:389F74414407C7DEF4F72241A257BEB9537E91A8
+magnet:?xt=urn:btih:353CF1AAFF737BFBEFC38945E5EE2D48A4A4D7B8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331790   (793521) от 13.11.2021
+###  Публикация: 1274912   (791703) от 09.01.2019
 
-Алекс Каменев | Собрание сочинений [28 книг] (2015-2021) [FB2] [Обновляемая]
+Koen Park (Ian Hawgood) - Discography 13 Releases (2008-2017) Folk Reels [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient, Experimental>
 
->>Художественная литература
->>Собрания книг русскоязычных авторов
+>>Electronic
+>>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793521.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791703.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Алекс Каменев – российский писатель, автор боевой и космической фантастики, городского фэнтези, а также историй о магии и волшебниках.
-
-Последствия увлечения литературой
-Много лет Алекс Каменев увлекается чтением фантастики и фэнтези. Особенно ему нравятся истории о попаданцах, которые по воле случая оказались в другом мире или времени. Любовь к литературе подтолкнула (   Читать дальше...   )Жанр: Фэнтези, Боевое фэнтези, Героическое фэнтези, Попаданцы, Космическая фантастика, Боевая фантастикаФормат: FB2
+01. Remote (17:58)
+ 02. Vapour (12:52)Тип издания: WEBЖанр: AmbientПродолжительность: 00:30:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D110862A06FFDF7B894B83209228189101DD4FD1
+magnet:?xt=urn:btih:F92FAF691E997F63359C6FADE85EEC6E7E805589
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 382808   (793522) от 13.11.2021
+###  Публикация: 1274852   (791704) от 09.01.2019
 
-Пелагея - Дискография (11 CD) (2003-2010) [FLAC|Lossless]<Ethnic/Folk-Rock>
+Kauan - Muistumia (2014) [FLAC|Lossless|Web-DL|tracks] <Folk, Funerial Doom, Post Rock>
 
->>Other Styles
->>Folk (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793522.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791704.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Ethnic/Folk-RockПродолжительность: 00:55:09
-
-01. Пташечка
-02. Снежочки(   Читать дальше...   )
+01. Unsoi (4:54)
+02. Aamu Ja Kaste (6:20)
+03. Lumikuuro (7:02)
+04. Koivun Elämä (6:22)(   Читать дальше...   )Производство: Blood Music - BLOOD-074Жанр: Folk, Funerial Doom, Post Rock, Black Metal, ExperimentalПродолжительность: 00:50:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7FB2F94D9E77DAEA78EE7B529BD9ADD455123F2
+magnet:?xt=urn:btih:69104DCB3E86570E446F030A24A9C7FA527A24D5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509418   (793523) от 13.11.2021
+###  Публикация: 1274889   (791705) от 09.01.2019
 
-Шан-Чи и легенда десяти колец / Shang-Chi and the Legend of the Ten Rings (2021) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+VA - Dance Room Party 2019-Essential Anthems / Electronic & Dance Music Hits (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 
->>След.
->>Зарубежные Фильмы (UHD)
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793523.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791705.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мастеру боевых искусств Шан-Чи предстоит противостоять призракам из собственного прошлого, по мере того как его втягивают в паутину интриг таинственной организации «Десять колец».Производство: США, Австралия / Walt Disney Pictures, Marvel StudiosЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Дестин Дэниел КреттонАктеры: Симу Лю, Тони Люн Чу Вай, Аквафина, Мишель Йео, Чжан Мэнъэр, Чэнь Фала, Ронни Чиэн, Флориан Мунтяну, Бен Кингсли, Юэнь ВаПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (Full, Forced), АнглийскийПродолжительность: 02:12:20
+01. Lorenz Koin & Norah B. - In The Name Of Love (Radio Mix) 3:22
+02. Nico Del Prato - Anymore (Radio Edit) 3:07
+03. Enormous Cats - Ready Or Not (Club Mix) 4:31
+04. Robert Taylor - Keep It Real (Original Mix) 4:13(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:17:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63C4AF73636D14CB799BAF444258B7C28E5EAABB
+magnet:?xt=urn:btih:3151CF79A78A057F5562043F5A0555C7FD804116
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489039   (793524) от 13.11.2021
+###  Публикация: 1274141   (791706) от 09.01.2019
 
-Can Ci Pin: Fangzhu Xingkong | The Defective | Дефектные: Доступ запрещён [2021, Web, 16 из 16] WEBRip 1080p HS+rus
+VA -MoBlack Records presents: Afro House Collection - 5 Years Label Anniversary Compilation (2018) [MP3|320 Kbps] <House>
 
->>Аниме разное
->>Аниме хардсаб
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793524.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791706.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Далёкое будущее. Космические корабли вовсю бороздят просторы вселенной. Человечество успешно освоило новые планеты, технический прогресс достиг невиданных высот, развитие идёт семимильными шагами. Однако ещё двести лет назад по новому галактическому исчислению всё было не так мирно и стабильно. Созданный Межгалактический Союз, в который вошли восемь галактик, страдал (   Читать дальше...   )Производство: Китай / LX Animation StudioЖанр: Экшен, фантастика, драма, военный, мультсериалЯзык озвучки: Русский (Многоголосый закадровый / StudioBand)Субтитры: Русские (Hardsub, стилизованные на надписи)Продолжительность: ~00:20:00 серия
+01. Zulu Song (Paki Palmieri Afro Roots Mix)-Miriam Makeba
+02. Find Your Way (Sunrise Mix)-Moon Rocket
+03. Baakoya (Armonica Remix)-Mabiisi
+04. Amahloni (Manoo Remix)-Stones & Bones(   Читать дальше...   )Жанр: HouseПродолжительность: 03:43:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1171F4704AA6B7E94D27E5CA4BFC1247272E436F
+magnet:?xt=urn:btih:588357F95EECEBEB769D195F82CE1F90990AD55E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 442479   (793525) от 13.11.2021
+###  Публикация: 1274888   (791707) от 09.01.2019
 
-Pink Floyd - The Dark Side Of The Moon, Wish You Were Here, The Wall: Immersion Box Set (1973,1975, 1979) / 2011 [FLAC|Lossless]<Progressive rock, Psychedelic>
+Sōzuproject (Sōzu Project, Sozuproject) - Discography 7 Releases (2013-2017) Vent Sounds, Silent Flow [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
 
->>След.
->>Rock (Lossless)
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793525.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791707.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Progressive rock, PsychedelicФормат: Flac (image+.cue+tracks)
+01. Float (08:22)
+ 02. Carousel (06:01)
+ 03. Abandoned (18:00)
+ 04. Grey (08:16)Тип издания: WEBЖанр: AmbientПродолжительность: 00:40:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F46B1F930208691D9FE03C6989F03BF9B156FFC
+magnet:?xt=urn:btih:DE39A53B910A31C92BA61904FD4872AA713CD71F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509433   (793526) от 13.11.2021
+###  Публикация: 1274880   (791708) от 09.01.2019
 
-Красное уведомление / Red Notice (2021) WEB-DL [H.265/1080p] [HDR, 10-bit]
+VA - House Boutique Volume 25-Funky & Uplifting House Tunes (2018) [MP3|320 Kbps] <Groove, House, Funky>
 
->>След.
->>Зарубежные Фильмы (HD, FHD)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793526.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791708.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Красное уведомление — это международный сигнал тревоги Интерпола, призывающий начать охоту на особо опасных преступников. Агент ФБР преследует самого разыскиваемого в мире вора картин, но становится его невольным соучастником в попытке поймать мошенника, который всегда на шаг впереди.Производство: CША, Flynn Picture Company, Legendary Entertainment, Seven Bucks Productions, NetflixЖанр: Боевик, триллер, криминал, комедияРежиссер: Роусон Маршалл ТёрберАктеры: Дуэйн Джонсон, Райан Рейнольдс, Галь Гадот, Риту Эрийа, Крис Диамантополос, Ivan Mbakop, Винченцо Амато, Рафаэль Петарди, Сет Майклс, Себастьен ЛарджПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Forced, SDH)Продолжительность: 01:57:59
+01. Block & Crown - Dice (Original Mix)
+02. Jose Ogalla - After Now (Chris Montana Piano Dub)
+03. Scotty Boy - Ya'll Came to Jack (Original Mix)
+04. Slippy Beats - Phunky Beats (Hype Is Not Remix)(   Читать дальше...   )Жанр: Groove, House, FunkyПродолжительность: 01:36:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CC6A7E232E23230733B227E1401F6561B5ABC03
+magnet:?xt=urn:btih:6C3D4582D8C933666CC260618D387675AFBA88DA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 547215   (793527) от 13.11.2021
+###  Публикация: 1274946   (791709) от 09.01.2019
 
-Подборка книг Лучшие Афоризмы (53 тома) [2012] [FB2]
+VA - G-House Drops Winter '19 (2019) [MP3|320 Kbps] <House, Minimal, Tech House>
 
->>Разное (категория книг)
->>
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793527.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791709.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Афоризм (греч. «определение») — оригинальная законченная мысль, изречённая или записанная в лаконичной запоминающейся текстовой форме и впоследствии неоднократно воспроизводимая другими людьми. В афоризме достигается предельная концентрация непосредственного сообщения и того контекста, в котором мысль воспринимается окружающими слушателями или читателем.Формат: FB2
+01. Steven Draxler - Right Time (Club Mix) 4:28
+02. Christopher G - Bassline Drops (Club Mix) 4:56
+03. Tom Bekker - What You Got (Instrumental Mix) 4:49
+04. Ricky Alvarez - House Is Mine (VIP Dub Mix) 4:16(   Читать дальше...   )Жанр: House, Minimal, Tech HouseПродолжительность: 02:08:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DCB1552EEE1ABC69AA981826A36F2D9CE8734A7
+magnet:?xt=urn:btih:3FFD107C525535728E1E9ABC4082D5C9DB212D57
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 273661   (793529) от 13.11.2021
+###  Публикация: 1274991   (791710) от 09.01.2019
 
-Pink Floyd - Oh By The Way (16CD Box Set EMI Records 40th Anniversary Edition) (2007) [WavPack|Lossless] <Rock, Psychedelic Rock, Progressive Rock>
+VA - FM Radio Gods, Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Big Room>
 
->>3
->>След.
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793529.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791710.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Cluster One
-02 What Do You Want From Me
-03 Poles Apart
-04 Marooned(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Progressive RockПродолжительность: 00:51:04
+01. Sam Collins feat. Paula Douglas - Let Me Know (Radio Edit)
+02. Jay Frog & Amfree - Is This Love (Radio Edit)
+03. DJ Junior & Roger Slato - On The Beach (Radio Edit)
+04. Viktor Newman & BeatFlashers - Tropical Love (Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Big RoomПродолжительность: 01:42:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3442BF3DD318E60D41DEC33A8D4F70D2F539F60C
+magnet:?xt=urn:btih:7DDB29454C6D1D7A7B2AF9ADD77D4301885A68DC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460365   (793530) от 13.11.2021
+###  Публикация: 1274839   (791711) от 09.01.2019
 
-Супергёрл / Supergirl (2021) WEB-DLRip (сезон 6, серии 1-20 из 20) LostFilm
+Divine Ascension - The Uncovering (2018) Japan [FLAC|Lossless|image + .cue] <Progressive Metal, Melodic Power Metal>
 
->>Зарубежные сериалы
->>Сериалы DC Comics
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793530.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791711.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Супергёрл" расскажет историю Кары Зор-Эл с планеты Криптон. После уничтожения родной планеты Кара прибывает на Землю, где скрывает свои сверхчеловеческие способности. Однако по достижении 24 лет она решает использовать свою силу во благо и стать тем героем, которым всегда хотела быть.Производство: США / Berlanti Productions, Warner Bros. TelevisionЖанр: фантастика, боевик, драма, приключенияРежиссер: Джесси Уарн, Глен Винтер, Ларри ТенгАктеры: Мелисса Бенойст, Кайлер Ли, Дэвид Хэрвуд, Мехкад Брукс, Кэти МакГрат, Джереми Джордан, Джесси Рат, Крис Вуд, Андреа Брукс, Николь МэйнсПеревод: Многоголосый (LostFilm)Язык озвучки: Русский, английскийПродолжительность: ~00:43:00 серия
+01. Evermore
+02. Prisoner
+03. The Fallen
+04. Pursuit of Desire(   Читать дальше...   )Жанр: Progressive Metal, Melodic Power MetalПродолжительность: 00:59:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6383B866ECA54E3CE4E1B1A1373B464B35AAE820
+magnet:?xt=urn:btih:7D7ABB344D09B1F58C6CD1C7826D95D5C1006A3F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509552   (793531) от 13.11.2021
+###  Публикация: 1274838   (791712) от 09.01.2019
 
-Tiny Tina's Assault on Dragon Keep: A Wonderlands One-shot Adventure (2021) [Multi] (1.0.0.0) License CODEX
+Azrael - Moonchild (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
 
->>Win Игры
->>Action (FPS)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793531.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791712.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Королеву похитили, ее королевство в беде; только вы с друзьями можете восстановить мир в этой эксцентричной и зачарованной вселенной. Прорывайтесь через опасные леса, страшные гробницы и грозные крепости, но будьте осторожны: ваше путешествие может измениться в мгновение ока по воле хаотичной Тины. Окунитесь в эпический мир настольной игры и приготовьтесь к фантастической (   Читать дальше...   )Тип издания: LicenseРазработчик: Gearbox Software, Stray Kite StudiosЖанр: Action (FPS)Язык озвучки: Английский и другиеЯзык субтитров: Английский и другиеЯзык интерфейса: Английский и другие
+01. Birth of the Universe
+02. Moonchild
+03. Surveillance Society
+04. Fly till the End of Time(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:58:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52C049DAB01CF79B96A1582A82BD7D96099EBE29
+magnet:?xt=urn:btih:F290E1FDE75FA2EF56741D5BEDB7DDBFFA62A583
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426188   (793532) от 13.11.2021
+###  Публикация: 1275042   (791713) от 09.01.2019
 
-Фееринки (2019-2021) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-26 из 26)
+Morgue - Artgore (2001) [FLAC|Lossless|tracks + .cue] <Death Metal>
 
->>След.
->>Отечественные Мультсериалы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793532.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791713.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Они еще только учатся управлять магией, и у них не всегда это получается. Но девочки очень дружны и готовы прийти на помощь друг другу, а теперь у них есть волшебная няня, которая поможет им овладеть всеми секретами волшебства. Добро пожаловать в школу феерических наук!Производство: Россия / Agama Film StudioЖанр: Детский, компьютерная анимацияРежиссер: Наталья БерезоваяАктеры: Диамид Виноградов, Екатерина Кутневич, Ирина Киреева, Мария Березовая, Светлана Зимина, Лариса Брохман, Татьяна АбрамоваСубтитры: ОтсутствуютПродолжительность: ~00:11:00 серия
+01. Peeled Back Organs (3:57)
+ 02. Embalmed in Perservatives (3:10)
+ 03. Slime (3:36)
+ 04. Removal of Limbs (2:29)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:33D65070E1A5773F87D7BEAAF2668FA3C07B41CE
+magnet:?xt=urn:btih:03E3795DB07F6455F0BDB37FD9CAA16EF9D25205
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509738   (793533) от 13.11.2021
+###  Публикация: 1275036   (791714) от 09.01.2019
 
-Шан-Чи и легенда десяти колец / Shang-Chi and the Legend of the Ten Rings (2021) BDRip [H.265]
+VA - In At The Deep End Records Catalogue Sampler (2009) Compilation [FLAC|Lossless|tracks + .cue] <Hardcore, Heavy Metal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793533.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791714.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мастеру боевых искусств Шан-Чи предстоит противостоять призракам из собственного прошлого, по мере того как его втягивают в паутину интриг таинственной организации «Десять колец».Производство: США, Австралия / Walt Disney Pictures, Marvel Studios, Fox Studios AustraliaЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Дестин Дэниел КреттонАктеры: Симу Лю, Тони Люн Чу Вай, Аквафина, Мишель Йео, Чжан Мэнъэр, Чэнь Фала, Ронни Чиэн, Флориан Мунтяну, Бен Кингсли, Юэнь ВПеревод: Дублированный (КиноПоиск HD)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), Украинские (Forced), Английские (Forced, Full, SDH, Commentary, Commentary-SDH)Продолжительность: 02:12:20
+01. Tortuga - Hell's Red Roads (03:25)
+02. Sylosis - Visions of Demise (04:26)
+03. Romeo Must Die - Who Died and Made You God (03:19)
+04. The Casino Brawl - Into the Light (04:37)(   Читать дальше...   )Жанр: Hardcore, Heavy MetalПродолжительность: 01:17:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CAAC9B231820447C9417309D300A61682D37B6F2
+magnet:?xt=urn:btih:040E0DD600B280F173BC7577014BBF2734343D45
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 244146   (793534) от 13.11.2021
+###  Публикация: 1274842   (791715) от 09.01.2019
 
-Pink Floyd - 1st Press Collection (1967-1994) [CUE+FLAC|Lossless]<Progressive Rock / Psychedelic Roсk>
+1917 - Vox Fatum (2007) [FLAC|Lossless|image + .cue] <Death Metal>
 
->>След.
->>Rock (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793534.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791715.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Progressive Rock / Psychedelic RoсkПродолжительность: 01:06:34
-01. Cluster One
-02. What Do You Want From Me
-03. Poles Apart(   Читать дальше...   )
+01. Legado Sombrío
+02. Contemplaciones
+03. Trofeos de Honor
+04. La Iniquidad Penitente (Pt. 1)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD7DC95FCC661F3A9ED47A7A27BC33B141397582
+magnet:?xt=urn:btih:18922D0D171D89F03B77C2CD26CE5727AAE4C930
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 271670   (793535) от 13.11.2021
+###  Публикация: 1275040   (791716) от 09.01.2019
 
-Yello - Touch Yello (Deluxe) + 6 Bonus Tracks (2009) [FLAC|Lossless]<Electronic, Synthpop>
+Mortal Decay - A Gathering of Human Artifacts (1999) Compilation [FLAC|Lossless|tracks + .cue] <Death Metal>
 
->>След.
->>Synthpop, New Wave (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793535.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791716.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Expert
-02. You Better Hide Feat. Heidi Happy
-03. Out Of Dawn
-04. Bostich (Reflected)(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 01:14:51
+01. Ars Moriendi  (4:06)
+ 02. Dawn of Misery  (3:58)
+ 03. Requiem  (2:02)
+ 04. Post-Mortem Feast  (3:55)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:12:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CBD50FF6D69EC58C296FE4715F2F2E9E951D4175
+magnet:?xt=urn:btih:2DF06B12499FFF542FEB4BA91102EC6FC05F25E0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509592   (793536) от 13.11.2021
+###  Публикация: 1274843   (791717) от 09.01.2019
 
-Шан-Чи и легенда десяти колец / Shang-Chi and the Legend of the Ten Rings (2021) BDRip [H.264/1080p-LQ]
+Hyelish - Enferma Humanidad (2014) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793536.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791717.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мастеру боевых искусств Шан-Чи предстоит противостоять призракам из собственного прошлого, по мере того как его втягивают в паутину интриг таинственной организации «Десять колец».Производство: США, Австралия / Walt Disney Pictures, Marvel Studios, Fox Studios AustraliaЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Дестин Дэниел КреттонАктеры: Симу Лю, Тони Люн Чу Вай, Аквафина, Мишель Йео, Чжан Мэнъэр, Чэнь Фала, Ронни Чиэн, Флориан Мунтяну, Бен Кингсли, Юэнь ВаПеревод: Дублированный (Невафильм)Субтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 02:12:20
+01. Enferma Humanidad
+02. Sabor a Muerte
+03. Pastores Oscuros
+04. Maldito Seas Jesús(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:44:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42B2E060425F918DAD1A3E6988FD2609207F5CC9
+magnet:?xt=urn:btih:F264C73847FFBC5E5F41A9ADE3742BECAAE51246
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508587   (793537) от 13.11.2021
+###  Публикация: 1274972   (791718) от 09.01.2019
 
-Воскресенский (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
+Buck Clayton - Three Classic Albums Plus (1954 - 1958) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
 
->>Отечественные сериалы
->>
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793537.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791718.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Санкт-Петербург, 1912 год. Прогресс нового века наступает, однако человеческая натура не меняется вместе с прогрессом — все так же люди лишают жизни друг друга, иногда — самыми жуткими и невероятными способами. Каждый раз, когда столичная полиция вместе со всем своим современным оборудованием (а ведь есть уже и дактилоскопия, и многое другое) не может справиться (   Читать дальше...   )Производство: Россия / Epic MediaЖанр: детективРежиссер: Дмитрий ПетруньАктеры: Юрий Колокольников, Андрей Назимов, Вильма Кутавичюте, Максим Лагашкин, Антон Хабаров, Александр Муравицкий, Янина Лакоба, Сергей Бызгу, Аркадий Коваль, Владимир ЕпифанцевПродолжительность: ~00:52:00 серия
+CD1 John Coltrane - Giant Steps:
+01. Giant Steps [4:47]
+02. Cousin Mary [5:50]
+03. Countdown [2:26](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:37:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6DC235CA3D4735746817D65D293476477CB8631
+magnet:?xt=urn:btih:734C27C38301929027A7E78DEB225BB977665947
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274841   (791719) от 09.01.2019
+
+1917 - Vision (2004) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.     In tenebra
+02.     La vieja sangre
+03.     Piel de mбrtir, carne de asesino
+04.     Mercader de voluntades(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1A1AF4CFDFC00262F31F026E913CAB31BAF306
 ```
 
 

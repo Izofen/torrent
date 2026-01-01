@@ -1,3 +1,30 @@
+###  Публикация: 1019605   (748451) от 24.05.2016
+
+VA - Зарубежная Дискотека ХХ Века - 8 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giorgio Moroder - From Here To Eternity ( 1977 )
+02. Francesco Napoli - Balla.. Balla! ( Italian Hit Connection 1987 )
+03. London Boys - Kimbaley ( 1988 )
+04. Mauro - Buona Sera-Ciao,Ciao ( 1987 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F26D95DDC2ABAE55FA6737795C0FA4D72F7624
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019608   (748452) от 24.05.2016
 
 VA - Зарубежная Дискотека ХХ Века - 9 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
@@ -668,33 +695,6 @@ VA - Winter Sensation (2019) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E11CB872604BFBC0FD0974803C299B75DAA4D5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018002   (759017) от 18.05.2016
-
-VA - Авто хит. Топ Europa Plus (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fred V & Grafix - Constellations
- 02. Mona (Ex. Монокини) - Слушай Сердце
-03. Илья Гуров - Знаешь Я Скучаю
-04. Walking On Cars - Hand In Hand(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57E6E62EA4B941056E33A5D36D957F52B736E86
 ```
 
 

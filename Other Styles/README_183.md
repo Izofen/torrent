@@ -1,3 +1,195 @@
+###  Публикация: 1357094   (975610) от 02.02.2020
+
+Marco Beltrami & Buck Sanders, VA - Ford V Ferrari / Ford против Ferrari (Original Soundtrack + Original Score - FYC) (2019) [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shelby Races Le Mans (01:37)
+02. Shelby Drives Mulholland (01:29)
+03. Ford Arrives (00:41)
+04. Lee's Got An Idea (00:26)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB9EB5EF6CBF20FB40F42016DFC1F80FED2101F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974808   (975681) от 12.01.2016
+
+Michele McLaughlin - Undercurrent (2015) [MP3|320 кб/с] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 11.000 Miles
+02. Living In Awe
+03. Changing Skies
+04. Full Of Love(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A5BAD5BFA2A38F4AA57AFB46B967D8EC9984152
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 165959   (975988) от 15.01.2010
+
+Gentle Persuasion - Sound and Songs of the Humpback Whales (1992) [FLAC|Lossless]<Звуки природы>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Sound and Songs of the Humpback WhalesЖанр: Звуки природы
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 438382   (976208) от 18.01.2012
+
+VA - The Ultimate Tribute to Quentin Tarantino (2008 - 2011) [MP3|320 kbps]<Soundtrack (Blues, Funk, Soul, Rock)>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_976208.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD12008 - 2011Жанр: Soundtrack (Blues, Funk, Soul, Rock)Продолжительность: 00:37:08
+01. Guy Mitchell - Singing The Blues
+02. Les Paul & Mary Ford - How High The Moon
+03. The Meteors - Johnny Remember Me
+04. The Spencer Davis Group - Don't Want You No More
+05. Willie Nelson - A Moment Isn't Very Long
+06. Polecats - John, I'm Only Dancing
+07. The Coasters - Down In Mexico
+08. Louis Jordan - Choo Choo Ch'boogie
+09. Lee Dorsey - Night People(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ADE65D781299C44EB43D0E69D673BE414BD02A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974420   (976718) от 11.01.2016
+
+Era - The Mass (2003) SACD [FLAC|Lossless|tracks + .cue] <New Age, Modern Classical, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mass (3:41)
+02. Looking for Something (4:09)
+03. Don't Go Away (4:24)
+04. Don'Era - If You Shout (3:49)(   Читать дальше...   )Жанр: New Age, Modern Classical, DowntempoПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA7DB4B211A8132AB2F552F1E24191575CA9B8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742698   (976752) от 07.01.2014
+
+Vangelis - 1492 Conquest Of Paradise (1992) CDS [FLAC|Lossless]<Soundtrack, Electro, Score, Ambient>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  Conquest of paradise (Theme from the Original Soundtrack '1492')   (4:49)
+02.  Moxica and the horse   (7:14)
+03.  Line open   (4:45)
+04.  Landscape   (1:37)Жанр: Soundtrack, Electro, Score, AmbientПродолжительность: 00:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BAE41CAEDB215524360E9BF2AA72D367C7F459C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356817   (976765) от 01.02.2020
+
+Thomas Newman - 1917 (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1917 (01:17)
+02. Up the Down Trench (06:19)
+03. Gehenna (03:35)
+04. A Scrap of Ribbon (06:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3301BA1AAA9C341C4E4B5C5AB5F90C2F0811DC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 337865   (976829) от 07.01.2014
 
 Новая Азия - 2 альбома (2006-2010) [MP3|192 кб/с]<Folk, Ethnic, Instrumental>
@@ -557,201 +749,6 @@ Ennio Morricone - The Good, the Bad and the Ugly (1966) / Хороший, пло
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78261D23BC8B9462F55712753AEAB7FE4320D912
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973706   (978942) от 09.01.2016
-
-Almudena Merino Mino - Dejolull, La Cepa Magica (2015) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amanecer
-02. Reina Guerrera
-03. Oscuridad
-04. Reina Guerrera - Amanecer(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9C0E06345E2C1808B08C77871E5703E9EDCCA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742439   (979005) от 06.01.2014
-
-Briza (David Arkenstone) - Ambient Cafe (2006) [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reflections on the Highway (6:22)
-02. Electric Rain (7:12)
-03. Splashdown (6:15)
-04. Boarding Pass (5:34)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D43EA98BEC65DD4C4801CDAA2906AEEA054F687
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742172   (979098) от 06.01.2014
-
-David Arkenstone - Celtic Christmas (2006) [FLAC|Lossless]<New Age, Christmas>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. I Saw Three Ships (5:13)
-02. Good King Wenceslas (4:39)
-03. God Rest Ye Merry Gentlemen (4:20)
-04. The First Noel (5:11)
-05. Christmas Day in the Morning (4:50)
-06. We Three Kings (4:43)
-07. The Wexford Carol (4:46)
-08. Wassailing (4:02)
-09. Patapan (3:33)
-10. What Child is This? (4:36)(   Читать дальше...   )Жанр: New Age, ChristmasПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0BE4696AEAB4DC9157941918C1D3E184EFD9BC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356325   (979110) от 30.01.2020
-
-Marco Beltrami & Brandon Roberts - Underwater / Под водой (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Bends (01:36)
-02. Voyage to the Bottom of the C (Main Title) (02:43)
-03. Norah's Theme (02:23)
-04. Sprung a Leak (01:41)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:898B309CE66D50197EA32AADBA7B2BC634BE2008
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356324   (979122) от 30.01.2020
-
-Marco Beltrami & Brandon Roberts - Underwater / Под водой (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Bends (01:36)
-02. Voyage to the Bottom of the C (Main Title) (02:43)
-03. Norah's Theme (02:23)
-04. Sprung a Leak (01:41)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD5D4132949BBD681E9379AD1E1C6691FA635349
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 436262   (979242) от 16.01.2012
-
-Guna Sangah - The Spirit of Reiki (2001) [MP3|320 kbps]<New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(14:59) 1. Healing Hands
-(14:59) 2. Upward Spiral
-(14:59) 3. Ascent of the Spirit
-(15:07) 4. Higher Consciousness2001Жанр: New age, RelaxПродолжительность: 01:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5464AF29EB7E57473E046FEA62F30951EA0C531
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973725   (979263) от 09.01.2016
-
-Paul Cardall - Saving Tiny Hearts (2014) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gracie's Theme
-02. Life & Death
-03. Passing Time
-04. Miracles(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:095354472A680352FA7AFB8C560E9AF0A29B7297
 ```
 
 

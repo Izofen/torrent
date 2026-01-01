@@ -1,3 +1,202 @@
+###  Публикация: 766281   (869745) от 15.03.2014
+
+VA - Pure Ambient Music (35 Atmospheric Chillout Beats to Relax) (2014) [MP3|320 кб/с]<Chillout, Lounge, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Nicola Giunta - Postcards From Tijuana (03:35)
+ 02. Oscar Rocchi - Love Affair (04:33)
+ 03. Silvio Piersanti - Serenity (03:50)
+ 04. Gaspare Bernardi - Perfect Night (08:49)
+ 05. St Project - Ichnusa Land (03:06)
+ 06. Giacomo Bondi - The Butterfly's Metamorphosis (04:36)
+ 07. Gualtiero Cesarini - Land Of Fairs (03:49)
+ 08. Antonio Vernuccio - Electro Oasis (02:27)
+ 09. Massimo D’arrigo - Sweet Blu Sea (04:09)
+ 10. Paolo Pacciolla - Frozen Lake (03:08)(   Читать дальше...   )Жанр: Chillout, Lounge, New AgeПродолжительность: 02:24:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B58D6FC8CDAD34F9BCFF1A9A5EB22613CA5B35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998289   (869820) от 19.03.2016
+
+Trevor Morris - Vikings / Викинги (Music From The TV Series) (2013-2015) 3 CD [MP3|320 кб/с] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I Had A Heart (Fever Ray)
+02. Battle Field
+03. The Eye Of Odin
+04. Of Fathers And Sons(   Читать дальше...   )Жанр: Score |Продолжительность: 03:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3CAFD280E99DE5E0F7FB8425803CF2402038B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 766408   (869889) от 15.03.2014
+
+Mike Strickland - The Piano (1999) [MP3|320 кб/с]<New age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(4:33) 01. Walking in the air
+(4:37) 02. The heart asks pleasure first
+(4:23) 03. My heart will go on
+(5:33) 04. Watching the world go by
+(4:10) 05. The prayer
+(4:35) 06. Canon in D
+(5:39) 07. Caruso
+(4:06) 08. Time to say goodbye
+(3:30) 09. Buon Giarno Principessa
+(4:13) 10. The dream waltz(   Читать дальше...   )Жанр: New age, Instrumental, PianoПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30F7D36CD8B4C9C48854D3A11D411154771BD667
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 871979   (869912) от 27.02.2015
+
+Enigma - The Enigma Collection (2014) 3CD /Limited Edition Box-Set/ [MP3|256 кб/с]<New Age, Enigmatic, Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Goodbye Milky Way (Album Version)
+02. Boum-Boum (Radio Edit)
+03. 20.000 Miles Over The Sea (Album Version)
+04. Between Generations (Album Version)
+05. Out From The Deep (Album Version)(   Читать дальше...   )Жанр: New Age, Enigmatic, Electronic, AmbientПродолжительность: 02:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C26CEE4D42A6FA0D98A04E0B7E25F44380CF07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 300208   (870410) от 27.02.2011
+
+Blackmore's Night - Дискография (1997 - 2010) [MP3|192-320 kbps] <Folk Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Folk RockПродолжительность: 20:10:17
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374298   (870514) от 11.04.2020
+
+Jim Brickman - 25th Anniversary (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870514.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. By Heart	04:06
+2. Valentine	03:41
+3. Starbright	02:38
+4. The Gift	04:03(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA7E4FDDED433170E7F3B7ECB812DF80AE81C265
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373832   (870515) от 11.04.2020
+
+Windsong - Windsong A Celebration of Life (Native American Chants & Dances) (1999) [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circle of Fire
+02. The Counterclockwise Circle Dance
+03. Return from River Island
+04. Dance of the Warrior(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC04237BB36FC10358CF8122B980C1570A03F6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374712   (870764) от 11.04.2020
 
 Blackmore’s Night - Under A Violet Moon (1999) [FLAC|Lossless|image + .cue] <Folk Rock>
@@ -524,209 +723,6 @@ Christophe Beck - Холодное сердце / Frozen (Русский Сау�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA86537AA00C3CF0380BDEE4CCFEAD9CAE9C5E17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 301406   (872540) от 26.02.2011
-
-101 Strings Orchestra - Ballroom Under The Stars (2007) 3CD [MP3|320 kbps]<Ballroom Dance | Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Ballroom Dance | Easy ListeningПродолжительность: 01:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD3AD68B2733CE103C7E3CD190845994E0709116
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765332   (873176) от 13.03.2014
-
-Keith Urban - Fuse (2013) /Deluxe Version/ [FLAC|Lossless]<Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Somewhere In My Car (3:57)
-02. Even the Stars Fall 4 U (3:59)
-03. Cop Car (4:17)
-04. Shame (3:04)
-05. Good Thing (3:53)
-06. We Were Us (feat. Miranda Lambert) (3:12)
-07. Love's Poster Child (3:29)
-08. She's My 11 (3:17)
-09. Come Back to Me (3:53)
-10. Red Camaro (3:59)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:244DF41CD3347BA33BE8464356A7A00C19879DC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765670   (873186) от 13.03.2014
-
-Benoit Pioulard - Hymnal Remixes (2014) [FLAC|Lossless]<Ambient, Downtempo, Drone, Leftfield>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Hawkeye (The Remote Viewer remix) (05:12)
- 02. Censer (Segue remix) (05:54)
- 03. Knell (Widesky remix) (03:25)
- 04. Florid (Loscil remix) (06:37)
- 05. Foxtail (Radere mix) (07:46)
- 06. Gospel (James Murray remix) (05:22)
- 07. Reliquary (Benoit Honore Pioulard) (06:32)
- 08. Margin (Ruhe remix) (03:56)
- 09. Gospel (Window Magic remix) (08:40)Жанр: Ambient, Downtempo, Drone, LeftfieldПродолжительность: 00:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E16D66960349747338CCCE86732E0D2446E36AC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106363   (873201) от 19.02.2017
-
-VA - Притяжение (Официальный Саундтрек) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ирина Старшенбаум - Когда я была маленькая (00:38)
-02. Иван Бурляев - Intro (01:26)
-03. Ирина Старшенбаум, Александр Петров - Готов вызволить принцессу из башни (00:17)
-04. L'One feat. Влади, Баста - Ракета (feat. Влади & Баста) (03:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A09F4B3FAC1FA959945C9EB3973C318535F508BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765630   (873336) от 13.03.2014
-
-Rashni Punjaabi (Oliver Shanti) - Passage to the Orient (2002) [MP3|320 кб/с]<New Age, Ethnic, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. A Song for Nature
-02. Arrival
-03. Praying at the River
-04. Chant of the magic Flute
-05. Finding the Path
-06. Chant of the magic Flute (Traditional Version)
-07. Impossible Love
-08. Guarding Spirits
-09. Entering the Temple
-10. My love for You (is endless)(   Читать дальше...   )Жанр: New Age, Ethnic, EnigmaticПродолжительность: 00:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF2CC0B0C7B3AAB512B93A3523D5056B4BBF5BD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106359   (873516) от 19.02.2017
-
-VA - Притяжение (Официальный Саундтрек) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ирина Старшенбаум - Когда я была маленькая (00:38)
-02. Иван Бурляев - Intro (01:26)
-03. Ирина Старшенбаум, Александр Петров - Готов вызволить принцессу из башни (00:17)
-04. L'One feat. Влади, Баста - Ракета (feat. Влади & Баста) (03:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF19EF67D8466DBABF4C51ECF729B1E05595E034
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106399   (873528) от 19.02.2017
-
-VA - The Da Vinci Mysteries (2006) [MP3|320 Kbps] <Gregorian, New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kelly O'Neill – Mystic Dream
-02. Emerald Singers – Adiemus
-03. Massini – Mystera
-04. Tranceparence – Sadeness Part I(   Читать дальше...   )Жанр: Gregorian, New Age, EnigmaticПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBB555B577F6B06ADCA9F1C2E6BF07BA448AE93E
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1208674   (779817) от 23.02.2018
+
+Von Grall - Infinitum (2018) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infinitum (06:38)
+ 02. Hyper Density (06:02)
+ 03. Anthropology (06:06)
+ 04. Emerald City (06:00)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245B2BD3C188A5BAF155C0A56DB5791BAC18ABFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208607   (779818) от 23.02.2018
+
+VA - Deep House Look in the Mirror, Vol. 1 (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kite Lost - Popular Odor
+02. DJ Mr Gogo - The Cellar of the Secrets
+03. Oriental Surprise - Oltre Muras
+04. Mister Gregor - Stop Range(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B479C27613FD782AC0F8812C4852142C7FF32181
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208516   (779821) от 23.02.2018
+
+FUCT TAPE - FUCT TAPE (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Berlin Nights 05:43
+02. Cave Drawings 04:56
+03. Jessy Lanza 05:29
+04. Don Caballero 04:38(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55DC6BA21CEBD9AC5E53B6F4D8619A7B98216786
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208620   (779994) от 22.02.2018
+
+Milieu - Amtrax Plus (2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Experimental, Glitсh>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterschool Trak (Daycare Pops Mix) (04:21)
+ 02. Mono Field (02:43)
+ 03. Star Bath (04:32)
+ 04. Amtrac (Silverbus Mix) (03:43)(   Читать дальше...   )Жанр: IDM, Ambient, Experimental, GlitсhПродолжительность: 01:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3E854B3401DDBF01273568AF22E2D72821FB2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207729   (780101) от 21.02.2018
+
+VA - Best Of Trance 2018 Vol.01 (2018) [MP3|320 Kbps] <Trance, Progressive Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  PROFF  -  Innervate (Original Mix)  6:26
+02.  Andromedha  -  Rise (Original Mix)  6:00
+03.  Gregory Esayan feat. Dan & Sam  -  Innerspace (Dan & Sam Club Mix)  7:53
+04.  LTN  -  As Tears Go By (Original Mix)  7:07(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 02:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13040E548EEC5C6A029C9EA5D0A9F05372D47DF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208301   (780116) от 21.02.2018
 
 VA - True People: The Detroit Techno Album (1996) React [FLAC|Lossless|tracks+.cue] <Techno, Detroit Techno>
@@ -560,141 +695,6 @@ Lane 8 - Little By Little (2018) This Never Happened [FLAC|Lossless|tracks+.cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:098194B75D1ADC8A386F7B0C01D220415915E175
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207263   (780741) от 17.02.2018
-
-] interstice [ - Descendence (2017) Innovative Sonic Arts [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Experimental, Electro, Ambient, Industrial>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Descendence (07:34)
-02. Megalomania (04:54)
-03. Bottomless Desire (05:34)
-04. Dissolving Boundaries (05:04)(   Читать дальше...   )Жанр: IDM, Experimental, Electro, Ambient, IndustrialПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6952ABD60E1A103525826549F76BB0AC46203193
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207057   (780850) от 17.02.2018
-
-VA - Running Electronica, Vol. 10 (For a Cool Rush of Blood to the Head) (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5K Power-Run-Mix (continuous DJ mix 1) (30:35)
-02. 10K Power-Run-Mix (continuous DJ mix 2) (01:00:00)
-03. Spuri & Andre Bastos - Alika (original mix) (08:07)
-04. Jan Blomqvist - Winter Roads (04:51)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 04:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A30054084E10B8F3930DFBD48866019B7F3A0380
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207301   (780853) от 17.02.2018
-
-VA - Relax At The Fireplace Vol.2 - Warm & Sensitive Lounge Music (2018) [MP3|320 Kbps] <Downtempo, Lounge, Electronica>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Maretimo  -  I Love The Night (Vladi Strecker & Moonlight Flow Mix)  7:48
-02.  Citrus Jam  -  Let Me Arrive (Smooth World Mix)  4:47
-03.  Le Voyage  -  Cool Love (Loveletter Mix)  4:08
-04.  Jazz City  -  Hold It On (In The Garden Mix)  6:15(   Читать дальше...   )Жанр: Downtempo, Lounge, ElectronicaПродолжительность: 05:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F69F5B12AEECEB922EFD34F17D889E1E8CE6F86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207192   (780901) от 17.02.2018
-
-VA - Lullaby Ambient (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. K37 – New Born (feat. Yellowbelly)
- 02. Der Bischof – Nightly Embrace
- 03. Tolubai – Close Your Eyes
- 04. AndaWan – Sleepy Baby (feat. Aivy)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A3F3AA16698B9B559FA5D4622EAA004C211ADE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391410   (781020) от 20.06.2020
-
-Zetandel & Tiff Lacey - Songs Under Moonlight (2020) RNM Bundles [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmos (04:45)
- 02. Escape (Pina Colada Song) (04:56)
- 03. Lucky Charm (04:06)
- 04. Waterfall (05:10)(   Читать дальше...   )Жанр: Downtempo, TranceПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E681A36A5083DBF34D549FDF618276FE3B19D66
 ```
 
 

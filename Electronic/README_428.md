@@ -1,3 +1,138 @@
+###  Публикация: 1197996   (810368) от 10.01.2018
+
+VA - Best of Nuevadark 2017 (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blufeld - Rakete Zum Mond (You Are My Salvation Remix) (10:46)
+02. Jetride - Sad Piano (Gordey Tsukanov Remix) (6:36)
+03. Mavrek - Burst on Fire (Inspireds Remix) (5:46)
+04. Blufeld - Rakete Zum Mond (Alan Cuevas Remix) (7:15)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F382ECBD729A127B4ECED7A427338C07628BE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504551   (810416) от 24.10.2021
+
+Not My God (ex-Marilyn Manson, Psyclon 9) - Not my God (2020) [FLAC 2.0|48/24|WEB-DL|tracks] <Dark Electro, Electro Industrial>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810416.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fiction
+2. Until the Pain Is Gone
+3. Sowing Discord
+4. Murder Suicide(   Читать дальше...   )Жанр: Dark Electro, Electro IndustrialПродолжительность: 00:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F6D1C08A0C134C5C2BEE1B8D2C0282AA23FFB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504534   (810427) от 24.10.2021
+
+Not My God (ex-Marilyn Manson, Psyclon 9) - Simulacra (2021) [FLAC 2.0|44,1/24|WEB-DL|tracks] <Dark Electro, Electro Industrial>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 IN SERVICE OF THE WOLF [00:03:14]
+02 CRISIS [00:03:20]
+03 ASHES [00:04:06]
+04 THE UNDERNEATH [00:04:03](   Читать дальше...   )Жанр: Dark Electro, Electro IndustrialПродолжительность: 00:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B6F91B32B1055B2E57B0D994DFB3BA022373669
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504590   (810430) от 24.10.2021
+
+Etienne Daho - La Notte, La Notte... (1995) [FLAC|Lossless|tracks + .cue] <Synth-pop, Chanson>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Week-end Rome (Etienne Daho & Lio) [04:12]
+02. Sign Kiko [04:00]
+03. Le Grand Sommeil [04:03]
+04. Promesses [03:54](   Читать дальше...   )Жанр: Synth-pop, ChansonПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB94FA24BB0FA41607BE4D77291686E64529815
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197391   (811456) от 09.01.2018
+
+VA - Dream Dance Vol.84 (2018) 3CD [FLAC|Lossless|WEB-DL|tracks] <Trance, House, Dance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811456.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Dream Dance Alliance  -  Coming Home  3:50
+02.  Marshmello feat. Khalid  -  Silence (Tiesto's Big Room Remix)  3:23
+03.  Armin Van Buuren feat. Josh Cumbee  -  Sunny Days (Purenrg Remix)  3:12(   Читать дальше...   )Жанр: Trance, House, DanceПродолжительность: 01:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87543BCB5C4EB0046FDDD4633EED3711E92DDC0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383381   (811566) от 15.05.2020
 
 VA - Lounge Sexy (2018) [MP3|320 Kbps] <Instrumental, Easy listening, Relax>
@@ -560,140 +695,6 @@ Luke Terry - Supersonic (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82B07ECBF45CCB940836925D6492FDF2AD148E13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197711   (812132) от 09.01.2018
-
-VA - Best Of Trancer 2017 (Mixed by Nick Turner) (2018) [MP3|320 Kbps] <Trance, Orchestral Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  JosephAli  -  New World (Etasonic Remix)  8:30
-02.  AirLab7 & Andrew Wu  -  Be Yourself (Original Mix)  7:26
-03.  Dreamlife  -  Walk Alone (Original Mix)  7:11
-04.  Alternate High  -  Invisible Walls (Original Mix)  7:50(   Читать дальше...   )Жанр: Trance, Orchestral TranceПродолжительность: 01:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79530C1A4FA8462BC3A5CC439C624232104A7CB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197496   (812134) от 09.01.2018
-
-VA - Spring Tube Vocal Themes, Vol.12 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zatonsky, Aves Volare & Alula - Saw The Way (Original Mix) (06:25)
-02. Mysteria (UK) & Nick Sinckler - Turn (Nebogitel remix) (06:15)
-03. Phrakture & Maria Carmela - Curve Sound (Da Funk's Recovery dub) (04:51)
-04. Mistol Team & Eli Nadra - Fate (Original Mix) (05:55)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 00:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2326A8F5C42939F418276EB2C0529C37956D042
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198067   (812135) от 09.01.2018
-
-Drumcell - Collection 7 Releases (2012-2016) CLR, Droid Recordings [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empathy Box (Hypoxia Mix) (06:24)
- 02. Conflict Divide (05:39)
- 03. Terminus Effect (06:29)Тип издания: CD, WEBЖанр: TechnoПродолжительность: 00:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6CEE8F97B4B7EC30002BC1338B5E60A71A1D89C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197685   (812136) от 09.01.2018
-
-VA - Dark Sessions 043 (Mixed by Chris Hampshire) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  G8  -  Babayaga (Original Mix)  7:00
-02.  Kyfu  -  Vitamins (Original Mix)  7:07
-03.  John Askew  -  Battery Acid (Zach Zlov Haunted House Remix)  6:35
-04.  Oberon  -  Dangrous Journey (Oberon's Underground Mix)  7:26(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32FCD6D19520DB29DD4ED4F25F6F3685F4092FE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197594   (812137) от 09.01.2018
-
-VA - The Best Of Silent Shore Records 2017 (2018) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AirLab7 & Allen Belg – Kyla (07:06)
-02. Space Raven & Madwave – What We Used To Be (SSR300 Anthem) (07:40)
-03. Nago – Me & You (08:03)
-04. Mat Coste – Flight 527 (07:04)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD9F2BBCB166EC4FB5C2CEAAB098388D1A7DE80
 ```
 
 

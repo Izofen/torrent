@@ -1,3 +1,165 @@
+###  Публикация: 1212833   (774301) от 14.03.2018
+
+Boris Zhivago - Memories (2018) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synth-pop, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memoires (5:29)
+02. Love Is A Memory Away (7:56)
+03. Russian Fantasy (5:25)
+04. The Girl That Saved My Life (7:02)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Hi-NRGПродолжительность: 01:18:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C69CD6906618A660241219EB1064C24B128A04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278030   (774308) от 23.01.2019
+
+AKB - Rhythmic Feet (1979) LP [MP3|320 Kbps] <Electronic, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stand Up - Sit Down (8:13)
+02. We Got Rhythmic Feet (8:31)
+03. When We're Alone (4:12)
+04. Goin' Downtown (5:21)(   Читать дальше...   )Жанр: Electronic, Soul, DiscoПродолжительность: 00:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0667FAC545A17658C4496E8F48660D9DBAB38DC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277924   (774310) от 23.01.2019
+
+VA - Space Oddities (2016) Studio Ganaro (1972-1982) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roger Roger, Nino Nardini - Expectation (1:55)
+02. Cecil Leuter - Pop Electronique No. 1 (2:27)
+03. Roger Roger - Sound Industrial No. 2 (2:03)
+04. Eddie Warner - Shut Up (2:26)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616F253B6D87E50FD3696D0F5BBA33BC01723BDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277937   (774321) от 23.01.2019
+
+Boulevard des Airs - Je Me Dis Que Toi Aussi (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Je me dis que toi aussi
+02. Tout le temps
+03. Comment ca tue
+04. Si la vie avance(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E82C9DF210B594CFCA3A7662DC34172C125F9C65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015400   (774832) от 10.05.2016
+
+Город 312 - Обернись (2007) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Раскаленное солнце (3:48)
+02. Город-точка (3:20)
+03. Девочка, которая хотела счастья (3:32)
+04. Космос (3:17)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D0CE2FA5263DA96A76FDD57CB5E14CDB599154
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015462   (774834) от 10.05.2016
+
+Chyp-Notic - 2 Albums, 4 Singles & EPs (1990 - 2015) [MP3|320 кб/с] <Electronic, Synth-pop, Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing compares 2 U   (4:53)
+02. Don't play my song   (4:17)
+03. Free   (4:33)
+04. Love reaction   (3:56)(   Читать дальше...   )Жанр: Electronic, Euro House, Synth-popПродолжительность: 02:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:506D35B69BDA925F8A02D3D94C5CD8DFC34F3E5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212682   (775035) от 13.03.2018
 
 VA - 90s Dance Hits Vol.1 (2018) [MP3|320 Kbps] <Eurodance, Euro House>
@@ -536,168 +698,6 @@ Munich Machine - Body Shine (1979) Reissue, 2013, Repertoire Records [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C67E63BFD7E697C8D0D4BE5AB0674ED54236A2B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014773   (776144) от 08.05.2016
-
-Billy (Tokio Hotel) - I'm not Ok (2016) EP [MP3|320 кб/с] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Don't Break Me
-02. Not Over You
-03. Odds Are Against Us
-04. California High(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED9B0951DC8F32CE8540E69F1BB75BAE100C9F8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014757   (776147) от 08.05.2016
-
-VA - The World Of Italo Pop Platinum (Special Edition For San Remo-50th) (2002) 4CD [MP3|320 кб/с] <Italo-Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Marco Silenzi - Donne Sante Donne Assassine (04:02)
-02 Gianni Nazzarro - A Questora (03:43)
-03 Drupi - Piccola E Fragile (04:28)
-04 Paolo Mengoli - A Chi (03:22)(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 04:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A85DC9E4F1301564D8A493F93421D531797D9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014306   (776331) от 07.05.2016
-
-Любэ - Рассея (2005) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. От Волги До Енисея
-02. Русские
-03. Батька Махно
-04. Ясный Сокол(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F0079D15F42306778E2E3E4B501EAC96921E9A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212152   (776468) от 10.03.2018
-
-Гоша Куценко - Ду это! (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Капли (feat. Ёлка)
-02. Солнце (feat. Анжелика Варум)
-03. Люди летят (feat. Полина Гагарина)
-04. ONE/TWO (feat. IOWA)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FBAF7ECC60019E4C863747E46A7355FCFF4A9B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212026   (776472) от 10.03.2018
-
-Nadia Cassini - 3 Studio Albums (1978-1985) LP Discography [MP3|320 Kbps] <Electronic, Disco, Italo-Disco, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надя Кассини (итал. Nadia Cassini род. 2 января, 1949, Вудсток, США) - итало-американская актриса, певица и модель. Известна благодаря ролям в итальянских эротических комедиях 1970-1980 годов. Очень рано ушла из родительского дома. Работала певицей в ночном клубе, хористкой, была моделью. Близкие отношения связывали Надю Кассини с известным писателем Жоржем Сименоном. (   Читать дальше...   )Список альбомов:
-1978 - Encounters Of A Loving Kind
-1983 - Get Ready
-1985 - Dreams(   Читать дальше...   )Жанр: Electronic, Disco, Italo-Disco, Hi NRGПродолжительность: 01:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A8315782A386797E585789CE37DFA13737061A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014355   (776490) от 07.05.2016
-
-Steve Bender - We've Gotta Get Out Of This Place (1978) [MP3|320 кб/с] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкий певец, композитор, автор песен и музыкальный продюсер (1942 - 2006 гг.). Альбом выпущен за год до создания группы Чингиз Хан (Dschinghis Khan), где Стив Бендер стал больше известен как наголо остриженный участник.01. We've Gotta Get Out Of This Place   (4:51)
-02. Good Lovin', Good Feelin'   (4:47)
-03. The Final Thing   (5:40)
-04. Love Keeps Growin' On   (5:52)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46501A60856AE45CA701820E795FD057705E3E7D
 ```
 
 

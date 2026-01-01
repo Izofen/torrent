@@ -1,3 +1,30 @@
+###  Публикация: 1116605   (822991) от 20.03.2017
+
+Crow - Crow Music (1969) Remastered, 2010, Flawed Gems [MP3|320 Kbps] <Funk, Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822991.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Evil Woman (Don't Play Your Games With Me)
+2. White Eyes
+3. Thoughts
+4. Da Da Song(   Читать дальше...   )Жанр: Funk, Hard Rock, Blues RockПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:824A0143A8C0FE95553FE337EED36D9F5CAD343B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007306   (823018) от 14.04.2016
 
 Santana - Santana IV (2016) [MP3|320 кб/с] <Classic Rock>
@@ -664,33 +691,6 @@ VA - Rock Classics Rock Anthems Rock Hit Rock Legends (2020) [MP3|320 Kbps] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E4ACD9A80051332E604D35ECD82C21E9840897A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380497   (833176) от 03.05.2020
-
-VA - 70s Rock Originals (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Doobie Brothers - China Grove
-02. Deep Purple - Fireball
-03. Hawkwind - Silver Machine
-04. Motörhead - Motorhead (Alternate Take)(   Читать дальше...   )Жанр: RockПродолжительность: 02:12:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31485ED32D2CC92E45FC45AE7881ADCC5B765811
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1114175   (833496) от 14.03.2017
+
+VA - Музыкальный подарок на радио Europa Plus (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833496.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сиран Агасаров - Для Тебя 3:33
+002. Helena Shadia - Люби Меня 3:32
+003. Владимир Винс - Хватит 3:51
+004. Tiana - Телеграммы 3:33(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C4718666B66F71021EA4EC3E575DC5FE21C58AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114245   (833497) от 14.03.2017
 
 VA - Deep House Collection Vol.112 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
@@ -669,33 +696,6 @@ VA - Nu Jazz Instrumentals (2016) [MP3|320 кб/с] <Nu Jazz, Lounge Jazz, Jazz 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D0CF3BFAF2C80F04FD073B53BC689A36B2C57B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005048   (834438) от 08.04.2016
-
-VA - 45 Jahre ZDF Disco - Nr.1 Hits Der 70er (2016) [MP3|256 кб/с] <Pop, Rock, Soul, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sweet - Fox On The Run 03:21
-02. T. Rex - Metal Guru 02:25
-03. Smokie - Living Next Door To Alice 03:26
-04. The Rubettes - Sugar Baby Love 03:27(   Читать дальше...   )Жанр: Pop, Rock, Soul, DiscoПродолжительность: 03:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C6FD64F3600BC7520CC63A394B27A129615892C
 ```
 
 

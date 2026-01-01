@@ -1,3 +1,165 @@
+###  Публикация: 1358505   (968681) от 08.02.2020
+
+VA - 100 Greatest Number Ones (The Best No.1s Ever) (2020) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968681.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lukas Graham - 7 Years 3:57
+002. Dua Lipa - New Rules 3:29
+003. Tones and I - Dance Monkey 3:30
+004. Tinie Tempah feat. Jess Glynne - Not Letting Go (XYconstant Remix) 4:49(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1549949892909DD1091F8C9F8EE8B3E117E1D725
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358497   (968684) от 08.02.2020
+
+Надежда Чепрага - 3 Альбома (1998 - 2004) [FLAC|Lossless|tracks + .cue]<Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мне приснился шум дождя
+02. Амор ( До встречи )
+03. Записная книжка
+04. Нанэ Цоха ( из к/ф Табор уходит в небо )(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 02:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1989DEEE6CB7A116F70465D91775F50F96B6413
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358498   (968751) от 08.02.2020
+
+VA - Композитор Юрий Эрикона-Женщине... (1999) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А. Малинин - Ты такая красивая
+02. Азиза - Заблудилась вдалеке мечта моя
+03. И. Кобзон - Колыбельная
+04. И. Резник - Вдовушка(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA462482A9D9BC7BA0D632EBFB2E49EC628CC8A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358567   (968752) от 08.02.2020
+
+Asgeir - Bury The Moon (2020) Ásgeir [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pictures                                                              [03:58]
+02. Youth                                                                 [03:30]
+03. Breathe                                                               [03:15]
+04. Eventide                                                              [03:48](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B2CE6A62C1F542DC2C000EE036756E833B2524
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358261   (969482) от 07.02.2020
+
+Artik & Asti - 7 (Part 2) (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969482.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Последний поцелуй
+2. Все мимо
+3. Чувства
+4. Девочка, танцуй(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD99CE6F7D626F3A570AB0F103BBAE6182DAD8E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358268   (969489) от 07.02.2020
+
+Savage - Love And Rain (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Second of My Life (Ouverture)
+02. Don't Say You Leave Me
+03. I Love You (Radio Version)
+04. Italodisco(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1707C2FFCC84E3736C53753C7A145CE8E39C4576
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358262   (969558) от 07.02.2020
 
 Натали - Новые 80-е (2020) [MP3|320 Kbps] <Pop>
@@ -539,174 +701,6 @@ Vanessa Paradis - Variations sur le meme t aime (1990) Remastered, 1998, Polydor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D27B0598E6942A0E1936675271842D666F3AF501
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 439576   (971974) от 21.01.2012
-
-Masterboy - Коллекция (7 Альбомов, 27 Синглов) (1990-2006) [FLAC|Lossless]<Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Euro-HouseПродолжительность: 00:11:46
-
-01. Megamix (Single Edit) [4:17]
-02. Megamix (Maxi Version) [7:29]
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975364   (972028) от 15.01.2016
-
-Julio Iglesias - A Mis 33 Anos (1978) [FLAC|Lossless|tracks + .cue] <Ballad, Chanson, Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soy un truhan, soy un senor (3:05)
-02. Sono io (4:21)
-03. Si me dejas no vale (2:19)
-04. Por un poco de tu amor (2:58)(   Читать дальше...   )Жанр: Ballad, Chanson, VocalПродолжительность: 00:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A193680EB1F8F5D85482DAED1E01EBFD105E8461
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975661   (972099) от 15.01.2016
-
-VA - All the Hits Now 2001 Italia (2001) [FLAC|Lossless|tracks + .cue] <Italian Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiziano Ferro - Xdono (4:02)
-02. Tiromancino - Due destini (4:37)
-03. Lunapop - Resta con me (2001 version) (4:14)
-04. Velvet - Boyband (3:37)(   Читать дальше...   )Жанр: Italian PopПродолжительность: 01:16:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CAC25B9A6F561D5EAC0D2E96D7F8B6362ED0E10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616290   (972397) от 12.02.2013
-
-VA - Greatest Ever - Memories - The Definitive Collection (2006) [MP3|320 кб/с]<Oldes>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buddy Holly - Peggy Sue [02:32]
-02. Ray Charles - Kissa Me Baby [03:10]
-03. Carl Perkins - Blue Suede Shoes [02:15]
-04. Rosemary Clooney with Perez Prado & his Orchestra - Sway [02:23]
-05. Everly Brothers - Wake Up Little Susie [02:01]
-06. Patsy Cline - Walkin' After Midnight [02:33]
-07. Connie Francis - Lipstick On Your Collar [02:18]
-08. Jerry Lee Lewis - Great Balls Of Fire [01:53]
-09. The Chordettes - Mr Sandman [02:23]
-10. The Big Bopper - Chantilly Lace [02:24](   Читать дальше...   )Жанр: OldesПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD975ED6B83FBF90B348E818B5683019DE4FCE76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357730   (973004) от 04.02.2020
-
-Chris De Burgh - Now and Then (2008) Compilation [FLAC|Lossless|tracks + .cue] <Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Pay The Ferryman (3:25)
- 02. Missing You (4:07)
- 03. The Lady In Red (4:15)
- 04. Live For The Day (with Tina Yamout) (3:22)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:18:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48A0B4C89FE7B1508A28536E43913100B305EEC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975124   (973036) от 14.01.2016
-
-Julio Iglesias - Noche De Cuatro Lunas (2000) [FLAC|Lossless|tracks + .cue] <Ballad, Chanson, Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gozar la vida (3:46)
-02. Dia a día (4:36)
-03. Me siento de aquí (4:30)
-04. Te voy a contar mi vida (4:55)(   Читать дальше...   )Жанр: Ballad, Chanson, VocalПродолжительность: 00:56:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97775E043B89A3203CC52BE28217F94292CB8C83
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1006307   (829191) от 11.04.2016
+
+VA - EDM Signature Series Deejay (2016) [MP3|236-320 кб/с] <Italo-Disco, Hands Up, Funky, DanceCore, Progressive, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dance Euro
+01. Acarina - Frei Zu Sein (Radio Cut) 02:48
+02. Arnold Palmer - Melbourne Trumpet (Extended Instrumental Mix) 04:41
+03. Boris Zhivago - Mona Lisa (Vocal Album Edit) 07:58(   Читать дальше...   )Жанр: Italo-Disco, Hands Up, Funky, DanceCore, Progressive, ClubПродолжительность: 09:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEF7736A4DDB822164B59F03B7D2D3AC5C617293
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 774498   (829378) от 06.04.2014
 
 VA - Lounge At The Seashore 8 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
@@ -668,33 +695,6 @@ VA - Vocal Dance House (2020) [MP3|320 Kbps] <Vocal House, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:569EF92F06E9CFD714B51FD1298E242DD84DB7AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380631   (830849) от 04.05.2020
-
-VA - Deep Tech House Session (2020) [MP3|320 Kbps] <Deep, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830849.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Schneider & Haze - Si Balla
-002. Sparrox - Good Time (Original Mix)
-003. DJ Pp & Thousand Nights - Follow The Sun (Original Mix)
-004. Dreamweaver - Life Is The Limit(   Читать дальше...   )Жанр: Deep, Tech HouseПродолжительность: 10:15:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FACA99C31B790601C084B129C446DB7002EF931
 ```
 
 

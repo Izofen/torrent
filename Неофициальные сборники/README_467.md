@@ -1,3 +1,30 @@
+###  Публикация: 1398853   (734557) от 28.07.2020
+
+VA - 100 Greatest Songs Of The 90s (2020) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734557.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nirvana - Smells Like Teen Spirit [5:02]
+002. U2 - One [4:35]
+003. Backstreet Boys - I Want It That Way [3:33]
+004. Whitney Houston - I Will Always Love You [4:32](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 07:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64E69A9A814C1B1D3C91D673A45F6CD24EC3C789
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398834   (734651) от 28.07.2020
 
 VA - 100 Greatest Driving Songs (2020) [MP3|320 Kbps] <Pop, Rock, R&B>
@@ -674,39 +701,6 @@ VA - Крутые пушки Зима 2022 [MP3|320 Kbps] <Club, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9959DFAB5BCD3448251B8521CE59F3AB8236FC7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 787860   (736315) от 18.05.2014
-
-DJ P@F - Made In ZP City (2011) [MP3|256 кб/с]<Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prodigy ( DJ P@F mix) - Rat Poison & Girls
-02. Timeriders & Ray Clarke & Twilight ( DJ P@F mix) - Future Generation & Electronic & Can U Feel Da Bass
-03. Eminem & Linkin Park (DJ P@F) - The Real Slim Shady & In The End
-04. Global Deejays - The Sound Of San Francisco (DJ P@F remix)
-05. P.O.D & The Crystal Method.( DJ P@F mix) - Boom (cut version)
-06. D12 & Linkin Park & X-ecutioners ( DJ P@F) - Blow My Buzz & It's Goin' Down (Exclusive Bonus Treack)
-07. 50 Cent & Linkin Park (DJ P@F mix) - Hustlers Ambition & One Step Closer (Extreme mix)
-08. Freestyle Project (DJ P@F mix) - Los Angeles Lakers (MUSIC DONT STOP) (NBA version)
-09. Freestyle Project (DJ P@F mix) - All Stars (ELECTRIC REALITY) (NBA version)
-10. Fatboy Slim (DJ P@F mix) - Ya Mama (Counter-Strike 1.6 version)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C06BBB7F977290E858C85296822247504D2D3702
 ```
 
 

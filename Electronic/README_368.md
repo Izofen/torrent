@@ -1,3 +1,138 @@
+###  Публикация: 1399522   (733416) от 31.07.2020
+
+VA - Vocal Trance Top 50 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_733416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trance Classics & Esmee Bor Stotijn - Till The Sky Falls Down (Original Mix)
+02. 4 Strings & Fenna Day - Enough (Radio Edit)
+03. Julian Vincent feat. Cathy Burton - Here For Me (Mark Otten's Radio Edit)
+04. Aurosonic, Kate Louise Smith & Denis Karpinskiy - They Wait For Us (Radio Edit)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F43DF4CA9EE6B6CA3AF2D6FF135D343C85CD84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399398   (733431) от 31.07.2020
+
+VA - Relax Culture, Vol. 2 (2020) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_733431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kick Bong - Tranquility Vibes (5:08)
+02. Earth Connect - Blues Out (5:38)
+03. Potlatch - Wonder (5:28)
+04. Eguana - Cozy Courtyard (4:34)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 01:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D95CFAFEAE818C699B435AC0706BA4407838D69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399456   (733434) от 31.07.2020
+
+VA - Armin van Buuren - Lost Tapes (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_733434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren feat. Sharon Den Adel - In And Out Of Love (ilan Bluestone & Maor Levi Remix)
+02. Armin van Buuren feat. Trevor Guthrie - This Is What It Feels Like (Maddix Remix)
+03. Armin van Buuren x Dimitri Vegas & Like Mike x W&W - Repeat After Me (DRYM Remix)
+04. Armin van Buuren x W&W - If It Ain't Dutch (Zatox Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E985448FE0442387973829DF15F69375348F24E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399486   (733445) от 31.07.2020
+
+VA - Markus Schulz - Global DJ Broadcast Top 20 July (Extended Version) (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_733445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz feat. Jared Lee - Together (Rise Together Extended Mix)
+02. Ferry Corsten - Tomorrow (Extended Mix)
+03. Markus Schulz - Sunrise Over The Bay (Daxson Extended Remix)
+04. Kemal Vatansever & AVCI - The Dreamer (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F64D2FFEB655508925C5CCD553FD39EDECFA23F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528639   (733582) от 04.02.2022
+
+VA - For The Users Vol. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_733582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elevate the Sky - Forged In Neon (4:20)
+02. DeltaCity - StarKiller (5:16)
+03. Palm Lakes - Nothing To Me (4:04)
+04. Megatronix - Notorious (5:54)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C55B4B6F68448018FFDC6EC26B1E583660F13D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511539   (734003) от 03.02.2022
 
 Goa Gil - Mahashivaratri (2002) Mixed Live In Goa [MP3|~245 Kbps (V0)] <Psy-Trance>
@@ -558,141 +693,6 @@ Kryder - Axtone House Party(Live @ Ministry Of Sound London 2021-11-19) (2022-01
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D10CDD9E3F95106BD990319BDAA738848FA7A94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398249   (736199) от 25.07.2020
-
-Warner Case - dance music for dancing, vol. 1-2 (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. running into danger (to feel alive) (3:56)
-02. ATM (3:50)
-03. impeccable (3:09)
-04. metroloops (4:42)(   Читать дальше...   )Жанр: EDM, Tech House, TechnoПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEFF08B1F691476972B7F9C9F99BDCA90C787336
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 816589   (736372) от 29.01.2022
-
-V.A. - Cafe Del Mar - XX (Volumen Veinte) (2014) 2CD [FLAC|Lossless]<Lounge, Chill Out, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736372.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Nightmares On Wax - So Here We Are
-02. Goldfrapp - Jo
-03. Seahawks - Look At The Sun(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy Listening |Продолжительность: 01:59:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7DBB1274290F49FBB604800F2B46300C0BD567
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 68614   (736505) от 17.05.2014
-
-Massive Attack - 4 Albums (1991-2003) [FLAC|Lossless|image + .cue] <Trip Hop, Leftfield, Downtempo, Abstract Hip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все началось в далеком 1988 году, когда на обломках распавшегося хип-хоп коллектива The Wild Bunch Роберт 3D Дель Найа (Robert Del Naja), Грант Daddy G Маршалл (Grant Marshall) и Эндрю Mushroom Воулэз (Andrew Vowles) решили сформировать новую музыкальную группу Massive Attack.Список альбомов:
-1991 - Blue Lines
-1994 - Protection
-1998 - Mezzanine(   Читать дальше...   )Жанр: Trip Hop, Leftfield, Downtempo, Abstract Hip HopПродолжительность: 03:57:48
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398196   (736656) от 24.07.2020
-
-VA - Ultra Cardio Dance & Aerobic Hits 2020 Workout Collection [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groovy 69 - House Party (Fitness Version 128 (4:15)
-02. D'Mixmasters - Supalonely (Fitness Version 128 B (4:00)
-03. Red Hardin, The Team - Loco Contigo (Fitness Version 128 (3:45)
-04. Movimento Latino - Mamacita (Fitness Version 128 Bpm (4:00)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98746178B74B0B2A2F324CCB37FC5A028D2AD162
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397930   (736682) от 24.07.2020
-
-Alle Farben - Out Of Space (2020) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alle Farben & Chill Mafia - Intro (1:12)
-02. Alle Farben & Graham Candy - She Moves (Far Away) (Out Of Space Mix) (6:48)
-03. Alle Farben & Justin Jesso - As Far As Feelings Go (Out Of Space Mix) (5:16)
-04. Alle Farben & Chill Mafia - Luminous Bright (6:46)(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:353115A8B744C8F56EAA0D6BA334D493CCD56157
 ```
 
 

@@ -1,3 +1,134 @@
+###  Публикация: 1016985   (769687) от 15.05.2016
+
+VA - Deep House Babes (2016) [MP3|320 кб/с] <House, Tech House, Deep House, Electronic, Progressive, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthony Sax - Dance After the Sunset (Photomatic Mix) 03:11
+02. Carl Solar - Blonde Hair (Robert Carrera's House Mix) 03:21
+03. Alexandre Lotus - Escape from Boredom (Tommy Lavit's Light Mix) 03:01
+04. Dimension Zero - Dimension Zero (Subway Rhythms Mix) 03:14(   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 01:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBB755AC76A90821BA931F36142ECC2992DC5158
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016977   (769696) от 15.05.2016
+
+VA - Ultimate Dub Style Techno, Vol. 1 (2016) [MP3|320 кб/с] <House, Tech House, Deep House, Electronic, Progressive, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert Heel - Quantifizierung der Irrelevanz 04:34
+02. Kayowa - Pan (Regular Mix) 05:43
+03. Tim Duwensee - Platanias 08:13
+04. Niefelsen - Flying High 04:46(   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 02:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF13BB009AC60B1E64230C22707D6209AC25210B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002042   (769704) от 24.06.2020
+
+Jan Amit - Discography 19 Releases (2012-2020) Endless [SHF] Quest, SEALT [FLAC|Lossless|tracks] <IDM, Downtempo, Glitch, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orpheus's Takeoff (04:27)Тип издания: WEB, VinylЖанр: IDM, Downtempo, Glitch, Ambient •Продолжительность: 07:31:50 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44C620E54704A20646C0F43629B9791456023FE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991225   (769770) от 24.06.2020
+
+VA - Cajmere - Wheels Of Steel Vol.1 (1998) [FLAC|Lossless|tracks + .cue] <Techno, Minimal, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andre L. Prioleau & Gene Santiago - One Small Step (04:03)
+02. Djaimin & Djaybee - Fever (03:54)
+03. Cajmere - Only 4 U (Mark Grant Mix) (03:00)
+04. Kerri Chandler - It's You (04:00)(   Читать дальше...   )Жанр: Techno, Minimal, Tech HouseПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFDF83E2FE064C46E929FC281B596AA0943BDCE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392102   (769811) от 24.06.2020
+
+Dheeva (Asura & Lestesie) - Discography 2 Releases (2020) Multiversal Records, Flangerine Records [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not From This World (07:30)
+ 02. New Order (07:22)
+ 03. Le Mur De Planck (07:39)Тип издания: WebЖанр: Psy-Trance, Goa Trance •Продолжительность: 00:54:03 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C43DC5E905FA87A012EBCD8ADC25F2F83A26920
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392128   (769840) от 24.06.2020
 
 VA - Workout Massive Music 2020 [MP3|320 Kbps] <House, Dance>
@@ -557,132 +688,6 @@ Eyephone - Discography 7 Releases (1995-2016) [FLAC|Lossless|tracks+.cue, tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:036CD5D61EFB01BCE19169E8E817D09829D4EBF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213109   (772010) от 16.03.2018
-
-DJ Nikolaevv - Melody Of Leaving Summer (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dream In Trance (Original Mix)  5:20
-02.  Melody Of Leaving Summer (Original Mix)  5:25
-03.  You I Lose (Original Mix)  4:12
-04.  Summer Time. (Original Mix)  4:28(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FFB40DCF976EED70AF6782EB01B42ABFDD74953
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968853   (772726) от 13.04.2017
-
-Label Pack - Hypercut Records - 38 Releases (2013 - 2017) [MP3|320 кб/с] <Trance , Uplifting Trance>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frozen Tears (Original Mix) (8:07)Жанр: Trance , Uplifting TranceПродолжительность: 00:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CA9DC0D0D4C265C10BAB2AF2FD6BDAD24D59847
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988171   (772727) от 13.04.2017
-
-Label Pack - Kearnage Recordings - 77 Releases (2010 - 2017) [MP3|320 кб/с] <Trance, Tech Trance>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Futura (Original Mix) (6:44)Жанр: Trance, Tech TranceПродолжительность: 00:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD5A51EE81614E69C4539E88947A9F078D60181C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015758   (772832) от 12.05.2016
-
-Alon Mor & Clockvice - The Fifth Collaje (Single) (2016) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Dubstep, Experimental, Modern Classical>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fifth Collaje (10:00)Жанр: Dark Ambient, Dubstep, Experimental, Modern ClassicalПродолжительность: 00:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:584D2782B5B381EB044EB8651DD3A3D85C78F198
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391559   (772966) от 21.06.2020
-
-VA - The Top 100 Of Fitness Music June 2020 Get Things Started [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772966.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kahekili Wordz - Hybrid (Original Mix) 4:11
-002. Kacper Kirtz - Launch (Original Mix) 4:11
-003. Josh Takka - Phony (Original Mix) 4:11
-004. Joscha Rickert - Spitfust (Original Mix) 4:11(   Читать дальше...   )Жанр: House, DanceПродолжительность: 06:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C3E0E80DE8D6C410F0C1B6B9BBDE8C786658542
 ```
 
 

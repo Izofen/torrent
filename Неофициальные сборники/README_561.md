@@ -1,3 +1,30 @@
+###  Публикация: 1378671   (844804) от 26.04.2020
+
+VA - Hard Fusion: Hardstyle Music For Sport (2020) [MP3|320 Kbps] <Hardstyle, Dance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844804.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Actek - Carsten Stahl
+002. Access One - Equalize
+003. Sneith - Beg
+004. Alphatech - Don't Forget(   Читать дальше...   )Жанр: Hardstyle, Dance, ElectroПродолжительность: 07:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D8A4EBD8A50D459D25641E766A48CE046220B21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003287   (844814) от 02.04.2016
 
 VA - Top 100 Зайцев Нет март (2016) [MP3|160-320 кб/с] <Pop, Dance, Rap>
@@ -668,33 +695,6 @@ Andru Donalds - Great Artists of My Heart Vol. 03 (2020) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F094CE54973DA3E582E137BDE8F2D041C0EFC5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111810   (846480) от 06.03.2017
-
-Rihanna - MP3 Play (2014) [MP3|320 Kbps] <RnB, Reggae>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Umbrella (feat. Jay-Z)
-02. Pon De Replay
-03. Push Up On Me
-04. SOS(   Читать дальше...   )Жанр: RnB, ReggaeПродолжительность: 04:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F293247B7AC913DF3A424C4E248419177F0FB6
 ```
 
 

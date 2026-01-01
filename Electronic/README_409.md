@@ -1,3 +1,138 @@
+###  Публикация: 864776   (789505) от 30.01.2018
+
+Organoid | Ligea - Discography 5 Releases (2011-2015) Section 27 [FLAC|Lossless]<IDM, Downtempo, Glitch, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crystal Silence (03:27)
+ 02. Microgravity (02:53)
+ 03. Sky Of Blue (04:34)
+ 04. Soft Machine (03:01)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Downtempo, Glitch, Ambient •Продолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F07694B987062B9908948F1B743F98B8A6A6A87F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202685   (789516) от 30.01.2018
+
+VA - Best Of Chillout 2018 Vol.01 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Puremusic  -  Unsaid (Original Mix)  5:54
+02.  Koda  -  The Last Stand (Stray Theories Remix)  7:57
+03.  Claes Rosen  -  U (Original Mix)  4:45
+04.  Tokyo Boulevard  -  Unisex (Original Mix)  5:06(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03EC29E787842C93F8FB4E058AFC6C6351EAA45B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202679   (789525) от 30.01.2018
+
+VA - Chillout Therapy Vol.2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bernd Filz  -  Welcome On Earth (Original Mix)  4:25
+02.  Aaron The Baron feat. Clifford Borg  -  Simplicity In A Kiss (Original Mix)  4:41
+03.  Maurizio Piacente feat. Dalise  -  Wings (Original Mix)  4:32
+04.  Massivan feat. Bea Luna  -  That Day (Olson Dreamer Remix)  2:56(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D341BD308B67CC22F7518F28CC1F395385C6A69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202815   (789527) от 30.01.2018
+
+Spacecraft - Spacecraft (1997) Lektronic Soundscapes [FLAC|Lossless|tracks+.cue] <Ambient, Space, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planetary Orbit (05:40)
+02. Zero, One (22:07)
+03. Topo Scan (07:14)
+04. Transmission (06:42)(   Читать дальше...   )Жанр: Ambient, Space, DroneПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D5E8F33E31C8B135CE08DFA665796DBD68BA532
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202787   (789528) от 30.01.2018
+
+Robert Rich - Inner Landscapes (1999) Hypnos / Soundscape [FLAC|Lossless|tracks+.cue] <Ambient, Experimental, Field Recording>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part 1 (13:23)
+02. Part 2 (11:20)
+03. Part 3 (08:14)
+04. Part 4 (13:25)(   Читать дальше...   )Жанр: Ambient, Experimental, Field RecordingПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95E5E1EF18E97E77F5FD324C28AB70B098430E75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202713   (789530) от 30.01.2018
 
 VA - Deep House Winter Essentials (2018) [MP3|320 Kbps] <House, Deep House>
@@ -560,141 +695,6 @@ VA - Uplift Underground (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E662381405887B23CCE16D6148E3E5B9B6C34FB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281247   (790018) от 04.06.2020
-
-Gerard Hanson (Convextion, E.R.P., Time Light Curve, T/O/L) - Discography 33 Releases (1995-2019) [FLAC|Lossless|tracks .cue, tracks] <Electro, Techno, Minimal, Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Light Curve - Magnetite (06:35)
- 02. Time Light Curve - Acidlab (05:42)
- 03. Headnoaks - Planet Constellations (04:23)
- 04. Headnoaks - Promise Land (05:36)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Electro/AcidПродолжительность: 14:05:33 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D7F18F09560CF3DF950C69FABFE963D37B7BBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 658403   (790026) от 04.06.2020
-
-Zandoz Corp. - Personal Apocalypse (2013) Signifier [Lossless|WEB-DL|tracks]<Rhythmic Noise, Breakcore, Industrial, IDM, Noise>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Connective Consciousness (4:47)
- 02. Hostile Adaptation (5:04)
- 03. Requiem For Matter And Feelings (4:12)
- 04. Hidden Wings (5:01)(   Читать дальше...   )Жанр: Rhythmic Noise, Breakcore, Industrial, IDM, NoiseПродолжительность: 01:09:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:057FBCD0C42AA18EB86D398BC14331EA2F59C3FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388092   (790123) от 04.06.2020
-
-VA - The Flatline Compilation 1 & 2 (1998-1999) Flatline Records [FLAC|Lossless|tracks+.cue] <Rhythmic Noise, IDM, Electro, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790123.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
- 01. The Galan Pixs - Pearl Necklace (03:55)
- 02. Cleen - Freak (Pumpin' Trash Mix) (06:03)
- 03. Individual Totem - Reflexion (04:31)(   Читать дальше...   )Тип издания: CDЖанр: Rhythmic Noise/IDM/Electro/IndustrialПродолжительность: 04:49:06 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:754623B59EDA27DDD421FE21FBC7A276783146A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510793   (790328) от 18.11.2021
-
-Vangarde feat. XXL - The Best Of Lounge: Buddha Lounge (2001) [MP3|320 Kbps] <Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 2 Tango (4:12)
-02. Club Zero (5:52)
-03. Pure Magic (4:11)
-04. Love Attack (4:12)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 00:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE741F8E06916A15B79E7775E5E650693081D9D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510789   (790339) от 18.11.2021
-
-Vangarde & Louis Sandoro - The Best Of Lounge: Jazz Lounge (2001) [MP3|320 Kbps] <Lounge, Latin Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vangarde - Another Romance (4:45)
-02. Vangarde - Find The Best In Time (5:18)
-03. Vangarde - Walk Of The Lion (4:20)
-04. Vangarde - Don't Forget About Me (4:35)(   Читать дальше...   )Жанр: Lounge, Latin JazzПродолжительность: 01:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2EBA22FAF96F2089C46AF13024036BF0392EF96
 ```
 
 

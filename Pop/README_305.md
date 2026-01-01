@@ -1,3 +1,163 @@
+###  Публикация: 1002972   (845197) от 02.04.2016
+
+SPC ECO - All We Have Is Now (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Dream Pop, Shoegaze Electronic, Trip Hop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Troubles Deep
+02. All Gone
+03. All You Need
+04. Slow Down(   Читать дальше...   )Жанр: Indie Dream Pop, Shoegaze Electronic, Trip HopПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D441ADE136020F293A1B59ADEA356D98A17EE060
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 650056   (845262) от 29.04.2013
+
+Boney M. - Ultimate 2.0 (2011) [FLAC|Lossless]<Disco, Euro-Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ultimate 2.0 включает в себя такие композиции как “Daddy Cool,” “Sunny,” “Ma Baker,” “Belfast,” “Rivers of Babylon” “Rasputin,” “Mary’s Boy Child,” и “Gotta Go Home” - все эти синглы  достигли первых мест в  родной для Boney M.  Германии.
+Тогда как второй диск, получивший название: "Boney M. Goes Club," ориентирован на клубных фанатов Boney M. Здесь собраны (   Читать дальше...   )Жанр: Disco, Euro-PopПродолжительность: 01:16:09
+
+01. Barbra Streisand (Mega Mashup-Mix-Medley vs. La Bouche, No Mercy, Chicken Soup) (15:53)
+02. Boney M. (Mega Mashup-Mix-Medley vs. No Mercy, Eruption, La Bouche) (14:44)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 650153   (845567) от 29.04.2013
+
+Елена Терлеева - ПредИстория (2013) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111440   (846478) от 06.03.2017
+
+ВИА Гра - Новая коллекция. Лучшие песни (2008) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Л. М. Л.
+02. Поцелуи
+03. Океан и три реки (feat. Валерий Меладзе)
+04. Попытка №5(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF51DD0CDA79AA6693B66EC78D781AA23421A256
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111884   (846575) от 06.03.2017
+
+Ady Zehnpfennig - 8 Albums (1979-2001) [MP3|320 Kbps] <Electronic, Pop, Instrumental, Schlager, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкий органист (электроорган "Hammond"), аранжировщик и композитор. Родился 17 февраля 1949 года в Керпене, Германия. Также стал руководителем оркестра и открыл свою студию "Azure". Помимо собственных композиций, известность ещё принесли музыкальные аранжировки шлягеров популярных исполнителей мира.Список альбомов:
+1979 - Bohmat Express 5
+1980 - Kino-Hits
+1982 - Orgel Pop On Top(   Читать дальше...   )Жанр: Electronic, Pop, Instrumental, Schlager, Easy ListeningПродолжительность: 06:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0232A7EF7C2D2E2A262E38D594181FE353416A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378417   (846682) от 25.04.2020
+
+VA - NOW Classics Love (2020) [MP3|320 Kbps] <Pop, R&B, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846682.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. UB40 - (I Can't Help) Falling In Love With You 03:25
+2. Bryan Ferry - Slave To Love 04:18
+3. Cat Stevens - Wild World 03:20
+4. Carpenters - We've Only Just Begun 03:04(   Читать дальше...   )Жанр: Pop, R&B, OtherПродолжительность: 02:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D02CBC0A952561A5143F2BCA78F851A3E64F3ED7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111711   (846737) от 06.03.2017
 
 VA - Divas Of The Disco (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
@@ -528,174 +688,6 @@ Ed Sheeran - Divide (2017) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED16100CA8A52FDE69556D8388C8A5C30F392C14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 191925   (849867) от 13.04.2010
-
-VideoKids - The Invasion Of The Spacepeckers (1995) [MP3|320 kbps]<Pop, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Do the rap [3:37]
-02 - Cartoney tunes [4:24]
-03 - La bamba [4:13]
-04 - I'm a rock and roll pecker [2:30]
-05 - Communication outer space [3:10]
-06 - Woodpeckers from space [5:59]
-07 - Give me that banana [4:07]
-08 - Do you like surfing [3:24]
-09 - Sky rider [3:15]
-10 - Woodpeckers from space'94 (Club Mix Long) [5:18]Жанр: Pop, Italo-Disco
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378022   (850001) от 23.04.2020
-
-Banoffee - Look at Us Now Dad (2020) [FLAC|Lossless|Web-DL|tracks] <Indie Pop, Alternative Rock, Trip Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tennis Fan (2:50)
-02. I Lied (Interlude) (0:35)
-03. Fuckwit (3:45)
-04. One Night Stand (3:10)(   Читать дальше...   )Производство: CascineЖанр: Indie Pop, Alternative Rock, Trip HopПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50DB6D2786E3F9ADE48E18C5D5A1E547D466A43C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377929   (850170) от 23.04.2020
-
-Sixtine - Sweet Sixteen (2014) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Alternative Pop, Disco, Dancefloor>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:35)
- 02. The Love Disease (5:12)
- 03. Private Inter-Com (4:04)
- 04. Raincheck (4:29)(   Читать дальше...   )Жанр: Electronic, Alternative Pop, Disco, DancefloorПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F434E40D20262CB236A2EB0A167F8C718475C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110984   (850181) от 04.03.2017
-
-VA - Hit Music 2017 Vol 1 (2017) [MP3|320 Kbps] <Pop, Hip Hop,  Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd Feat. Daft Punk – I Feel It Coming 04:26
-02. Bruno Mars – 24K Magic 03:45
-03. Shakira Feat. Maluma – Chantaje 03:13
-04. Jax Jones & Raye – You Don’t Know Me 03:32(   Читать дальше...   )Жанр: Pop, Hip Hop,  RockПродолжительность: 01:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3731D0A4682D4E819A7793DA526BF515FD5C3058
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110875   (850248) от 04.03.2017
-
-Tokio Hotel - Dream Machine (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something New (5:22)
- 02. Boy Don't Cry (3:33)
- 03. Easy (4:25)
- 04. What If (3:32)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47969E33E5B4F553CD9D46526371368992C6F1DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001748   (850263) от 30.03.2016
-
-Munich Machine - 3 Albums (1977-1979) [MP3|320 кб/с] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из основоположников стиля "диско" Джорджио Мородер (Giorgio Moroder, настоящее имя Hansjoerg Moroder) родился в Италии,в городе Ортисеи, 26 апреля 1940 года. В роду у него было много известных и талантливых людей, среди которых были скульпторы, художники, писатели, поэтому никто не сомневался в наличии у Джорджио таланта. В период 1976-77 годов Мородер (   Читать дальше...   )Список альбомов:
-1977. Munich Machine
-1978. A Whiter Shade Of Pale
-1979. Body Shine(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7F088BE3D82964DD9EA0829EEB2A993B4701B72
 ```
 
 

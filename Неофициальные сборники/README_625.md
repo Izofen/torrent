@@ -1,3 +1,30 @@
+###  Публикация: 1363289   (943707) от 27.02.2020
+
+VA - City Life: Extended Trance Party (2020) [MP3|320 Kbps] <Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943707.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alter Future - Air (Original Mix)
+002. Dustin Husain & Rinaly - Hypernova (Extended Mix)
+003. Nadi Sunrise & Kimberly Hale - With My Heart (Extended Mix)
+004. Artento Divini - Overall Phased(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 13:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5940D27B296F18E36A2EF0EEE577415A026FE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983503   (943727) от 06.02.2016
 
 VA - Yet Another 100 Melodic Rock Anthems (2015) [MP3|320 кб/с] <Rock, Metal>
@@ -679,33 +706,6 @@ VA - Top 100 DJs Alive Sound (2017) [MP3|320 Kbps] <Tech Trance, Electro, Dutch,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD87C9A90EAECA0F7291ED91437CF5935738BE62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091032   (944982) от 08.01.2017
-
-VA - Top 100 EDM Songs & DJ Tracks December (2017) [MP3|320 Kbps] <Electronica, Indie, Nu Disco, Tech>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944982.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Green Velvet, Prok & Fitch - Sheeple (Original Mix) 7:02
-002. Pryda - Lillo (Original Mix) 8:38
-003. Basement Jaxx - Jump N Shout (Erik Hagleton Remix) 6:32
-004. Dennis Cruz - Everybody (Original Mix) 6:52(   Читать дальше...   )Жанр: Electronica, Indie, Nu Disco, TechПродолжительность: 10:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C69485C0823B74EBB00AEE3109FD73A3A354AA47
 ```
 
 

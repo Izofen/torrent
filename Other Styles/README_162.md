@@ -1,3 +1,192 @@
+###  Публикация: 1370048   (898533) от 26.03.2020
+
+Maurizio Filardo - Perfetti sconosciuti (Colonna sonora originale del film) (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Jazz>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maurizio Filardo - Non ci conosciamo (6:30)
+02. Maurizio Filardo - Arrivo (1:27)
+03. Maurizio Filardo - Sofia (2:07)
+04. Maurizio Filardo - Non ci conosciamo (Bianca version) (3:07)(   Читать дальше...   )Жанр: Ambient, JazzПродолжительность: 00:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90EE06A23E405EEFDC5CAACC0DBF1ACAFAD595C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 183008   (898667) от 14.03.2010
+
+VA - Give Ireland Back To The Irish (10 CD) (2000) [MP3|320 kbps]<Irish folk, traditional>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Irish folk, traditionalПродолжительность: 07:36:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992784   (899165) от 03.03.2016
+
+Spirit Of Africa - Sacred Verses And Tribal Chants Of Native Africa (1996) [MP3|320 кб/с] <New Age, Enigmatic, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dawn On The Plain (2:46)
+02. Song Of The Wild (Uma Uma) (5:15)
+03. Sacred Chant (Sinarah Pt. 1) (4:17)
+04. Sacred Chant (Sinarah Pt. 2) (3:21)(   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 00:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA65FACBA09C2CBC47A1450DA4C7EFB01F4D1338
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992788   (899214) от 03.03.2016
+
+Spirit Of Africa 2 - The Unforgettable Musical Journey Continues (2008) [MP3|320 кб/с] <New Age, Enigmatic, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tribal Celebration (2:48)
+02. Southern Lullaby (6:23)
+03. Call To The Dark Spirit (7:28)
+04. Traveller's Song (6:37)(   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 01:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485039A198B3B42894C630CA2142D296B6A2AE6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 284677   (899486) от 25.03.2020
+
+Звуки природы - Океанский прибой (1997) [FLAC|Lossless|image] <Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899486.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Океанский прибой (01:03:07)Жанр: RelaxПродолжительность: 01:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F0F1B3C0B59C7678DD024E6F1DC8CD72E55BC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100486   (899532) от 04.02.2017
+
+Klaus Back & Tini Beier - Enigma Of Faith (1995) [MP3|320 Kbps] <New Age, Enigmatic, Gregorianic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Works Of Charity (11:30)
+02. Love And Faith (9:25)
+03. Faith Is Bliss (9:03)
+04. Faith-Healing (8:49)(   Читать дальше...   )Жанр: New Age, Enigmatic, GregorianicПродолжительность: 00:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F17C56DBA6832868860B3DCDD866B4B24D7392
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637123   (899738) от 31.03.2013
+
+The Synthesizer Rock Orchestra - The Synthesizer Rock Orchestra plays The Beatles/ ABBA/ Queen/ Elton John (4CD) (1990) [MP3|320 кб/с]<Easy Listening, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+ABBAЖанр: Easy Listening, InstrumentalПродолжительность: 00:44:59
+
+1. The Long And Winding Road (3:53)
+2. All You Need Is Love (4:08)
+3. A Hard Day's Night (3:11)
+4. Hey Jude (5:47)
+5. Lady Madonna (2:20)
+6. Let It Be (3:58 )
+7. Love Me Do (2:36)
+8. Penny Lane (2:59)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:354C78FE2E39B91A5C4815019983540B109616D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 636854   (899744) от 31.03.2013
 
 Мужской камерный хор п/у Вадима Байкова | Акафист Божественным Страстем Христовым (Пассия) (2007) [MP3|320 кб/с]<Церковное пение>
@@ -552,195 +741,6 @@ VA - Romantic Collection - Aria & Mystique (2000) 2CD [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84C45682BA02C4D3D020419C516CD5DE726D0EE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992168   (902692) от 01.03.2016
-
-VA - Impressions Of Native America (2001) [MP3|320 кб/с] <Native american, Ethnic, Folk, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ellis Island - Mother Earth Round Dance (5:45)
-02. Western Voices - The Calling (3:27)
-03. Cyberland - Circle Round The Sun (4:43)
-04. Cyberland - Explora (4:06)(   Читать дальше...   )Жанр: Native american, Ethnic, Folk, New AgeПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95A0D7B76AF46319855F0B92CA8F6099032A9F82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099710   (903264) от 02.02.2017
-
-Paul Sills - Electric Storm (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kinetic (08:34)
-02. Horizons (05:02)
-03. Static Rain (06:06)
-04. Solar (05:45)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F240EC9AEB11C50969CE06C7169F56C0441CB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099714   (903278) от 02.02.2017
-
-Medwyn Goodall - Echoes of Emergence (1987) Reissue 2017 / MG Music Ltd [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Misty Morning Across the Water (05:48)
-02. Drifting (05:09)
-03. Lonely Shore (05:21)
-04. On a Mountain (05:49)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F87D4FAB4AE9BAB849CD701E628E63D143B5C524
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099606   (903376) от 02.02.2017
-
-Ron Allen - The First Flute (Songs Of Courtship) 1998 [FLAC|Lossless|tracks] <New Age, World, Aboriginal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  She Is Untouchable  (06:37) 
-02|  The Journey  (05:38) 
-03|  Gift from the Spirits  (07:01) 
-04|  Woodpecker Dance  (05:42) (   Читать дальше...   )Жанр: New Age, World, AboriginalПродолжительность: 00:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD0AF4D0AF1DADFF081F2467EE98C6FD1555782E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099659   (903399) от 02.02.2017
-
-Andreas - Music for Pregnant Women (2013) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music for Pregnant Women (16:00)
-02. Touch of Magic (05:46)
-03. Bluebells and Angels (05:11)
-04. Sanctify (06:44)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D713BA18DF55B6B4068E3FAD8F6A2C53AE67BC46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369396   (903401) от 23.03.2020
-
-Nazca & Wayra Rodriguez - Traditional Indian (2010) [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nazca & Wayra Rodriguez - Ancient spirit
-02. Nazca & Wayra Rodriguez - Ceremony
-03. Nazca & Wayra Rodriguez - Vision
-04. Nazca & Wayra Rodriguez - Dream catcher(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3A3496CBFB8D1486DEAF068DFD64E11CE9AC7D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368661   (903513) от 23.03.2020
-
-Tatanka - Best Of Indian's Song (2005) [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction
-02. May You Walk In Sunshine
-03. Enchantment
-04. A-La-Ke(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36DA4BA965D80B1CE66E3DEFAA77481F1CA36B62
 ```
 
 

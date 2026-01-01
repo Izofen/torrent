@@ -1,3 +1,30 @@
+###  Публикация: 1383315   (811726) от 15.05.2020
+
+VA - Today's Best Ballads (2020) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811726.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Taylor Swift - Lover (Remix) (3:41)
+2.Ed Sheeran - Best Part of Me (feat. YEBBA) (4:03)
+3.Dermot Kennedy - All My Friends (4:07)
+4.Lilla Vargen - Why Wait (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 02:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C98481CAEE7EA998D68C243E700B7D7F81E0414
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118565   (811811) от 26.03.2017
 
 VA - 7 Days: Uplifting And Vocal Trance (2017) [MP3|320 Kbps] <Uplifting, Vocal Trance>
@@ -668,33 +695,6 @@ VA - Happy Love Day (2020) [MP3|320 Kbps] <Pop, Lyric>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A682864420D4B496479ED1DE2E016F699271ECC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008864   (813803) от 19.04.2016
-
-VA - Elite Lounge: April Relax (2016) [MP3|320 кб/с] <Lounge, Chillout, Relax>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813803.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ajad Samskara - Byron Bay
-002. Don Gorda Project - Disambiguation
-003. Vedo - Beautiful Monster
-004. Blank & Jones - Nuits Blanches(   Читать дальше...   )Жанр: Lounge, Chillout, RelaxПродолжительность: 08:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0AD0B5250C2EEEDC05371BB1A7A11B86BADF1DD
 ```
 
 

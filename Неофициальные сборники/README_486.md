@@ -1,3 +1,30 @@
+###  Публикация: 1394177   (763717) от 05.07.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 03.07.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surf Mesa feat. Emilee - ily (i love you baby) 2:57
+02. Filatov & Karas feat. Deepest Blue - Give It Away 3:28
+03. twocolors - Lovefool 3:10
+04. Mari Ferrari with M.Z.I & S-ELM feat. Vianne - Drop Dead 2:32(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CCAF13F9E3371F9383136F137DFFFA2281E985
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394423   (763727) от 05.07.2020
 
 VA - Record Super Chart 643 (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ VA - Hands Up Dance Music (2019) [MP3|320 Kbps] <Dance, Club, Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:547CABCE8BED753E7372467E23773B92AA08DB95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279639   (764548) от 31.01.2019
-
-VA - Empire Records - Fake 4 (2019) [MP3|320 Kbps] <Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eryon Stocker - High Speed (Radio Edit)
-02. Tranceye - Kinesis (Radio Cut)
-03. Dk Project - Blue Skies (Radio Cut)
-04. Estivia - Solena (Radio Edit)(   Читать дальше...   )Жанр: Trance, DanceПродолжительность: 02:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20829BCAA06E7149C3E27FB19097CF53F2ED1B0F
 ```
 
 

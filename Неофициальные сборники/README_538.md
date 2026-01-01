@@ -1,3 +1,30 @@
+###  Публикация: 1198197   (809590) от 10.01.2018
+
+VA - Deep House Collection Vol.152 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alessio Cala' - Free Life (Original Mix) 5:54
+02. Alexander Price - Waiting (Paramour Dub Mix) 7:19
+03. Alex Moiss - Tribute To Helly (BDTom Remix) 8:46
+04. Allies for Everyone - Conjure (Original Mix) 6:32(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8732BE5B9F5FD88285218609A3E000B39B7C8777
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198195   (809595) от 10.01.2018
 
 VA - Deep House Collection Vol.151 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
@@ -668,33 +695,6 @@ VA - The Official UK Top 40 Singles Chart 15.05.2020 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBDF53DA2897ACE3127A7C1F7D36492033FF75F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504592   (810335) от 24.10.2021
-
-VA - Music News vol.143 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810335.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lady Gaga - Bad Romance (Vadim Adamov & Hardphol Radio Edit) (03:19)
- 002. ABBA - Just A Notion (03:31)
- 003. Alesso & Marshmello feat. James Bay - Chasing Stars (Stripped) (02:45)
- 004. All1 - Мелодия (02:25)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 06:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF11FEC876B2B7587695B3863F086C7F13F814D6
 ```
 
 

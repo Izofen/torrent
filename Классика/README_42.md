@@ -1,3 +1,57 @@
+###  Публикация: 1497976   (859430) от 25.09.2021
+
+Vangelis - Juno to Jupiter (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Modern-Classical, New-Age>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vangelis: Atlas’ push [00:03:40]
+02. Vangelis: Inside our perspectives [00:03:32]
+03. Vangelis: Out in Space [00:04:14]
+04. Vangelis: Juno’s quiet determination [00:05:17](   Читать дальше...   )Жанр: Modern-Classical, New-AgeПродолжительность: 01:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67BD5A97B5BDB3F21EAE1097AA75022DECD6AC9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999868   (860528) от 24.03.2016
+
+VA - The Most Popular Classical Music In The World...Ever! (2008) 6CD, Compilation (part I,II,III) [FLAC|Lossless|tracks] <Classical, Baroque, Romantic>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mahler - Symphony No 5 - Adagietto   09:44
+02. Tchaikovsky - The Nutcracker - Dance of the reed pipes   02:36
+03. Strauss - Hunting Polka   02:08
+04. Glinka - Ruslan and Ludmila - Chernomor's March   04:23(   Читать дальше...   )Жанр: Classical, Baroque, Romantic |Продолжительность: 01:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FFBD37386EBC159D4BE8226FABE209AE1CC16E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999241   (860539) от 24.03.2016
 
 Chopin - 51 Mazurkas (Arthur Rubinstein) (1999) [FLAC|Lossless|tracks] <classical>
@@ -639,60 +693,6 @@ magnet:?xt=urn:btih:EB49CF647CAC0716E1803BC92D8F90CC034D9F07
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A00FCDB4FB674ED45CD34D181634F85473EE4009
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997670   (869695) от 19.03.2016
-
-Jean Sibelius - Lemminkainen Suite, Pohjola’s Daughter (Finnish Radio Symphony Orchestra, Hannu Lintu) (2015) [DTS 2.0, 5.0|ISO|64/1|SACD-R] <Orchestral>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lemminkäinen Suite
-01-I Lemminkäinen and the Maidens on the Island
-02-II The Swan of Tuonela
-03-III Lemminkäinen in Tuonela(   Читать дальше...   )Жанр: OrchestralФормат: DST64Продолжительность: 01:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F485FFD2684CF7B58904605DB26DF7BCC08104C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996845   (869809) от 19.03.2016
-
-George Frideric Handel - Arminio (2016) [FLAC 2.0|96/24|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture (03:14)
-02. Menuet (01:01)
-03. Act 1: Fuggi, mio bene (00:57)
-04. Il fuggir, cara mia vita (02:48)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:378D2F0AFF89D776760C6E4CEB3A92FEA95A4B61
 ```
 
 

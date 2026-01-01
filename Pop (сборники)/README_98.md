@@ -1,3 +1,30 @@
+###  Публикация: 1013147   (777610) от 04.05.2016
+
+VA - Главная дискотека мая 50х50 (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777610.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rita Ora - Poison
+002. Джиган - Ахумилительная Туса
+003. Dushia & Bel-Mondo - Change Me
+004. Filous Feat. James Hersey - How Hard I Try(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92B21201696E2EFE9375C962F2B62CA93535698
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013349   (777613) от 04.05.2016
 
 VA - Return Of The 90s (2016) [MP3|320 кб/с] <Pop>
@@ -668,33 +695,6 @@ Twenty One Pilots - Great Artists of My Heart Vol. 05 (2020) [MP3|320 кб/с]<I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3ED483F2B8670774D709F44CF608C5A201182EAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205107   (784050) от 08.02.2018
-
-VA - Pioneer Studio - World In My Eyes (2018) [MP3|320 Kbps] <Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Neo & Neon People - Сумасшедшее желанье (Radiorama - Desire)
-02. Alex Neo & Antony Ganion - Стрелка на часах (Blue System - Do you wanna be my girlfriend)
-03. Alex Neo, Tatyana Kravtsova & Zlatko Woykova - Чужой (Alphaville - Big In Japan)
-04. Alex Neo & Antony Ganion - Дай мне (Bad Boys Blue - Gimme gimme your loving)(   Читать дальше...   )Жанр: Dance, DiscoПродолжительность: 01:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8CA2F02E8060F530B09120872897421E3AAE3F0
 ```
 
 

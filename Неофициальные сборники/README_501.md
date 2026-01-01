@@ -1,3 +1,30 @@
+###  Публикация: 1211077   (778237) от 05.03.2018
+
+VA - Empire Records - Progressive Lounge (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Clouds Testers  -  Inhale The Love (Semenovb Instrumental Remix)  3:58
+02.  Jurgen Paape  -  Whisper Echo (Original Mix)  5:00
+03.  Luke Lucid  -  Black Star (Original)  5:28
+04.  Sebastian Davidson  -  Golden Age (Original Mix)  5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E6DCFD737F854D79A6B683BEA372697F6847DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012760   (778328) от 02.05.2016
 
 VA - Русское радио. Веселой Пасхи! (2016) [MP3|256 кб/с] <Pop>
@@ -668,33 +695,6 @@ VA - Rock Kaleidoscope 2 (2018) [MP3|320 Kbps] <Classic Rock, Rock & Roll, Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C161042EFD835FB818E7CA4EDBEC809447BFE20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210425   (778716) от 03.03.2018
-
-VA - Empire Records - Sound Clinic 10 (2017) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ G - Naked Truth (Tazer Remix)
-02. Liya Fran, WilyamDeLove - Is It Time (Original Mix)
-03. David Dsk - Up Music (Original Mix)
-04. Caal, Baum - Loved Hated (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 04:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6839E31FA89AEDCA49C84BF6D7599D4DFDB8D01
 ```
 
 

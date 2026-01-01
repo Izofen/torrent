@@ -1,3 +1,138 @@
+###  Публикация: 1196983   (818509) от 05.01.2018
+
+VA - New Year Party 2017 (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic – Shake It Shake It (radio edit) 03:08
+02. Clubhunter – Tell Me (Turbotronic radio edit) 02:58
+03. Bsharry – Seven Nation Army (Melbourne mix) 06:07
+04. Daniel Rosty – Time 2 Bounce 03:56(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D227F3B6230314FCF1C32BFF4EA87F4BFDE24FBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117426   (818794) от 22.03.2017
+
+VA - DJ Zen - Serial Chillers (2017) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Downtempo, Psychill, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asura - Eternal Sunshine (Ambient Version) (06:54)
+ 02. Kliment - Jaia Flower (07:38)
+ 03. Suduaya - Nomad (07:36)
+ 04. E-Mantra - Daydream (06:27)(   Читать дальше...   )Жанр: Psybient, Ambient, Downtempo, Psychill, Progressive TranceПродолжительность: 07:02:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7113FFFFCD0DEDB20B34A76B694A096414ABE248
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382629   (818977) от 11.05.2020
+
+E-Mantra - Night Guardian (2020) Melusine Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, Psy-Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shepherd (06:48)
+02. The Sky Beings (05:28)
+03. Spirits Of The Wind (05:59)
+04. Night Guardian (06:15)Жанр: Psybient, Downtempo, Psy-TranceПродолжительность: 00:24:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AF4E8A4D11C0179D1F50C4D4AC0F6C57C0B5DDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196895   (819069) от 05.01.2018
+
+VA - Markus Schulz - Global DJ Broadcast - New Year’s Rehab (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aiiso - Autumn Leaves
+02. Jam & Spoon - Odyssey to Anyoona (Jamie Stevens & Uone Remix)
+03. Jeremy Olander - Araoz
+04. Gabriel & Dresden featuring Sub Teal - White Walls(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F2B96226014A37275D85D41543CE73016664ECD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117408   (819109) от 22.03.2017
+
+VA - Mega Dance Party 2017 (2016) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic - Bulta (radio edit)
+02. DJ Observer & Flip Capella - Reason (feat Mariana Bell - Flip Capella Deep mix radio edit/Color Baaash Anthem 2016)
+03. Condor - Feel U (feat Adina - radio edit)
+04. DJ E-Maxx - La Bomba (radio edit)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87BEA87AA8EF6F0C61698FEF567C4DAADD9FC0EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382548   (819142) от 11.05.2020
 
 VA - Beautiful Morning Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -556,141 +691,6 @@ VA - The Best Progressive Hits Vol.5 (2016) [MP3|320 кб/с] <House, Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:905F3598057C5474077BFE4DE6BA0B6183896E44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007819   (819899) от 16.04.2016
-
-VA - Urban Dance Battle Nation (2016) [MP3|320 кб/с] <House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mykel Mars - White Beach (DJ Absinth EDM Edit) 03:20
-02. Tony Wong - Born for EDM (Muscle Mix) 03:37
-03. The Betatesters - Drop That (EDM Cardio Mix) 03:24
-04. Robby Schulz - Breathtaking (EDM Workout Anthem) 04:32(   Читать дальше...   )Жанр: House, Progressive, DanceПродолжительность: 02:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256FBBBD829D6636AC224537A1BD9401F41E6A61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007754   (819900) от 16.04.2016
-
-VA - Venera Music Vol.4 (2016) [MP3|320 кб/с] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aleksey Skvortsov - Into the Unknown 06:45
-02. Alex Greenhouse - Everyday U Need a 5un5hine 09:02
-03. Anton Seim - Pleasure Time (Manchus Remix) 07:00
-04. Argonautica - Counterpoison 05:13(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D43E96ED01C9977155597B16CC34BE9E0459E92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007572   (819901) от 16.04.2016
-
-Giash - Brightness Is All (2016) [FLAC|Lossless|WEB-DL|tracks] <Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The North beast (2:24)
-02. Mouth Of Warnow (7:28)
-03. Lack Of Patterns (9:19)
-04. Next Door (6:46)(   Читать дальше...   )Жанр: MinimalПродолжительность: 01:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04E81766BEA42DB6B00FC5ABD4FC47A3BE9BE0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007844   (819902) от 16.04.2016
-
-VA - Progressive House Components (2016) [MP3|320 кб/с] <House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quadran - Rumour (Thorin Remix) 07:18
-02. Fulagie - Tantrina 05:44
-03. LucianZ - Beautiful Moments (Club Mix) 06:41
-04. Lolo - Travel the World in 10 Minutes (Chris M Progressive Mix) 10:00(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 02:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A78ABCD29EBB23F93D86A0A6C78ABDDCEAC223
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116932   (820425) от 21.03.2017
-
-Infected Mushroom - Return to the Sauce (2017) [FLAC|Lossless|CD|tracks+.cue] <Psy-Trance, Electro House>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infected Mushroom - Flamingo (8:36)
-02. Infected Mushroom - Manipulator (6:28)
-03. Infected Mushroom - Return To The Sauce (7:43)
-04. Infected Mushroom - Groove Attack (6:44)(   Читать дальше...   )Жанр: Psy-Trance, Electro HouseПродолжительность: 01:10:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2E191B74D890FC9A24734906EF9437186EE0385
 ```
 
 

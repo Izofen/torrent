@@ -1,3 +1,138 @@
+###  Публикация: 1468235   (1017197) от 07.05.2021
+
+ilan Bluestone - Impulse (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ilan Bluestone - Taking You There
+02. ilan Bluestone ft Gid Sedgwick - Paid For Love
+03. ilan Bluestone ft Giuseppe De Luca - Look At Me Now
+04. ilan Bluestone with Maor Levi ft Alex Clare - Hold On(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E7A06009D1BD4537764F7A7CF293F5CD8528E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468098   (1017221) от 07.05.2021
+
+VA - The Mastermix Collection – Chillout (2021) [MP3|320 Kbps] <DJ Sets, Chill, Deep House, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mastermix - After Dark: Chilled Vibes
+02. Mastermix - Chilled Pop
+03. Mastermix - Chilled Dance
+04. Mastermix - Chilled 80s(   Читать дальше...   )Жанр: DJ Sets, Chill, Deep House, ChilloutПродолжительность: 02:27:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D9AC472EB5A8232A3B72C1433A73B04BA0ACE5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468168   (1017234) от 07.05.2021
+
+ScAnDroid Experiment's - Scribendarum (2021) авторская раздача [MP3|320 Kbps] <Experimental, Ambient, Downtempo>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1
+01. Fontibus Potentia (Original Mix)
+02. Pulsus Planetae (Original Mix)
+03. Non Opus Est ad Finem (Original Mix)(   Читать дальше...   )Жанр: Experimental, Ambient, DowntempoПродолжительность: 01:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2415D6D4977D4A572F6DED5ABD86E30510EE9D11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307949   (1017516) от 05.05.2021
+
+Nebulae Records - Label Pack 8 Releases (2018-2021) [FLAC|Lossless|WEB-DL|tracks] <IDM, Electro, Acid, Ambient>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arctor - Acid Huckster (08:50)
+ 02. Sound Synthesis - Night Visions (06:37)
+ 03. Featherstone - The Seeker (05:58)
+ 04. Zodiac Childs & MOY - Sixth Sense (05:52)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Electro, Acid, Ambient •Продолжительность: 04:30:25 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A0821DBCC9A9B372CC11969FF83DC1E9305958B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467861   (1017561) от 05.05.2021
+
+ScAnDroid Experiment's - Necessity of Rest (2021) авторская раздача [MP3|320 Kbps] <Experimental, Lo-Fi, Downtempo>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Overcome The Silence
+03. Quiet Rhythms of the City
+04. Necessity(   Читать дальше...   )Жанр: Experimental, Lo-Fi, DowntempoПродолжительность: 00:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BA66344EF67F7FF75F791F53F938F467D4FCC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917868   (1017640) от 04.05.2021
 
 2methyl (2methylBulbe1ol) - Discography 14 Releases (2009-2021) Ad Noiseam, Ruff, Agnost1k [FLAC|Lossless|tracks+.cue, tracks]<Dubstep, IDM, Drum n Bass, Industrial>
@@ -556,141 +691,6 @@ VA - Kiez Beats: Synthwave, Vol. 8 (2021) Anniversary Edition [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74F282E74485370B4B45CA364D131E8A8DEA9B92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466325   (1018611) от 29.04.2021
-
-Deya Dova - Collection (1999-2017) 4 альбома [MP3|320 Kbps] <Downtempo, Glitch Hop, Tribal>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Myth of the Cave
-02. Return of the Bird Tribes
-03. Rite of the Hunt
-04. The Winged One(   Читать дальше...   )Жанр: Downtempo, Glitch Hop, TribalПродолжительность: 02:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54601B890CE0FA202C6A6C63907470DC8BC0B38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466432   (1018636) от 29.04.2021
-
-VA - Jazz Mood Cocktail (2017) [FLAC|Lossless|Web-DL|tracks] <Downtempo, Lounge, Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mo'jardo – Let's Party (3:46)
-02. Van – Street Cafe (5:33)
-03. Marc Hartman – Crushing Waves (3:57)
-04. Velvet Dreamer – Oasis (5:45)(   Читать дальше...   )Производство: Anim RecordsЖанр: Downtempo, Lounge, JazzПродолжительность: 02:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42BD642B78CFFFB162A5F5190EE3C9FDD0FE7461
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466320   (1018653) от 29.04.2021
-
-Skua Atlantic - Silfra Diving (2021) Fantasy Enhancing [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reykjavik Dublin First Transmission (08:17)
- 02. Arcade Decay (09:08)
- 03. Silfra Diving (11:25)
- 04. Where Cities Once Stood (09:46)(   Читать дальше...   )Жанр: Electro, IDM, AmbientПродолжительность: 01:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C8AFFB4D8C34779EB1BE93FCDCF8984775E8A25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465975   (1018791) от 28.04.2021
-
-VA - Trip to Anatolia: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Е - Asavari (05:21)
-02. Vellua - Navin (04:54)
-03. SoulAvenue - Padmasundari (05:56)
-04. Sami Sivananda - Samadhi Vibes (03:15)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E341B7E8F06510CF89A9A6C4C6B889A42854FB81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465825   (1018816) от 28.04.2021
-
-Michael E - With Open Arms (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. With Open Arms (7:12)
-02. The Voices in My Head (4:08)
-03. Sentimental (5:44)
-04. Same Time, Same Place (6:44)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:58:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA7BAA1D3C106B23D45360CBEB533820F53FB79B
 ```
 
 

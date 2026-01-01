@@ -1,3 +1,30 @@
+###  Публикация: 1523401   (751549) от 11.01.2022
+
+VA - Rock Morning Mixtape 2022 Explicit [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steppenwolf - Born To Be Wild (Single Version) (3:36)
+02. The Offspring - Why Don't You Get A Job (2:52)
+03. Imagine Dragons, Arcane, League of Legends - Enemy (From the series Arcane League of Legends) (2:53)
+04. Queens of the Stone Age - No One Knows (4:38)(   Читать дальше...   )Жанр: RockПродолжительность: 01:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14FA0143DEDD35070246F8F5950B3E351ABA28EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216204   (753067) от 29.03.2018
 
 Mallet - Dance With The Devil (1982) Luzifer Records, Vinyl Rip [MP3|192 Kbps] <Rock, Melodic Hard Rock, Hard Rock>
@@ -668,33 +695,6 @@ Metallica - Helping Hands... Live & Acoustic at The Masonic (2019) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:394ED89562C48F4BFA9805193B4C9E9AE247E44F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279779   (764549) от 31.01.2019
-
-Inkubus Sukkubus - Belladonna & Aconite (1993) Reissue, Remastered, 2011, Resurrection Records [MP3|320 Kbps] <Pagan Rock, Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Belladonna & Aconite (4:19)
-02.Soul Inside (2:56)
-03.Song of the Siren (3:42)
-04.Vampyres (3:40)(   Читать дальше...   )Жанр: Pagan Rock, Gothic RockПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0992E5CA4CF909B84C586B17EF0D2C147D58701B
 ```
 
 

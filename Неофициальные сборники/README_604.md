@@ -1,3 +1,30 @@
+###  Публикация: 1368500   (909072) от 20.03.2020
+
+VA - Beatport Disco House: Electro Sound Pack #34 (2020) [MP3|320 Kbps] <Funky Disco, Nu Disco, Disco House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909072.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Modern Trouble - Fly To Moscow
+002. Ramon Serratos - Don't Stop (Original Mix)
+003. Chaz Harrison - My Way
+004. Heidi B - Mr. Fly (Jazz Mix)(   Читать дальше...   )Жанр: Funky Disco, Nu Disco, Disco HouseПродолжительность: 09:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F8AC851477F846F2740F2C43AF45A69317BF9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368279   (909101) от 20.03.2020
 
 VA - Electronic Fantasy Box (2020) [MP3|320 Kbps] <Electronic, Synthetic>
@@ -662,33 +689,6 @@ VA - Зимние блатные песни в десяточку. Выпуск 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CD564DCB4BDEDA1C8F296EDF441C8D5F7BE3E28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098223   (910888) от 29.01.2017
-
-VA - German Top 100 Single Charts 27.01.2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910888.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran - Shape of You
-002. Clean Bandit - Rockabye (feat. Sean Paul & Anne-Marie)
-003. Ed Sheeran - Castle on the Hill
-004. Alan Walker - Alone(   Читать дальше...   )Жанр: PopПродолжительность: 05:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF2BA77C40E817449F27C4C17466377FC4CF332
 ```
 
 

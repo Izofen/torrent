@@ -1,3 +1,30 @@
+###  Публикация: 1445881   (1033307) от 07.02.2021
+
+VA - Event Of The Week: Progressive Trance Mix (2021) [MP3|320 Kbps] <Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это красивая музыка души, это новая гениальная симфония современного мира. Энергичный стиль музыки, который пробирает своим звучанием до глубины души, тела и мозга, это психическое состояние, при котором сознание человека воспринимает лишь малую долю того, что творится вокруг него. Под транс хочется танцевать, его хочется слушать вновь и вновь, он разрушает границы (   Читать дальше...   )001. Allen Watts - High Voltage
+002. Tim Besamusca - Lunaris
+003. Ram - Clockwork Orange
+004. Eldream & Mark Wild - Aura(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 12:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8E80DA6BE649DB6A3E6C840BEDBBEDE53EFAA12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445869   (1033310) от 07.02.2021
 
 VA - The Magic Of The Yellow Day (2021) [MP3|320 Kbps] <Ambient, New Age>
@@ -668,33 +695,6 @@ VA - Intensity: Trance Compilation (2021) [MP3|320 Kbps] <Trance, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D7D5719385DA47E3935A59464320C08BA16BEF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444546   (1034338) от 02.02.2021
-
-VA - CarMusic for lady (2021) [MP3|320 Kbps] <Pop, House, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miscris - Chemicals (2:58)
-02. Kaan Pars - Make Me (3:27)
-03. Tom Budin, Lucky Luke - Milk and Honey (3:03)
-04. TRFN, Siadou - Million Places (2:43)(   Читать дальше...   )Жанр: Pop, House, OtherПродолжительность: 04:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA2FC5DF8ADD6C32EA71077763DD68B62A8A85E7
 ```
 
 

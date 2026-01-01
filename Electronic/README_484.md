@@ -1,3 +1,138 @@
+###  Публикация: 1089247   (954024) от 02.01.2017
+
+VA - Winter Chill 2017  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alena Nice - Love Without The Answer (Original Mix) 05:50
+02. Alexey Infino - The Dark Side Of The City (Original Mix) 03:51
+03. Alin - Cradle (Original Mix) 06:19
+04. Alex Numark - Spring Dops (Chillout Mix) 06:55(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6673E4269547A304343DF378FE6FB9F016E57F66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980809   (954638) от 30.01.2016
+
+VA - Urban Chill Out Grooves Vol 1 (2016) [MP3|320 кб/с] <Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Love in the Sunlight (04:34)
+02. Puch - Playground (04:58)
+03. Castlebed - Backward Blues (04:07)
+04. Roberto Sol & Florito feat. Martine - Won't Give Up (Cafe Del Mar Mix) (04:15)(   Читать дальше...   )Производство: Casa Del SilencioЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AECBDED1455546AB7FBCE5BDFABD45D7970A313
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980868   (954839) от 30.01.2016
+
+VA - Suanda Winter Vol. 3 (2016) [MP3|320 кб/с] <Trance, Chillout>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer feat. Eskova - Without You (Aurosonic Chillout Remix)
+02. Feel & Make One - The Power Of Nature (Original Mix)
+03. Nomosk feat. Cari - Don't Hold Back (Original Mix)
+04. Audiocells - Mass Effect (Original Mix)(   Читать дальше...   )Жанр: Trance, ChilloutПродолжительность: 02:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB9A61B6663969642625F98E5DDDE718748CC89B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088821   (955064) от 01.01.2017
+
+VA - Spiral Lights - Compiled by DJane Gaby (2016) [FLAC|Lossless|tracks + .cue] <Psy-Trance, Progressive>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keemiyo - Samasati (Mind Lab Remix) - (07:45)
+02. Twinsonic - Hypersphere Chrysalis - (07:18)
+03. S-Range & Solar Spectrum - 2nd Chance (3rd Eye Mix) - (06:50)
+04. Ascent & Sound Control - Power Of The Mind- (08:22)(   Читать дальше...   )Жанр: Psy-Trance, ProgressiveПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2984F821C923F9AEAC418E2FE5F483A88ED13B53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088735   (955100) от 01.01.2017
+
+VA - Deepalma 2017 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mika Olson - What I Need (feat Jermaine Fleur) [07:35]
+02. Fonzerelli - Moonlight Party (Touch & Go Laidback mix) [05:24]
+03. Lounge Loafers - Forget About Me (original mix) [05:31]
+04. Palmer - Takin' Off (Miguel Campbell Club edit) [05:22](   Читать дальше...   )Жанр: Deep House, House, Nu DiscoПродолжительность: 04:25:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F13E0291231E0899F427BAA585E1E377466D954
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088839   (955152) от 01.01.2017
 
 VA - The Best Running Beats 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
@@ -549,147 +684,6 @@ VA - Chill Out Smoothies (Relaxed & Calm Chill Out Sounds) (2016) [MP3|320 кб/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E30C2D0114E003FB583DC98BAAA2A9B7277A46E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012309   (960403) от 15.02.2020
-
-Omauha - Discography 17 Releases (2011-2020) Morphosis Records [FLAC|Lossless|WEB-DL|tracks] <Breaks, Downtempo, House>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florida (Cullen Remix) (06:34)
- 02. Antananarivo (Platunoff Breaks Remix) (06:43)
- 03. The White Nights (Stardesign Remix) (08:39)
- 04. Victoria (Rick Tedesco Remix) (07:16)(   Читать дальше...   )Тип издания: WEBЖанр: Progressive BreaksПродолжительность: 10:43:56 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0931BEC034EA907208FEAE14074E15B452533E77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360561   (960634) от 15.02.2020
-
-Depeche Mode - 101 (2006) 2CD, Gala Records, RE. [FLAC|Lossless|tracks + .cue] <Electronic, New Wave, Synthpop, Live>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Celebration (4:56)
-02. Shake The Disease (5:11)
-03. Nothing (4:37)
-04. Pleasure, Little Treasure (4:39)(   Читать дальше...   )Жанр: Electronic, New Wave, Synthpop, Live |Продолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D199C8A68FC21090550220EE43287BD322F8F360
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360284   (960738) от 15.02.2020
-
-DJ Aligator Project - The Sound Of Scandinavia (2002) [MP3|320 Kbps] <Trance, Euro House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Aligator Project - Intro (1:31)
-02. DJ Aligator Project - Stomp! (4:05)
-03. DJ Aligator Project - Mosquito (3:50)
-04. DJ Aligator Project - Secrets Of The Space (3:39)(   Читать дальше...   )Жанр: Trance, Euro HouseПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:741E56E46C4E871D8DCEC517C638A3147A959992
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360289   (960933) от 15.02.2020
-
-R-Tem - Voiceless (2004) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R-Tem - Intro (2:15)
-02. R-Tem - Voiceless (Original Mix) (7:32)
-03. R-Tem - Breathe (7:42)
-04. R-Tem - Sunrise (5:18)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2020BC6CCC9BF9ADEFBA6239199C75965BFEFF36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 277498   (961419) от 02.01.2011
-
-VA - Record Super Chart - TOP 100 (2010) [MP3|192-320 kbps]<House, Electro House, Trance, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_961419.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tiesto & Diplo feat. Girlicious - C'Mon Get Hood
-002. Yolanda Be Cool & Dcup - We No Speak Americano
-003. Pendulum - The Island (Part II)
-004. Dan Balan - Justify Sex
-005. Stromae - Alors On Dance (DJ Pomeha Remix)
-006. David Guetta Feat. Kid Cudi - Memories
-007. Swedish House Mafia Ft. Pharrell - One (Your Name)
-008. Lady Gaga - Alejandro (Bimbo Jones Mix)
-009. Duck Sauce - Barbra Streisand
-010. Kaskade feat. Haley - Dynasty (Dada Life Remix)(   Читать дальше...)Жанр: House, Electro House, Trance, DanceПродолжительность: 09:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC115A732B9AAF1DE3619E6DBE072B5CF9B27AA5
 ```
 
 

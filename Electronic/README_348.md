@@ -1,3 +1,138 @@
+###  Публикация: 659783   (690201) от 04.03.2022
+
+Bomfunk MC's - 2 Альбома (1999 - 2005) [FLAC|Lossless]<Breakbeat, House, Drum & Bass, Hip Hop>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Super Electric (3:53)
+ 02. Put Ya Hands Up (3:42)
+ 03. Where's The Party At (feat. Mighty 44) (4:05)
+ 04. Back To Back (feat. Z-MC) (4:09)(   Читать дальше...   )Жанр: Breakbeat, House, Drum & Bass, Hip HopПродолжительность: 01:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C110EFCA0E0F9A7BA3FA1D39701C5462B11E7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534960   (690514) от 04.03.2022
+
+Bob Moses - The Silence in Between (2022) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Deep House, Hardcore House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seen it Coming (4:13)
+ 02. Love Brand New (3:18)
+ 03. Never Ending (4:02)
+ 04. Time and Time Again (5:40)(   Читать дальше...   )Жанр: Electro House, Deep House, Hardcore HouseПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E5416AB4B67B03244DCE60082EF0D3F95D3C551
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534904   (690530) от 04.03.2022
+
+Blank & Jones - #WhatWeDoAtNight 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco, Indie Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beach (3:45)
+ 02. Storm (2:40)
+ 03. Lush (3:29)
+ 04. Equator (3:13)(   Читать дальше...   )Жанр: House, Nu Disco, Indie DanceПродолжительность: 00:26:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C31577BDA77F27692167F89A1CF1229A8EBAE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028452   (690654) от 22.06.2016
+
+VA - Ministry Of Sound - Chilled House Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sigala - Give Me Your Love (John Newman & Nile Rodgers-The Rooftop Boys remix) (4:15)
+02. Mike Posner - I Took A Pill In Ibiza (Seeb remix) (3:19)
+03. Gorgon City - All Four Walls (feat Vaults) (3:12)
+04. Years & Years - Desire (feat Tove Lo) (3:23)(   Читать дальше...   )Жанр: Chill HouseПродолжительность: 04:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EAE0D2AD04F5EA1F6A117FD485E3C9E35AB3ADF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028326   (690660) от 22.06.2016
+
+VA - Defected Presents: The Opening Party Ibiza 2016 (2016) [MP3|320 кб/с] <Deep House, Tech House, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various - Defected Presents the Opening Party Ibiza 2016 (Continuous Mix 1) [01:02:45]
+02. Various - Defected Presents the Opening Party Ibiza 2016 (Continuous Mix 2) [01:05:49]
+03. Lee Walker - Freak Like Me (DJ Deeon vs. Lee Walker Remix) [05:47]
+04. Flume - Never Be Like You (Disclosure Remix) [03:46](   Читать дальше...   )Жанр: Deep House, Tech House, HouseПродолжительность: 05:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:004FA2EAC2FC20F0D81F5EC000ACF928AE0CD4FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403576   (690694) от 20.08.2020
 
 Capsule Network - Discography 2 Releases (2018-2020) WéMè Records [FLAC|Lossless|WEB-DL|tracks] <IDM, Techno, Electro, Breaks, Ambient>
@@ -558,141 +693,6 @@ VA - Cool Girls: Urban Dance Downtempo Music (2019) [MP3|320 Kbps] <Downtempo, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5818D738296CB169FFB50A401233B83BDC1FF24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288857   (692111) от 13.03.2019
-
-VA - Tropical Chillout 2019 (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Sofa - Forever Walking (Night Emotions Mix) 6:16
-02. Da Jazz - On The Girl Of Bass (Kay Four Mix) 4:01
-03. Andrew Fulton - Absoluted Time (Deep City Mix) 4:10
-04. Lounge System - Blackfriars (Deep Night Mix) 5:56(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, Lounge, ElectronicaПродолжительность: 03:33:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99F055FF8A1FD462591EE791185A59C3EB1631B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288873   (692182) от 13.03.2019
-
-VA - Luxury Lounge (Special Selected Anthems) Vol.2 (2019) [MP3|320 Kbps] <Downtempo, Lounge, Electronica>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corrado Saija feat. Florent Campana - Amanda (Original Mix) 4:11
-02. Sphere - Weeds (Original Mix) 4:21
-03. Van - Familiar Person (Original Mix) 6:54
-04. Zuell - Olas De Sal (Original Mix) 6:19(   Читать дальше...   )Жанр: Downtempo, Lounge, ElectronicaПродолжительность: 03:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB8694D849B3A859DA3A4BA2C39E4E377D1A9511
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288833   (692184) от 13.03.2019
-
-Modd - Swallow's Nest (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/06. Swallow's Nest (5:28)
- 02/06. Ruskeala (5:23)
- 03/06. Paper Moon (5:58)
- 04/06. Swallow's Nest (Extended Mix) (8:01)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0649718BFE4A3CCB003F96AFB84D1B389E1FEFB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288864   (692187) от 13.03.2019
-
-VA - Into The Deep Melodic Vibes February (2019) [MP3|320 Kbps] <House, Deep House, Melodic House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Benttum - Renaissance (Original Mix) 8:08
-02. Andrew Shepherd - Deep In My Soul (Original Mix) 5:23
-03. Alberth - Seren (Original Mix) 6:16
-04. BeatQueche - The Piano Passion (Original Mix) 7:22(   Читать дальше...   )Жанр: House, Deep House, Melodic HouseПродолжительность: 02:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3E82025CDADA4BB046C1A124ED20676A4247104
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288845   (692203) от 13.03.2019
-
-VA - Sunset Lounge Bar Vol.2 (2019) [MP3|320 Kbps] <Downtempo, Lounge, Electronica>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glam Sam & His Combo - Free Your Body, Free Your Soul (Original Mix) 3:47
-02. Dee C'rell - The Fool And The Thief (Original Mix) 5:28
-03. Van - Enchantment Costa De La Luz (Original Mix) 7:08
-04. Johannes Huppertz - By The Way (Original Mix) 5:15(   Читать дальше...   )Жанр: Downtempo, Lounge, ElectronicaПродолжительность: 01:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13EDD830BC410B986F186ABBCDDB1C6C26E6F6A5
 ```
 
 

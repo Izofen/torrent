@@ -1,3 +1,138 @@
+###  Публикация: 1287811   (697762) от 10.03.2019
+
+VA - ASOT 900 After-Party @ Poema RAW, Utrecht (2019-02-24) [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697762.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Sixth Sense Live @ ASOT900 After Party, Poema RAW 24/02/19:
+01. Ace Da Brain - Time
+02. Chakra - Home (Above & Beyond Remix)
+03. Blank & Jones - Nightclubbing (Wippenberg remix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 04:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040D8136EE01A8D864DF91AEA09EDE46375FB31C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287990   (697764) от 10.03.2019
+
+U96 - Out Of Wilhelmsburg (2007) Centaurus [FLAC|Lossless|tracks + .cue] <Electronic, Trance, Euro House, Synthpop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. DJ Put On The Red Light (Feat. Das Bo) (Single Mix) (3:41)
+ 02. Underwater (3:38)
+ 03. Ist Das Mein Leben (3:58)
+ 04. Light Up My Life (3:49)(   Читать дальше...   )Жанр: Electronic, Trance, Euro House, SynthpopПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5DF22039FA3E778746CA51C10E1CB3443E88B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287748   (697769) от 10.03.2019
+
+VA - ASOT 900 Pre Party @ Poema RAW, Utrecht (2019-02-23) [MP3|256-320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697769.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. JD Love B2B Will Renville @ Elevation Audio Pres. ASOT 900 Pre-Party, Club Poema Utrecht, Netherlands 2019-02-23 (00:47:30):
+
+01. Sasha - Xpander (Intro)
+02. Terk Dawn - Barent Blue (Mongoto Remix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 05:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5F9BBB340D84B09A5015CA2D83FCD046FBB811A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288243   (697777) от 10.03.2019
+
+VA - Aerobic Dance Latino 2019 [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various Artists - Aerobic Dance Latino 2019 - 1 Hour Non Stop Music Mix For Aerobics, Step & Workout - (One Hour Continuous Mix)
+02. Luka J Master;Carlo M - Vem (feat. Regina Saraiva) (Sanny J Mix)
+03. Sapienza;Ruly Rodriguez - Asere K Bola (Andry J Remix)
+04. Luigi Pilo;Miky Vibes - Ando (Extended Mix)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE381CD243EFE194BBD93041AB808CC32BE31DF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288357   (697779) от 10.03.2019
+
+Moss Covered Technology - Southern Points (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697779.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	A Shared Sudden Sun 	4:45
+2 	West Of Seatown 	6:54
+3 	Coastal Light 	6:16
+4 	To Protect You 	5:08(   Читать дальше...   )Жанр: Electronic, Ambient, DroneПродолжительность: 00:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD829C29D014B0CC1D88FA4B50FEA4CEA668F332
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288225   (697863) от 10.03.2019
 
 VA - Markus Schulz & Arkham Knights - Global DJ Broadcast (2019) [MP3|320 Kbps] <Trance>
@@ -559,141 +694,6 @@ VA - Aly & Fila - Future Sound of Egypt 544 (2018) [MP3|320 Kbps] <Trance,Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C44EEDF96AEA9B2C8C0BBC6BB0D60AB4F65DC04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220877   (700660) от 21.04.2018
-
-VA - Ori Uplift & Ellez Ria - Uplifting Only 271 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FAN FAVORITE 254: AirLab7 & Javii Wind - Last Adventure (DreamLife Remix)
-02. RAM ft. Stine Grove - RAMore (Daniel Skyver Remix)
-03. Eric Senn - Osiris (Extended Mix)
-04. FAN FAVORITE 227: Derek Palmer & Cassandra Grey - Awake (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F09D9090F9EB9A760183A61F159B8F490EAE7DE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220869   (700668) от 21.04.2018
-
-VA - Markus Schulz - Global DJ Broadcast - In Bloom (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & Emma Hewitt - Safe from Harm (Markus Schulz In Bloom Mix)
-02. Protoculture vs. Delacey - In the Air of Manticore (Markus Schulz Mashup)
-03. Dave Neven & Ellie White - Try for Me
-04. Gareth Emery & Standerwick featuring Haliene - Saving Light(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B75310DE77D4D4302C957BB9AAB889DDF70970A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220919   (700672) от 21.04.2018
-
-VA - We Are Trance April (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swen Van Der Endt - Gisborne (Extended Mix)
-02. Cosmic Gate - Ar (Extended Mix)
-03. Remarq - Desiderium (Extended Mix)
-04. Julie Thompson - Only You (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:440C3DCA40998E88AC643DD4EEE3766B767E0797
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132432   (701150) от 09.05.2017
-
-VA - Sexy Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kuba - You Left Me At A Henge  5:47
-02.  Peter Pearson - A Walk In The Park  3:39
-03.  Ruhr Chill Factory - Desperado  5:09
-04.  Vitali And His Lounge Orchestra - Chilling Days  6:05(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC81C3038EEDC78D7E72AEBFFCE0E9A245089A74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132532   (701158) от 09.05.2017
-
-VA - Ultimate Chillout Mix (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tobu - My Own Paradise  3:12
-02.  Vexento - Floating With You  3:42
-03.  Dustin Miles - Be Alright  3:10
-04.  Janji - Sunshade (feat. T.R.)  3:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:05:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE3ABDB31B86E65BC7031521DD81CDC7B488068
 ```
 
 

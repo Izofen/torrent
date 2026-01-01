@@ -1,3 +1,30 @@
+###  Публикация: 1458632   (1023862) от 29.03.2021
+
+Snake Bite Whisky - Black Candy (2021) [MP3|320 Kbps] <Glam Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Thunderbird [00:02:27]
+02 - Raised in Hell [00:03:47]
+03 - Creep Show [00:03:43]
+04 - Choke [00:03:41](   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:223BD0DE77A8326B291A22921DD92B2636F5E660
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458142   (1024034) от 28.03.2021
 
 The Dirty Mojo Blues Band - It Is What It Is (2021) [MP3|320 Kbps] <Blues Rock>
@@ -668,33 +695,6 @@ Arc Angel - Arc Angel (1983) Reissue, 1990, Portrait [MP3|320 Kbps] <AOR, Melodi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E39E46C2A742DDA58D58CE4D3DBD32C3527DC3CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453122   (1027237) от 09.03.2021
-
-Benjamin Orr - The Lace (1986) [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Hot to Stop (04:20)
-02. In Circles (04:32)
-03. Stay the Night (04:27)
-04. Skyline (04:10)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C8C6B534582BE23DDE77B13F004C176B295C529
 ```
 
 

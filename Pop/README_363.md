@@ -1,3 +1,165 @@
+###  Публикация: 1438466   (1041146) от 08.01.2021
+
+Seemone - Seemone (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Vocal, Instrumental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brun de Folie (02:52)
+02. La Belle Et la Bête (03:03)
+03. Parle-moi (03:12)
+04. Coeur de Pierre (03:21)(   Читать дальше...   )Жанр: Pop, Vocal, InstrumentalПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA53B042E99BB4DA8038776C5071DBC262D588D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438310   (1041149) от 08.01.2021
+
+Skin - Hot Skin (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let The Music (Move You On) (4:15)
+02. Lady Oh Lady (3:50)
+03. Baby Baby (3:47)
+04. Something Called Love (5:38)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13604A91CEE0CF7DCB2FD78724B8D0BD83C57856
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611419   (1041303) от 11.02.2023
+
+VA - Romantic Collection. Magic Blues (2000) [OGG Vorbis|480 Kbps] <Blues>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Blue–	Gold Rain
+02. Beth Hard Band–	Am I The One
+03. Rhythm Kings–	Bad To The Bone
+04. Smokin' Joe Kubek–	Walk On(   Читать дальше...   )Жанр: BluesПродолжительность: 01:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA511D9358ACA7F5FBED40E1EB6209E765282E8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611196   (1041307) от 11.02.2023
+
+VA - The Best 70s Album In The World...Ever! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More Than A Woman (From "Saturday Night Fever" Soundtrack) [00:03:16]
+02. You're The One That I Want (From “Grease”) [00:02:49]
+03. Jungle Boogie [00:03:05]
+04. Dancing Queen [00:03:51](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CF564C4D6FF13CDC6A042BB66D923513769A94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611191   (1041312) от 11.02.2023
+
+VA - The Best 70s Album In The World...Ever! (2023) [Mp3|320||tracks] <Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bee Gees - More Than A Woman (From 'Saturday Night Fever' Soundtrack) [00:03:16]
+02. John Travolta, Olivia Newton-John - You're The One That I Want (From “Grease”) [00:02:49]
+03. Kool & The Gang - Jungle Boogie [00:03:05]
+04. ABBA - Dancing Queen [00:03:51](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E97A300FF47CF9093EFCD6958C57772C794D596D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611185   (1041322) от 11.02.2023
+
+Ennio Morricone - Love Songs & Romantic Scores (2023) [MP3|320 Kbps] <Film, Bandes originales de films>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. La Califfa (Main Theme) [00:02:37]
+02. D'amore si vive [00:03:00]
+03. Love Theme (Version 2) [00:02:48](   Читать дальше...   )Жанр: Film, Bandes originales de filmsПродолжительность: 01:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA137CBE83B4C4FC6934C0D0235504EB4A7960F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610996   (1041325) от 11.02.2023
 
 VA - Romantic Collection. Tet-A-Tet (1999) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
@@ -534,170 +696,6 @@ VA - Ciao Italia (1997) 3CD Box Set (1997) [MP3|320 Kbps] <Рор>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D091D9F48D34FB9F9767BE5343438CB163A451A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609367   (1043226) от 03.02.2023
-
-Shania Twain - Queen Of Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giddy Up!
-02. Brand New
-03. Waking Up Dreaming
-04. Best Friend(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1AFF50B5B8958B1031FCE9994CEBE603ED91966
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609421   (1043239) от 03.02.2023
-
-Illona Staller (Cicciolina) - Illona Staller (1979) Reissue CD, 2000, Sequel Records [MP3|320 Kbps] <Europop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Was Made For Dancin' (6:14)
-02. Pane Marmellata E Me (3:59)
-03. Labbra (4:08)
-04. Benihana (4:23)(   Читать дальше...   )Жанр: Europop, DiscoПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A4B640E14028FFAFE5F1145754188C918829C72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609182   (1043314) от 02.02.2023
-
-Sarah McCoy - High Priestess (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sarah McCoy провела большую часть своей жизни, играя на пианино и исполняя глубокие, лиричные, надрывные песни в барах Нового Орлеана. Внутренний хаос этих забегаловок соответствовал той жизни, которую Сара вела с двадцатилетнего возраста.
-В 33 года её заприметил известный канадский пианист Чили Гонзалес и жизнь Сары кардинально изменилась.
-Сейчас ей аплодируют элитные (   Читать дальше...   )01. Weaponize Me
-02. Go Blind
-03. Sometimes You Lose
-04. Take It All(   Читать дальше...   )Жанр: Alternative Pop, BluesПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C648377C9FE1ED6DCDA179A2758C6A380D08EE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608974   (1043428) от 01.02.2023
-
-Майя Кристалинская - Звёзды советской эстрады Хиты 60-70х (2009) [MP3|320 Kbps] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты не печалься
-02. Нежность
-03. Садовое кольцо
-04. Ненаглядный мой(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C8E642515A93D51E08B1C746A220BEDBC640A00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608977   (1043448) от 01.02.2023
-
-Тамара Миансарова - Золотой век русской эстрады (2003) [MP3|320 Kbps] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Память
-02. Берёза
-03. Мой смешной Гаргантюа
-04. Бабушка, научи меня танцевать(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDDCC4A29E28DB2C3D1F8D58133D061168D6997
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608736   (1043497) от 31.01.2023
-
-A-Teens - The ABBA Generation (Remix) (2001) Reissue, 2021, Universal Music AB [FLAC|Lossless|WEB-DL|tracks] <Euro-House, Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Queen (Pierre J's Main Radio Mix) (3:28)
- 02. Mamma Mia (The Bold & The Beautiful Glamourmix Edit) (3:46)
- 03. Super Trouper (W.I.P Remix) (6:11)
- 04. Mamma Mia (Guiseppe Remix) (5:37)(   Читать дальше...   )Жанр: Euro-House, EurodanceПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC44CDF3AC93EF871E88C25DBADB8B5D51B55F3
 ```
 
 

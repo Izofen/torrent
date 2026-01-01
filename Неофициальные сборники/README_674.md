@@ -1,3 +1,30 @@
+###  Публикация: 1451685   (1028208) от 03.03.2021
+
+VA - Music News vol.77 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Niti Dila - Поцелуи (Remix) (03:02)
+ 02. Alina Rovnich - Не Твоя (02:39)
+ 03. ТУ-134 - Только Ты (03:54)
+ 04. AYA - Rising (03:01)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 03:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C43AD87B3B71F1287916A801A0F833FC65A92F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451526   (1028210) от 03.03.2021
 
 VA - National Pop Dance Music (Vol.13) (2021) [MP3|320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ The Rolling Stones - Best of the Best (1965-1973) Remaster SMRP, De-Noised, 2020
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ABB13B3104758D52627CA7691DDE1E999F51006
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450175   (1029183) от 25.02.2021
-
-VA - Loud Hits Of The 90s (2021) [MP3|320 Kbps] <Pop, Dance, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029183.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Matchbox Twenty - 3am
-002. Champs United - World In Motion
-003. Countdown Singers - Live For Loving You
-004. Graham Blvd - Everybody Plays The Fool(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 14:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3A26E03E3F0F5B0D865340DFFB940FCD90443EF
 ```
 
 

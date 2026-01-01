@@ -1,3 +1,137 @@
+###  Публикация: 1197711   (812132) от 09.01.2018
+
+VA - Best Of Trancer 2017 (Mixed by Nick Turner) (2018) [MP3|320 Kbps] <Trance, Orchestral Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  JosephAli  -  New World (Etasonic Remix)  8:30
+02.  AirLab7 & Andrew Wu  -  Be Yourself (Original Mix)  7:26
+03.  Dreamlife  -  Walk Alone (Original Mix)  7:11
+04.  Alternate High  -  Invisible Walls (Original Mix)  7:50(   Читать дальше...   )Жанр: Trance, Orchestral TranceПродолжительность: 01:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79530C1A4FA8462BC3A5CC439C624232104A7CB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197496   (812134) от 09.01.2018
+
+VA - Spring Tube Vocal Themes, Vol.12 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zatonsky, Aves Volare & Alula - Saw The Way (Original Mix) (06:25)
+02. Mysteria (UK) & Nick Sinckler - Turn (Nebogitel remix) (06:15)
+03. Phrakture & Maria Carmela - Curve Sound (Da Funk's Recovery dub) (04:51)
+04. Mistol Team & Eli Nadra - Fate (Original Mix) (05:55)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2326A8F5C42939F418276EB2C0529C37956D042
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198067   (812135) от 09.01.2018
+
+Drumcell - Collection 7 Releases (2012-2016) CLR, Droid Recordings [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empathy Box (Hypoxia Mix) (06:24)
+ 02. Conflict Divide (05:39)
+ 03. Terminus Effect (06:29)Тип издания: CD, WEBЖанр: TechnoПродолжительность: 00:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6CEE8F97B4B7EC30002BC1338B5E60A71A1D89C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197685   (812136) от 09.01.2018
+
+VA - Dark Sessions 043 (Mixed by Chris Hampshire) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  G8  -  Babayaga (Original Mix)  7:00
+02.  Kyfu  -  Vitamins (Original Mix)  7:07
+03.  John Askew  -  Battery Acid (Zach Zlov Haunted House Remix)  6:35
+04.  Oberon  -  Dangrous Journey (Oberon's Underground Mix)  7:26(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32FCD6D19520DB29DD4ED4F25F6F3685F4092FE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197594   (812137) от 09.01.2018
+
+VA - The Best Of Silent Shore Records 2017 (2018) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AirLab7 & Allen Belg – Kyla (07:06)
+02. Space Raven & Madwave – What We Used To Be (SSR300 Anthem) (07:40)
+03. Nago – Me & You (08:03)
+04. Mat Coste – Flight 527 (07:04)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD9F2BBCB166EC4FB5C2CEAAB098388D1A7DE80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008902   (812176) от 20.04.2016
 
 Yuriy From Russia - Distant Love (2016) [MP3|320 кб/с] <Progressive House>
@@ -566,141 +700,6 @@ VA - Beautiful Lounge Collection Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9A317918D01B53D9CE713A994AA2B18BFC4FA28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008317   (815508) от 18.04.2016
-
-David Guetta Feat. Nicki Minaj, Bebe Rexha & Afrojack - Hey Mama (2015) Remixes EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Mama (Afrojack Remix) (3:18)
-02. Hey Mama (Glowinthedark Remix) (4:16)
-03. Hey Mama (Noodles Remix) (5:04)
-04. Hey Mama (Modern Machines Remix) (4:13)(   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 00:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50BC93667174E3AAD852C808A235C17CED199AB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117595   (815624) от 24.03.2017
-
-VA - Rituals Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ignat Shamko - Ice City  5:57
-02.  Redlounge Orchestra - Rigby Reardon  4:13
-03.  Foundland - Strange Event (Nothern Sky)  5:24
-04.  Baque In Beat - Working On  6:00(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2BE6E10A5522412033A5F8300BD5183CD368D81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117799   (815628) от 24.03.2017
-
-VA - Most Played Tracks (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  John Slater - Boogie Down (Original Mix)  4:59
-02.  Anbargo - Anbargo (Original Mix)  5:26
-03.  Lykov - I Have A Choice (Original Mix)  4:40
-04.  Plastik Night - Bono (Original Mix)  4:15(   Читать дальше...   )Жанр: HouseПродолжительность: 01:24:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09BC9F1357A29965BF1757293069666C1DF79C42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008182   (815826) от 18.04.2016
-
-The Disco Biscuits - Dominican Holidaze, Punta Ca (2015) Live [FLAC|Lossless|WEB-DL|tracks] <Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:44)
-01. I Remember When (7:55)
-02. Resurrection (12:16)
-03. Crickets (16:31)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8298CE55397ED3BC1671DD23E2D81954DB34248A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008413   (815827) от 18.04.2016
-
-VA - Breaks 4 Humanity Vol.2 (2016) [MP3|320 кб/с] <Drum & Bass, Breaks>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abstract Illusion - Refuge  (05:26)
-02. BBeta - LSB (04:42)
-03. Blue Digital Orchestra - People Come Together (03:54)
-04. CIMA - Wild One (03:56)(   Читать дальше...   )Жанр: Drum & Bass, BreaksПродолжительность: 01:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF9BDE6539E238595E6E06B3B892FF4968CDFD93
 ```
 
 

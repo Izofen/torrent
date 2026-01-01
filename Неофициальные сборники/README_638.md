@@ -1,3 +1,30 @@
+###  Публикация: 1357941   (970466) от 06.02.2020
+
+VA - 100 Greatest Guitar Solos (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970466.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Van Halen - Eruption
+002. Jimi Hendrix - All Along the Watchtower
+003. AC/DC - Thunderstruck
+004. Thin Lizzy - The Boys Are Back In Town(   Читать дальше...   )Жанр: RockПродолжительность: 08:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721DD14AD990EDE89C3A5471961BB5B20573DD96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975885   (970472) от 16.01.2016
 
 VA - Beatport Top 100 (15.01.2016) [MP3|320 кб/с] <House, Electro, Progressive, Deep House, Tech House, Techno>
@@ -674,33 +701,6 @@ VA - Beatport Electro House: Pack #06 (2020) [MP3|320 Kbps] <Electro House, Club
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59D34DE0794DE06BFBDA81DBF5C330BFD9EC989F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975732   (972033) от 15.01.2016
-
-VA - Beatport Best Of 2015 Top 100 (2016) [MP3|320 кб/с] <Tech House, Deep House, House, Indie Dance / Nu Disco, Electro, Progressive, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972033.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kollektiv Turmstrasse - Sorry I Am Late 08:10
-002. Technasia, Green Velvet - Suga 06:42
-003. Sugarstarr ft. Alexander - Hey Sunshine (Antonio Giacca Remix) 06:44
-004. Gregory Porter - Liquid Spirit (Claptone Remix) 06:25(   Читать дальше...   )Жанр: Tech House, Deep House, House, Indie Dance / Nu Disco, Electro, Progressive, TechnoПродолжительность: 09:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B72CAE4BF58EEF35629074E9F0F6A66BE5C20B2E
 ```
 
 

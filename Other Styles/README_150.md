@@ -1,3 +1,213 @@
+###  Публикация: 647763   (854568) от 24.04.2013
+
+Koji Kondo - The Legend of Zelda Ocarina of Time - Hyrule Symphony (1999) [FLAC|Lossless]<Game, Instrumental, Symphony>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Title - 04:03
+02. Kokiri Forest - 02:10
+03. Hyrule Field - 03:47
+04. Hyrule Castle - 02:10
+05. Lon Lon Ranch - 03:26
+06. Kakariko Village - 03:06
+07. Goron City - 02:58
+08. Zora's Domain - 03:41
+09. Gerudo Valley - 04:33
+10. Ganondorf - 01:06(   Читать дальше...   )Жанр: Game, Instrumental, SymphonyПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377019   (854588) от 20.04.2020
+
+Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack, Metal, Electro>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854588.jpg" />
+</div>
+
+
+###  Подробнее
+
+|05:02| 01. Mick Gordon, Chad Mossholder - Hell On Earth
+|05:33| 02. Mick Gordon - Cultist Base
+|03:37| 03. Mick Gordon, Chad Mossholder - Blood Harvesting
+|07:51| 04. Mick Gordon, Chad Mossholder - Soul Extraction(   Читать дальше...   )Жанр: Soundtrack, Score, Industrial Metal, Electro-Industrial, Dark AmbientПродолжительность: 04:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A2B25F2D9BEF4B8559464E2D6A8DFED6AF8299
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550721   (854638) от 23.03.2014
+
+John Tesh - 4 альбома (1998 - 2002) [MP3|320 кб/с]<New age, Instrumental, Orchestral, OST, Easy listening>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+CD1 (00:55:43):
+
+(4:02) 01. Book Of Days
+(4:07) 02. Desert Rose
+(4:40) 03. This I Promise You
+(4:27) 04. Can't Live A Day
+(3:48) 05. I Do (Cherish You)
+(3:25) 06. Marching Season
+(4:14) 07. I Knew I Loved You
+(3:19) 08. Angel Eyes(   Читать дальше...   )Жанр: New age, Instrumental, Orchestral, OST, Easy listeningПродолжительность: 01:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881F7C7B7CE0A5FE533D6EAE250A127083BE9B50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 304458   (854654) от 08.03.2011
+
+John Murphy - 28 недель спустя / 28 Weeks Later (2007) [MP3|320 kbps]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854654.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cottage Attack (2:35)
+2. 28 Theme (3:32)
+3. Welcome To Britain (2:25)
+4. Firebombing London (2:35)
+5. London Deserted (2:24)
+6. Kiss Of Death (2:53)
+7. Scooter Through London (3:18)
+8. Going Home (2:38)
+9. Alice Is Alive! (2:23)
+10. Don Abandons Alice (2:59)(   Читать дальше...)Жанр: ScoreПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC516EB5E5E5C6C9B37353A5A53DB0A3F9ADFCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377017   (854699) от 20.04.2020
+
+Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack, Metal, Electro>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854699.jpg" />
+</div>
+
+
+###  Подробнее
+
+|05:02| 01. Mick Gordon, Chad Mossholder - Hell On Earth
+|05:33| 02. Mick Gordon - Cultist Base
+|03:37| 03. Mick Gordon, Chad Mossholder - Blood Harvesting
+|07:51| 04. Mick Gordon, Chad Mossholder - Soul Extraction(   Читать дальше...   )Жанр: Soundtrack, Score, Industrial Metal, Electro-Industrial, Dark AmbientПродолжительность: 04:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:443960AF57B54091BD1A49E733305DB1EDABB31C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 191150   (854710) от 10.04.2010
+
+Phurpa (2001-2009) - 6 albums (Discography) [MP3|128-320 kbps] <Tibetian Ritual Music of Bon Tradition, Ritual Drone Ambient>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Master (55:19)Жанр: Tibetian Ritual Music of Bon Tradition, Ritual Drone AmbientПродолжительность: 00:55:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 189999   (854726) от 10.04.2010
+
+Henry Mancini - The Pink Panther (1963) [MP3|320 kbps]<Jazz/Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854726.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Pink Panther Theme 2:40
+2. It Had Better Be Tonight (Instrumental) 1:48
+3. Royal Blue 3:13
+4. Champagne And Quail 2:48
+5. The Village Inn 2:39
+6. The Tiber Twist 2:52
+7. It Had Better Be Tonight (Vocal) 2:00
+8. Cortina 1:57
+9. The Lonely Princess 2:31
+10. Something For Sellers 2:52(   Читать дальше...   )Жанр: Jazz/SoundtrackПродолжительность: 00:29:33
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377018   (854787) от 20.04.2020
 
 Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Metal, Electro>
@@ -546,224 +756,6 @@ Junkie XL - 300: Rise Of An Empire / 300 спартанцев: Расцвет и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31813A55281286E2C1D07A3D62EA28D697EA0B7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647264   (858447) от 22.04.2013
-
-Claude Ciari - Classic Guitar Best - 2 (2012) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Tombe la neige
-02. Sans toi ma mie
-03. Omoide no nagisa
-04. Blue Chateau
-05. Wakareta Hitoto
-06. Kimi to itsumademo
-07. Wakamono michi
-08. Giniro no michi
-09. Yogiriyo konyamo arigatou
-10. Kimi koso waga inochi(   Читать дальше...   )Жанр: Instrumental
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BABF7FC56FBA76F6AED4DFFA72D4146D11B46F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768025   (858589) от 21.03.2014
-
-Ah Nee Mah (Diane & David Arkenstone) - Spirit of the Canyon (2001) [FLAC|Lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Light from the East (5:44)
-02. Voices of the Wind (5:49)
-03. Echoes of Time (4:38)
-04. River Journey (5:42)
-05. Ancient Spirits (5:40)
-06. Stormlight (6:17)
-07. Rainbow Canyon (3:41)
-08. Firefall (6:23)
-09. Night Voices (5:15)
-10. Canyon Dreams (5:48)Жанр: New AgeПродолжительность: 00:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64B080562B11B696C07A18817C004FA562E6ECD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647274   (858698) от 22.04.2013
-
-Владимир Пресняков (ст.) - Вспоминая Арно (2CD) (2006) [MP3|~225 кб/с (V1)]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-CD1
-1. Intro
-2. Не спеши
-3. Голубая тайга
-4. Грусть и радость
-5. Ереванская красавица
-6. Доброта
-7. Свадьба
-8. В нежданный час
-9. Год любви(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB6EBBFECB50F0F345B3D3A464C95F35AC9575C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768389   (858710) от 21.03.2014
-
-Johnny Cash - Out Among the Stars (2014) [MP3|192 кб/с]<Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(3:04) 01. Out Among The Stars
-(2:45) 02. Baby Ride Easy (With June Carter)
-(3:12) 03. She Used To Love Me A Lot
-(2:51) 04. After All
-(3:11) 05. I'm Movin' On (With Waylon Jennings)
-(3:07) 06. If I Told You Who It Was
-(3:19) 07. Call Your Mother
-(3:02) 08. I Drove Her Out Of My Mind
-(3:29) 09. Tennessee
-(2:43) 10. Rock And Roll Shoes(   Читать дальше...   )Жанр: CountryПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2928DAF8F21B19AB81B014BE87B834B05A20E09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768463   (858711) от 21.03.2014
-
-Barzin - To Live Alone In That Long Summer (2014) [FLAC|Lossless]<Pop, Folk, World, & Country>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. All The While (03:42)
- 02. Without Your Light (03:07)
- 03. In The Dark You Can Love This Place (04:11)
- 04. Stealing Beauty (03:55)
- 05. Fake It 'Til You Make It (03:52)
- 06. In The Morning (02:57)
- 07. You Were Made For All Of This (03:14)
- 08. Lazy Summer (04:29)
- 09. It's Hard To Love Blindly (03:18)Жанр: Pop, Folk, World, & CountryПродолжительность: 00:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD03521AD11D45F5538080F1EA4CF15638DC45A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000377   (858865) от 25.03.2016
-
-Floex (Tomas Dvorak) - Samorost 3 (2016) [FLAC|Lossless|WEB-DL] <Soundtrack, Downtempo, Jazz, Ambient>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858865.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Samorost 3 Main Theme 07:56
-2.Going On An Adventure 04:02
-3.Mushroom Picker Dance 01:49
-4.Behind The Cosmic Curtain 02:28(   Читать дальше...   )Жанр: Soundtrack, Downtempo, Jazz, AmbientПродолжительность: 01:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AE444844DFEBB9618F245EA089E2FA3545A4F73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109311   (859007) от 27.02.2017
-
-E.S. Posthumus - Unearthed (2001) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antissa
-02. Tikal
-03. Harappa
-04. Ulaid(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F479CB6BCEFDF9387459139DDBC843AE63645C86
 ```
 
 

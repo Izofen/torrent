@@ -1,3 +1,166 @@
+###  Публикация: 1093880   (932272) от 16.01.2017
+
+Red Box - The Circle & The Square (1986) Reissue, 2008, Cherry Pop [APE|Lossless|image + .cue] <Alternative Pop, New Wave, World Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932272.jpg" />
+</div>
+
+
+###  Подробнее
+
+На мой взгляд (и не только) шедевр 80-ых во многом опередивший своё время и, возможно поэтому, недостаточно оцененный современниками.01. For America
+02. Heart Of The Sun
+03. Billy's Line
+04. Bantu(   Читать дальше...   )Жанр: Alternative Pop, New Wave, Choral, Orchestral, Art Rock, World MusicПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BBC1C8608F6F00960313B1202057FAADD2B5CAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093836   (932366) от 16.01.2017
+
+VA - The Disco Sessions (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discotron - Disco Power (Original Mix) 04:49
+02. Audio Jacker - You Say (Original Mix) 06:17
+03. Boogie Freaks - The Mean Green (Original Mix) 07:02
+04. Discotron - I Got This (Original Mix) 06:13(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD95F75A2DE4F71C38F1899CC5E4E520E76A6F84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986008   (932474) от 13.02.2016
+
+Ирина Климова - Я так устала ждать.. (1998) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я так устала ждать...
+02. Детский сон
+03. Ветер любви
+04. Далеко(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB3CEE83B1963325EC6742045A3C635C2D6B5E42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985864   (932522) от 13.02.2016
+
+Ronan Keating - Time of My Life (2016) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Love You (03:15)
+02. As Long as We're in Love (03:01)
+03. Breathe (03:07)
+04. She Knows Me (03:16)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44BD138989DA6331DF0BB0F177728CDA5D586D53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985641   (932531) от 13.02.2016
+
+VA - EGB: La musica de una generacion (2014) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Bowie - Let's Dance (3:58)
+02. Joe Cocker - You Can Leave Your Hat On (4:09)
+03. Gloria Gaynor - I Will Survive (3:43)
+04. Wham! - Wake Me Up Before You Go Go (3:47)(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 01:02:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A11C62BD53BB7CF10E70D207627D7983F1ECFB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 861850   (933046) от 21.01.2015
+
+VA - GRAMMY 2015 Nominees Album (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933046.jpg" />
+</div>
+
+
+###  Подробнее
+
+По традиции музыкальная академия в начале года выпускает диск с треками номинантов на премию Гремми.
+Grammy — музыкальная премия Американской академии звукозаписи, была учреждена Ассоциацией звукозаписывающих компаний США 14 марта 1958 года. В этом году премия будет присуждаться по 78 номинациям.01. Taylor Swift - Shake It Off  (3:40)
+02. Iggy Azalea ft. Charli XCX - Fancy  (3:18)
+03. Ed Sheeran - Sing  (3:54)
+04. Ariana Grande ft. Iggy Azalea - Problem  (3:14)(   Читать дальше...   )Жанр: Pop, MusicПродолжительность: 01:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A993C4EC3367F5C8ABE459ED64E69B365E214E1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364808   (933410) от 05.03.2020
 
 Alex Christensen & The Berlin Orchestra - Classical 90s Dance 3 (2019) [FLAC|Lossless|tracks + .cue] <Modern Classical, Classical, Eurodance, Trance, Ambient>
@@ -529,181 +692,6 @@ F.R. David - 5 Альбомов (1982-2007) [FLAC|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD88E16CC0125EB8DA6B63D8BBDBBAA2140F63AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284962   (935864) от 20.01.2011
-
-Silent Circle - Hits & More (2010) [MP3|320 kbps]<Disco, Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_935864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop The Rain In The Night (Maxi Version) (05:39)
-02. Touch In The Night (Original Radio Version) (03:43)
-03. I'm Your Believer (Maxi Version) (05:48)
-04. Highway Driver (04:28)
-05. Forget The Stranger (Remix) (05:03)
-06. Anywhere Tonight (03:21)
-07. Love Is Just A Word (Ragga Maxi Mix) (05:50)
-08. Shy Girl (03:40)
-09. Oh Don't Lose Your Heart (05:54)
-10. Hide Away - Man Is Coming (Special Maxi Mix) (05:14)(   Читать дальше...   )Жанр: Disco, Dance, PopПродолжительность: 01:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:478FD08F5C1266BD8B59118FF0B64574CC778C6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364500   (936301) от 03.03.2020
-
-Владимир Маркин - Мои лучшие сбережения. Выпуски 3 и 4 (2008-2009) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тополя
-02. Авиатор
-03. Колыбельная
-04. От зари до зари(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06CBDDB9A4B779A2433C34AFC5F915B23B2C513E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284435   (936803) от 19.01.2011
-
-Профессор Лебединский - 4 Альбома (1997 - 2007) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор Лебединский (Алексей Игоревич Лебединский) - певец, композитор, фотохудожник и артист. Говорят, что вызывая такси (не будучи ещё столь известным) он представлялся как Профессор Лебединский - отсюда и псевдоним.
-Сочинять начал, ещё учясь в средней школе. В 1996 году, после выхода собственной песни «Я убью тебя, лодочник» и совместного с группой «Русский (   Читать дальше...   )Альбомы:
-1997 - Хеллоу-Гудбай
-1998 - Смеяться Или Плакать
-2000 - Танцы-Шманцы, Кныш И Смородина(   Читать дальше...   )Жанр: PopПродолжительность: 03:25:58
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 283856   (936958) от 19.01.2011
-
-VA - Italo Disco Hits (collectors edition) vol. 1, vol. 2 (2010) [FLAC|Lossless]<Italo Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Jimmy & Susy - Come Back
-02. - Beat Band - Dancer Now
-03. - Mark Tower - Fall In Love
-04. - Tom Spencer - Ferrary
-05. - Garland - Heartbeat
-06. - Blue Russel - I Wanne Fly Away
-07. - Lala - Johnny
-08. - Paul Faber - Only One
-09. - Scorta - Pertini Dance
-10. - Laser Cowboys - The Final Conflict(   Читать дальше...)Жанр: Italo DiscoПродолжительность: 01:14:43
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092891   (937126) от 13.01.2017
-
-VA - White Dance: Winter (2017) [MP3|320 Kbps] <Club, Future House, Vocal, Nu Disco, Tropical>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep System - I Need You (Extended Mix) 04:32
-02. Dyana Dyà Shkendije - Paper Maché (Radio Mix) 02:49
-03. Joanna Rays - Close To Me (Lesamoor Deep House Remix) 05:20
-04. Dom Tufaro And Louis Inglese - Brand New Life (Dj Cheech Remix) (Feat. Tamara Wallace) 04:15(   Читать дальше...   )Жанр: Club, Future House, Vocal, Nu Disco, TropicalПродолжительность: 02:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7671247EAE01F30320526793ACD17B0CD551D4F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984483   (937151) от 10.02.2016
-
-Eric Serra - RXRA (1998) [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Howl [06:16]
-02. I Wanna Get Out Of Here [04:38]
-03. Thank Your God [03:42]
-04. Anybody Hello [07:11](   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AE14C641D8904BE5B0DDD6FD2F617F06ABE42C8
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1395154   (757118) от 09.07.2020
+
+Monolock - Best Of RELOOPED (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757118.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Om Trayam Bakam (8:05)
+2. Reprogram Your Brain (8:08)
+3. Age Of A New Frontier (7:21)
+4. Music Modulation (9:59)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1672C5297D43157AE0273D75B8D2375C5A7EE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395149   (757181) от 09.07.2020
+
+Heisenberg - Thoughts (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757181.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Heisenberg; Audio Vision - Thoughts (6:30)
+2. Heisenberg; Cabal - Imagination (6:56)
+3. Alien Encoding (7:25)
+4. Consciousness (8:04)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:13:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:135B581D8848AA1AAA4F032F15921B9C9839FB2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018133   (757459) от 19.05.2016
+
+VA - Chillout Top 100 - Best And Hits of Relaxation Chillout Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamans - Reach Heavens (Chillout Mix) [04:33]
+02. Seven24 - The Journey (Chris Wonderful Remix) [03:42]
+03. Cj RcM - Illumination (Chillout Mix) [04:27]
+04. Soulalive - After Sun (Chillout Mix) [06:25](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A821415B1160F494F7BF5B5F779967E9C9049514
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018144   (757562) от 19.05.2016
+
+VA - Coffee Lounge Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skendo - Romantic Beach Dinner [03:04]
+02. Mari Billa - Kids of the Moon [03:01]
+03. Rosita - Back to Black [03:59]
+04. Maurizio Piacente - You and Me [03:45](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B7CC05360891DCFE66527E02EA77BF3D7D35D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018217   (757629) от 19.05.2016
+
+Tripswitch - Vagabond (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way Home (08:45)
+02. Divine Falsehood (08:33)
+03. Vagaries (07:06)
+04. Glass Heart (08:14)(   Читать дальше...   )Жанр: Progressive Trance, Progressive HouseПродолжительность: 01:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D1CCF7FC0598A4A05A78FB8E683457C6A2FB166
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018139   (757730) от 19.05.2016
 
 VA - Chilling Sunset Island (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -560,141 +695,6 @@ Depeche Mode - Live Spirits Soundtrack (2020) [MP3|320 Kbps] <Alt.Rock, Synth Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:586A39AE1E680DCF7DFF96C4ABC1FC9E0C0EE507
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394827   (759972) от 07.07.2020
-
-VA - Eclipse - A Journey Of Permanence & Impermanence (1998) Twisted Records [FLAC|Lossless|tracks+.cue] <Psychill, Dub, Tribal, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shpongle - ...And The Day Turned To Night (20:30)
- 02. Walter Ego - Dubstuff (06:27)
- 03. Anubis - Invocation (08:19)
- 04. Subkha - Equinox (06:55)(   Читать дальше...   )Жанр: Psychill, Dub, Tribal, Downtempo, AmbientПродолжительность: 01:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8138D8E3CFB140F1E813B1B2185E1B87BDA86447
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215249   (760097) от 25.03.2018
-
-VA - Playa De Oro (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Rostej  -  Hidden Path (Original Mix)  4:27
-02.  Alex Lead  -  Witchcraft (Original Mix)  4:49
-03.  Seven24  -  Snow (Original Mix)  3:40
-04.  Soty  -  Butterflies (Original Mix)  4:17(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E232EA3068B2DABC02E21E4773B62D05BE9F9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394900   (760394) от 07.07.2020
-
-VA - Sagittarius Dreams (Compiled by Prometheya) (2020) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Psychill>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moai System - Winter Tale (06:10)
- 02. Blue Lunar Monkey - The Music Of The Future (07:01)
- 03. Sundial Aeon - Mirage Of Travelling Light (Unusual Cosmic Process Remix) (07:45)
- 04. Jedidiah - Hiumikho (06:45)(   Читать дальше...   )Жанр: Psybient, Downtempo, PsychillПродолжительность: 01:20:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9E1C41550AD56A81ADCF54EC1FF70EFE60C924
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092106   (760432) от 03.02.2019
-
-Auditory Canvas - Discography 11 Releases (2007-2014) Summer Rain Recordings [FLAC|Lossless|WEB|tracks] <IDM, Breakbeat, Downtempo, Glitch, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forgive (04:20)
- 02. Entwine (06:25)
- 03. Tides (04:11)
- 04. Resolution (04:15)(   Читать дальше...   )Тип издания: WEB (16/24Bit)Жанр: IDM, Breakbeat, Downtempo, Glitch, Ambient •Продолжительность: 00:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3660F8C51ACD68A6BB6A7060C3A5527F653B6906
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280394   (760434) от 03.02.2019
-
-Ladytron - Ladytron (2019) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Until the Fire (05:35)
-02. The Island (04:04)
-03. Tower of Glass (03:59)
-04. Far from Home (03:35)(   Читать дальше...   )Жанр: Electropop, SynthpopПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56C56FF2122A13E479F5D3356640182D58E3AC23
 ```
 
 

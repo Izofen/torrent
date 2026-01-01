@@ -1,3 +1,138 @@
+###  Публикация: 1206667   (786522) от 07.06.2020
+
+Telefon Tel Aviv - Discography 19 Releases (2001-2020) Hefty Records, BPitch Control [FLAC|Lossless|tracks+.cue, tracks] <IDM, Leftfield, Experimental, Ambient, Downtempo, Abstract>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nine Inch Nails - Even Deeper (Telefon Tel Aviv Remix) (04:38)
+ 02. Bebel Gilberto - All Around (Telefon Tel Aviv Remix) (04:31)
+ 03. John Hughes - Get Me Lost/Driving In LA (Telefon Tel Aviv Remix) (03:18)
+ 04. Apparat - Komponent (Telefon Tel Aviv Remix) (04:21)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM/DowntempoПродолжительность: 10:43:37 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26E17CAA322A3C04C69A19D3F5E46FFF8A85D64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324377   (786541) от 07.06.2020
+
+Neuroq - Discography 6 Releases (2016-2020) Muz-Flame, Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Psychill, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maheswara Mantra (06:01)
+ 02. A Forest Is My Temple (09:37)
+ 03. Dual Spirituality (10:14)
+ 04. Silent Knowledge (06:44)(   Читать дальше...   )Тип издания: WebЖанр: Psybient/Downtempo/Ambient/Progressive TranceПродолжительность: 04:33:56 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EE7063D8DF0F001F9C56DD1C38DE89E3AB5B50F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388788   (786566) от 07.06.2020
+
+VNV Nation - Noire (2018) [FLAC|Lossless|WEB-DL|tracks] <EBM, Electro, Ambient>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Million (6:29)
+ 02. Armour (4:14)
+ 03. God of All (5:27)
+ 04. Nocturne No. 7 (6:10)(   Читать дальше...   )Жанр: EBM, Electro, AmbientПродолжительность: 01:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF20AA8FF06CA9A4C2662C5AD652897ED28EA982
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388643   (786569) от 07.06.2020
+
+Craig Connelly - A Sharper Edge (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Craig Connelly – Sonic Grey (Original Mix) 06:41
+02. Craig Connelly & Tara Louise – Time Machine (Original Mix) 05:45
+03. Craig Connelly – California (Original Mix) 04:39
+04. Craig Connelly & Karina Ramage – Life Half Lived (Original Mix) 06:05(   Читать дальше...   )Жанр: Electronic, TranceПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A19BE32A2F60A9A42C435E30CB156654371BA8D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388427   (786736) от 06.06.2020
+
+Meute - Puls (2020) [FLAC|Lossless|tracks + .cue] <Deep House, Nu-Jazz, Broken Beat>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panda (03:42)
+02. Holy Harbour (05:15)
+03. What Else Is There (06:45)
+04. Push (06:47)(   Читать дальше...   )Жанр: Nu-Jazz, Broken Beat, Deep HouseПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D3FAA5ADB1FEDF4CAF956BCD99F2D2D9305D8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388504   (786756) от 06.06.2020
 
 VA - Solaris Time Sexy Summer (2020) [MP3|320 Kbps] <House>
@@ -558,141 +693,6 @@ VA - Beats And Grooves (30 Top House Tunes),Vol.3 (2019) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48FEA7A73E7A2A6B0CCAF650E016A47AB1FB45B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276982   (787259) от 18.01.2019
-
-VA - Minimal Love Vol. 5. (2019) [MP3|320 Kbps] <Minimal>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minimal Flex - Diquis (Original Mix)
-02. MiamiSoul - The Pink Panzer (Morry Remix)
-03. Milair - Dark Of God (Original Mix)
-04. Milair - Minicore (Original Mix)(   Читать дальше...   )Жанр: MinimalПродолжительность: 01:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BCDBF7DB1F91BDA6B2A8CBFF6B23C14B0DB136A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276745   (787576) от 17.01.2019
-
-VA - The Best Workout Dance Tracks (2019) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MadMe - Breathe Fire (Extended Mix) 4:35
-02. Skif Bazzaty feat. Dave T - Cinderella (Original Mix) 3:31
-03. Vénia - Watching You (Original Mix) 3:18
-04. Klissmoon - Not Today (Radio Mix) 3:31(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF3F0AFEE084CF75B03D960F81DD034E7153666
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276787   (787586) от 17.01.2019
-
-James Blake - Assume Form (2019) [FLAC|Lossless|WEB-DL|tracks] <Dubstep, Experimental>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Assume Form (04:49)
-02. Mile High (feat. Metro Boomin & Travis Scott) (03:13)
-03. Tell Them (feat. Metro Boomin & Moses Sumney) (03:28)
-04. Into The Red (04:17)(   Читать дальше...   )Жанр: Dubstep, ExperimentalПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FAE194BC3A039C2435EB4BFDC4891FEA93BD54F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276645   (787626) от 17.01.2019
-
-Fogh Depot - Turmalinturm (Remixes) (2018) [FLAC|Lossless|Web-DL|tracks] <Experimental Electronic, Dark Jazz, Doom Jazz>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alice Bob and Cypher (Franz Kirmann's A Kraftwerk Kiss Remix) (6:20)
-02. Meduse (Dima Ustinov Remix) (7:52)
-03. Alice Bob And Cypher (Saffronkeira Remix) (7:36)
-04. Quicksilver Spoon (Moa Pillar Remix) (5:49)(   Читать дальше...   )Производство: Denovali Records - den302Жанр: Experimental Electronic, Dark Jazz, Doom JazzПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41CB3E2816B18B1F5FACB3F4D79547D579EDA5DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276769   (787633) от 17.01.2019
-
-VA - Uplifting Trance Sessions Vol.11 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Zimmer & Shawn Hunter - Terminal One (Extended Mix)
-02. Manuel Rocca - Esperanza (Blue5even Remix)
-03. August Vila - Morning Sadness (Original Mix)
-04. Kevin Crowley - Windmills (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11B1A0284884B788A44EA19C042FFD0BD12F74E2
 ```
 
 

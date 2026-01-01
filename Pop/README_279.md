@@ -1,3 +1,165 @@
+###  Публикация: 1390980   (781077) от 20.06.2020
+
+I Break Horses - Warnings (2020) [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn (09:01)
+ 02. Silence (04:29)
+ 03. l a r m (01:04)
+ 04. I'll Be The Death Of You (04:38)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7604A3839FCC03B8C69F55407B0D0D33312E9358
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206792   (781313) от 16.02.2018
+
+Nina Zilli - Modern Art (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Senza Appartenere
+02. Domani Arrivera (Modern Art)
+03. Ti Amo Mi Uccidi
+04. 1xUnAttimo(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC0270397B50592FFFE42D57B2826FFEE08D7E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207047   (781322) от 16.02.2018
+
+Antoine Elie - Antoine Elie (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781322.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 L'amas d'chair
+2 Aie
+3 Soirees parisiennes
+4 Toi qui m'ecoutes(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9696E2DE3035EEBE139F83D7FCFDB6519969309
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391164   (781418) от 19.06.2020
+
+Black Eyed Peas - Translation (2020) [MP3|320 Kbps] <Pop, Rap>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781418.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. RITMO (из фильма «Плохие парни навсегда»)
+2. FEEL THE BEAT
+3. MAMACITA
+4. GIRL LIKE ME(   Читать дальше...   )Жанр: Pop, RapПродолжительность: 00:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC2E890BEB7CCA75757462855490238438303CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206849   (781676) от 15.02.2018
+
+VA - Disco 80's Vol.2 (2018) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blanco Y Negro Music - I Love Disco Diamonds (Hidden Track) (0:07)
+02. Bolero - I Wish (7:52)
+03. Danny Keith - Keep On Music (6:42)
+04. Grant Miller - Colder Than Ice (5:36)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE6A8A3EF48788F43D31A1A1C9E98EA30493405E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206815   (781713) от 15.02.2018
+
+VA - Disco 80's Vol.2 (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blanco Y Negro Music - I Love Disco Diamonds (Hidden Track) (0:07)
+02. Bolero - I Wish (7:52)
+03. Danny Keith - Keep On Music (6:42)
+04. Grant Miller - Colder Than Ice (5:36)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9817C16FE21CB6CDC40C4C599116F088E17900AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206805   (781728) от 15.02.2018
 
 Ирина Билык - Любовь.Яд (2004) [FLAC|Lossless|image + .cue]<Pop>
@@ -531,168 +693,6 @@ VA - 100 Greatest Summer Party Songs 2020 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFCED67EE3F0872D600714EA9DFF84D4409F0FB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389984   (783392) от 14.06.2020
-
-VA - NOW Pop Icons (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady GaGa - The Edge Of Glory (Radio Edit)
-02. Ellie Goulding - On My Mind
-03. Niall Horan - Slow Hands
-04. Demi Lovato - Cool for the Summer(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DA01181EC3CA5871C4599C404B5CE7947CBED97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390201   (783400) от 14.06.2020
-
-Sine - Happy Is The Only Way (1977) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Is The Only Way (7:38)
-02. Chimi (6:13)
-03. Just Let Me Do My Thing (6:50)
-04. Keep It Coming (11:53)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA93A55D4F82E6F8F4E695D1321F7A208E21A1CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205289   (783458) от 10.02.2018
-
-Сударушка-style - Формула любви (2017) [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Потеряла голову
-02. Осина и клён
-03. Формула любви
-04. Разлука(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EA579631C9769A09F3F0D942F8EED6ED1038BC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205425   (783472) от 10.02.2018
-
-Lipps, Inc. - Mouth To Mouth (1979) Remastered, 2012 [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funkytown (07:50)
-02. All Night Dancing (08:21)
-03. Rock It (05:42)
-04. Power (08:19)Жанр: DiscoПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78F532ABAA995CE4A3FDB70D63A7C3314A160C7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205422   (783484) от 10.02.2018
-
-Laura Branigan (Лора Брэниган) - The Best Of Laura Branigan (1988) Atlantic, Compilation [MP3|320 Kbps] <Europop, Ballad, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Gloria 4:50
-02. Shattered Glass 3:41
-03. Find Me 3:23
-04. Touch 4:07(   Читать дальше...   )Жанр: Europop, Ballad, VocalПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:867CF3E55BBFF072C860CB3BB96FB3B8BA6606A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205585   (783486) от 10.02.2018
-
-VA - Sanremo (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ermal Meta & Fabrizio Moro  -  Non Mi Avete Fatto Niente  3:27
-02.  Ornella Vanoni, Bungaro, Pacifico  -  Imparare Ad Amarsi  3:26
-03.  Noemi  -  Non Smettere Mai Di Cercarmi  3:10
-04.  Le Vibrazioni  -  Cosi Sbagliato  3:28(   Читать дальше...   )Жанр: PopПродолжительность: 01:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B89463860B041A2ACC85F21144ACF25FBEA8FBFC
 ```
 
 

@@ -1,3 +1,171 @@
+###  Публикация: 1029546   (682452) от 26.06.2016
+
+Broods - Conscious (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free (3:44)
+02. We Had Everything (3:23)
+03. Are You Home (4:02)
+04. Heartlines (3:17)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:199A582331B2F03553B38C53BB82CCAB8C22A403
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029339   (682478) от 26.06.2016
+
+Cash Cash - Blood, Sweat & 3 Years (2016) [MP3|320 кб/с] <Electronic, Pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How To Love (feat. Sofia Reyes) [03:39]
+02. Broken Drum (feat. Fitz Of Fitz & The Tantrums) [03:18]
+03. Millionaire (feat. Digital Farm Animals & Nelly) [03:06]
+04. Hero (feat. Christina Perri) [03:18](   Читать дальше...   )Жанр: Electronic, Pop, HouseПродолжительность: 00:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C332517D2B07541E53C24C7E02AA39C87DBB8C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135128   (682669) от 18.05.2017
+
+Francesco Gabbani - Magellan (2017) [FLAC|Lossless|tracks] <Pop Rock, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magellano
+02. Tra Le Granite E Le Granate
+03. Occidentali's Karma (Radio Edit)
+04. A Moment Of Silence(   Читать дальше...   )Жанр: Pop Rock, EuropopПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D62710C2B6A429658E436A5741A251B6EEEA5DA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507086   (682887) от 08.06.2012
+
+Андрей Державин - Коллекция Песен (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не плачь, Алиса!
+02. Чужая свадьба
+03. Все как всегда
+04. Катя-Катерина
+05. Было или не было
+06. Верю
+07. Три недели
+08. Когда ты уйдешь
+09. Жизнь в придуманном мире
+10. Забытые сны(   Читать дальше...   )2012Жанр: PopПродолжительность: 02:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB0DB8745BB31E8D1424D015AE6C08876CF629F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135136   (682910) от 18.05.2017
+
+Цвет Алоэ - В белом платье (2017) [MP3|320 Kbps] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В белом платье
+02. 9 жизней
+03. Белым снегом
+04. Лёд(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4284803FA5FFA6AB76863A4C8AD746AF76012418
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135317   (682914) от 18.05.2017
+
+Grand Fantastic Strings - La Reine De Saba (1977) 45 RPM, LP [MP3|320 Kbps] <Pop, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Reine De Saba (3:08)
+02. Tombe La Neige (2:56)
+03. Love Me With All Your Heart (3:01)
+04. You Don't Have To Say You Love Me (2:31)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 45 RPM, LP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE4DF5099DADDAF0887793799095A5B4789B83DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222694   (683029) от 30.04.2018
 
 Masterboy - The Masterboy Family (1991) Polydor [MP3|320 Kbps] <Euro House, Eurodance>
@@ -537,168 +705,6 @@ VA - Deep Nu Disco House Sounds (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FEE9CB82F2FE3646CF6E7FB185C48C5488114BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222469   (685296) от 29.04.2018
-
-Hayley McKay - Hayley McKay (2018) [MP3|320 Kbps] <Pop, Pop Rock, Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Catching Fire (3:15)
- 02. Following The Sun (3:30)
- 03. Chance To Change (3:30)
- 04. Ghosted (3:05)(   Читать дальше...   )Жанр: Pop, Pop Rock, CountryПродолжительность: 00:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F25FAC69BD838E3E116B978A48601A3A98DA0CE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222420   (685297) от 29.04.2018
-
-VA - Weltmeister Party 2018 die Nummer Eins Sind Wir! (2018) 2CD [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Almklausi - Mama Laudaaa
-02. Ikke Hüftgold - Modeste Song
-03. Tobee - Weltmeister (Werden wir in diesem Jahr) (2018)
-04. Andy Bar - Ballermann - Mein Herz schlägt für den Ballermann (2018)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2680F2D554C13107CB2373858A939744D879F1BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 73285   (685884) от 22.08.2020
-
-VA - Best Audiophile Voices vol.4 (2005) [APE|Lossless|image + .cue] <Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salena Jones - You Don't Bring Me Flowers (3:31)
-02. Jane Duboc - Lady Jane (4:25)
-03. Tim Tamashiro - The Way You Look Tonight (3:14)
-04. Marianna Leporace - If (2:35)(   Читать дальше...   )Жанр: VocalПродолжительность: 01:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018EA1FE4441EA39888C61EF27E97C73C3EB0CC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028985   (686097) от 24.06.2016
-
-Потап и Настя - Золотые киты. The Best Of (2016) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не пара
-02. Крепкие орешки
-03. Не люби мне мозги
-04. Позвони своей зае(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB336F3D26BCB3021EC4E82BC2D96052D9583B9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403889   (686325) от 22.08.2020
-
-Johnny Hates Jazz - Wide Awake (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit of Love
-02. New Day Ahead
-03. Love the Light
-04. Greater Good(   Читать дальше...   )Жанр: Pop, New WaveПродолжительность: 00:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46CE70BE135830D7C9172752266EA5C10F88A3A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289524   (686366) от 16.03.2019
-
-Goombay Dance Band - Sun Of Jamaica (1995) Series Pop Shop Sony Music [FLAC|Lossless|image + .cue] <Electronic, Latin, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun Of Jamaica
-02. Seven Tears
-03. Island Of Dreams
-04. Eldorado(   Читать дальше...   )Жанр: Electronic, Latin, DiscoПродолжительность: 01:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808C48F84EEFB2BF205421F165B589438EEDB3AD
 ```
 
 

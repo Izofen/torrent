@@ -1,3 +1,30 @@
+###  Публикация: 973733   (979140) от 09.01.2016
+
+VA - 100x Winter 2015 (5CD) (2016) [MP3|320 кб/с] <Club , Dance , House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979140.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01. Ellie Goulding - Love Me Like I Do [04:01]
+02. Felix Jaehn ft Jasmine Thompson - Ain't Nobody (Loves Me Better) [04:03](   Читать дальше...   )Жанр: Club , Dance , HouseПродолжительность: 06:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B7586A2FDC0C1E13364B1451F866CC6016964F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 742657   (979162) от 06.01.2014
 
 VA - Lounge At The Seashore 2 (2014) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -674,33 +701,6 @@ VA - Acoustic 90s Rock Songs (2016) [MP3|320 кб/с] <Downtempo, Chillout, Inst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEF177F83C04DB83BC29C42F40EA7FF1D793ABE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972838   (980682) от 07.01.2016
-
-VA - (OST) Scarface Лицо Со Шрамом (1983) [MP3|320 кб/с]
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scarface (Push it to the limit)
-02. Rush Rush
-03. Turn out the light
-04. Vamos a Bailar(   Читать дальше...   )Жанр: OSTПродолжительность: 00:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0FD5DABCE16FD5CB3F4E92A23C8C16EF105740
 ```
 
 

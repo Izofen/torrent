@@ -1,3 +1,59 @@
+###  Публикация: 548435   (805683) от 26.10.2021
+
+Michael Jackson - Bad (1987) 2012, 25th Anniversary Deluxe Edition, 3CD [FLAC|Lossless] <Pop, R&B, Funk, Dance, Rock, Dubstep>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный релиз состоит из трёх CD-дисков из нового Коллекционного издания в формате Бокс Сета, состоящего из 3-х СD-дисков (и 1-го DVD, в этой раздаче отсутствует).
+
+Диск 1 - ремастеринговые хиты основного альбома (01. Bad (4:08)
+02. The Way You Make Me Feel (4:59)
+03. Speed Demon (4:05)
+04. Liberian Girl (3:50)(   Читать дальше...   )Жанр: Pop, R&B, Funk, Dance, Rock, DubstepПродолжительность: 03:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E82C0398F650ADDF86FE4472D6378CA51BBD37B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384071   (806159) от 18.05.2020
+
+Lara Fabian - Papillon(S) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papillon
+02. Je Suis A Toi
+03. Changer Le Jeu
+04. Par Amour(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF53B2CEDBE90ADDE89D98E5DF648BF245332A3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198631   (806191) от 12.01.2018
 
 Camila Cabello - Camila (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -642,60 +698,6 @@ VA - Acoustic: The Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D91BA5E68B9D9B9EF0703A4F8C1CAFA5D82ABAF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197016   (819051) от 05.01.2018
-
-Betsy - BETSY (2017) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little White Lies (03:25)
-02. Lost & Found (02:57)
-03. Fair (03:33)
-04. Last Time We Danced (03:08)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F530667DD8B06645B5DF45C8447084A510851DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117510   (819100) от 22.03.2017
-
-Vera Lynn - Vera Lynn 100 (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| We'll Meet Again  (03:28) 
-02| Sailing  (03:05) 
-03| (There'll Be Bluebirds Over) The White Cliffs Of Dover  (03:19) 
-04| Wish Me Luck As You Wave Me Goodbye  (03:29) (   Читать дальше...   )Жанр: VocalПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3A5C0637C2F5DDC44FFA4D7703D6C7D5000DB3
 ```
 
 

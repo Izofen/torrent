@@ -1,3 +1,162 @@
+###  Публикация: 1290763   (674328) от 22.03.2019
+
+Alice Merton - Mint (2019) [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Learn to Live (03:56)
+02. 2 Kids (03:31)
+03. No Roots (03:57)
+04. Funny Business (03:06)(   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:855E7508CF07E8DF98BC879357617767DE26E08B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290934   (674329) от 22.03.2019
+
+Alessandro Safina - Insieme A Te (1999) 2001 Universal [FLAC|Lossless|image + .cue] <Pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luna
+02. La Sete di Vivere
+03. Aria E Memoria (Radio Edit)
+04. Siena(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 01:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B622B1A9463033D652EE50F519F9FF1E482BA9AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290960   (674336) от 22.03.2019
+
+Black Blood - 2 Albums (1975, 1976) LP [MP3|320 Kbps] <Electronic, Funk, Disco, Afrobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicano (When Philly Goes to Barcelona) (3:59)
+02. Mapendoya Faranga (La Farenga) (3:27)
+03. Twalikutemka (2:34)
+04. Aye Mama (2:22)(   Читать дальше...   )Жанр: Electronic, Funk, Disco, AfrobeatПродолжительность: 01:11:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70E1A73EB029E5C0406707D197200A1989D8379
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290854   (674340) от 22.03.2019
+
+Tamaryn - Dreaming The Dark (2019) [FLAC|Lossless|WEB-DL|tracks] <New-wave, Dream-Pop, Synth-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels of Sweat
+02. Terrified
+03. Path to Love
+04. Fits of Rage(   Читать дальше...   )Жанр: New-wave, Dream-Pop, Synth-PopПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4131D6F7A12259BE3DD0F4D4CD526D9EFB3FAC20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290984   (674346) от 22.03.2019
+
+VA - Sophisticated Ladies (2018) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edith Piaf - La Vie en Rose
+02. Margaret Whiting - Moonlight in Vermont
+03. Peggy Lee - I've Got You Under My Skin
+04. Sarah Vaughan - Come Rain or Come Shine(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0BA2D8DF8161A2933E47F13B4F46EF061139345
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030213   (674567) от 30.06.2016
+
+VA - Ultimate... Christmas (2015) Box Set, 4CD  [FLAC|Lossless|tracks + .cue] <Pop, Jazz, Soul, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Jazz, Soul, DiscoПродолжительность: 04:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:341D6306477011C1F01E054CAFF04EDC9B2A1B6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030414   (674568) от 30.06.2016
 
 VA - Pavarotti & Friends For War Child (1996) [APE|Lossless|image + .cue] <Rock, Pop, Classical>
@@ -536,168 +695,6 @@ Dschinghis Khan - Non-Stop Best Hits (2001) Compilation, Mixed [APE|Lossless|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9328BEEA30C39FD5BB12EFF679D013329062E8EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223118   (676857) от 03.05.2018
-
-Masterboy - Different Dreams (1994) Polydor [MP3|320 Kbps] <Eurodance, Techno>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Masterboy - немецкая eurodance-группа, образованная в начале 90-х и имевшая значительный успех в Европе, Азии, Океании и Южной Америке в середине 90-х. Они наиболее показательная группа в стиле «high-energy», распространившемуся из данс-клубов на общую арену поп-пузыки. Наиболее известные композиции - Everybody Needs Somebody, I got to give it up, Land of Dreaming, (   Читать дальше...   )01. Waterfall (Intro) 2:59
-02. Different Dreams 6:31
-03. I Got To Give It Up 6:03
-04. Everybody Needs Somebody 6:07(   Читать дальше...   )Жанр: Eurodance, TechnoПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3E5594B7DD247D2382F606519FDF8A4FB55D3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 634969   (676861) от 03.05.2018
-
-Вадим Мулерман и ВИА «Ребята с Арбата» - Золотые хиты (2012) [MP3|320 кб/с]<поп, ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Надоело (Л.Гарин – М.Пляцковский)
-02. Анюта (Б.Ренский – П.Леонидов)
-03. Есть (Д.Тухманов – М.Ножкин)
-04. Детство (В.Шаинский – А.Осипова)(   Читать дальше...   )Жанр: поп, ретроПродолжительность: 01:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A6CF8ECC28BC8456EF607D7824F77885DAE293F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192432   (677142) от 03.05.2018
-
-Вадим Мулерман - Голос Сердца (2007) [APE|Lossless|image + .cue] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Голос сердца (В. Дмитриев - М. Рябинин)
-02. Танго среднерусской полосы (Н. Богословский - М. Львовский)
-03. Детство (В. Шаинский - А. Осипова)
-04. Сердцу не прикажешь (А. Булатов - В. Фельдман , С. Каминский)(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:13:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82F8325C0268F3C67EF26C15C125F72478351E06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223163   (677289) от 03.05.2018
-
-Francois Feldman - 5 Albums (1987-1996) CD [MP3|320 Kbps] <Electronic, Pop, Chanson, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франсуа Фельдман (р. 23 мая 1958, Париж), французский певец и автор песен. Наибольшего успеха достиг с двумя альбомами: «Une presence» и «Magic’ Boul’vard». Два сингла с первого из этих альбомов - «Les Valses de Vienne» и «Petit Franck» - заняли верхнюю строчку национального хит-парада Франции в 1990 и 1991 годах. «Les Valses de Vienne» по сей день остаётся одной (   Читать дальше...   )Список альбомов:
-1987 - Vivre, Vivre
-1989 - Une Presence
-1991 - Magic' Boul'vard(   Читать дальше...   )Жанр: Electronic, Pop, Chanson, Synth-popПродолжительность: 05:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41790100E5192C1B5518729D6C6658B56753220C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222995   (677401) от 03.05.2018
-
-Masterboy - Feeling Alright (1993) Polydor [MP3|320 Kbps] <Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Masterboy - немецкая eurodance-группа, образованная в начале 90-х и имевшая значительный успех в Европе, Азии, Океании и Южной Америке в середине 90-х. Они наиболее показательная группа в стиле «high-energy», распространившемуся из данс-клубов на общую арену поп-пузыки. Наиболее известные композиции - Everybody Needs Somebody, I got to give it up, Land of Dreaming, (   Читать дальше...   )01. Fall In Trance 3:34
-02. M.B.O.Y. (Give It Up) 3:36
-03. Feel My Life 4:27
-04. Hey, Hey, Hey (You Around Me 4:25(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E89FA4C3DA9D88702AA733D47016997E593F8647
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223162   (677526) от 03.05.2018
-
-VA - Comes The Fall - Adult Casual Vocals (2018) [MP3|320 Kbps] <Pop, Dance, Club>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brendan Asquith - Here It Comes (Original Mix) 05:10
-02. Brian McKeever - Six Deep (Original Mix) 02:21
-03. Ex Box Boys - Only You (Original Mix) 03:00
-04. Lochlainn Seabrook - Love Makes (Original Mix)You 03:29(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 01:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A0D82EB7E1EEC0BE0FEB28FF06A119DFD38D0E
 ```
 
 

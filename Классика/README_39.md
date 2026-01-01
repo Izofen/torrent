@@ -1,3 +1,57 @@
+###  Публикация: 1004997   (834160) от 08.04.2016
+
+Narciso Yepes, Melos Quartett - Luigi Boccherini: 3 Gitarren-Quintette (1971) 1990, Deutsche Grammophon [FLAC|Lossless|tracks] <Classical>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quintet No.4 for Guitar and Strings in D G.448 - "Fandango"
+01. Allegro Maestoso   04:53
+02. Pastorale   05:18
+03. Grave assai - Fandango    07:13Жанр: ClassicalПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F1D587A2B1A00CCFD300BEDAA300302A6079D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005029   (834361) от 08.04.2016
+
+Bruce Brubaker - Glass Piano (2016) Extended Version [FLAC|Lossless|WEB-DL|tracks] <Classical, Minimalism, Electronic>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mad Rush (16:58)
+02. Metamorphosis 1 (6:27)
+03. Metamorphosis 2 (7:09)
+04. Metamorphosis 4 (6:09)(   Читать дальше...   )Жанр: Classical, Minimalism, ElectronicПродолжительность: 01:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:726DA86CE3A9FDFAF95854BEE115F31BA5C80DCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004539   (836417) от 07.04.2016
 
 Dvorak / Дворжак - Symphonies nos. 8 & 9 "From the New World" (Sawallisch - Philadelphia Orchestra) (2012) [MP3|320 кб/с] <Classical, Concerto>
@@ -638,60 +692,6 @@ Piano Sonata No 1 in C minor Op 4 [24'46]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D7E42C22F8AF0C4D69956919E854D6ECA9172AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999558   (848595) от 31.03.2016
-
-Viktor Merzhanov - Russian Piano School (1995) [FLAC|Lossless|tracks] <Classical, Keyboard>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848595.jpg" />
-</div>
-
-
-###  Подробнее
-
-• Johannes Brahms - Variations on a Theme by Paganini Op.35
-01. Sketch-book 1   11:53
-02. Sketch-book 2   09:59
-(   Читать дальше...   )Жанр: Classical, KeyboardПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C31B8515D2F2BA21E6AC229211226E6F976FFDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002124   (848600) от 31.03.2016
-
-Schnittke, Stravinsky - Piano music (Boris Berman) (1991) [FLAC|Lossless|tracks] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Schnittke
-01. Piano Sonata no. 1 (1987) -1- Lento (06:38)
-02. Piano Sonata no. 1 (1987) -2- Allegretto (05:49)
-03. Piano Sonata no. 1 (1987) -3- Lento (06:48)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 00:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8410EE70FD938C7E63E2542749A3980770DF7AFA
 ```
 
 

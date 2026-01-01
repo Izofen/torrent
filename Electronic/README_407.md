@@ -1,3 +1,138 @@
+###  Публикация: 1276610   (788223) от 16.01.2019
+
+VA - Best Of Trancer 2018 (Mixed by Nick Turner) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Surok & AirLab7 – Urabe Mikoto (Original Mix)
+02. Varsente – Athena (Original Mix)
+03. Blue Moon & DreamLife – Last Farewell (George Crossfield Emotional Remix)
+04. Sothzanne String – Live Your Dreams (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF9EDA52421DA856201AF053E0279FD0E27CB73C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276348   (788226) от 16.01.2019
+
+Maayan Nidam - Sea of Thee (2018) [FLAC|Lossless|tracks + .cue] <Tech House, Deep House, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dust And Dirt (04:06)
+02. Die Sonne Innere (08:00)
+03. Acid Kiss (06:41)
+04. In A Lair Of My Other (05:27)(   Читать дальше...   )Жанр: Tech House, Deep House, ElectronicПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED58E5BB1A33E1500767831BF62DEA360E9254A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276603   (788227) от 16.01.2019
+
+VA - Reanimate Music Volume 1 (Mixed by Somna) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anden State - Dogma (Extended Mix)
+02. Formal One - Neon City (Original Mix)
+03. Andrew Bayer feat. Alison May - Immortal Lover (In My Next Life Mix)
+04. Somna & Blu Eyes - Drawn To You (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:24:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95FBD9537238B13466B11EE58B89CF17A35A951F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276598   (788228) от 16.01.2019
+
+VA - Markus Schulz - Global DJ Broadcast - World Tour Los Angeles (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New World Punx - Torque (Markus Schulz Big Room Reconstruction)
+02. Skyrim - The Song of Dragonborn (Markus Schulz Festival Mix)
+03. Faithless vs. VIZE - Glad You Came from Insomnia (Markus Schulz Mashup)
+04. Virtual Self - Ghost Voices (Markus Schulz Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D3462C725316AE8A2043F894FB2980164D0D9C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276460   (788229) от 16.01.2019
+
+VA - Gym Floor Energy 2019 [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spikaa Feat. Deja - Home (Radio Mix) 3:11
+02. Eros Pandi - Second Chances (Radio Mix) 2:43
+03. Gianni Camelia Feat. Sabrina Christian - Don't Stop The Beat (Luke Db Remix Edit) 2:40
+04. Skelectro Feat. Norah B. And Itto - No Time (Original Mix) 3:13(   Читать дальше...   )Жанр: HouseПродолжительность: 01:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870AA17436018D0A5AB8551C2182155C52CAFBFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203279   (788239) от 02.02.2018
 
 VA - Suanda Music Radio Top 25 (January / February) (2018) [MP3|320 Kbps] <Trance, Progressive, Vocal Trance>
@@ -560,141 +695,6 @@ VA - Dance Mix Vol 3 (2019) [MP3|320 Kbps] <House, Dance, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5CA830A2B0E7A7F8C733903F7B609D0A3411A00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276064   (789050) от 14.01.2019
-
-VA - Solamah Cille-Free Dance Vol.1 (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nihal Shukran - Matter
-02. Shiva Belmiv - Street
-03. Najuk Andrik - Tears
-04. Gobija Benne - War(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A41809D34352D70F9A9BEAB91598D25CAE7371
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276073   (789051) от 14.01.2019
-
-VA - Dance Mix Vol.2 (2019) [MP3|320 Kbps] <House, Dance, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DMITRY HERTZ - Christmas 2017 (Original Mix) 9:56
-02. Starque & Constantine P. - Ignore Yesterday, Live Future (Original Mix) 5:08
-03. Steve Darren - Today (Original Mix) 7:19
-04. Slugger Punch - Not Today (Original Mix) 4:41(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4FC1728982FD24527232F18832BD808C3631001
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202759   (789055) от 31.01.2018
-
-Anima Infinity - With Eyes Closed (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Vocal>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternal Life (3:46)
-02. Voyager (feat. Jens Gad) (4:44)
-03. Rendez-Vous (3:44)
-04. Into the Deep (5:48)(   Читать дальше...   )Жанр: Ambient, Downtempo, VocalПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFAB661F92B7AFF73BA5DF2C903482B71C30CD46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202996   (789057) от 31.01.2018
-
-VA - Cafe del Mar Chilled (Mixed) (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blue States  -  Your Girl (Mixed)  4:55
-02.  Jakatta  -  It Will Be (Mixed)  3:37
-03.  Sumsonic Presents  -  Falling (Mixed)  5:26
-04.  Moonwatcher  -  Sofa Loafer (Original Afterhours Mix) (Mixed)  4:41(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4621BB69962B412C5AA21883066B680ACA86AD03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203016   (789064) от 31.01.2018
-
-Svårmod Records (Svarmod Records) - Label 2 Releases (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Dark Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aeterno (06:33)
- 02. Generator Insaniam (05:46)
- 03. Alternatively Insanire (05:30)
- 04. Sator Abstentia (06:32)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient/Techno/Dark AmbientПродолжительность: 00:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57C21A34FD6CB9282F2CE8984B3DFA51DBCAFA5E
 ```
 
 

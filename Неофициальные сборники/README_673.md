@@ -1,3 +1,30 @@
+###  Публикация: 1453384   (1026927) от 11.03.2021
+
+VA - Super Mashup Mix (2020) [MP3|320 Kbps] <Rock, Mashup>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wax Audio - Careless Rebel (George Michael + Billy Idol )
+02. Childish Gambino vs. Gorillaz - Bone Eastwood
+03. Wax Audio - Stayin' in Black (Bee Gees + AC/DC)
+04. Pulga - Adele vs. Linkin Park - Set Fire To The End(   Читать дальше...   )Жанр: Rock, MashupПродолжительность: 02:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33F568784BC41CBCC294A48C8934DAA63F66819
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453502   (1026928) от 11.03.2021
 
 VA - Music News vol.80 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -665,33 +692,6 @@ VA - Dance vol.1 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B52560A1EDE8E30541D70494BD81BF5410A17D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451685   (1028208) от 03.03.2021
-
-VA - Music News vol.77 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Niti Dila - Поцелуи (Remix) (03:02)
- 02. Alina Rovnich - Не Твоя (02:39)
- 03. ТУ-134 - Только Ты (03:54)
- 04. AYA - Rising (03:01)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 03:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C43AD87B3B71F1287916A801A0F833FC65A92F4
 ```
 
 

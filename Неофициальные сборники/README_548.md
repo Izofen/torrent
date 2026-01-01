@@ -1,3 +1,30 @@
+###  Публикация: 1006697   (825585) от 13.04.2016
+
+VA - Happy Feeling Vol.3 (2016) [MP3|320 кб/с] <House, Progressive, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yuriy Pilin - Dream (Original Mix) 04:31
+02. Soundmare - Digital Sunlight (Original Mix) 06:14
+03. Alex Tasty - Double Senses (Original Mix) 06:19
+04. Romashin - A Cold Winter Sun (Original Mix) 09:51(   Читать дальше...   )Жанр: House, Progressive, TranceПродолжительность: 01:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1374A38842E753A93C9E538DE7EEAA1ED509D28A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115816   (825663) от 18.03.2017
 
 VA - 20 Кавер версий которые превзошли оригинал (2016) [MP3|192-320 Kbps] <Rock, Blues, Pop>
@@ -665,33 +692,6 @@ VA - Положительный заряд отличного настроени
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52B0033A5472EE26178597ECD3D1FD4998D20EAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115592   (826771) от 18.03.2017
-
-VA - Beatport Trance Pack (18.03.) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ahmed Romel vs. A & Z - Revive (Extended Mix)  6:48
-02.  Giuseppe Ottaviani & Tricia Mcteague - Loneliest Night (Onair Mix)  6:59
-03.  Allen Watts - Polarize (Original Mix)  6:16
-04.  Greg Downey - Midnight (Original Mix)  7:21(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 03:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73B7A8D5DC87B787CDD3FA89FE98D34AF2DA744
 ```
 
 

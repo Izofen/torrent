@@ -1,3 +1,192 @@
+###  Публикация: 1379509   (836103) от 01.05.2020
+
+2002 - Celtic Fairy Dream (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836103.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Castle of Dromore 04:58
+2. The Green Fields of Autumn 05:43
+3. Lullaby 05:07
+4. South Wind 05:06(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F24437C6C9D140F9247AE6C276DB62A794F7F8EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113673   (836341) от 12.03.2017
+
+Chris Spheeris & Paul Voudouris - Greatest Hits & Unreleased Masters (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enchantment [00:04:31]
+02. Orlando [00:04:55]
+03. Pura Vida [00:03:50]
+04. Respect 2 [00:15:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD58189819CF8AB4D7BD938933F19C7B35164108
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378973   (836377) от 01.05.2020
+
+Louis Landon - Southwest Solo Piano (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836377.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Agave 04:18
+2. Antelope Canyon 04:14
+3. Tonto Natural Bridge 03:44
+4. Apache Trail 04:01(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F408C8BCB698BF53AEE15F290C12AF889E1E621C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379339   (836391) от 01.05.2020
+
+Сергей Ильинов - Fantasy (1996) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сергей Ильинов родился в апреле 1961 года в Оренбурге. Окончив музыкальную школу по классу классической гитары, подался в Москву, где играл на басу и пел в различных «ресторанных» коллективах. В 1988-м создал музыкальный театр-студию «Служба доверия», работал ди-джеем, звукорежиссером и композитором на радио (в том числе в Русской редакции BBC).01. Дождь (2:26)
+02. Воздух (3:57)
+03. Ветер (3:29)
+04. Ночь (2:58)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E71C7D49E4952E4575D617E06A682E69174121F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004600   (836540) от 07.04.2016
+
+Ennio Morricone - Spiel Mir Das Lied Vom Tod - The Very Best Of (1992) 2 CD, Compilation [FLAC|Lossless|tracks] <Classical, Stage & Screen, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836540.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Der Profi: Chi mai    05:06
+02. The Untouchables: Ness Family Theme    03:22
+03. Der Maulwurf: Marche En La    03:02(   Читать дальше...   )Жанр: Classical, Stage & Screen, InstrumentalПродолжительность: 01:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB1D543CADF6D5AEB14F7B2477951276D2C592C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004663   (836786) от 07.04.2016
+
+Richard Band - Troll / Тролль (1986) [MP3|320 кб/с] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cantos I
+02. Cantos II
+03. Cantos Profanae
+04. Cantos IV(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1878B8ABDB884145E00CC2324CB0EE02D3AF2071
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004607   (836890) от 07.04.2016
+
+Frederic Talgorn - Крепость / Fortress (1992) 1993 [MP3|320 кб/с] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude and Pursuit
+02. Descent to Fortress
+03. Forbidden Dream
+04. Kick Fight(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA62B713BA169F6A393DC76BC26176FE92991B57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 310267   (837216) от 18.03.2011
 
 The Chemical Brothers - Hanna (OST) (2011) [MP3|320 kbps]<Techno, Big-Beat>
@@ -507,195 +696,6 @@ VA - No Stress Music Playlist 3: Pure New Age & Chillout Relax (2017) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59C6F7F2404CCC9EC390C7AE1FF1DC80C216D1A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500073   (844432) от 04.10.2021
-
-Raphael - Music for Love (2008) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Initiation
-02. The Healing Dance
-03. Liberation
-04. Laxshmi(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0684A855AF078D4BABA8A757C0FE600311CFE76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 245727   (844668) от 02.04.2016
-
-Александр Колкер - Труффальдино из Бергамо (1976) [MP3|320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_844668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Начало
-02. Вступление
-03. Пролог
-04. Погоня(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002767   (844826) от 02.04.2016
-
-Ernesto Cortazar - 3 альбома (2011 - 2012) [FLAC|Lossless|tracks] <New Age, World, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silver Moon    04:41
-02. Infatuation    02:47
-03. Finally Together    03:20
-04. Truly in Love    02:53(   Читать дальше...   )Жанр: New Age, World, Piano |Продолжительность: 01:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:454CFB525DDACBA9F813DE70F712474570DAA1A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002714   (844917) от 02.04.2016
-
-Sam "The Man" Taylor & His Orchestra - Sam "The Man" Taylor In Japan (1961) LP, Stereo [FLAC|Lossless|tracks] <Jazz, Sax, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844917.jpg" />
-</div>
-
-
-###  Подробнее
-
-A:
-01. Broken Promises    03:39
-02. Lullabe of Itsuk    02:51
-03. Harlem Nocturne    04:00(   Читать дальше...   )Жанр: Jazz, Sax, InstrumentalПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:091EBDB52BDEA52F0CF27F05F54412149BFD4D19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111994   (844960) от 07.03.2017
-
-VA - 50 Sleep Better: Relaxing Beach Ocean Waves (2017) [MP3|320 Kbps] <Downtempo, Chillout, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calming Water Consort - Sleep Better: Relaxing Beach Ocean Waves
-02. Trouble Sleeping Music Universe - Music for Deep Sleep
-03. Sea Tranquility Academy - Relaxing Background Music
-04. Yoga Meditation Music Set - Hypnotic Sounds: Breaking Waves(   Читать дальше...   )Жанр: Downtempo, Chillout, Ambient, New AgeПродолжительность: 03:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD807B06B231082BA7824FB8DB8D5A408AB2BAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003061   (845012) от 02.04.2016
-
-Robert Rodriguez & VA - Once Upon A Time In Mexico (2003) [MP3|320 кб/с] <Score / Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malaguena - Brian Setzer
-02. Traeme Paz - Patricia Vonne
-03. Eye Patch - Alex Ruiz
-04. Yo Te Quiero - Marcos Loya(   Читать дальше...   )Жанр: Score / SoundtrackПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:709649576D1AD87A3917614E0E79EA3E9438D221
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003171   (845019) от 02.04.2016
-
-VA - Los clasicos argentinos Tango - Vol.08  - Roberto Goyenche: El cantor de Buenos Aires (1996) [MP3|128 кб/с] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carlos Gardel - El dia que me quieras
-02. Floreal Ruiz - Por la vuelta
-03 Alberto Marino - Tres amigos
-04. Astor Piazzolla - Orgullo criollo(   Читать дальше...   )Жанр: TangoПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B9B7F01A586483ADD2077259563311927A23A4
 ```
 
 

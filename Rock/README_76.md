@@ -1,3 +1,30 @@
+###  Публикация: 1015702   (772969) от 12.05.2016
+
+The Goo Goo Dolls - Boxes (2016) [MP3|320 кб/с] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over and Over (4:08)
+02. Souls in the Machine (3:49)
+03. Flood (feat. Sydney Sierota) (4:13)
+04. The Pin (4:13)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A47656BDCBB80DE055FC2078E295628F88B09BD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391664   (773120) от 21.06.2020
 
 Richard Schneider Jr. - 2 Albums (1977, 1980) LP [MP3|320 Kbps] <Krautrock, Experimental, Jazz-Funk, Prog Rock>
@@ -661,33 +688,6 @@ Dizzy Reed - Rock 'N Roll Ain't Easy (2018) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5585A27B301A004433FA00C704FCFC29FE864FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207510   (780574) от 18.02.2018
-
-Pop Evil - Lipstick on the Mirror (2008) Universal Republic Records, Pazzo Music, Jard Star [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pop Evil образовался в далеком 2001 году на обломках другой группы из Мичигана, TenFive. Играет коллектив пост-гранж и альтернативный металл, отличается мощным тяжелым звучанием и яркими текстами. Последний выпущенный диск группы Pop Evil, «Onyx» привлек к себе особое внимание слушателей, а первый сингл с этого альбома, именуемый «Trenches» довольно быстро взял первую (   Читать дальше...   )01. Hero 3:32
-02. Breathe 3:23
-03. Shinedown 3:40
-04. 100 in a 55 4:12(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:504EBE8226B05C60B50AC611E2FA2D1AEB2F2234
 ```
 
 

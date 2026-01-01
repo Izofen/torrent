@@ -1,3 +1,164 @@
+###  Публикация: 1221049   (698602) от 22.04.2018
+
+VA - Italo Disco New Revival Volume 1-10 (2015) [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Synth-Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birizdo I Am - I Love Italo Disco (Extended Version) (6:49)
+02. D. White - All the Story Is History (Extended Version) (7:09)
+03. Romantic Avenue - Disease (feat. Heaven42)Жанр: Italo-Disco, Euro-Disco, Synth-PopПродолжительность: 12:21:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F2A503206C49F93E25B37CFCD3C7DDF554D7B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221000   (698608) от 22.04.2018
+
+Babe - 3 Studio Albums (1980-1983) LP [MP3|320 Kbps] <Electronic, Europop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известное Голландское поп-трио, сформированное  Peter Koelewijn в составе из Monique Hagemeijer, Rita van Rooij и Marga Bult. Первоначальные участники: Gemma van Eck, Monique Hagemeijer и Rita van Rooij. В 1982 году Gemma van Eck покинула группу и была заменена на  Marga Bult.Список альбомов:
+1980 - Babe!
+1981 - Blitzers
+1983 - Shop Around(   Читать дальше...   )Жанр: Electronic, Europop, DiscoПродолжительность: 02:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04AF4C8DF7244542E95ADC98A59E58E5DE6C3419
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221017   (698713) от 22.04.2018
+
+VA - Disco Revival (2018) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discotron - De La Disco (Original Mix) (4:47)
+02. Audio Jacker - Until The Break Of Dawn (Original Mix) (6:41)
+03. Serial Thrilla - Get Up (Original Mix) (6:39)
+04. Weekend Players - Rock The Disco (Original Mix) (7:33)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:13:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D6A8763074DFD9E6212129F51766C8599FBBB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132759   (698795) от 10.05.2017
+
+Sylvie Vartan - Confidanses (1989) [FLAC|Lossless|tracks + .cue] <Pop , Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C'est Fatal 3:31
+YouTube: Q6SUwv4RmmM
+(Michael Cretu / D.Barbelivien)
+02. Ca va de soi 3:32(   Читать дальше...   )Жанр: Pop , ChansonПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B770936FE8026180B70BED09EC1316C436DBBB7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220982   (698802) от 22.04.2018
+
+Danielle Bradbery (Даниэль Брэдбери) - Danielle Bradbery (2013) Republic Nashville, Deluxe Edition [MP3|320 Kbps] <Pop, Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даниэль Брэдбери - американская кантри-певица, ставшая победительницей четвертого сезона шоу «Голос» и успевшая порадовать слушателей одноименным дебютным альбомом «Danielle Bradbery» в ноябре 2013 года, перепела один из главных хитов Адель, «Set Fire to the Rain» (2011). Дебютным синглом юной исполнительницы после победы в «Голосе» стала композиция «The Heart Of (   Читать дальше...   )01. Young In America 3:43
+02. Wild Boy 3:41
+03. The Heart of Dixie 3:30
+04. I Will Never Forget You 3:47(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D9AE201DF72B6BE8D6219745A43B47DC368C74F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220991   (698803) от 22.04.2018
+
+Danielle Bradbery (Даниэль Брэдбери) - The Voice: The Complete Season 4 Collection (2013) Universal Motown Records Group [MP3|256 Kbps] <Pop, Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даниэль Брэдбери - американская кантри-певица, ставшая победительницей четвертого сезона шоу «Голос» и успевшая порадовать слушателей одноименным дебютным альбомом «Danielle Bradbery» в ноябре 2013 года, перепела один из главных хитов Адель, «Set Fire to the Rain» (2011). Дебютным синглом юной исполнительницы после победы в «Голосе» стала композиция «The Heart Of (   Читать дальше...   )01. Mean 3:31
+02. Put Your Records On 3:37
+03. Jesus, Take the Wheel 3:25
+04. Maybe It Was Memphis 3:23(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C772AEF3D6FB51DD0CADCDFF604FA45A363E88F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132768   (698869) от 10.05.2017
 
 The Korvids - The Korvids (2017) [FLAC|Lossless|tracks + .cue] <Pop Rock>
@@ -533,168 +694,6 @@ VA - DMC Dance Extra Mixes 168 (2021) [MP3|320 Kbps] <Electronic, Funk / Soul, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECA9368813E64602443E599D9AC81A24B89EB2D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402273   (701571) от 14.08.2020
-
-VA - From Russia With Italo Disco (2015) 10CD, Full Set Limited Edition [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco, Hi-NRG, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic System D.J. - I Wanna Touch Your Body Now (Extended Version) (6:44)
-02. Siberian Heat - Flute Cries (Maxi Version) (8:11)
-03. Dyva - Harsh Wind (Duro Mix) (7:01)
-04. Squash Gang - When I Close My Eyes (6:16)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Hi-NRG, SynthpopПродолжительность: 12:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B878E52B2F937F472BE8995BBC0BCBFA24F843
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402460   (701585) от 14.08.2020
-
-VA - Euromania Vol. 1 (2001) Compilation [FLAC|Lossless|image + .cue] <Euro-Disco, Italo-Disco, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Talking - Brother Louie (Remix) (6:59)
-02. Fancy - Gimme A Sign (3:32)
-03. Scotch - Disco Band (6:34)
-04. C.C. Catch - Heaven And Hell (6:28)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, EuropopПродолжительность: 01:09:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B79A1951678DDC5BDBFA01F188D11439247A84EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287761   (701637) от 08.03.2019
-
-Jackie Carter - 2 Albums LP (1976, 1979) ex. Silver Convention [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее имя Жаклин Неморин (Jacqueline Nemorin). Полная информация ниже.01. Treat Me Like A Woman (3:37)
-02. Ev'rytime It Rains (3:54)
-03. Just Like Lightning (2:54)
-04. Disco Star (3:29)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFD0E47C5E425B7284EF93552E7BBE78AA949997
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287686   (701639) от 08.03.2019
-
-Cyndi Lauper - Time After Time (The Cyndi Lauper Collection) (2009) [FLAC|Lossless|tracks + .cue] <Pop Rock, Post-Punk, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girls Just Want To Have Fun (3:57)
- 02. Time After Time (4:01)
- 03. True Colors (3:47)
- 04. I Drove All Night (4:13)(   Читать дальше...   )Жанр: Pop Rock, Post-Punk, FolkПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357ED8B4C5A90B5AAAA921C1D45E779B6EAA0E35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402491   (701722) от 14.08.2020
-
-GASHI - 1984 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Retrowave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1984 (1:14)
- 02. Don't Kill Me (2:59)
- 03. Lies (4:09)
- 04. Mama (ft. Sting) (3:17)(   Читать дальше...   )Жанр: Pop, RetrowaveПродолжительность: 00:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD4152E0C04EEB19134D5C87D22FA3245535BF74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026646   (701723) от 16.06.2016
-
-Евгений Осин - Разлука (2016) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белая метель
-02. Любимая
-03. На тропинке
-04. Рыбацкая песня(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B6DF6A3F148F324085FFC19254581EC1F5F8571
 ```
 
 

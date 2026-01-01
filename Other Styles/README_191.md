@@ -1,3 +1,192 @@
+###  Публикация: 169972   (1012498) от 05.06.2021
+
+Roses Never Fade - Roses Never Fade (2009) [FLAC|Lossless|image + .cue] <Folk Rock, Neo-Folk, Psychedelic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sickness That Never Sleeps - 3:25
+02. Runaway - 2:10
+03. Cauterize November - 2:00
+04. Fourth Horseman - 2:42(   Читать дальше...   )Жанр: Folk Rock, Neo-Folk, PsychedelicПродолжительность: 00:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1A6CF360DBA71150556CD85C8842DBF09C3AB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474406   (1012935) от 02.06.2021
+
+Ben Leinbach - The Spirit of Yoga (2003) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Khumjung
+02. Horizon of Gold
+03. Mother's Wingspan
+04. The HierophantЖанр: New Age, MeditativeПродолжительность: 00:62:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FD609BC08945B113F46394837744389B0892641
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473523   (1013522) от 30.05.2021
+
+Yiruma - f r a m e (2021) Reissue [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturnal Mind (3:15)
+ 02. f l o w e r (3:54)
+ 03. Walking In The Forest (3:07)
+ 04. f r a m e d (Piano Version) (3:53)(   Читать дальше...   )Жанр: New Age, Modern Classical, PianoПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D778C15F0D4207555809DB220AAB4E1AB3C425BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473053   (1013858) от 28.05.2021
+
+Aethera - The Caelic Mystery (2005) [FLAC|Lossless|image + .cue] <New Age, Celtic, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013858.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Into Blue 3:44
+2 The Mountain Side 3:52
+3 Dungannon Dew 2:56
+4 The Green Side 4:24(   Читать дальше...   )Жанр: New Age, Celtic, FolkПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7EB2BE080624102D16580F977FFA51019B40876
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472923   (1014013) от 27.05.2021
+
+Llynya - The Guiding Light - Celtic Mantras (2002) [FLAC|Lossless|image + .cue] <Celtic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014013.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Northern Star 4:03
+2 Come And Lay Down 6:10
+3 At Home 4:36
+4 Fare Thee Well 6:21(   Читать дальше...   )Жанр: Celtic, New AgeПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F87231602CCD8D93E93485D1A6070A09821C5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472983   (1014026) от 27.05.2021
+
+Elbosco - Angelis (1995) [FLAC|Lossless|image + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014026.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Nirvana 4:51
+2 A Kind Of Birds 4:18
+3 Nebo 4:43
+4 Spend A Happy Day 4:39(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D26D2CDB7DDB8FD0C4B359DD1F1B4A3D8FB827B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472724   (1014169) от 26.05.2021
+
+Orinoco Haven - Acoustic Guitar Pearls Vol. 1-3 (2008) [FLAC|Lossless|WEB-DL|tracks] <Guitar, Acoustic, Covers>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Your Song (4:27)
+02. Hotel California (6:36)
+03. If You Leave Me Now (3:59)
+04. More Than Words (5:25)(   Читать дальше...   )Жанр: Guitar, Acoustic, CoversПродолжительность: 02:27:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1712D4C5050E0C7E151BCAE8696A14351D65502F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 583407   (1014260) от 25.05.2021
 
 Nightwish - Imaginaerum (The Score) (2012) Unofficial Release [APE|Lossless|image + .cue] <Neo - Classic>
@@ -508,195 +697,6 @@ Kailash Kokopelli - Collection (2000-2005) 2альбома [MP3|320 Kbps] <Nativ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A20123B4A8EF806953E85CC84CE81728825BCF7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464254   (1019974) от 21.04.2021
-
-VA - Tribal Dreaming (2005) [MP3|320 Kbps] <NewAgе, Tribal-trance, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Prem Joshua - Dakini (Monsoon Remix)
-02. Leaving Footprints - Forefathers
-03. Daion - Pachakuteq
-04. Ariel Kalma/James Nicholas - Ano Tao Inan(   Читать дальше...   )Жанр: NewAgе, Tribal-trance, ChilloutПродолжительность: 00:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D647B54A8D414895F099EC6663B537804473968B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464295   (1019975) от 21.04.2021
-
-Gandiva - All Your Grace (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surjya Debata
-02. All Your Grace
-03. Nijhum Rate
-04. Aum Govindaya Nama(   Читать дальше...   )Жанр: World, MantrasПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732EB8DA94AC57E17857F1F4423A0591C54095F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463530   (1020295) от 19.04.2021
-
-Behzad (Behzad Aghabeigi) - 5 альбомов (1997-2017) [MP3|320 Kbps] <Flamenco, Acoustic Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rapture of Massy (5:20)
-02. Your Tranquillity Matilda (4:51)
-03. Simmering Souls (6:01)
-04. Gypsy Renaissance (4:42)(   Читать дальше...   )Жанр: Flamenco, Acoustic GuitarПродолжительность: 04:25:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C97D8AEB95819004DD1C683171C349B9AC1137C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463534   (1020308) от 19.04.2021
-
-Bryan Lubeck, Johannes Linstead & Tomas Michaud - We Three Strings (2006) [FLAC|Lossless|tracks + .cue] <Flamenco, Latin, Folk>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johannes Linstead - What Child Is This? (3:26)
-02. Bryan Lubeck - The First Noel (4:15)
-03. Tomas Michaud - Christmas Journey (5:16)
-04. Johannes Linstead - God Rest Ye Merry, Gentlemen (2:41)(   Читать дальше...   )Жанр: Flamenco, Latin, FolkПродолжительность: 00:50:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3726B62918410254B2322118AF9EE1BF5EB3F7C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463278   (1020444) от 18.04.2021
-
-Benjamin Wallfisch - Mortal Kombat / Мортал Комбат (Original Motion Picture Soundtrack) (2021) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020444.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:07] 01. Techno Syndrome 2021 (Mortal Kombat)
-[07:15] 02. Hanzo Hasashi
-[02:25] 03. Lord Raiden
-[02:43] 04. Bi-Han(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865EDDCAC71B4E34824CB4E4467D16D1517B24E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463276   (1020456) от 18.04.2021
-
-Benjamin Wallfisch - Mortal Kombat / Мортал Комбат (Original Motion Picture Soundtrack) (2021) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020456.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:07] 01. Techno Syndrome 2021 (Mortal Kombat)
-[07:15] 02. Hanzo Hasashi
-[02:25] 03. Lord Raiden
-[02:43] 04. Bi-Han(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B5CE5812DE05A3B3385EACF32E8D250A0041403
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463275   (1020612) от 17.04.2021
-
-Benjamin Wallfisch - Mortal Kombat (Original Motion Picture Soundtrack) (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020612.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:07] 01. Techno Syndrome 2021 (Mortal Kombat)
-[07:15] 02. Hanzo Hasashi
-[02:25] 03. Lord Raiden
-[02:43] 04. Bi-Han(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:791E872225D831DF5A60916000F34612AC79609B
 ```
 
 

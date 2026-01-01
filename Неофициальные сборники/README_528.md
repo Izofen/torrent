@@ -1,3 +1,30 @@
+###  Публикация: 1385350   (797766) от 24.05.2020
+
+VA - Rap NNM 2020 (Русский Выпуск) [MP3|320 Kbps] <Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797766.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 10AGE - Зацелую (3:25)
+2. BoValigura & Alexander Kurilov - На Блоке (2:28)
+3. Caramel - Baby (2:53)
+4. ChipaChip - Терапия (3:34)(   Читать дальше...   )Жанр: RapПродолжительность: 04:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:671396A1B2420AF033C1352A70CE41FAE312C913
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385286   (797769) от 24.05.2020
 
 VA - Slow Rock Songs 70s 80s 90s (2020) [MP3|320 Kbps] <Pop, Rock, Ballads>
@@ -671,33 +698,6 @@ VA - A Synthwave Panorama Vol. 4 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C67649E4ADC86960B41C10D11DD1918DDDF38FA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507486   (798481) от 04.11.2021
-
-VA - A Synthwave Panorama Vol. 5 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavy Malyari - Spaceman (5:52)
-02. StrayLight - Chasing The Light (4:28)
-03. IDEON - The World Might End Tomorrow (Gertrudda Edit) (8:10)
-04. TrialCore - Living In Cybercity (3:56)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8788A90C392D7ABCEAF3CB409D10BC345E4B1E4
 ```
 
 

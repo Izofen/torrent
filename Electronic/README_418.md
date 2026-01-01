@@ -1,3 +1,138 @@
+###  Публикация: 1156046   (796649) от 26.05.2020
+
+PBS'73 - Discography 4 Releases (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Synthwave, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fantastic New World (09:42)
+ 02. Magick Carpet Ride (10:48)
+ 03. Psychedelic Odyssey (04:32)
+ 04. Fractals and Flowers (04:26)(   Читать дальше...   )Тип издания: WEBЖанр: Berlin-School/Synthwave/IDM/AmbientПродолжительность: 02:27:54 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D6E242B6E319826956C62FA819D7CB2AAAF1219
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011417   (796662) от 27.04.2016
+
+Зодиак (Zodiac) - Pacific Time (2014) [MP3|320 кб/с] <Electronic, Synth-pop, Disco>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Zodiac (04:11)
+02. Pacific Time (04:31)
+03. Disco In The Province (04:47)
+04. Distant Galaxy (05:43)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8FE80862DB5826289A34A6F7C4EC3591299B619
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385745   (796682) от 26.05.2020
+
+Tupilaq - Discography 4 Releases (1995-1997) Audio Pollution, Dot Records [FLAC|Lossless|tracks] <IDM, Electro, Techno, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pollen 23 (06:55)
+ 02. Chapel Perilious (08:43)
+ 03. Chapel Perilious (Endemic Void's Hole-In-One) (07:11)
+ 04. Chapel Perilious (Floppy Sounds Nuclear Somersault) (08:57)Тип издания: CD, VinylЖанр: IDM/Electro/Drum & Bass/TechnoПродолжительность: 02:17:41 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBCE19BE85A23A26D4B801C16C85008AB2413AB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011479   (796698) от 27.04.2016
+
+Zodiac - Pacific Time (2014) [FLAC|Lossless|image + .cue] <Electronic, Synth-pop, Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Zodiac (04:11)
+02. Pacific Time (04:31)
+03. Disco In The Province (04:47)
+04. Distant Galaxy (05:43)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947ABD4B90F40DA9960154239BA304AE569D3CF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011343   (796825) от 27.04.2016
+
+Spacekraft - Большое космическое путешествие (2016) [FLAC|Lossless|WEB-DL|image + .cue] <Tech House, Techno, Neotrance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Помните старый добрый советский фильм для детей Большое космическое путешествие? Добро пожаловать на Астру!01. Todd Terje - Snooze 4 Love (Version)
+02. Denis A - Voices (Original Mix)
+03. Luna Semara - Arp Choir (Original Mix)
+04. Matthus Raman - Swimming With Birds (Jake Chambers Remix)(   Читать дальше...   )Жанр: Tech House, Techno, NeotranceПродолжительность: 01:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9EC712E71BC47AE05853D866E42890CE0143A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508642   (796860) от 09.11.2021
 
 The Digital Blonde - N3ON (2021) [MP3|320 Kbps] <Trance, Progressive House>
@@ -560,141 +695,6 @@ VA - Homestudio Fitness Moves: 100 Great Tracks to Train At Home (2020) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78784E542758620A811183D846994D1370CCEC0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385718   (797160) от 25.05.2020
-
-VA - Pop Hits in Bossa (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Pop, Bossa Nova>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christie Valent - Blinding Lights (Bossa Version) (3:39)
-02. Eleni Soaring - Dance Monkey (Bossa Version) (4:18)
-03. Eleni Soaring - What a Man Gotta Do (Bossa Version) (3:37)
-04. Christie Valent - I Love You (Bossa Version) (4:04)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Pop, Bossa NovaПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6549FB067C59225ECA2DC2724A49050CF7C9F115
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385665   (797161) от 25.05.2020
-
-BELLATRIX - Droids (2020) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Story From Space (5:27)
-02. Vector (5:37)
-03. Glass Heart (8:39)
-04. Abyss (6:51)(   Читать дальше...   )Жанр: Spacesynth, DiscoПродолжительность: 01:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A3B1BDD428B72363098A618BD8374C823EBEF71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385611   (797193) от 25.05.2020
-
-VA - Top 40 Beatspot Summer '20 (2020) [MP3|320 Kbps] <House, Future House, Bass House, Tech-House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniele Francesco - Rock To The Rhythm (Jay Lutwen Remix) 4:25
-02. Junior XL - Bring Back To Life (Dub Mix) 4:23
-03. Fishbird - Desire (Original Mix) 4:56
-04. Dave Sparks - Shake Like That (Dub Mix) 4:59(   Читать дальше...   )Жанр: House, Future House, Bass House, Tech-HouseПродолжительность: 03:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:584211216961A944C8768101E08DAF25A617485B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385582   (797196) от 25.05.2020
-
-VA - HIIT Workout Mix (2020) [MP3|320 Kbps] <House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Killers - Mr. Brightside 03:43
-02. Baker Boy - Move 02:47
-03. Martin Solveig, Tkay Maidza - Do It Right 03:32
-04. Capital Cities - Safe And Sound 03:11(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 01:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D007753C348C5E7EE0844F592D192AB41A7F32C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385539   (797201) от 25.05.2020
-
-Aquanote - The Pearl (2002) [FLAC|Lossless|tracks + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Water Psalm I
-02. Waiting
-03. True Love
-04. All Over You(   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 01:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A885CC1DB0119CECF1EFA666D28D6173E6BE57
 ```
 
 

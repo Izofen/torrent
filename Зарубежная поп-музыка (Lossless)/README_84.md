@@ -1,3 +1,69 @@
+###  Публикация: 763078   (886925) от 05.03.2014
+
+James Morrison - The Awakening (2011) [FLAC|Lossless]<Pop, Soft Rock, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. In My Dreams (4:47)
+02. 6 Weeks (3:14)
+03. I Won't Let You Go (3:51)
+04. Up (feat. Jessie J) (3:40)
+05. Slave To The Music (3:25)
+06. Person I Should Have Been (3:49)
+07. Say Something Now (4:02)
+08. Beautiful Life (2:43)
+09. Forever (3:42)
+10. The Awakening (5:10)(   Читать дальше...   )Жанр: Pop, Soft Rock, SoulПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A84DEDD571985D252AB0770483C2D0D0DD28043E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 763396   (887256) от 05.03.2014
+
+Jamie Grace - Ready to Fly (2014) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. So Amazing (0:28)
+02. Beautiful Day (3:10)
+03. Just a Friend (Feat Manwell of Group1Crew) (3:45)
+04. Fighter (3:46)
+05. Little ol Me (3:31)
+06. To Love You Back (4:01)
+07. Do Life Big (3:05)
+08. Every Bit of Lovely (3:23)
+09. White Boots (Feat Morgan Harper Nichols) (4:11)
+10. The Waiting (3:17)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:404ABB60F13152AA3D44A586709FA9E09CFC396F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494537   (887739) от 08.09.2021
 
 VA - Summer Break 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -662,67 +728,6 @@ VA - Radio 538: Hitzone 72 (2015) 2CD[FLAC|Lossless]<Pop, Dance, Top40>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7FCB6525501A7F04A7F2A3E5ABF38B635085974
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869092   (892889) от 14.02.2015
-
-Demis Roussos - Live In Brazil (2009) 2CD [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-CD1
-1. End Of The World
-2. Rain And Tears
-3. Forever And Ever
-4. We Shall Dance(   Читать дальше...   )Жанр: PopПродолжительность: 01:27:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FABB9EA47A56A37032984D3B35829254050F096
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 639327   (892905) от 04.04.2013
-
-Tom Jones - The Definitive Tom Jones (4CD) (2003) [APE|Lossless]<Pop, Rock & Roll>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. A Boy From Nowhere
-02. Kiss
-03. Move Closer
-04. Carrying A Torch
-05. Gimme Shelter
-06. If I Only Knew
-07. Something For Your Head
-08. A Girl Like You
-09. Make Me Smile (with Robbie Williams)
-10. Burning Down The House (with The Cardigans)(   Читать дальше...   )Жанр: Pop, Rock & RollПродолжительность: 01:17:24
-
-## Скачать торент
-```bash
-нет
 ```
 
 

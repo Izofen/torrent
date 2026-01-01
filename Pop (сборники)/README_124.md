@@ -1,3 +1,30 @@
+###  Публикация: 972815   (980697) от 07.01.2016
+
+VA - Попсовая VIP тусовка (2015) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980697.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Даша Суворова - Останусь
+002. Мурад Байкаев - Черно-Белое
+003. Alex Kafer & Lera - Никогда
+004. Bridge - Временно Твоя(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642C97315054B5BC9B614BA445B953898B44B44D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972319   (981816) от 06.01.2016
 
 VA - Зимний Союз (2016) [MP3|256-320 кб/с] <Pop>
@@ -776,39 +803,6 @@ VA - Зажигательная вечеринка. Зимний выпуск. �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04FEA1ED236324380DE294BE750084AC6D5C38DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605226   (995863) от 19.01.2013
-
-VA - Шевели Попой 3 (Зарубежный выпуск) (2013) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_995863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chuckie & Promise Land ft. Amanda Wilson - Breaking Up (Radio Edit) (02:26)
-02. Nicole Scherzinger - Erotica Revolution (02:33)
-03. Dash Berlin ft. Chris Madin - Silence In Your Heart (Radio Edit) (02:40)
-04. Bingo Players & Far East Movement - Get Up (Rattle) (02:45)
-05. DJane Housekat ft. Rameez - My Party (Groove Coverage Edit) (02:46)
-06. Mike Candys ft. Evelyn & Patrick Miller - 2012 (If The World Would End) (02:47)
-07. Sandro Silva & Quintino - Epic (02:47)
-08. Mike Candys ft. Sandra Wild - Sunshine (Fly So High) (Ibiza Radio Mix) (02:48)
-09. Radio Project - Celebration (02:49)
-10. Jack Holiday ft. Jasmin Paan & Big Reggie - Back In Miami (Mike Candys Radio Mix) (02:50)(   Читать дальше...   )Жанр: PopПродолжительность: 34:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AF6AB9B0BDDA8D6DCBB91DB6071C80741065403
 ```
 
 

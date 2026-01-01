@@ -1,3 +1,192 @@
+###  Публикация: 1281417   (726385) от 23.02.2019
+
+VA - Simply Chillout (2013) Box Set, 10CD [FLAC|Lossless|tracks + .cue] <New Age, Lounge, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более трех лет назад я уже выкладывал на трекере 4-х дисковый сборник с аналогичным названием 2005 года издания. Видимо, откликаясь на многочисленные просьбы трудящихся USM переиздало его, дополнив 6 новыми дисками. Мне показалось интересным  CD09 "Chilled Lennon & McCartney" - он правда то же издавался USM в 2008 году под аналогичным названием, только (   Читать дальше...   )CD01 Classical Chilout
+CD02 Chilled Piano Moods
+CD03 Chiiled Film & TV Thems
+CD04 Chilled Smooth Pop(   Читать дальше...   )Релиз состоялся: 18 февраля 2013 годаЖанр: New Age, Lounge, ChilloutПродолжительность: 10:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2630BFFF5E4F9BEC753F89865DA33EC210120869
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022986   (726407) от 04.06.2016
+
+Ramin Djawadi - Warcraft (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warcraft (01:58)
+02. The Horde (03:17)
+03. Medivh (02:43)
+04. Honor (04:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:343460A3663483F24359F5667E112126E0B1B24C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128983   (726453) от 26.04.2017
+
+VA - 50 Sounds of Tropical Rainforest (2017) [MP3|320 Kbps] <Downtempo, Chillout, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Relaxing Spa Music Zone - Sounds of Tropical Rainforest
+02. Relaxing Nature Sounds Collection - Forest at Night
+03. Nature Music Sanctuary - River of Jungle
+04. Natural Meditation Guru - Contemplative Nature(   Читать дальше...   )Жанр: Downtempo, Chillout, Ambient, New AgeПродолжительность: 03:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C152478A3CA680738980455179E66702D94FE467
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128619   (726456) от 26.04.2017
+
+Kari Rueslatten - To The North (2015) [FLAC|Lossless|image + .cue] <Folk, Nordic, World>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Battle Forevermore  (03:50) 
+02.  Mary's Song  (03:58) 
+03.  What We Have Lost  (04:06) 
+04.  Three Roses In My Hands  (03:03) (   Читать дальше...   )Жанр: Folk, Nordic, WorldПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:078982E1957196C18697CB0FD4F794035E7497F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128793   (726554) от 26.04.2017
+
+Rajendra Teredesai - Moksha - The Path to Inner Peace (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726554.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Yog Uday : Dawn Ritual
+ 2. Yog Prabhat : Morning Ritual
+ 3. Yog Nyas : Noon Ritual
+ 4. Yog Sandhya : Sunset Ritual(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C95A939B0C33AD9B7FE982C13A7BEE7107E18A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530943   (726652) от 13.02.2022
+
+Piano Pianissimo - Breathe In, Breathe Out and Relax (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road from Ruin (1:53)
+02. From the Rooftops (1:48)
+03. Like Singing Seas (1:50)
+04. Clouds of Gray (2:02)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:680B497979580998F26E9BE955E8E05D0FA194FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022982   (726688) от 04.06.2016
+
+Danny Wright - Unconditional Love (2016) [MP3|320 кб/с] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy's Silver Lining [00:04:12]
+02. Time to Say Goodbye [00:04:29]
+03. Unconditional Love [00:03:57]
+04. Christy Kay's Theme [00:04:12](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B232C1C16FAEB5FBEB85B581182EE2B70C393715
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128428   (727189) от 25.04.2017
 
 Stive Morgan - Eclipse Of The Moon (2017) [MP3|320 Kbps] <Ambient, Chillout, New Age>
@@ -511,195 +700,6 @@ Big City Indians - Tuwa (2012) [MP3|320 Kbps] <Native american, New Age, World>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EE045129D966191EC8248F8908B6A58C46AC3DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283702   (729934) от 20.02.2019
-
-Atom Music Audio - Nemesis (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Act of Revenge [02:35]
-02. Dark Forces [02:34]
-03. Nemesis [02:32]
-04. Here Comes the Hero [02:41](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:25:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD3B383F023A036C704DCCEF145AC2FDE39E47EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284285   (729940) от 20.02.2019
-
-VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol  6 (1990) [MP3|320 Kbps] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flight Of The Bumble Bee / Hungarian Dance No. 5 / Light Cavalry  Carmen
-02. Blue Moon
-03. Holy Halls
-04. Here, There and Everywhere/  Hey Jude(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4D8426B7E070F35220178B64DC2BC192D23CEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128070   (729976) от 23.04.2017
-
-Richard Osborn - Endless (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Folk, World, & Country>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In a Monastery Garden (3:51)
-02. Streets of Laredo, a Pastorale (4:34)
-03. Still I Will Be Merry (6:22)
-04. Breton Fisherman's Prayer (4:33)(   Читать дальше...   )Жанр: Acoustic, Folk, World, & CountryПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37FAC1E711428E12C7E745252C9CA65168A6CCE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283977   (730012) от 20.02.2019
-
-Justin Hurwitz - First Man (2018) Original Motion Picture Soundtrack [FLAC|Lossless|tracks + .cue] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. X-15 (01:22)
-02. Good Engineer (01:06)
-03. Karen (00:45)
-04. Armstrong Cabin (01:15)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA6DB8B431A93668F59587663A63D3C2DCB81A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283905   (730015) от 20.02.2019
-
-VA - Не грози Южному Централу, попивая сок у себя в квартале / Don't Be A Menace To South Central While Drinking Your Juice In The Hood (1996) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730015.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Winter Warz (Cappadonna)
-2. Renee (Lost Boyz)
-3. Funky Sounds (Lil Bud & Tizone)
-4. Give It Up (Jodeci)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5269F424AB3102D1CC116336A735EA2852B46330
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128003   (730039) от 23.04.2017
-
-VA - India Experience (Vol. 1) (2015) [MP3|320 Kbps] <Downtempo, Lounge, New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brass - Indian Landscape
-02. Brass - Delhi Nights
-03. Brass - Sun After Rain
-04. Brass - Calcutta Groove(   Читать дальше...   )Жанр: Downtempo, Lounge, New Age, WorldПродолжительность: 01:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC4BC0CF84AA8FCF50A03AE073C3C4AC4772B875
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283973   (730045) от 20.02.2019
-
-DeVotchKa ‎ - This Night Falls Forever (2018) [FLAC|Lossless|tracks + .cue] <Folk-rock, Gypsy Punk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Straight Shot (05:22)
-02. Let Me Sleep (04:39)
-03. Lose You In the Crowd (04:41)
-04. Love Letters (04:25)(   Читать дальше...   )Жанр: Folk-rock, Gypsy PunkПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F96A47E36880F951A7002E0116062B0941EE433
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 996996   (877681) от 15.03.2016
+
+Gai Barone - Towards (2016) [MP3|320 кб/с] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Sides of Nowhere (Original Mix) (7:49)
+02. Bianca (Original Mix) (7:46)
+03. Mom's Clown (Original Mix) (8:01)
+04. Stripped (Original Mix) (9:10)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE7685F2A5F27D746294EBC605226E7FDA4CC600
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105163   (877892) от 16.02.2017
+
+BlutEngel - Leitbild (2017) 2CD Deluxe Edition [MP3|320 Kbps] <Darkwave, Synth-pop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877892.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Welcome to Your New Life
+02. Lebe Deinen Traum
+03. Waste My Time(   Читать дальше...   )Жанр: Darkwave, Synth-popПродолжительность: 02:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA90E0DEC2580FB99DFF7E4C65EAB405E794CC1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104774   (878028) от 16.02.2017
+
+VA - 90s Chillout (The Very Best 90s Music for Lounge and Chillout) (2017) [MP3|320 Kbps] <Lounge, Chillout, Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quantum Feeling - Porcelain (3:31)
+02. Flavourine - In the Waiting Line (4:28)
+03. Evening Twilite - Les nuits (6:14)
+04. Airflow - American Dream (Afterlife Mix) (4:28)(   Читать дальше...   )Производство: Hanger 52 Music Inc.Жанр: Lounge, Chillout, Easy ListeningПродолжительность: 02:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E420876C21DD10DB49400F805F9DAE77588A1F2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105072   (878127) от 16.02.2017
+
+VA - EDM Invasion 5 (2017) [MP3|320 Kbps] <House, Electro House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Phun & Key - System Crash (Radio Edit)  3:05
+02.  Ronny Rox - Let's Go (Radio Edit) (feat. Tony T)  3:06
+03.  Ali Deger & Blackjax - I'm Spartacus (Radio Edit)  3:44
+04.  Derek Faze - Escape (feat. Avari) (Radio Edit)  3:30(   Читать дальше...   )Жанр: House, Electro House, ProgressiveПродолжительность: 02:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE45FBC802BD64863523A879AD71E9CFB0383DCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104504   (878286) от 16.02.2017
+
+VA - Pump Up The House Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luuki - Way To Empire 03:56
+02. Keywave - Boomerang (Radio Edit) 03:18
+03. Brothers - My Battle (Trvpers Mix) (Feat. Ranieri) 04:44
+04. Luke Meyers - Play House (Vocal Edit) 05:40(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:416155A6B3242EB9B65037A9F10D70D96F17C231
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104683   (878289) от 16.02.2017
 
 VA - Nu Disco & House Dreams Vol 1 (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -560,137 +695,6 @@ VA - Grotesque Winter Edition (Mixed by RAM & Mark Sherry) (2016) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DD03708B2D9B6974420148AAC6ED78F51790DC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996262   (881077) от 13.03.2016
-
-Underworld - Barbara Barbara, We Face A Shining Future (2016) [FLAC|Lossless|tracks + .cue] <Progressive House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Progressive House, TechnoПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC5807DBE0C95C13CE2AF8142B17C8DAF592D299
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996142   (881154) от 13.03.2016
-
-VA - Moments of Soul-Chill Mix (2016) [FLAC|Lossless|tracks] <Lounge, ChillOut, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua Mundi - Sweet Suggestions (5:32)
- 02. Mardon Bros - Make You Feel Better (7:12)
- 03. Heso - Sundowner (6:28)
- 04. Lamar Ensemble - About Yesterday (5:46)(   Читать дальше...   )Жанр: Lounge, ChillOut, DowntempoПродолжительность: 03:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4743213D12119ACD1B2741CABFE872F44E971A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996344   (881169) от 13.03.2016
-
-VA - Cycles 7 (Mixed By Max Graham) (2016) [FLAC|Lossless|tracks+.cue] <Progressive House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guy J - Equinox (7:01)
-02. Brian Cid - Errors (4:34)
-03. Rick Pier O'Neil - To Declare (5:35)
-04. Ewan Rill featuring Avenax - Lotos (Vocal Mix) (5:50)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 01:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9AC5DE89099BF3176FEE4C357A221B6558FF9C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104330   (881471) от 14.02.2017
-
-Moby - Black Lacquer (2017) EP [FLAC|Lossless|WEB-DL|tracks] <House, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go (Treasure Fingers Remix) (4:38)
- 02. Why Does My Heart Feel So Bad? (Madeaux Remix) (3:30)
- 03. Natural Blues (High Klassified Remix) (2:38)
- 04. Porcelain (Nick Catchdubs Kaleidoscopic Mind Mix) (3:26)Жанр: House, AmbientПродолжительность: 00:14:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FBF2DF1D16C486C4BAC5A0D1154DFDA0EAA6311
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990689   (881601) от 05.04.2020
-
-Strie (Olga Wojciechowska, Strïe, Strië) - Discography 18 Releases (2010-2020) Time Released Sound, Serein [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental, Glitch, Abstract, ...
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unseen Traces (03:13)
- 02. Labyrinth Made Of Labyrinths (04:09)
- 03. Oganized Delusions (02:29)Тип издания: CD, WEBЖанр: Modern Classical/Ambient/ContemporaryПродолжительность: 06:08:30 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722D06E0697C1113E290926768DDA7BBD622FA0D
 ```
 
 

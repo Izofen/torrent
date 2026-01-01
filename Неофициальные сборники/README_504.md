@@ -1,3 +1,30 @@
+###  Публикация: 1207408   (780487) от 18.02.2018
+
+VA - Enigma Alive Vol.3 (2018) [MP3|320 Kbps] <New Age, Enigmatic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empire Of Love - Mysterious
+02. Tarena - The Secret of Life
+03. Rejean Paquin - The Hierophant
+04. Shinnobu - Angeli Hierusalem(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 03:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E375DD5D8E8E958DE128DCBFF4C38695BBEAD28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207547   (780496) от 18.02.2018
 
 VA - Радио Шансон. Лучшее 2017 от DON Music (2018) [MP3|256-320 Kbps] <Шансон>
@@ -673,33 +700,6 @@ VA - Хит FM ВосХИТительная Двадцатка 10.02. (2018) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:046E1BA590C5089A6DFA763F7C5200EF3F0525C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206995   (781288) от 16.02.2018
-
-VA - Лучшие клубные новинки Vol.12 (2018) (2018) [MP3|320 Kbps] <Dance, Club,Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Mase & Sharliz - SKY (Original Mix) 6:26
-02. A.U.R.A feat. Tamra Keenan - Dance All Night 3:36
-03. Aaron Mcclelland - You 3:45
-04. Above & Beyond feat. Richard Bedford - Northern Soul (Ben Bohmer Extended Mix) 6:23(   Читать дальше...   )Жанр: Dance, Club,OtherПродолжительность: 19:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:884208BA04B764B2FE6AFA9008B59B53562B58A3
 ```
 
 

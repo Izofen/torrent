@@ -1,3 +1,30 @@
+###  Публикация: 1609758   (1043141) от 04.02.2023
+
+VA - From Nightmares: Metal Hard Compilation (2023) [MP3|320 Kbps] <Metal, Hard Rock, Core>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043141.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kvasir - Authenticity
+002. Sleeping Romance - Smoke And Mirrors
+003. Goatwhore - Born Of Satan's Flesh
+004. Infection Code - Daily Slavery System(   Читать дальше...   )Жанр: Metal, Hard Rock, CoreПродолжительность: 11:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCCF82B99F7D5F2B6FA6CD6310ADEBA0718F6140
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609738   (1043143) от 04.02.2023
 
 VA - The Rock Meeting (2023) [MP3|320 Kbps] <Rock, Punk, Alternative>
@@ -668,33 +695,6 @@ VA - Simply Dance Vol. 06 (2022) [MP3|320 Kbps] <Europop, Dance, Club, Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:398E20DB31B12E77425E81A2CCE9ABE1F4DDF0B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606484   (1044373) от 22.01.2023
-
-VA - Classic Rock (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Petty And The Heartbreakers - American Girl (3:34)
-02. The Doors - Roadhouse Blues (4:03)
-03. Whitesnake - Here I Go Again 87 (4:35)
-04. Foreigner - Cold as Ice (3:20)(   Читать дальше...   )Жанр: RockПродолжительность: 04:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14E3F83387861325EFE670F9D215465164A36413
 ```
 
 

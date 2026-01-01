@@ -1,3 +1,30 @@
+###  Публикация: 971570   (985684) от 03.01.2016
+
+VA - DFM. Новогодний эфир (2015) [MP3|233-320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985684.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren, W&W - If It Ain’t Dutch (Radio Edit)
+002. Lucas Nord, Urban Cone, John Dahlback - We Were Gods (Original Mix)
+003. Caminita Feat. Jan Peter - Tonite (Original Mix)
+004. Almyron - Tonight (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C386D432C87E24AD605DD3EFD059A19F75F488B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971577   (985851) от 03.01.2016
 
 VA - Top Club Music World Hits 10116 (2016) [MP3|320 кб/с] <Bigroom, Tropical, Dance, Future House, Nu Disco, Tech-Trance>
@@ -683,33 +710,6 @@ VA - Suenos de California Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCD791C1CDD8679AFFFAE65E796371034BD750A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354406   (988010) от 22.01.2020
-
-VA - Angel In My Soul (2020) [MP3|320 Kbps] <Country, Folk, Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonestar - My Front Porch Looking In
-02. Lukas Nelson - Out In La
-03. Aaron D'arcy - Drink It Up
-04. Chris Shiflett - Liar's Word(   Читать дальше...   )Жанр: Country, Folk, BluesПродолжительность: 04:22:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5484CAD89F4718D4EFEC9AFDC447E546D49B8354
 ```
 
 

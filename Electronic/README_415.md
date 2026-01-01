@@ -1,3 +1,136 @@
+###  Публикация: 1028672   (793961) от 23.01.2018
+
+RaLax - Discography 10 Releases (2012-2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, Abstract, Ambient, Downtempo, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Spirit (04:25)
+ 02. Ancestral Dip (04:35)
+ 03. Dead Memory (03:04)
+ 04. Foiled Knowledge (04:28)Тип издания: WEBЖанр: IDM, Abstract, Ambient, Downtempo, Experimental |Продолжительность: 00:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4848420F461A5AD67BB8B3E7A7B24F7303C29A10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509451   (793968) от 13.11.2021
+
+Sonny Fodera - Wide Awake (2021) [FLAC 2.0|44.1/24/16|tracks|WEB-DL] <Deep House>
+
+>>Electronic
+>>Trance, House, Techno (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	You	(Sonny Fodera Feat. Sam Tompkins)	(3:25)
+02.	Angel	(Sonny Fodera Feat. Clementine Douglas)	(3:10)
+03.	Nah	(Sonny Fodera & Kolidescopes Feat. Sinead Harnett)	(2:50)
+04.	So High	(Sonny Fodera Feat. Dan Caplen)	(3:00)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394E7E6A030DBA2365E0822A0E3199FBB75C6D5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201051   (794022) от 23.01.2018
+
+Takashi Wada - Discography 8 Releases (2004-2015) REALJO[K]E Recordings, Onitor, WADA [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Leftfield, Acoustic, House, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Castle of Sand Pt.1 (07:32)
+ 02. A Castle of Sand Pt.2 (06:53)Тип издания: CD, WEBЖанр: HouseПродолжительность: 00:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28919ABE5290949A8E1945079888688EF53B5F91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201080   (794068) от 23.01.2018
+
+VA - Urban Dance Vol.23 (2018) 3CD [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794068.jpg" />
+</div>
+
+
+###  Подробнее
+
+СD1:
+01.  Ofenbach vs. Nick Waterhouse  -  Katchi  2:34
+02.  Alan Walker, Noah Cyrus & Digital Farm Animals  -  All Falls Down  3:19
+03.  Jason Derulo feat. French Montana  -  Tip Toe  3:09(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:12:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D49E1745FA438B00E551733B1074BFF59D6DCD06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200960   (794069) от 23.01.2018
+
+VA - Mysterious Station Dark The Best Of 2017 (Mixed by Dr Riddle) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trance Hunter - Power Of The Code (Jens Jakob remix)
+02. Nx-Trance - Symbiont (original mix)
+03. Stella Project - Universe (Mark Eworth remix)
+04. Luca Gazzola - North Rose (Diego Morrill's Manticore mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683D1E1B0AF47AAF9FA49553E5DB7EF81F4F712A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 796263   (794093) от 06.01.2019
 
 VA - Artificial Intelligence I - II (1992/1994) Warp Records [FLAC|Lossless]<IDM, Techno, Ambient>
@@ -557,141 +690,6 @@ Jens Buchert - Best Of (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A293F917DE07F78B67BD852A47F04289DA47E9C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200735   (794976) от 22.01.2018
-
-Lunar Testing Lab - Discography 11 Releases (2008-2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Drone, Downtempo, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fur - Black Castles (Lunar Testing Lab Remix) (04:30)
- 02. Specta Ciera - UFO Landing (Electromodule Remix) (04:39)
- 03. Lunar Testing Lab - MK Naomi (04:45)
- 04. Lunar Testing Lab - Mock Orange (LTL Remix) (04:37)(   Читать дальше...   )Тип издания: WEBЖанр: Downtempo/Ambient/IDMПродолжительность: 02:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24CD1CBF3F74D7E7768694F6FFC4246759FCC778
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200783   (794978) от 22.01.2018
-
-Damian Wasse - Music Colours (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damian Wasse - Colours Of The World (Intro Mix)
-02. Damian Wasse & Specific Slice - The Legend Of All Times (Original Mix)
-03. Damian Wasse - Memories (Original Mix)
-04. Damian Wasse - Battle For The Light (Classical Solution)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F067E3B641A74D695E7657C92178CF2D3110DEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200654   (794979) от 22.01.2018
-
-VA - Dark Uplifting Vol.3 (2018) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer  -  Forever (Extended Mix)  5:48
-02.  Cyril Ryaz  -  Dark Side (Extended Mix)  6:40
-03.  NoMosk  -  Black Light (feat. Maria Milewska) (Extended Mix)  5:57
-04.  R3dub  -  Red Sun (Extended Mix)  6:07(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2C817D279CA90006DF33108BFE60052D364FE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509367   (795002) от 12.11.2021
-
-Indecent Noise - Everything Is Connected (Expanded & Extended) (2021) [MP3|320 Kbps] <Trance, Tech Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indecent Noise - Brightest Day (Original Mix) (02:13)
-02. Indecent Noise - White Lotus (Original Mix) (04:32)
-03. Indecent Noise & Noire Lee - Sunglasses At Night (Extended Original Vision) (07:17)
-04. Indecent Noise & OnTune - Visions Of The Dreamer (Extended Mix) (08:12)(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 01:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C108B7FDB2C1419983F1CA432CFB7E3662CED40C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200997   (795018) от 22.01.2018
-
-Brien Hindman - Cognitive Buffer Hypothesis (2018) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holocene (07:51)
- 02. Trophic Cascade (04:28)
- 03. Shinrin Yoku (04:07)
- 04. The Veil (07:58)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:56:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA8D0CD87B5D3BCD6A0122F73EB35590C7969AB3
 ```
 
 

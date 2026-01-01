@@ -1,3 +1,30 @@
+###  Публикация: 989586   (915833) от 23.02.2016
+
+VA - Sexy House, Vol. 1 (2016) [MP3|320 кб/с] <House, Tech House, Deep House, Electronic, Progressive, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915833.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Audio Jacker - By My Side (Anthem Mix) [07:05]
+2. Soul Power - No Diggity (Soul Power Classic Club Mix) [05:17]
+3. Martin Thomas - Love Has A Way (Original Mix) [07:00]
+4. Audio Jacker - Rotate (Original Mix) [05:39](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 01:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64ABFD221A5B935A19C02BBE7043E16E3D8A0601
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097265   (915850) от 26.01.2017
 
 VA - Хиты в тачку (2017) [MP3|256 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - Radio MFM: Dance Hit Radio [14.03] (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B85048B13A602EBCCF51283AE99B0211C97F460
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989318   (917331) от 22.02.2016
-
-VA - House Nation Volume 4 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sander Van Doorn, Dimitri Vegas, Like Mike - Project T (Martin Garrix Remix) (05:13)
-02. Slice N Dice & Stan Gravs - Osiris (06:08)
-03. Zac Waters - No Quarter (04:02)
-04. Fatboy Slim & Riva Starr feat. Beardyman - Eat Sleep Rave Repeat (North Base Bootleg) (05:03)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF70E9D96783A3085ACCC2882D9537D2A0F34444
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1204530   (784673) от 06.02.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0013 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bonfeel Electro Band - Your Eyes ( 2014 )
+02. Jaco - Hey Operator ( Rum Version 2014 )
+03. Brand Image - Night Of Ecstasy ( 1984 )
+04. Images - Corps A Corps ( 1986 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:52:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26BBC04906458EAB9F5DE5B8C467CE05821D95AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204588   (784681) от 06.02.2018
 
 VA - Progressive Psychodelic Trance (Exlusive Tracks) Vol.3 (2018) [MP3|320 Kbps] <Psy Trance>
@@ -667,33 +694,6 @@ VA - Популярные весенние новинки. Сборник № 2 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13147F5F94A91F74F709A081331855D79269A066
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124562   (785650) от 12.04.2017
-
-VA - Любимые песни на радио Шансон. Версия № 6 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785650.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сборная Союза - Там Где-То Там 4:31
-002. Татьяна Чубарова - Женские Слезы 4:35
-003. Сергей Куренков - Я Хочу Побыть С Тобой 3:24
-004. Смирнов & Компания - Одинокая Баба Лет 40 3:25(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C49A55E7F78E37F9A3A6212D77EE043D06D362
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1001446   (853697) от 28.03.2016
+
+Jan Blomqvist - Remote Control (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stories Over [03:46]
+02. More (feat Elena Pitoulis) [08:46]
+03. Empty Floor [08:19]
+04. Her Great Escape [03:54](   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBC016F8B9678EC876DBAB37AF2215CD94287114
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110177   (853799) от 02.03.2017
+
+VA - Beautiful Lounge Collection Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853799.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Modern Lounge Heroes - A Journey - Original Mix 6:50
+002. Cool Beach - Destination Sunshine - Original Mix 2:29
+003. AMS - More Than Ever People - Original Mix 6:34
+004. Montgomery - Super - Original Mix 2:45(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1C0BFB1B321DEA430DA44E99ED4040A05E93020
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110373   (853801) от 02.03.2017
+
+VA - Deep Desire (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lamar Ensemble - Inspirational Shortcut  5:48
+02.  Diario - Beijo Grande  5:40
+03.  Jay Jay & The Snakes - Walk Good  5:55
+04.  Hints Of Soul - The Dreaming State  5:05(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B04EED9440CD5DA4527566B748E31CAAC82055C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110389   (853802) от 02.03.2017
+
+VA - Tropical Village Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Gorda Project - Do That Again  5:53
+02.  Enrico Donner - Catch a Glimpse  5:56
+03.  Zero Feedback - Deep In The Rain Forest  6:35
+04.  Gorda's Groove - Vocofeeling  5:07(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2715370C8F3EC7F28A23C7A612B57C5EF3BF460F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110398   (853809) от 02.03.2017
+
+VA - Mout: Deep Spirit Vol.8 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853809.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Philip Bader - Rootsa - Lee Jones Remix 7:41
+002. Ltzenkirchen - Out of My Head - Ill-Boy Phil & Sebastian Fleischer Remix 6:12
+003. Steve Rachmad - Secret Life of the Machines - Klartraum Remix 7:49
+004. Dirty Doering - I Would - Marcus Meinhardt Remix 7:43(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96EC9B2C08C96D8E737A43F3FA1310A37AB92ED3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110234   (853813) от 02.03.2017
 
 VA - Airport Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -556,141 +691,6 @@ VA - Erotic Chill (2020) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5BD671B73C22F74A2942C29C93DF82DECD277D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376798   (856895) от 19.04.2020
-
-Backstage Gurus - Mediterranean Odyssey (2020) Liquid Sound Design [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Tribal, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gibraltar (04:41)
-02. Santorini (07:46)
-03. Alexandria (04:48)
-04. Wheel of Life (05:53)(   Читать дальше...   )Жанр: Psychill, Downtempo, Tribal, AmbientПродолжительность: 01:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18098C84E61C5784AE8F5A10E56DD9E01FB3C3CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376830   (856902) от 19.04.2020
-
-VA - Ibiza House Sexy (2020) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856902.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Third Deed - Mechanical Suicide (4:17)
-2.Branzei - Feel Real Funky (4:34)
-3.Younus Sakoor - Karamate (Original Mix) (6:26)
-4.Tekkaman - Pilltrill (Space Mix) (6:22)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44ABC64821891B5D15DB1B6757A7F4CA8F8E4417
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109835   (856915) от 28.02.2017
-
-VA - Gabriel Ananda - Selected Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <House,Tech House,Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicolas Ovalle - Come Ci Fa (Gabriel Ananda remix) [07:29]
-02. Rob Hes Steve Slight - Focusing (Gabriel Ananda remix)[06:36]
-03. Yoon - Boundaries (Gabriel Ananda's Breaking Boundaries remix)[07:11]
-04. Mr Morek - 418 (Gabriel Ananda remix) [08:03](   Читать дальше...   )Жанр: House,Tech House,Deep HouseПродолжительность: 02:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD1C3EE97A616F648B65D8AD819A484412D87ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000546   (857069) от 26.03.2016
-
-Luomo - The Present Lover (2003) [FLAC|Lossless|tracks + .cue] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Visitor (4:13)
-02 Talk In Danger (7:46)
-03 The Present Lover (9:20)
-04 Body Speaking (8:09)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C7041DD5D7ECD9ACCF3474FAA1947785609023
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109510   (857229) от 28.02.2017
-
-VA - Deep House Relax (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857229.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brooke Stonebridge - I Want to Know What Love Is - Seashell Dub Mix 3:39
-002. Sarah Carlsson - Thank You - Deep & Chic Remix 3:45
-003. Michael Ribeira - La Luna - Gypsetter Mix 3:07
-004. Kandi & Fitch - White Send Beach - Sunset Edit 4:02(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A394CBC0B2F08D6CD78512000520EBE59ED608
 ```
 
 

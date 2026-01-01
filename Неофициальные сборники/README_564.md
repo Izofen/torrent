@@ -1,3 +1,30 @@
+###  Публикация: 1002244   (848900) от 31.03.2016
+
+VA - Pure 90s Time Garden (2016) [MP3|320 кб/с] <Euro, Disco, Pop Rock, R&B, Alternative, Grunge, Folk, Country>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ozzy Osbourne - I Just Want You 04:56
+02. The Wallflowers - Three Marlenas 04:59
+03. Nirvana - Heart Shaped Box 04:41
+04. Bon Jovi - Keep The Faith 05:44(   Читать дальше...   )Жанр: Euro, Disco, Pop Rock, R&B, Alternative, Grunge, Folk, CountryПродолжительность: 08:28:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F729B3570A0478AD1B4E09EB2CDC44EFDCFCE796
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002409   (848921) от 31.03.2016
 
 VA - Fitness House.Musical Energy (2016) [MP3|320 кб/с] <House, Club, Dance>
@@ -667,33 +694,6 @@ VA - Шансон Весна (2020) [MP3|320 Kbps] <Шансон>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:339392B40AA71CD6FCCD6CB8F8861BB8ACCD1695
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377653   (851499) от 22.04.2020
-
-Megadeth - 100% Megadeth (2020) [MP3|320 Kbps] <Rock, Trash Metal, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holy Wars...The Punishment Due (Remastered 2004)
-02. Hangar 18 (Remastered 2004)
-03. A Tout Le Monde (Remastered 2004)
-04. Dystopia(   Читать дальше...   )Жанр: Rock, Trash Metal, MetalПродолжительность: 02:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE74251BDFD02FC785F015A742BE6D8F1DA2818A
 ```
 
 

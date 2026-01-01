@@ -1,3 +1,136 @@
+###  Публикация: 1131597   (706616) от 06.05.2017
+
+LCD Soundsystem - Call the Police / American Dream (2017) Single [FLAC|Lossless|tracks] <Electronic, Dance-Punk, Indie Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706616.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Call the police (07:01)
+2. American dream (06:13)Жанр: Electronic, Dance-Punk, Indie RockПродолжительность: 00:13:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD494B9187138070411F4321E4B6D1E4F0E59FC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131305   (706942) от 06.05.2017
+
+VA - Best Of Deephouse 2017 Vol.2 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jean Deep - The Power Of The Pad  5:36
+02.  The Inhabitants - Don't Start Flippin' It  6:05
+03.  Elastique V. - She Makes Me Wanna Dance  6:40
+04.  Miguel Alcobia - The Groove Awakens (Radio Edit)  3:33(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AACC3224CAC4015EFCFCFE99CAC462349D3349A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131550   (707091) от 06.05.2017
+
+Actress - AZD (2017) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Experimental, Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nimbus (00:54)
+02. Untitled 7 (05:13)
+03. Fantasynth (05:02)
+04. Blue Window (03:42)(   Читать дальше...   )Жанр: Experimental, Techno, MinimalПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12102F982807C6A2A3C1E491B0787ECDEEF73218
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131755   (707096) от 06.05.2017
+
+VA - Ori Uplift - Uplifting Only 221 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FAN FAVORITE 219: Ikerya Project & O.B.M. Notion Feat Danny Claire - Goodbye
+02. Susana - Only Summer Knows
+03. Manuel Rocca & Illitheas - Enchanted
+04. Syntouch & Angel Falls - Alone (Plutian Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F9BFAC008EFE0A593747A8C3B821CB218BBBCCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131788   (707128) от 06.05.2017
+
+VA - Paris Rooftop Chill Vol.1: Finest Chill Out Selection (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Ganja Tribe
+02. Alexander S. Karlov - Spirit Of The Bar
+03. Clelia Felix - High In The Sky
+04. Svendaq - Mediterranean Beat(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 02:25:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD4F0534682941D01E433645F84EB200A87A808E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286893   (707305) от 05.03.2019
 
 VA - From euphonic to Russia (mixed by Kyau vs. Albert) (2006) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -556,141 +689,6 @@ Dive - Underneath (2017) [FLAC|Lossless|WEB-DL|tracks] <EBM, Darkwave, Industria
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AAEFDD7380DD520092313A32A14DDC7815893D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130912   (710671) от 04.05.2017
-
-VA - Psy Moon Trance Vol.1 (2017) [MP3|320 Kbps] <Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Awaken - Rouge  6:57
-02.  Sensifeel - Color Of Life  7:46
-03.  D-Vision - Hot Drive (Agent Kritsek Remix)  7:25
-04.  Zighla Bashshar - Magic Trip  7:20(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6159D1780BAEB0D2791781EB529D741A16126166
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131196   (710783) от 04.05.2017
-
-VA - Chillout May 2017: Top 10 Spring Relaxing Chill Out and Lounge Music  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Rostej - Loneliness
-02. Insigo - Walking Into The Void
-03. Dmitry Lee'o - R.a.
-04. Cardmoth - Holiday Loneliness(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F23ABE975DB6543AAB0680E6931FB035CA1CE06B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130714   (710785) от 04.05.2017
-
-VA - Disco Dance Rimini 2017 [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clemens Rumpf, Marcell Russell – Ain’t Dancing Without You (Funky House Edit) (Funky House Edit) (5:28)
-02. Emmiel – Every Hour of Every Day (Kooky Electro Funk Remix) (Kooky Electro Funk Remix) (3:15)
-03. Adam Rise – Rocking to the Beat (4:29)
-04. Alfonso – Fever in the Disco (Deep Underground Mix) (Deep Underground Mix) (8:35)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4185E6673A5BBD239455D28C20F7FF95B91A1484
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130994   (710791) от 04.05.2017
-
-Takkra - Technicolor Talk (2017) [MP3|320 Kbps] <Ambient, Psychill>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elements 03:56
-02. Cinematic Frequencies 08:11
-03. The Encounter 07:16
-04. Mobius 05:42(   Читать дальше...   )Жанр: Ambient, PsychillПродолжительность: 01:13:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:051618DE5643135F768ADF9E3A444EADD412A3EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131025   (710796) от 04.05.2017
-
-VA - 5 Years Auditive (2017) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jonas Saalbach & Samuel Fach – Vital Signs
-02. Krink – A Passenger
-03. Mauro Basso – Drone (Tim Engelhardt Remix)
-04. Krink – A Passenger (Pazul remix)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7511E6A261B6F9CBD00CD3096B3B46952855C5E
 ```
 
 

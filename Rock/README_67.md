@@ -1,3 +1,30 @@
+###  Публикация: 904846   (653559) от 04.06.2015
+
+MacIntyre - Live At The Moontower (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bb Shoe-Flay (Live) (4:51)
+02. Leave Me Alone (Live) (4:39)
+03. Deranged (Live) (4:25)
+04. Waitin' Achin' (Live) (4:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B895DBA65DCFC6D806F520A574405B4FD25BAE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516034   (653829) от 28.06.2012
 
 Panic Room - Skin (2012) [MP3|320 кб/с]<Progressive Rock>
@@ -679,33 +706,6 @@ New England - New England (1979) Reissue, 1993, MCA Records [MP3|320 Kbps] <Clas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD72CCA5BEF9D19183DD835B38A091AA02DC3174
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225570   (659753) от 16.05.2018
-
-New England - Walking Wild (1981) Reissue, 1998, GB Music [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659753.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Walking Wild
-2. Holdin' Out On Me
-3. Don't Ever Let Me Go
-4. Love's Up In The Air(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD87A396F815F5E679B730D539C1DD06AB27E8C
 ```
 
 

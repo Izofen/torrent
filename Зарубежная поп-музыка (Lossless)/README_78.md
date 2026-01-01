@@ -1,3 +1,57 @@
+###  Публикация: 1380531   (831451) от 04.05.2020
+
+VA - NOW Love Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UB40 - (I Can't Help) Falling In Love With You (3:24)
+02. Bryan Ferry - Slave To Love (4:18)
+03. Cat Stevens - Wild World (3:20)
+04. Carpenters - We've Only Just Begun (3:04)(   Читать дальше...   )Жанр: Pop, Rock, BalladПродолжительность: 02:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881E026BE3B2BD874CF17E14F5EE8E01F38B9258
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380697   (831666) от 04.05.2020
+
+Monkey See - Monkey Do - Album No. 1 (1988) [FLAC|Lossless|image + .cue] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Crash My Car [0:03:53.70]
+02. Rich People [0:04:32.20]
+03. Empty Rooms [0:04:23.55]
+04. Eyes Of Africa [0:04:44.50](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE003B9FEFA4880DE95866970869273E540F6AE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114657   (831980) от 15.03.2017
 
 VA- Ike & Tina Turner - Revue Live (1964) 2007, P-Vine Records [FLAC|Lossless|tracks + .cue] <Pop, Funk, Soul, Blues>
@@ -639,60 +693,6 @@ a-ha - Scoundrel Club (1987) EP, Compilation [FLAC|Lossless|tracks + .cue] <Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44EE0EC5DA55EB6311D7F0CC72533D6F9AB4FB91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112474   (843306) от 08.03.2017
-
-Luigi Tenco - Tenco (1966) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lontano, Lontano
-02. Io Sono Uno
-03. Uno Di Questi Giorni Ti Sposerò
-04. Come Tanti Altri(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A0529F16A5BA4064E09D052941BDC7F7E88336C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112190   (844226) от 07.03.2017
-
-Demis Roussos - Complete 28 Original Albums (2016) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844226.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01 - On the Greek Side Of Mind (1971)
-CD02 - Forever And Ever (1973)
-CD03 - My Only Fascination (1974)
-CD04 - Auf Wiedersehen (1974)Жанр: PopПродолжительность: 27:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B3383117064A315938E15B1CCA22198568B95C
 ```
 
 

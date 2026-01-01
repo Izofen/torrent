@@ -1,3 +1,138 @@
+###  Публикация: 1385718   (797160) от 25.05.2020
+
+VA - Pop Hits in Bossa (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Pop, Bossa Nova>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christie Valent - Blinding Lights (Bossa Version) (3:39)
+02. Eleni Soaring - Dance Monkey (Bossa Version) (4:18)
+03. Eleni Soaring - What a Man Gotta Do (Bossa Version) (3:37)
+04. Christie Valent - I Love You (Bossa Version) (4:04)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Pop, Bossa NovaПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6549FB067C59225ECA2DC2724A49050CF7C9F115
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385665   (797161) от 25.05.2020
+
+BELLATRIX - Droids (2020) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Story From Space (5:27)
+02. Vector (5:37)
+03. Glass Heart (8:39)
+04. Abyss (6:51)(   Читать дальше...   )Жанр: Spacesynth, DiscoПродолжительность: 01:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3B1BDD428B72363098A618BD8374C823EBEF71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385611   (797193) от 25.05.2020
+
+VA - Top 40 Beatspot Summer '20 (2020) [MP3|320 Kbps] <House, Future House, Bass House, Tech-House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniele Francesco - Rock To The Rhythm (Jay Lutwen Remix) 4:25
+02. Junior XL - Bring Back To Life (Dub Mix) 4:23
+03. Fishbird - Desire (Original Mix) 4:56
+04. Dave Sparks - Shake Like That (Dub Mix) 4:59(   Читать дальше...   )Жанр: House, Future House, Bass House, Tech-HouseПродолжительность: 03:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:584211216961A944C8768101E08DAF25A617485B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385582   (797196) от 25.05.2020
+
+VA - HIIT Workout Mix (2020) [MP3|320 Kbps] <House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Killers - Mr. Brightside 03:43
+02. Baker Boy - Move 02:47
+03. Martin Solveig, Tkay Maidza - Do It Right 03:32
+04. Capital Cities - Safe And Sound 03:11(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D007753C348C5E7EE0844F592D192AB41A7F32C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385539   (797201) от 25.05.2020
+
+Aquanote - The Pearl (2002) [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Water Psalm I
+02. Waiting
+03. True Love
+04. All Over You(   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 01:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A885CC1DB0119CECF1EFA666D28D6173E6BE57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385547   (797205) от 25.05.2020
 
 VA - Bare Essentials Vol. 2 (2003) [FLAC|Lossless|tracks + .cue] <Deep House>
@@ -560,141 +695,6 @@ Jody Wisternoff - Nightwhisper (2020) Extended Edition [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:998B041732AE20C4159989D56E431F8AC44FB7CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508182   (797970) от 07.11.2021
-
-Olive - CD Коллекция (4 CD, 2 Albums) (1997-2000) [FLAC|Lossless|tracks + .cue] <Electronic, Downtempo, Synth-pop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британский электронный проект "Olive" известен большинству меломанов благодаря синглу "You're Not Alone", возглавлявшему верхние строчки мировых хит-парадов.
-Группа была основана в 1994 году бывшим клавишником "Simply Red" Тимом Келлетом и бывшим участником "Nightmare On Wax" Робином Тайлором-Фиртом, к которым вскоре присоединилась (   Читать дальше...   )1997 - Extra Virgin (Japan)
-1997 - Singles (exclusive limited edition)
-2000 - Trickle (Japan)Жанр: Electronic, Downtempo, Synth-popПродолжительность: 04:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5908EF77DF2D6BB336DD5701C274CF547A8F6707
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507879   (797971) от 07.11.2021
-
-VA - Gagarin Selection 2021 (2021) [MP3|320 Kbps] <Spacesynth, Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TELEGIMNASTIKA - MIR (5:34)
-02. Soulstring - Gagarin (5:50)
-03. Ionov - Spacewave (3:16)
-04. Efektvol - Bajkonur (5:24)(   Читать дальше...   )Жанр: Spacesynth, Synthpop, SynthwaveПродолжительность: 01:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153F7C9F18ED6C609F6F8F75A1191259B9E57A36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508227   (797978) от 07.11.2021
-
-VA - Gagarin Selection 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TELEGIMNASTIKA - MIR (5:34)
-02. Soulstring - Gagarin (5:50)
-03. Ionov - Spacewave (3:16)
-04. Efektvol - Bajkonur (5:24)(   Читать дальше...   )Жанр: Spacesynth, Synthpop, SynthwaveПродолжительность: 01:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8D92C76CF29ABE02001E331C50CEAF26856EF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507881   (797980) от 07.11.2021
-
-Johan Tronestam - Space Collection (2017) [MP3|320 Kbps] <Berlin-School, Space Music>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Redshift (8:28)
-02. Distance (8:15)
-03. Next Steps (7:31)
-04. A Ninth Member (7:21)(   Читать дальше...   )Жанр: Berlin-School, Space MusicПродолжительность: 01:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F567C28A382A5B451EAD839B75A1D1292EED5CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508230   (797985) от 07.11.2021
-
-Johan Tronestam - Space Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Berlin-School, Space Music>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Redshift (8:28)
-02. Distance (8:15)
-03. Next Steps (7:31)
-04. A Ninth Member (7:21)(   Читать дальше...   )Жанр: Berlin-School, Space MusicПродолжительность: 01:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B036BE763BACA1659E784EFA5723E6624A61C0BC
 ```
 
 

@@ -1,3 +1,36 @@
+###  Публикация: 509664   (672816) от 13.06.2012
+
+VA - Deep Line. Erotic Lounge (2012) [MP3|320 kbps]<Downtempo|Lounge|Chillout>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antennasia - Lost
+02. Melody Gardot - So Long
+03. Sow Keng Poon - Lover's Tears
+04. Van - The Beauty Of The East
+05. Haley - I Remember
+06. Sophie Zelmani - The Years
+07. Sugar Brownie - Facing The World - Soul 2 Lounge Mix
+08. Wolf Myer Orchestra Ft. Lylit - Soulgate
+09. Depeche Mode - Goodnight Lovers
+10. Etro Anime - Let It Go(   Читать дальше...   )2012Жанр: Downtempo|Lounge|ChilloutПродолжительность: 03:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35477E67B98F7323883AF6423C38AFA3342718B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136510   (672870) от 23.05.2017
 
 VA - Bаss Kіllеr (2017) [MP3|320 Kbps] <Trap , Dubstep , Bass>
@@ -689,33 +722,6 @@ Heiko And Maiko - Techno Rock (2018) Radio Remix [MP3|320 Kbps] <Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10CD1512635B4B0B67ABADB24A73C7E958297943
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030527   (673799) от 30.06.2016
-
-Enrique Iglesias - The Best Songs (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bailando (English Version)
-02. Bailando (Spanish Version)
-03. Cuando Me Enamoro
-04. DUELE EL CORAZON(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:084895A67E3CB967FE596B8D9A7F9F0695317784
 ```
 
 

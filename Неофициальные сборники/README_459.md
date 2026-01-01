@@ -1,3 +1,30 @@
+###  Публикация: 1285012   (724770) от 24.02.2019
+
+VA - Stelllar Atmosphere Of Trance (2019) [MP3|320 Kbps] <Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724770.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gagauz - Flashback (Original Mix)
+002. Eryon Stocker - Uplift Your Mind (Original Mix)
+003. Perpetuous Dreamer - The Sound Of Goodbye
+004. Thomas B. - Go Back Home(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 09:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B87701B3E6E977C77CC694792955D249D1DB0DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285015   (724774) от 24.02.2019
 
 VA - Tech House Electro Sessions (2019) [MP3|320 Kbps] <Electro, Tech House>
@@ -675,33 +702,6 @@ VA - German Top 100 Single Charts 31.07.2020 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1059C6B1D12F98D6DC5465A59AFEA04F06DFC296
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218180   (725197) от 08.04.2018
-
-VA - Best Chillout Vol.37 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725197.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aash Mehta & Capelle & Gavin Garris - Say Goodnight  (Original Mix)
-002. Alankara - The Nature of the Human Being  (Alankara Orchestra)
-003. Alex Klingle ft. Linnea Schossow - I Run To You (Bryan Milton Remix)
-004. Alex Ferro & Catas - One Night (Original Mix)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 06:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:001F197EBF62A918F196EF726CDFEBDBCD662C68
 ```
 
 

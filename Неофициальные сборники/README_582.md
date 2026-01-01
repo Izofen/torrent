@@ -1,3 +1,30 @@
+###  Публикация: 1104439   (878223) от 16.02.2017
+
+VA - Ресторан Кураж для друзей. Сборник № 4 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878223.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Артур Гари - Не Спеши Сказать Прощай 3:19
+002. Александр Ром - Любимая Желанная 3:21
+003. Владимир Ждамиров - Скажи Зачем 4:59
+004. Оксана Иванова - Фортуна 3:28(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D0E5F5C79C1CD9835CCAA31858B7D658F9885D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103985   (878292) от 16.02.2017
 
 VA - Big Room Dance House (2017) [MP3|320 Kbps] <Electro, Dance House>
@@ -663,33 +690,6 @@ VA - Returned Trance Around The World (2016) [MP3|320 кб/с] <Trance, Energy, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:882AD610081FB47329C47AE141229240BD9156FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104174   (879503) от 15.02.2017
-
-VA - Музыка для вашего Авто (2017) [MP3|320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879503.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Charlie Puth feat. Selena Gomez - We Don't Talk Anymore (Manuel Alvarez Bootleg) 4:46
-002. Rockstroh feat. Tonberg - Weil Ich Das Leben Mag (Club Radio Mix) 2:53
-003. Sam Feldt  Deepend feat. Teemu - Runaways (Jay Hardway Remix Edit) 3:00
-004. Maroon 5 Ft. Kendrick Lamar - Don't Wanna Know (Dark Intensity Remix) 4:28(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 06:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8132414EA5121E877ED445D8701B8B2B220537B
 ```
 
 

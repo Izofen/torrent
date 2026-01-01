@@ -1,3 +1,165 @@
+###  Публикация: 1619463   (1032959) от 16.03.2023
+
+VA - 100 Easy Hits (2023) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032959.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anderson .Paak - Smokin Out the Window
+002. Ed Sheeran - Perfect
+003. Rod Stewart - Have I Told You Lately
+004. THE GOO GOO DOLLS - Iris(   Читать дальше...   )Жанр: PopПродолжительность: 05:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:424B027A3F67C38E0CF961278B84A4AAC0560AB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619439   (1032965) от 16.03.2023
+
+The Cosmic Sound Orchestra - Fly Some Funk Up To The Moon (1978) LP [MP3|320 Kbps] <Disco, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly Some Funk Up To The Moon (3:26)
+02. Listen To The Beat (3:56)
+03. I'm Being Cool (3:47)
+04. Don't Cry (4:05)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:778768717387A62CEE286452026E9876C474E623
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446095   (1033024) от 08.02.2021
+
+VA - Acoustic Versions of Rock Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Django Wallace - My Hero (03:46)
+02. Shannon & Keast - Wake Me up When September Ends (04:10)
+03. Karizma Duo - Everybody’s Changing (02:35)
+04. Nora & Will - Creep (04:21)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B27F89AA9AB9E8CD1B924210B26DEDC2B9D3B85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445885   (1033045) от 08.02.2021
+
+VA - Dream Pop 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rupert Pope, Giles Palmer & Lucy Underhill - All Comes True (3:51)
+02. Raphael Lake - Cruise (3:05)
+03. Rupert Pope, John Robertson & Eller - Foolish Path (3:52)
+04. Extreme Music - Passing Love (4:16)(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE385415E0A2D59DB3F9D4C68C9BA44F90E228B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445883   (1033049) от 08.02.2021
+
+VA - Dream Pop (2012) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raphael Lake - Turn It Up (3:20)
+02. Jason Tarver, Lucy Underhill & Mark Williams - Just Drive (2:57)
+03. Lee Richardson, Richard Macklin & Tom Ford - Said and Done (3:23)
+04. Raphael Lake - Forever Young (3:28)(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94356F6157F59D771F6FEFE0B61A03F6FFD0D635
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619048   (1033394) от 14.03.2023
+
+VA - Best Of Disco Balls Records 2022, Vol. 4 (2023) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stefan Torres - can't help me no more (g.lef remix)
+02. Molly & Tacos - lonely people (latouche finale remix)
+03. Pete Flame & Flymyk - prelude (extended mix)
+04. Hangover Boss - alright (ali arsan remix)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:55:08 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8187EF2E991DEA7AB9ACF5F62BE3B0B9439064EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619046   (1033397) от 14.03.2023
 
 VA - Best Of Disco Balls Records 2022, Vol. 2 (2023) [MP3|320 Kbps] <Disco, Nu-Disco>
@@ -530,168 +692,6 @@ Dave Dee, Dozy, Beaky, Mick and Tich - The Best of (2000) Unofficial Release [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26CB2A1E68F46A331CBAC3CB8073D30AD106A0C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444158   (1034672) от 01.02.2021
-
-VA - New Italo Disco Music Vol. 6 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estimado - I Bridge New Life (7:07)
-02. Kristian Conde - Don't Give It Up (Maxi Version) (4:45)
-03. The Crosslines - Starlight (Maxi Version) (5:17)
-04. Nation In Blue - I Want U (Extended Version) (6:17)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E3C43FC3D96F4818B62DE17A87167F2808CA6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444164   (1034674) от 01.02.2021
-
-VA - New Italo Disco Music Vol. 8 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estimado - This My Lady Like the Night (Extended Version) (8:56)
-02. Birizdo I Am - Dont Go (Extended Version) (6:11)
-03. Diamond Rain - Mystic Night (Extended Version) (6:11)
-04. Nikita Fomin - I Dont Wanna Lose You (Extended Version) (6:28)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B715BF61A3616A72D6086E3172CC50A7267516FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444417   (1034678) от 01.02.2021
-
-VA - Valentine's Day 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Police - Every Breath You Take - Remastered 2003 (4:14)
-02. Lady A - Need You Now (3:56)
-03. James Morrison - You Give Me Something (3:32)
-04. Shania Twain - You're Still The One (3:14)(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F1B36534C3AC8CE5596FCD0F0D3D0AF61964E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444145   (1034680) от 01.02.2021
-
-VA - New Italo Disco Music Vol. 2 (Selected by Lajos Birizdo) (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fancy - Slice Me Nice (Split Mirrors Remix) (5:49)
-02. Digitalo - Beautiful Day (Extended Mix) (9:18)
-03. Maxthor - Hunters (Extended Mix) (4:50)
-04. Loreana C. - Dangerous Love (Extended Mix) (6:17)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7A2EC69FE4B7183D508DE78C125CDA782F2E121
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444057   (1034681) от 01.02.2021
-
-VA - Valentines Day 2021 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cardigans - Lovefool (03:18)
-02. Keane - Somewhere Only We Know (03:56)
-03. Jackson 5 - I'll Be There (03:57)
-04. Marvin Gaye - Ain't No Mountain High Enough (02:27)(   Читать дальше...   )Жанр: PopПродолжительность: 04:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF24092E5CCE985F70531ED47A245629FA873F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444411   (1034684) от 01.02.2021
-
-Dave Dee, Dozy, Beaky, Mick & Tich - Zabadak (1995) [FLAC|Lossless|image + .cue] <Beat, Pop Rock, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Legend of Xanadu (3:38)
-02. Bend It (2:33)
-03. Save Me (3:01)
-04. Mr. President (3:16)(   Читать дальше...   )Жанр: Beat, Pop Rock, OldiesПродолжительность: 00:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:335AFDF5A539D186FC217A65596995DAE0995198
 ```
 
 

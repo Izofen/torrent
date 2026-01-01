@@ -1,3 +1,163 @@
+###  Публикация: 758346   (912062) от 19.02.2014
+
+VA - Pure... singer/songwriter (2011) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Singer - Songwriter, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверное singer/songwriter нужно было бы перевести как барды-песенники или сочинители-исполнители, но прослушав эти 4 диска из серии Pure (ссылку на серию см. ниже) решил, что скорее это хороший сборник поп музыки. Тем более, что и allmusic.com его определил также. Интересно, что во всех поисковиках (в том числе и на нашем трекере в мр3) альбом значиться как singer/songwriters, (   Читать дальше...   )CD1:
+01. Bob Dylan-It.s all over now  (4:17)
+02. Simon & Garfunkel - Bridge over troubled water  (4:53)
+03. John Denver - leaving on a jet plane  (3:39)(   Читать дальше...   )Жанр: Pop, Rock, Singer - Songwriter, FolkПродолжительность: 04:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E7B7A8588CBBA6A94373E40D132D6AD304D34A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 290215   (912097) от 04.02.2011
+
+Nani Bregvadze (Нани Брегвадзе) - Russian Love, Romance & Destiny (1998) [MP3|320 kbps]<retro, романс>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трэклист:
+01.Жанр: retro, романсПродолжительность: 01:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6490715F1C47A8FA733D9DBB6C76A85475CE283A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097765   (912196) от 28.01.2017
+
+VA - KONTOR TRAPICAL (2017) [FLAC|Lossless|tracks] <Dance, House, Dubsteр>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starley - Call On Me (Ryan Riback Remix) (3:47)
+02. Lost Frequencies - What Is Love (Neptunica Remix) (2:52)
+03. Major Lazer & Showtek - Believer (3:32)
+04. Armin Van Buuren - Caught In The Slipstream (Galavant Remix) (2:54)(   Читать дальше...   )Жанр: Dance, House, DubstepПродолжительность: 03:19:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F8FA8D83A7E697455E80FD867F8A9A52CF3D3BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368228   (912264) от 18.03.2020
+
+Garcons - Divorce (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. French Boy (9:28)
+02. Encore L'Amour (7:06)
+03. 25th Street (6:09)
+04. Critics (5:50)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE68A6808D861F6F5A2464FD05BE9706833CEFD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098046   (912346) от 28.01.2017
+
+2 plus 1 - Easy Come, Easy Go (1980) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912346.jpg" />
+</div>
+
+
+###  Подробнее
+
+2 plus 1 - польская поп группа, записала десять студийных альбомов, три из которых были удостоены золота в Польше. Данный альбом, записанный полностью на английском языке с немецкими и американскими музыкантами, был выпущен изначально в Германии в начале 1980 года для мирового рынка и  только уже в следующем - 1981м - на родине.01. Easy Come, Easy Go (3:21)
+02. More (3:24)
+03. Sad Is The Heart (3:43)
+04. Keep Your Hands To Yourself (2:43)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F13478E6E017E735EA831FB0F35CAAEB8F3A8AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098048   (912661) от 28.01.2017
+
+Joe South - Introspect / Don't It Make You Want To Go Home? (2003) [FLAC|Lossless|image + .cue] <Pop, Southern Rock, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912661.jpg" />
+</div>
+
+
+###  Подробнее
+
+ntrospect (1968)
+01. All My Hard Times (2:53)
+02. Rose Garden (2:50)
+03. Mirror Of Your Mind (4:40)(   Читать дальше...   )Жанр: Pop, Southern Rock, SoulПродолжительность: 01:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F5A4209D68DE6B21DB860A594774B047FEAAB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491018   (913632) от 23.08.2021
 
 London Boys - Requiem – The London Boys Story (2021) 5xCD Expanded Box Set [FLAC|Lossless|image + .cue] <Eurodance, Eurobeat>
@@ -530,174 +690,6 @@ Shania Twain - 6 студийных альбомов и 2 сборника (1993
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:416905C4A69EDB019173946DCA0CBA3206C68C91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289548   (916857) от 01.02.2011
-
-VA - Золотая русская коллекция. Облака в реке (2005) [MP3|320 kbps]<retro, pop>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ВИА Синяя птица - Клён (Ю.Акулов-Л.Шишко)
-02. ВИА Самоцветы - Салют (В.Пресняков, Ю.Маликов-Б.Салибов)
-03. ВИА Норок - О чём плачут гитары (М.Долган-рус.яз.В.Сундеев)
-04. ВИА Сябры - Печки-лавочки (О.Иванов-А.Поперечный)
-05. ВИА Поющие сердца - Вот какая беда (Б.Савельев-И.Кохановский)
-06. ВИА Самоцветы - Али-Баба (В.Пресняков, Ю.Маликов-И.Шаферан)
-07. ВИА Пламя 2000 - Не надо печалиться (А.Экимян-Р.Рождественский)
-08. ВИА Поющие сердца - Облака в реке (А.Днепров-И.Кохановыский)
-09. ВИА Надежда - До отправления поезда (А.Пахмутова-Н.Добронравов)
-10. ВИА Верные друзья - Девятый класс (Б.Монастырский-Ю.Рыбчинский)(   Читать дальше...)Жанр: retro, popПродолжительность: 01:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FB882EA4EC00A8D2BDF311B71D9AF6B082A24DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989260   (917110) от 22.02.2016
-
-Mimi Page - The Ethereal Blues (2015) [MP3|320 кб/с] <Alternative Pop, Dream Pop, Trip Hop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917110.jpg" />
-</div>
-
-
-###  Подробнее
-
-На творчество талантливой и востребованной исполнительницы, автора музыки и текстов оказали влияние такие мэтры, как Nine Inch Nails, Tori Amos, Radiohead, Thomas Newman и Enya.01. Singing in the Dark
-02. The Way
-03. Human Hurricane
-04. Hold Me(   Читать дальше...   )Жанр: Alternative Pop, Dream Pop, Trip HopПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6FFB05A654574F6F1B08E8BB8403121D0B02D32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989273   (917151) от 22.02.2016
-
-Mimi Page - Breathe Me In (2012) [MP3|320 кб/с] <Alternative Pop, Dream Pop, Trip Hop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Vanilla Sky
-02. Black Valentine
-03. Colorblind
-04. All I Need(   Читать дальше...   )Жанр: Alternative Pop, Dream Pop, Trip HopПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B2924F0D8B2643F9FD6860EFD5CA937D45EE706
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 757678   (917210) от 16.02.2014
-
-VA - В десяточку! 1-15, 17 (16 CD) (1995-2004) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917210.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Светлана Алмазова - В десяточку (3:12)
-2. Наталья Сенчукова - Кино про любовь (3:54)
-3. Ирина Салтыкова - Серые глаза (3:24)
-4. Диана - Не говори (3:53)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CC3092E126F6185A562D33C73A74AA3FEBE46F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367345   (917227) от 15.03.2020
-
-VA - The Disco Box (1999) Compilation, 4CD [FLAC|Lossless|tracks] <Funk, Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917227.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Love’s Theme - Love Unlimited Orchestra [3:35]
- 2. Dancing Machine - The Jackson 5 [2:42]
- 3. Rock the Boat - The Hues Corporation [3:09]
- 4. Honeybee - Gloria Gaynor [3:45](   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 04:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:775038262D4BDCF5CFC4549A66AFD836811EA51E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366758   (917231) от 15.03.2020
-
-VA - 80's Gold (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917231.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tina Turner - Steamy Windows
-2. a-ha - Take On Me
-3. Duran Duran - Hungry Like the Wolf
-4. Stevie Nicks - Rooms On Fire(   Читать дальше...   )Жанр: PopПродолжительность: 03:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FF2CB0BCD9B3074D3CA4A70F7421D6DFADDDFDE
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1140342   (655896) от 06.06.2017
+
+VA - Boutique Lounge Vol.3 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alpha Centaury - Secret - Original Mix
+02. Mathieu & Florzinho - Primavera - Dub Mix 2010
+03. Twentyeight - Butterflies - Original Mix
+04. Charly McLion - This Is Not America - Original Mix(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547AF486095189203855A46BD4BBBC131092675C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226334   (655945) от 20.05.2018
+
+Halftribe - For The Summer, Or Forever (2018) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacred (02:27)
+ 02. For The Summer, Or Forever (04:02)
+ 03. Balm (03:40)
+ 04. Swimming Off That Sombre Shore (04:34)(   Читать дальше...   )Жанр: Ambient, Drone, ExperimentalПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C5CBBA713EC254B5C13AE1153F34EEB1DF8193
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140448   (655971) от 06.06.2017
+
+VA - Iconic Deep Deephouse Rhythms (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonido De Casa — Insomnias — Sonido De Casa Mix
+02. Skyline — You'll Be There — Fly Mix
+03. Mister Eex — Fifth Avenue — Shopping Mix
+04. Modern City — I Feel so Blue — Ultra Deep Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:218BC529C9E3535539A256B3493F6373B2F71F9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140364   (655979) от 06.06.2017
+
+Narel - Losing Adequacy (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655979.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pulse Garden  8:20
+2. The Void Which Binds  7:43
+3. Circle Sky  10:09
+4. Return Of The Northerlies  7:35(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAA7D8AE6F5AB0D57D46BED31BB89982696E0E26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226369   (656026) от 20.05.2018
+
+Floe - Attributes (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Floe & Edvarvhile – Introspection 2018 (Album Mix)
+02. Denis Sender & Floe – Charisma (Album Mix)
+03. Floe – Constitution (Album Mix)
+04. DJ T.H., Floe & Angel Falls – Only Time (Album Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87E18A19A68230D3623E7F7E26F09ED696173F7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539844   (656044) от 27.03.2022
 
 Kraftwerk - Remixes (2022) 2CD [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop>
@@ -565,147 +700,6 @@ VA - Vocal Trance Hits 2022 Vol 1 [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4D5F6241DFAB7E124CF3CA6EF0A242CF880988F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539711   (657218) от 26.03.2022
-
-Nickolay Fedorenko - Magic Multiverse: Best of 2011-2017 (2022) [MP3|320 Kbps] <Spacesynth, Spacedisco>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revolution (3:03)
-02. Liftoff (3:41)
-03. Mikroumlaufbahnen (feat. Vortex Mechanic) (4:41)
-04. Space Falcon (3:16)(   Читать дальше...   )Жанр: Spacesynth, SpacediscoПродолжительность: 01:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E75A725841827B87D82932E4C4A22E5B009AC42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902729   (657572) от 31.05.2015
-
-Major Lazer - Peace Is the Mission (2015) [FLAC|Lossless|WEB-DL]<Trap, FutureBass, DutchHouse, ElectroHouse, Moombahton, Carnival>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657572.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Be Together (feat. Wild Belle) [3:53]
-2. Too Original (feat. Elliphant & Jovi Rockwell) [3:27]
-3. Blaze Up the Fire (feat. Chronixx) [3:34]
-4. Lean On (feat. MO & DJ Snake) [2:56](   Читать дальше...   )Жанр: Trap, FutureBass, DutchHouse, ElectroHouse, Moombahton, CarnivalПродолжительность: 00:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F0828A9AFDA09146783225408229C6509892DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514568   (657754) от 24.06.2012
-
-Example - Playing In The Shadows (2011) [FLAC|Lossless]<Electro House/ Electro Hip-Hop/Dubstep>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_657754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Example - Playing In The Shadows (2011)
-
-Год: 2011
-Жанр: Electro House/ Electro Hip-Hop/Dubstep
-Продолжительность: 00:52:39
-Страна: UK
-Лейбл: Ministry Of Sound
-Каталог №:  MOSART2
-Сканы: Комплект
-Кодек: FLAC(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902917   (657868) от 31.05.2015
-
-VA - Paul Oakenfold - DJ Box: June (2015) [MP3|320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657868.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fehrplay - Lotus (Original Mix) (07:04)
-002. Paul Oakenfold feat. J Hart - Surrender (Rei Remix) (03:31)
-003. Max Freegrant - Secret Weapon (Original Mix) (05:38)
-004. Canberra & Astrid Suryanto - UP (Mike Saint-Jules Radio Edit) (03:45)(   Читать дальше...   )Производство: PerfectoЖанр: TranceПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96DB7575D59F1C02A7DC2537D2F227D30501B231
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903531   (657873) от 31.05.2015
-
-VA - Chill Bar Essential Lounge (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657873.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bobby Deep - Dream Away (07:05)
-002. Artifact - Deep Inside (04:10)
-003. DJ Cattail - Vista Point (02:05)
-004. Lo Seen - Moons (04:48)(   Читать дальше...   )Производство: ABPЖанр: Downtempo, Lounge, Chill OutПродолжительность: 01:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A528F268292F1D7D87D2C3FA6885599525E93ADF
 ```
 
 

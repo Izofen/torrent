@@ -1,3 +1,138 @@
+###  Публикация: 1383827   (808144) от 17.05.2020
+
+VA - Ibiza Megamix 2020 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sándor - Drop The Beat (Original Mix) 5:51
+02. Franky Rizardo - X Marks The Spot 6:42
+03. Moonbootica - Lean (Original Mix) 5:13
+04. Chris Hartwig - Bang The Groove (Format B Remix) 6:10(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC9C5E3CDA59F2B7D0EC3DB3D70C826D626A3674
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197964   (808146) от 11.01.2018
+
+VA - The Best Of Liquid Soul (2018) [MP3|320 Kbps] <Psy-Trance, Progressive>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ace Ventura & Liquid Soul  -  Neurochemistry (Original Mix)  8:00
+02.  Liquid Soul & Neodyne  -  Cherub (Original Mix)  7:53
+03.  Liquid Soul & Neodyne  -  Believe (Original Mix)  7:42
+04.  Liquid Soul & Captain Hook  -  Liquid Hook (Original Mix)  7:50(   Читать дальше...   )Жанр: Psy-Trance, ProgressiveПродолжительность: 01:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D0B8E964AF2AD3B47AB0FABE20F9C5FD4B72D78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383861   (808280) от 17.05.2020
+
+Accelera Deck - Perfect Nostalgia Beach Rave (2020) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfect Nostalgia Beach Rave (04:18)
+ 02. Rose Croix Lips (03:50)
+ 03. Salamander (05:40)
+ 04. Foxglove Flowers (03:35)(   Читать дальше...   )Жанр: IDM, AmbientПродолжительность: 01:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:825B035FCFC3423417C7E86A122D09D89A4006EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009672   (808355) от 22.04.2016
+
+VA - Electrotastic Vol.21 (Everyone Wants Electro) (2016) [MP3|320 кб/с] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean Elan - Everlasting Love (feat. Steve Edwards) (Diego Miranda Remix) 05:20
+02. Dave Till, Edu Barboza, G.Oliver - Nocturnal 05:25
+03. Dirty Rush - Titans 04:27
+04. Clubbusters - Fuckin' Beat 05:48(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E5E16CD37738A0BC2FDD0B6386D73FE9152170
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009760   (808356) от 22.04.2016
+
+VA - House Progressive Resistant (2016) [MP3|320 кб/с] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luciano Delgado - Caballito Vibra 07:19
+02. Falko Niestolik - The Groove (Radio Mix) 03:18
+03. Following Light - Dell 08:40
+04. Elkana Paz - 2Me (Eran Hersh Radio Edit) 03:15(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2EAE4DD564EBBCEAA0B3BCD585FD6186D462A0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198236   (808402) от 11.01.2018
 
 VA - Alfa Romeo La Meccanica Delle Emozioni (2017) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -555,141 +690,6 @@ VA - Venera Music Vol.5 (2016) [MP3|320 кб/с] <House, Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6762316DCCAA3C16A9FED3E610B03ABE1875A6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197996   (810368) от 10.01.2018
-
-VA - Best of Nuevadark 2017 (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blufeld - Rakete Zum Mond (You Are My Salvation Remix) (10:46)
-02. Jetride - Sad Piano (Gordey Tsukanov Remix) (6:36)
-03. Mavrek - Burst on Fire (Inspireds Remix) (5:46)
-04. Blufeld - Rakete Zum Mond (Alan Cuevas Remix) (7:15)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F382ECBD729A127B4ECED7A427338C07628BE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504551   (810416) от 24.10.2021
-
-Not My God (ex-Marilyn Manson, Psyclon 9) - Not my God (2020) [FLAC 2.0|48/24|WEB-DL|tracks] <Dark Electro, Electro Industrial>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810416.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fiction
-2. Until the Pain Is Gone
-3. Sowing Discord
-4. Murder Suicide(   Читать дальше...   )Жанр: Dark Electro, Electro IndustrialПродолжительность: 00:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F6D1C08A0C134C5C2BEE1B8D2C0282AA23FFB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504534   (810427) от 24.10.2021
-
-Not My God (ex-Marilyn Manson, Psyclon 9) - Simulacra (2021) [FLAC 2.0|44,1/24|WEB-DL|tracks] <Dark Electro, Electro Industrial>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 IN SERVICE OF THE WOLF [00:03:14]
-02 CRISIS [00:03:20]
-03 ASHES [00:04:06]
-04 THE UNDERNEATH [00:04:03](   Читать дальше...   )Жанр: Dark Electro, Electro IndustrialПродолжительность: 00:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B6F91B32B1055B2E57B0D994DFB3BA022373669
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504590   (810430) от 24.10.2021
-
-Etienne Daho - La Notte, La Notte... (1995) [FLAC|Lossless|tracks + .cue] <Synth-pop, Chanson>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Week-end Rome (Etienne Daho & Lio) [04:12]
-02. Sign Kiko [04:00]
-03. Le Grand Sommeil [04:03]
-04. Promesses [03:54](   Читать дальше...   )Жанр: Synth-pop, ChansonПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB94FA24BB0FA41607BE4D77291686E64529815
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197391   (811456) от 09.01.2018
-
-VA - Dream Dance Vol.84 (2018) 3CD [FLAC|Lossless|WEB-DL|tracks] <Trance, House, Dance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811456.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Dream Dance Alliance  -  Coming Home  3:50
-02.  Marshmello feat. Khalid  -  Silence (Tiesto's Big Room Remix)  3:23
-03.  Armin Van Buuren feat. Josh Cumbee  -  Sunny Days (Purenrg Remix)  3:12(   Читать дальше...   )Жанр: Trance, House, DanceПродолжительность: 01:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87543BCB5C4EB0046FDDD4633EED3711E92DDC0D
 ```
 
 

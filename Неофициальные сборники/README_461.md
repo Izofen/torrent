@@ -1,3 +1,30 @@
+###  Публикация: 1530922   (726605) от 13.02.2022
+
+VA - Chillout Melodic Mixtape (2022) [MP3|320 Kbps] <Chillout, Relax, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Незатейливая мелодия, легкое, атмосферное звучание, как будто авторы музыкальных произведений пытаются рассказать нам о том, что таится в уголках подсознания, о чем сомневаешься и в чём истинно уверился.001. Lafoliedamour - Lingering On
+002. Art Of Chill - One Day
+003. Marchillo - Nostalgia
+004. Mystericus - Gates Of Teotiuachan(   Читать дальше...   )Жанр: Chillout, Relax, DowntempoПродолжительность: 08:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF4F9C038672FA0977C5424BF04E9936F55E8BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023292   (726629) от 04.06.2016
 
 VA - Alterportal HITS 16 Vol. 92 - April (2016) [MP3|248-320 кб/с] <Alternative, Metal, Rock>
@@ -668,33 +695,6 @@ VA - Happy Pop Dance Party (2022) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59B0D411770D75998C853E68D4048B0837E80DB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022674   (727851) от 03.06.2016
-
-VA - Future Feelings Club Disco House (2016) [MP3|128-320 кб/с] <Electro, Disco, Club House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727851.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dr. Beat - Na Na Na
-002. Gariy & Hacker - Piano Groove
-003. Robin Schulz Ft. Akon - Heatwave
-004. Jonas Vogel - Find My Way Home (Lucas & Steve Remix)(   Читать дальше...   )Жанр: Electro, Disco, Club HouseПродолжительность: 08:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5DA10A7EB557CBF2D61D5B57064E57F266CA0A0
 ```
 
 

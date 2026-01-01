@@ -1,3 +1,57 @@
+###  Публикация: 1099151   (906642) от 31.01.2017
+
+Marian Hill - Sway (2015) EP [FLAC|Lossless|tracks] <Alternative Pop, Electronic, Minimalist>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Time
+02. Got It
+03. Lips
+04. Wasted(   Читать дальше...   )Жанр: Alternative Pop, Electronic, Minimalist, R&B, Synthpop, Nu JazzПродолжительность: 00:23:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:746AF6D4FA19065AE847CC95BB6B1835BE9E9DB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099093   (906782) от 31.01.2017
+
+Marian Hill - Act One (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Electronic, Minimalist>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down
+02. Talk to Me
+03. Wild
+04. Bout You(   Читать дальше...   )Жанр: Alternative Pop, Electronic, Minimalist, R&B, Synthpop, Nu JazzПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E243C848BADF6F195A22DCEB347D24D54ABD2926
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098845   (908872) от 30.01.2017
 
 Tomita Lab - Shipahead (2010) [FLAC|Lossless|tracks + .cue] <JPop, Jazz>
@@ -636,60 +690,6 @@ Olivia Holt - Olivia (2016) EP [FLAC|Lossless|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77152A1EBA1ECF13AEC5F57A4CF0D82DA4500659
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367101   (918763) от 14.03.2020
-
-VA - 80's Gold (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tina Turner - Steamy Windows
-02. a-ha - Take On Me
-03. Duran Duran - Hungry Like the Wolf
-04. Stevie Nicks - Rooms On Fire(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 03:28:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C917E68F529BBF5AA7C929B85BC74D24E6AD7B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367077   (918969) от 14.03.2020
-
-VA - 90s Guitar Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918969.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. All Saints - Under the Bridge
-2. Jannik - The Power of Love
-3. a-ha - Move to Memphis
-4. Tori Amos - God(   Читать дальше...   )Жанр: PopПродолжительность: 02:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1C841E7E5505FFB12D1BA4E6B35455E50214814
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1446680   (1032554) от 10.02.2021
+
+Триши - Лунная ночь (2006) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лунная ночь
+02. Я стала звездой
+03. Прощай!
+04. Стоп(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C4F035DD9A160CF529DED2D353F2DC03B4B2D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619860   (1032560) от 18.03.2023
+
+VA - Pop Blockbusters 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BoyWithUke - Toxic
+02. Bastille - Pompeii
+03. Capital Cities - Safe And Sound
+04. Marshmello - Happier(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61457EC99346057DF3FD4CBD0CA751C3391AD21A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446498   (1032728) от 09.02.2021
 
 Samantha Fox - I Wanna Have Some Fun (1988) [FLAC|Lossless|image + .cue] <Synth-pop, Pop, Dance>
@@ -640,60 +694,6 @@ The Fortunes - All The Hits and More (1993) [FLAC|Lossless|image + .cue] <Pop Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5049F4C5394D098BCC0026010DD54CDFE3F0E941
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442026   (1037242) от 23.01.2021
-
-Henk van Daam - Millionen Kusse (2014) [FLAC|Lossless|image + .cue] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037242.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wann
-2. Millionen Küsse
-3. Ich steh dir zur Seite
-4. Wann bist du bei mir(   Читать дальше...   )Жанр: SchlagerПродолжительность: 00:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24E6817D8C673AC1D6C381368E07750AA51BF33F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441334   (1037762) от 21.01.2021
-
-Selena Gomez - Rare (Box Set, Limited Edition, Special Edition ) - [Japan] (2020) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rare (03:4)
-02. Dance Again (02:50)
-03. Look At Her Now (02:42)
-04. Lose You To Love Me (03:26)(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DDA8956DECB543A510D5181F6703749F89D85C7
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1137588   (667992) от 26.05.2017
+
+VA - Ibiza Lounge Classic (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pindaric Spleen - Reciprocal Inhibition
+02. Hints of soul - Mixed Flowers
+03. Sombra Modos - Hora Tras Hora
+04. The Biosnakes - Sav(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D8383AB7B0B87D1200ADD5FBB4528987CA6B29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137396   (667994) от 26.05.2017
+
+VA - Soul Relax Spa Senses Compilation Vol.3 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bengali Wave — Heaven & Hell
+02. Indian Dawn — Modern Earth
+03. Kasiah Brown — Blue Whisper
+04. Shakeyjake B. — Dreaming the Desert(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2B1DD98A9414FD7F94F4CE97C7B582B2A27C498
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224017   (668111) от 08.05.2018
+
+The Glitch Mob - See Without Eyes (2018) [FLAC|Lossless|WEB-DL|tracks] <Glitch, IDM, Dubstep>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter Formless (feat. Rituals of Mine)
+02. Take Me With You (feat. Arama)
+03. Disintegrate Slowly
+04. Keep On Breathing (feat. Tula)(   Читать дальше...   )Жанр: Glitch, IDM, DubstepПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC13303C56DCC33DE42D10A20D69C734B0444353
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224064   (668112) от 08.05.2018
+
+Carl Craig - Versus & Remixes Vol. 1 & Vol. 2 (2017-2018) Infiné | Beat Records [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Techno, Neo-Classical, Experimental, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Melody (Henrik Schwarz Remix) (07:42)
+ 02. The Melody (Ishmael Ensemble Remix) (06:25)
+ 03. At Les (Abul Mogard Remix) (10:26)
+ 04. Desire (Secret Of Elements Remix) (09:12)(   Читать дальше...   )Тип издания: CD, WebЖанр: Tech House/Ambient/Techno/Deep HouseПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22D55956C2264C5800B87F53829AC584A7B28409
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224107   (668189) от 08.05.2018
+
+VA - Electrosounds Vol. 1 (1998) Globe [FLAC|Lossless|tracks+.cue] <Techno, IDM, Electro, Breakbeat>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Bug & Acid Maria - Electro Sex (06:09)
+ 02. Dr. Mottes & Euphorhythm - Patrik (DJ Hell Rmx) (05:33)
+ 03. Genlog - More Music (07:19)
+ 04. Electro Nation - Fist-Man (06:02)(   Читать дальше...   )Жанр: Techno, IDM, Electro, BreakbeatПродолжительность: 01:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27CDB562A443DE221808DF187F70F4C33A4C50EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 510059   (668559) от 15.06.2012
 
 VA - Neotrance Essentials (2007) [FLAC|Lossless]<Minimal, Tech House>
@@ -565,141 +700,6 @@ VA - Ori Uplift & Phoenix - Uplifting Only 273 (2018) [MP3|320 Kbps] <Trance,Upl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE2094C8ADCC3F79EC981C11882EDF05F90F48E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224024   (669871) от 07.05.2018
-
-VA - Markus Schulz  - Global DJ Broadcast (World Tour London) (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID
-02. Coyu & Bastian Bux - Desire Walk With Me
-03. Snow Ghosts - The Hunted (Arkham Knights Private Remix)
-04. &ME - Woods(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999ADAB199416D9E586133A0059C4B68B56A3AFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223999   (669879) от 07.05.2018
-
-VA - Dark Trance Vol. 4 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dennis Graft - Manipura (Extended Mix)
-02. Attila Syah Pres. Gamma & Cari - Every Goodbye (Extended Mix)
-03. Tom Exo - Hyperspace (Extended Mix)
-04. Adip Kiyoi - Space Roadster (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:273333592F84B03784F03F488122280E06E224E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223850   (669889) от 07.05.2018
-
-VA - Ori Uplift & Phil Langham - Uplifting Only 272 (2018) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. illitheas - Levity (Intro Mix)
-02. Etasonic & Dany G - Flying in a Dream (RAM & Cari Remix)
-03. Fredge - Melusine
-04. Syntouch - Waiting For The Sunrise(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEC23966A9B011EA047379D16F5BF177DD3C90B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224034   (669890) от 07.05.2018
-
-VA - Suanda Music Radio Top 15 (May) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer feat. Christina Novelli - Fireflies (Jorn van Deynhoven Remix)
-02. Ruslan Radriges - Revival (Extended Mix)
-03. Tom Exo - Hyperspace (Extended Mix)
-04. LTN - Wind and Cloud (Denis Sender Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3D1FE4F8913AD8B5298C90C925A591BF9C06E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223874   (669892) от 07.05.2018
-
-Dub Taylor - Caves & Cages (2018) Dirt Crew Recordings [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Tech House, Dub, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intra (2:20)
- 02. King's Cave (10:20)
- 03. Helix (7:18)
- 04. In Air (7:17)(   Читать дальше...   )Жанр: Dub Techno, Tech House, Dub, AmbientПродолжительность: 01:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756C57DA6F1BC673060FB0A124412306A0D80DD2
 ```
 
 

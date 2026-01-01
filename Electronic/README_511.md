@@ -1,3 +1,137 @@
+###  Публикация: 1406503   (1025082) от 22.03.2021
+
+Osamu Sato | 佐藤理 - Discography 18 Releases (1983-2020) Sony, Music Mine, Linen Records [FLAC|Lossless|tracks+.cue, tracks] <Experimental, IDM, Future Jazz, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monaural 808 (Mono Mix) (00:52)
+ 02. Piano 808 (Mono Mix) (04:39)
+ 03. I Want You 808 (Extended Mono Mix) (03:53)Тип издания: CD, Web, Vinyl, CassetteЖанр: Experimental, IDM, Future Jazz, Ambient •Продолжительность: 17:16:12 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31021F0CDDFA1FE44F56B737F4C542D109307EE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258530   (1025089) от 22.03.2021
+
+Martin Abrahamsson (Bauri, Deltidseskapism, Stalaktiten Och Mirjam) - Collection 8 Releases (1998-2021) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Glitch, Ambient, Techno, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Konstangest (00:27)
+ 02. Tysk Ubat (03:43)
+ 03. Pingis (03:35)
+ 04. Golvmopp (01:45)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM, Glitch, Ambient, Techno, Experimental •Продолжительность: 05:39:56 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4305621C281F98FBC4A8A8E4322C4A556E29BC48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456359   (1025095) от 22.03.2021
+
+VA - Electro Workout 2021: Motivation Training Music [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rene Rodrigezz - Tom's Diner (Original Mix) (02:25)
+02. Stephan F - New Spirit (Original Mix) (02:59)
+03. Turbotronic - Love Me (Original Mix) (03:13)
+04. MaxRiven - Kernkraft 400 (Original Mix) (02:45)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:24:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:811476F279EC0D19996D332232A8174DC85CA218
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456462   (1025129) от 22.03.2021
+
+4T Thieves and Friends - Liminal Space - The Remixes (2021) Kahvi Collective [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Downtempo, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brioskj - Nuances (06:59)
+ 02. Audio Cephlon - Nuances (04:54)
+ 03. Mr Ventham - Liminal Spaces (07:10)
+ 04. aAirial - Aesthetic Preservation (03:44)(   Читать дальше...   )Жанр: IDM, Glitch, Downtempo, AmbientПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D09A4E34D9EAE4A96BE9C8B3DA0DEFE3A2BF74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175017   (1025245) от 21.03.2021
+
+D.Å.R.F.D.H.S. (D.A.R.F.D.H.S.) - Discography 13 Releases (2013-2020) [FLAC|Lossless|WEB-DL|tracks] <Experimental, Techno, Ambient, Industrial, Dark Ambient>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Självbedrägeri (04:19)
+ 02. Andens Desperata Framåtanda (07:05)
+ 03. Dödsuppväckningar (04:07)
+ 04. Vaneföreställningsvärlden (03:53)(   Читать дальше...   )Тип издания: WebЖанр: Experimental, Techno, Ambient, Industrial, Dark Ambient •Продолжительность: 09:19:18 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B8EC15B9415A913054BFE5EDD0FAF6F2FD6A4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321792   (1025284) от 21.03.2021
 
 Jon Gaiser | Void | Fraktion  - Discography 20 Releases (2006-2017) M_nus [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, Ambient>
@@ -556,141 +690,6 @@ dISHARMONY - Resonance (2021) Aliens Production [FLAC 2.0|44.1/24|tracks|WEB-DL]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07512CCF33860E41FDD41CEF1CA8F0C431009644
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454661   (1026133) от 16.03.2021
-
-Synth Elements - Fifth Element (2017) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out of the Maze (6:32)
-02. Visions (6:00)
-03. Blind Cosmos (6:26)
-04. Misterious Book (6:45)(   Читать дальше...   )Жанр: Spacesynth, Italo-DanceПродолжительность: 01:18:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A81862E18E2D7A006CA7AF6EA08C42674123FAAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454659   (1026137) от 16.03.2021
-
-Synth Elements - The Illusion of Time (Remixes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gravity Zero (Extended Mix) (7:16)
-02. New Travel (Bonus Remix) (5:56)
-03. Love Bigger Than Space (Extended Mix) (7:18)
-04. Cosmological (Remix) (6:47)(   Читать дальше...   )Жанр: Spacesynth, Italo-DanceПродолжительность: 01:23:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3ED5093820F270376CC6F6A3E0A349A22F7B876
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454858   (1026140) от 16.03.2021
-
-VA - Table Of Elements Volume 5​.​0 (2021) M-Tronic [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nearfield - Beauty Of The Sea World (06:01)
-02. DEF - Astiiroid (05:40)
-03. Lith - Kaazar (04:28)
-04. C.H. District - Modular Live From Studio (Excerpt) (14:15)(   Читать дальше...   )Жанр: IDM, Industrial, AmbientПродолжительность: 02:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDBC490F084B835526EEB2D83C3B3B3335A05B30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454658   (1026141) от 16.03.2021
-
-Synth Elements - The Illusion of Time (2015) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gravity Zero (6:44)
-02. Journey Between the Stars (6:26)
-03. X Force (6:39)
-04. Summer Holiday (6:31)(   Читать дальше...   )Жанр: Spacesynth, Italo-DanceПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41E4B1A950760860862154AABDBFFDC20A6A08A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454660   (1026142) от 16.03.2021
-
-Synth Elements - View from Outer Galaxy (2016) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Games (6:52)
-02. Giant Robots (7:21)
-03. Man Machine (5:50)
-04. We Are Generation of Space (5:55)(   Читать дальше...   )Жанр: Spacesynth, Italo-DanceПродолжительность: 01:17:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C266677AF3FA28B74C39A8C8A3E6A7DB8E697C54
 ```
 
 

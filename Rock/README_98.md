@@ -1,3 +1,30 @@
+###  Публикация: 1446486   (1032752) от 09.02.2021
+
+Fernando Perdomo - Trgtr: The Music of Todd Rundgren (2021) [MP3|320 Kbps] <Crossover Prog. Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open My Eyes (03:27)
+ 02. International Feel (03:07)
+ 03. Can We Still Be Friends (04:39)
+ 04. Collide O Scope (04:59)(   Читать дальше...   )Жанр: Crossover Prog. RockПродолжительность: 01:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61FC73B05DE939A71F9919265BC324353EECDA17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446191   (1032988) от 08.02.2021
 
 The Rolling Stones - Love (2021) [MP3|320 Kbps] <Rock>
@@ -668,33 +695,6 @@ VA - Romantic Collection '2000. Metal Ballads (2000) [OGG Vorbis|480 Kbps] <Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F88D5D9663305B9EA0DB60465E4281AED88E99EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614270   (1038863) от 21.02.2023
-
-Chris Norman (ex-Smokie) - Close Up (2007) [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lay Me Down
-02. Love Not War
-03. Trying To Find My Home
-04. Hello Baby(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9380C3F28AB83C8141534F1C1703D2B03D981F47
 ```
 
 

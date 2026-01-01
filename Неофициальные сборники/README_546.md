@@ -1,3 +1,30 @@
+###  Публикация: 1116583   (821956) от 20.03.2017
+
+Oscar Benton - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bensonhurst Blues
+02. Five Long Years
+03. Helpless
+04. Busted(   Читать дальше...   )Жанр: BluesПродолжительность: 02:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967B35E18CDB186A496A53A6C50266AA3F0204A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382105   (822092) от 09.05.2020
 
 VA - Dance Hits (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Spring Blues (2016) 2CD[MP3|128-320 кб/с] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:909ED560F3C9DC9E3979058EEA3031FCC3DF2733
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006395   (823392) от 14.04.2016
-
-VA - Interkosmos (Compiled by Breeeze) (2016) [MP3|128-320 кб/с] <Cosmic Disco, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amberflame - Ultra Violet (05:23)
-02. Kim & Buran - Running On The Waves (05:38)
-03. Anton Romezz - Marzipan World (06:53)
-04. D-Pulse - Lazy Sun (Live At Bubble Bar) (07:23)(   Читать дальше...   )Жанр: Cosmic Disco, Nu DiscoПродолжительность: 01:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA6BD27AB044DB66237D27261F376BE4B791AA8
 ```
 
 

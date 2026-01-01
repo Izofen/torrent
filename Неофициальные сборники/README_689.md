@@ -1,3 +1,30 @@
+###  Публикация: 1840943   (1047689) от 08.12.2025
+
+VA - #009 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Johnny Moeller - Gun Barrel Boogie (4:03)
+02.  Omar And The Howlers - Hideaway (2:58)
+03.  Bywater Call - Everybody Knows (3:53)
+04.  The Matt Swanton Band - Cooking With Fire (3:41)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BEB64337ACE2227CE9FF6E1E75E570990A6EBC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840942   (1047690) от 08.12.2025
 
 VA - #008 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -668,33 +695,6 @@ VA - No name compilation Deep Chill Vocal House part 28 (2025) [MP3|320 Kbps] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3A365BE6C31D76A66B68E6ECE085968648AD9C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842757   (1048898) от 16.12.2025
-
-VA - Snowflakes And Rhythms (2025) [MP3|320 Kbps] <Pop, Dance, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048898.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luis Fonsi - Despacito (03:50)
- 002. Cheat Codes - Go To Hell (02:27)
- 003. Gloria - Parler A La Lune (03:05)
- 004. Josue Rene - Umbral (03:30)(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 11:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43D984B2607ED70C2509F6587A8A2DF4BC0D46F3
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1376798   (856895) от 19.04.2020
+
+Backstage Gurus - Mediterranean Odyssey (2020) Liquid Sound Design [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Tribal, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gibraltar (04:41)
+02. Santorini (07:46)
+03. Alexandria (04:48)
+04. Wheel of Life (05:53)(   Читать дальше...   )Жанр: Psychill, Downtempo, Tribal, AmbientПродолжительность: 01:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18098C84E61C5784AE8F5A10E56DD9E01FB3C3CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376830   (856902) от 19.04.2020
+
+VA - Ibiza House Sexy (2020) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856902.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Third Deed - Mechanical Suicide (4:17)
+2.Branzei - Feel Real Funky (4:34)
+3.Younus Sakoor - Karamate (Original Mix) (6:26)
+4.Tekkaman - Pilltrill (Space Mix) (6:22)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44ABC64821891B5D15DB1B6757A7F4CA8F8E4417
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109835   (856915) от 28.02.2017
+
+VA - Gabriel Ananda - Selected Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <House,Tech House,Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicolas Ovalle - Come Ci Fa (Gabriel Ananda remix) [07:29]
+02. Rob Hes Steve Slight - Focusing (Gabriel Ananda remix)[06:36]
+03. Yoon - Boundaries (Gabriel Ananda's Breaking Boundaries remix)[07:11]
+04. Mr Morek - 418 (Gabriel Ananda remix) [08:03](   Читать дальше...   )Жанр: House,Tech House,Deep HouseПродолжительность: 02:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BD1C3EE97A616F648B65D8AD819A484412D87ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000546   (857069) от 26.03.2016
+
+Luomo - The Present Lover (2003) [FLAC|Lossless|tracks + .cue] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Visitor (4:13)
+02 Talk In Danger (7:46)
+03 The Present Lover (9:20)
+04 Body Speaking (8:09)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C7041DD5D7ECD9ACCF3474FAA1947785609023
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109510   (857229) от 28.02.2017
+
+VA - Deep House Relax (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857229.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brooke Stonebridge - I Want to Know What Love Is - Seashell Dub Mix 3:39
+002. Sarah Carlsson - Thank You - Deep & Chic Remix 3:45
+003. Michael Ribeira - La Luna - Gypsetter Mix 3:07
+004. Kandi & Fitch - White Send Beach - Sunset Edit 4:02(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A394CBC0B2F08D6CD78512000520EBE59ED608
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109513   (857286) от 28.02.2017
 
 VA - IBIZA Deep: The Deep House Opening Party 2017 (60 Hot Summer Tunes) (2017) [MP3|320 Kbps] <Deep House>
@@ -560,140 +695,6 @@ VA - Let's Get Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7636730A87BFBB592D0A79A52EE4697AC780D949
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109669   (857488) от 28.02.2017
-
-VA - Clinique Mixed XI (2017)(by zweitausendeins Traum) [MP3|320 Kbps] <Progressive House,House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christian Monique - Steam Train (Greenage Remix) 08:08
-02. Imran Khan - Buenos Aires (Original Mix) 08:42
-03. Ghoeyash - My Heart Beat (LoQuai Remix) 08:41
-04. Andrea Bertolini & Valerio Vaudano - Improvvisazione #24 08:34(   Читать дальше...   )Жанр: Progressive House,HouseПродолжительность: 05:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88C769B3CE1CDDDEDBEF8E0C6724EEE155CD7AEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109664   (857489) от 28.02.2017
-
-VA - Argentina Avenue #01 (2017) [MP3|320 Kbps] <Progressive House,House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cristian R & Kasall - Solar Eclipse (Original Mix) (08:00)
-02. LOM (AR) - Lonely Time (Paul Deep & Martin Gardoqui Remix) (08:00)
-03. Pablo Cetrini - For You (Original Mix) (09:04)
-04. Sound Process - Simple Chords (Martin Garcia Remix) (07:48)(   Читать дальше...   )Жанр: Progressive House,HouseПродолжительность: 06:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A788CD425F57EBF33DBCE0CB09B21E89B281A51C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000146   (857525) от 26.03.2016
-
-Data - 3 Albums (1981-1985) [MP3|320 кб/с] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1981. Opera Electronica
-1983. 2 -Time
-1985. Elegant Machinery(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4331F5872C30B5ADC770B3587927B3C23AD7E015
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000667   (857565) от 26.03.2016
-
-Luomo - Vocalcity (2000) Reissue, 2005 [WavPack|Lossless|image + .cue] <Deep House, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Market (11:59)
-02. Class (12:32)
-03. Synkro (13:59)
-04. The Right Wing (16:08)(   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 01:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889DB12F136E053AF7552CE6762F21A4B9055676
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000624   (857569) от 26.03.2016
-
-ForstWölfin - You Will Find Me In The Forest (2016) [FLAC|Lossless|WEB-DL|tracks|24Bit] <Ambient, Dub Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Will Find Me In The Forest (FW Deep remix) (06:57)
-02. You Will Find Me In The Forest (FW Melodic remix) (06:57)
-03. You Will Find Me In The Forest (Original mix) (06:57)Жанр: Ambient, Dub TechnoПродолжительность: 00:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B761D25B17EBFC07FDC0D70FE70667695DD3B6F
 ```
 
 

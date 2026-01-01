@@ -1,3 +1,30 @@
+###  Публикация: 1456891   (1024685) от 24.03.2021
+
+VA - Шансон Весна (2021) [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алена Петровская & Игорь Слуцкий - Прощеное воскресенье (3:08)
+02. Айдамир Эльдаров - Мама (3:18)
+03. Ярослав Сумишевский - Стены (3:52)
+04. Константин Шевченко - Пожалей (3:44)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F644EB49F76292E3B4FDF08F823B0E99D5555C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456498   (1024844) от 23.03.2021
 
 VA - Platinum Hits (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -665,33 +692,6 @@ VA - ЕвроХит Топ 40 Europa Plus 19.03.2021 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AFFAF1E15977F6838814A751656DC12BCC648BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455392   (1025650) от 19.03.2021
-
-VA - Soft House Lounge (2021) [MP3|320 Kbps] <Soft House, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Borneland, Falcon Punch, Line Gottsche - Night Time (6:09)
-02. Minako, Lovebirds, Larse - Delusions - Larse Mix (5:52)
-03. Matvey Emerson, Alex Hook, Gosha - Shine - Original Mix (5:44)
-04. Deep Deluxe - In Your Shadow (5:43)(   Читать дальше...   )Жанр: Soft House, LoungeПродолжительность: 06:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A01862E29E8BC8618F28779BCCCCE5C0F6B86CD1
 ```
 
 

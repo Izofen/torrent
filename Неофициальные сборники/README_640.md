@@ -1,3 +1,30 @@
+###  Публикация: 974846   (974583) от 13.01.2016
+
+VA - Prometheus: Trance Party (2016) [MP3|320 кб/с] <Progressive Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974583.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adrian Font - Anxiety
+002. Beat Service & Ana Criado - An Autumn Tale (Radio Edit)
+003. Sunset & Mino Safy - Prometheus (Iversoon & Alex Daf Remix)
+004. Line Pursuit - Ravenna (Extended Mix)(   Читать дальше...   )Жанр: Progressive Trance, ElectroПродолжительность: 11:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153CDDB4E18C7CB807CD66C2D665810400EDED72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975034   (974584) от 13.01.2016
 
 VA - Melancholy Longe (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -704,39 +731,6 @@ VA - Amphetanarchy: Hard Rock Cafe (2020) [MP3|320 Kbps] <Hard Rock, Alternative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3A4FAA3C23BD988DD9F56D9059CE4A0E5682146
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615623   (976725) от 09.02.2013
-
-VA - Хулиганская душа (2013) [MP3|128 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976725.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Юрий Белоусов - Жизнь продолжается
-002 Андрей Климнюк - Грусть
-003 Белый Орёл - Мама
-004 Сергей Маевский - Больше не надо
-005 Ринат Сафин - Сизари
-006 Сергей Любавин - Краденое счастье
-007 Сергей Маховиков - Потудань
-008 Вован - Кадык
-009 Олег Гаврилюк - Старик
-010 Блатной удар - Говорила, что люблю(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:21:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4300FE2543D3E6D46EF55C06FA02ED32F2525458
 ```
 
 

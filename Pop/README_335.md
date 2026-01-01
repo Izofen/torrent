@@ -1,3 +1,171 @@
+###  Публикация: 439576   (971974) от 21.01.2012
+
+Masterboy - Коллекция (7 Альбомов, 27 Синглов) (1990-2006) [FLAC|Lossless]<Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Euro-HouseПродолжительность: 00:11:46
+
+01. Megamix (Single Edit) [4:17]
+02. Megamix (Maxi Version) [7:29]
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975364   (972028) от 15.01.2016
+
+Julio Iglesias - A Mis 33 Anos (1978) [FLAC|Lossless|tracks + .cue] <Ballad, Chanson, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soy un truhan, soy un senor (3:05)
+02. Sono io (4:21)
+03. Si me dejas no vale (2:19)
+04. Por un poco de tu amor (2:58)(   Читать дальше...   )Жанр: Ballad, Chanson, VocalПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A193680EB1F8F5D85482DAED1E01EBFD105E8461
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975661   (972099) от 15.01.2016
+
+VA - All the Hits Now 2001 Italia (2001) [FLAC|Lossless|tracks + .cue] <Italian Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiziano Ferro - Xdono (4:02)
+02. Tiromancino - Due destini (4:37)
+03. Lunapop - Resta con me (2001 version) (4:14)
+04. Velvet - Boyband (3:37)(   Читать дальше...   )Жанр: Italian PopПродолжительность: 01:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CAC25B9A6F561D5EAC0D2E96D7F8B6362ED0E10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616290   (972397) от 12.02.2013
+
+VA - Greatest Ever - Memories - The Definitive Collection (2006) [MP3|320 кб/с]<Oldes>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buddy Holly - Peggy Sue [02:32]
+02. Ray Charles - Kissa Me Baby [03:10]
+03. Carl Perkins - Blue Suede Shoes [02:15]
+04. Rosemary Clooney with Perez Prado & his Orchestra - Sway [02:23]
+05. Everly Brothers - Wake Up Little Susie [02:01]
+06. Patsy Cline - Walkin' After Midnight [02:33]
+07. Connie Francis - Lipstick On Your Collar [02:18]
+08. Jerry Lee Lewis - Great Balls Of Fire [01:53]
+09. The Chordettes - Mr Sandman [02:23]
+10. The Big Bopper - Chantilly Lace [02:24](   Читать дальше...   )Жанр: OldesПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD975ED6B83FBF90B348E818B5683019DE4FCE76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357730   (973004) от 04.02.2020
+
+Chris De Burgh - Now and Then (2008) Compilation [FLAC|Lossless|tracks + .cue] <Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Pay The Ferryman (3:25)
+ 02. Missing You (4:07)
+ 03. The Lady In Red (4:15)
+ 04. Live For The Day (with Tina Yamout) (3:22)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A0B4C89FE7B1508A28536E43913100B305EEC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975124   (973036) от 14.01.2016
+
+Julio Iglesias - Noche De Cuatro Lunas (2000) [FLAC|Lossless|tracks + .cue] <Ballad, Chanson, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gozar la vida (3:46)
+02. Dia a día (4:36)
+03. Me siento de aquí (4:30)
+04. Te voy a contar mi vida (4:55)(   Читать дальше...   )Жанр: Ballad, Chanson, VocalПродолжительность: 00:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97775E043B89A3203CC52BE28217F94292CB8C83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357763   (973076) от 04.02.2020
 
 Kovacs - Cheap Smell (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Pop>
@@ -569,174 +737,6 @@ Crazy Loop (Dan Balan) - The Power of Shower (2007) [FLAC|Lossless]<Pop, Dance, 
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616085   (975078) от 10.02.2013
-
-VA - Smash Hits of the 40's (2004) [MP3|320 кб/с]<поп, ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Helen Forrest With Harry James & His Orchestra - How High The Moon
- 02. Artie Shaw & His Orchestra - Frenesi
- 03. Peggy Lee With Benny Goodman & His Orchestra - Elmer's Tune
- 04. Freddy Martin & His Orchestra - Piano Concerto No 1 in B Flat
- 05. Dinah Shore - Blues In The Night
- 06. Glenn Miller & His Orchestra - A String Of Pearls
- 07. Dick Haymes - You'll Never Know
- 08. Louis Jordan & His Tympany Five - Is You Or Is You Ain't My Baby
- 09. Tommy Dorsey & His Orchestra - On The Sunny Side Of The Street
- 10. Perry Como - Temptation(   Читать дальше...   )Жанр: поп, ретроПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF352F373F57878B6761E68C65034F9340D7463
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357187   (975281) от 02.02.2020
-
-Adriano Celentano - Hunting Down Good Tunes (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975281.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ritona Lo Shimmy
-2. Il Mondo Gira
-3. Personality
-4. Nikita Rock(   Читать дальше...   )Жанр: PopПродолжительность: 00:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DCE10F592B922A123A9CFB192428260A1B9D69E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974453   (975683) от 12.01.2016
-
-Richard Marx - Beautiful Goodbye (2014) Target Exclusive Edition [FLAC|Lossless|image + .cue] <Pop, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whatever We Started
-02. Suddenly
-03. Inside
-04. Beautiful Goodbye(   Читать дальше...   )Жанр: Pop, Soft RockПродолжительность: 00:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26BD60955CDB454FAFC2682FBF97FAC0F9A878B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974348   (975796) от 12.01.2016
-
-Dolcenera - Le stelle non tremano (2015) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Niente al mondo
-02. Immenso
-03. Un peccato
-04. Figli del caos(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52FF320B2A8FB4E6810428D4CF1C057F1366DB49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356873   (976475) от 01.02.2020
-
-Silent Circle - Lost In Space (2019) [FLAC|Lossless|image + .cue] <Eurodance, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost In Space
-02. Touch In The Night 3000 (Album Version)
-03. How Could It Be Right
-04. Kaido(   Читать дальше...   )Жанр: Eurodance, Italo-DiscoПродолжительность: 00:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B2740ED9DC8A7B9BB7F3EA4A8DE51C9FE741E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974269   (976616) от 11.01.2016
-
-VA - BRAVO Hits 90 (2015) [FLAC|Lossless|tracks|WEB-DL]<Pop, Electronic, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Newman - Come And Get It (3:04)
-02. The Weeknd - Can't Feel My Face (3:35)
-03. Avicii - Waiting For Love (3:49)
-04. Lost Frequencies feat. Janieck Devy - Reality (Radio Edit) (2:39)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep-House, Electro, Synthpop, Pop Rock, Indie RockПродолжительность: 02:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130E9F070A26135D06E67A2047C3996AD166FE8F
 ```
 
 

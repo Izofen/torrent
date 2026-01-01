@@ -1,3 +1,30 @@
+###  Публикация: 1017114   (763038) от 16.05.2016
+
+VA - Tallinna Terrace Club Collection 3CD (2016) [MP3|320 кб/с] <Downtempo, Nu Disco, Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763038.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+
+01. The Project & Artenvielfalt feat. Miss Natnat - I'm Done (House Mix) (04:40)
+02. AN.DU & Fomin feat. Osha - Allright (Extended Mix) (05:08)(   Читать дальше...   )Жанр: Downtempo, Nu Disco, Vocal HouseПродолжительность: 04:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC48AE441BC25CBFC8D884936538834F1B0B923
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214775   (763067) от 23.03.2018
 
 VA - Динамик MP3 Весенний Популярный Микс (2018) [MP3|256-320 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - Music for You vol.11 (2020) [MP3|320 Kbps] <Rock, Progressive Metal, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31789775D45ADEFFFEC5CAB893C98BBB1FA32D4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394177   (763717) от 05.07.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 03.07.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surf Mesa feat. Emilee - ily (i love you baby) 2:57
-02. Filatov & Karas feat. Deepest Blue - Give It Away 3:28
-03. twocolors - Lovefool 3:10
-04. Mari Ferrari with M.Z.I & S-ELM feat. Vianne - Drop Dead 2:32(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CCAF13F9E3371F9383136F137DFFFA2281E985
 ```
 
 

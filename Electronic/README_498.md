@@ -1,3 +1,138 @@
+###  Публикация: 1483980   (1006500) от 16.07.2021
+
+Future Synth - Exoplanet (2021) [MP3|320 Kbps] <Synthpop, Spacesynth, Space-Disco>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Horizon of the Galaxy (6:01)
+02. Touch of Light (5:52)
+03. Exoplanet (6:38)
+04. Dreaming of Space (6:26)(   Читать дальше...   )Жанр: Synthpop, Spacesynth, Space-DiscoПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AFD59CAE7224A5CF82B27E03E80BD13813733F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483891   (1006509) от 16.07.2021
+
+VA - Coffee & Love: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Nuii (03:50)
+02. Brass - Love and Passion (04:22)
+03. Pier-O - Quartier Latin (03:49)
+04. Schwarz & Funk - Pardon Me (05:28)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:14:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4C1100EDF62051095FF45E3E9081F3E818C0443
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483856   (1006518) от 16.07.2021
+
+Faserklang - Focus On Distraction (2021) Drift Deeper Recordings [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Ambient, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Equilibrium (07:24)
+ 02. Diffusion (07:44)
+ 03. Automotif (06:02)
+ 04. Mood Swing (06:57)(   Читать дальше...   )Жанр: Deep Techno, Ambient, Dub TechnoПродолжительность: 01:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A23C1B0DF903E135CD1B27CFEBF138E113239EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483861   (1006522) от 16.07.2021
+
+Wet Basement - Electromagnetic (2021) Drift Deeper Recordings [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electrostatics (06:19)
+ 02. Sun Power (06:23)
+ 03. Electrodynamics (07:31)
+ 04. Retrigger (07:26)Жанр: Deep House, Tech HouseПродолжительность: 00:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D142EDE32F574B5559CBAF694AE98FCBC50DF2A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483865   (1006525) от 16.07.2021
+
+Merv - Cordial EP (2021) Release Sustain [FLAC|Lossless|WEB-DL|tracks] <Tech House, Acid House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cordial (07:16)
+ 02. Plastered (07:16)
+ 03. Rechord (06:50)
+ 04. Cordial (Aache's Acid Remix) (05:36)Жанр: Tech House, Acid HouseПродолжительность: 00:26:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8683F4224AA89402F964FB45B0EE5880C396F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483854   (1006532) от 16.07.2021
 
 Conforce - Wavetable (2021) Sungate [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep Techno>
@@ -548,141 +683,6 @@ magnet:?xt=urn:btih:BB92D0C2DF56E6E3501F9B917E5C522384252802
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7000A642B608FB53D5D993CCC443165E57156E11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482542   (1007444) от 09.07.2021
-
-VA - Vocal Bliss Lounge (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. College Of Dreams - Show Me the Love (Chillwave Vocal Mix) (05:03)
-02. Debora Vilchez - The Words You Said (Smooth Vocal Flair Mix) (05:22)
-03. Blue Lagoona - Be As I Am (Soulful Pop Mix) (04:00)
-04. Creamy Dip - Remember (Sweet Soul Vocal Mix) (03:58)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D8D8B8F9C8805319ED198D65CE89778164BFB5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482685   (1007449) от 09.07.2021
-
-Fractal - Human Error (2021) Aliens Production [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Ambient, Glitch, Techno>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Collision (02:14)
- 02. Bio - Security (03:53)
- 03. Vox 7bq (04:55)
- 04. Nostromo (04:41)(   Читать дальше...   )Жанр: IDM, Ambient, Glitch, TechnoПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2078D57643853F8971DEC507FB6736B4F9812AFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482683   (1007450) от 09.07.2021
-
-Fractal - A Unique Hybrid (2021) Aliens Production [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Ambient, Glitch, Abstract>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modernity (02:26)
- 02. Red Shadow (04:55)
- 03. Plan B (05:03)
- 04. A Unique Hybrid (05:15)(   Читать дальше...   )Жанр: IDM, Ambient, Glitch, AbstractПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:263492B53F42724241442CA7296E6C37CB25DC61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482696   (1007459) от 09.07.2021
-
-Robert Hood - The Blueprint EP (2021) Rekids [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chroma Light (05:37)
- 02. The Majestic (Deeper Edit) (06:28)
- 03. The Majestic (06:18)
- 04. Ultrasonic Room (05:44)Жанр: TechnoПродолжительность: 00:24:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAAE47ECF8DF873716C03AADB60F081327315C09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482674   (1007460) от 09.07.2021
-
-Chase Dobson - perpetual motion (2021) c.db.sn [FLAC 2.0|48/24|tracks|WEB-DL] <Dub Techno, Techno>
-
->>Electronic
->>Trance, House, Techno (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. inertia (07:11)
- 02. momentum (06:11)
- 03. repetition_motion (05:55)
- 04. ad infinitum (07:52)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 00:34:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F25A8F7343CB697268669980A6DD519D832EF0
 ```
 
 

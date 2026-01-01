@@ -1,3 +1,27 @@
+###  Публикация: 207928   (709659) от 12.06.2010
+
+VA - Романтик Хит - Люблю тебя (2010) [MP3|192-320 kbps]<Pop, Ballad>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_709659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Ballad
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219852   (709777) от 16.04.2018
 
 VA - Экспресс русских хитов на Hit FM (8) (2018) [MP3|256 Kbps] <Поп>
@@ -670,33 +694,6 @@ VA - Italo & Space Disco Vol.3 (2017) [MP3|320 Kbps] <Italodisco , Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF4166D109BE52793AC34B84A1509B73467890B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131122   (710402) от 04.05.2017
-
-VA - Italo & Space Disco Vol.4 (2017) [MP3|320 Kbps] <Italo-Disco, Synthpop, Syntwave>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Neon Talk - Overachiever  2:51
-02.  Mr. Maen - Timmy Goes To Space  3:33
-03.  Alex Amster - December (Nastech Dub)  5:10
-04.  Quasars - Queens Of Aerobics  5:54(   Читать дальше...   )Жанр: Italo-Disco, Synthpop, SyntwaveПродолжительность: 07:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC80118370496C62511BADD42133AE39902A76D4
 ```
 
 

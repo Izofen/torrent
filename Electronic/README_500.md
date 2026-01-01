@@ -1,3 +1,138 @@
+###  Публикация: 1481205   (1008490) от 02.07.2021
+
+Evade Robots - Voids (2021) Low Recordings [FLAC|Lossless|WEB-DL|tracks] <Breaks, Deep House>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astral (05:03)
+ 02. Drive (06:46)
+ 03. Voids (05:09)
+ 04. Utopia (06:43)(   Читать дальше...   )Жанр: Breaks, Deep HouseПродолжительность: 00:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A27A0CB4C86344C0AC79326576F2DDA6163D77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481210   (1008492) от 02.07.2021
+
+Porter Ricks - Biokinetics (2012) (Reissue 1996) Type [FLAC|Lossless|tracks+.cue] <Techno, Abstract, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Port Gentil (12:26)
+ 02. Nautical Dub (05:49)
+ 03. Biokinetics 1 (05:20)
+ 04. Biokinetics 2 (08:30)(   Читать дальше...   )Жанр: Techno, Abstract, AmbientПродолжительность: 01:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E72930DD20B10054D599EC5A96C1D685D0870A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481229   (1008494) от 02.07.2021
+
+Barker & Baumecker - Transsektoral (2012) Ostgut Ton [FLAC|Lossless|tracks+.cue] <Techno, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sektor (02:21)
+ 02. Trafo (05:22)
+ 03. Schlang Bang (05:15)
+ 04. Crows (05:59)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E472AB13E0560AE406647813F3358E15494C794F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056205   (1008536) от 01.07.2021
+
+Eluvium (Matthew Robert Cooper, Martin Eden) - Discography 30 Releases (2003-2021) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Modern Classical, Drone, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miniatures 1 (05:39)
+ 02. Miniatures 2 (01:28)
+ 03. Miniatures 3 (05:34)
+ 04. Miniatures 4 (03:43)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Ambient, Modern Classical, Drone, Experimental •Продолжительность: 23:11:25 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CC900752377C5BCEA7C98D1E0EBEFC8E9BBB206
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480924   (1008596) от 01.07.2021
+
+beatfarmer - The Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Light (06:03)
+ 02. Teatime (ambient mix) (07:34)
+ 03. The Moon Called Out to Me (09:14)
+ 04. Dawn Breaking (06:19)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B3764D6F24E93FE9092452BA237398DFD61E67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480970   (1008597) от 01.07.2021
 
 VA - Chilled Orient: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -559,141 +694,6 @@ Mause - Run/Stop EP & Remixes (2021) Massage Brain Cult [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F4816753AF1FB09EB8B7A0594A850758496F346
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479726   (1009472) от 25.06.2021
-
-Nutronixx - Planet Of Love (2020) [FLAC|Lossless|tracks + .cue] <Synth-pop, Euro-Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Planet Of Love (4:53)
-02. Heart On The Run (3:44)
-03. Love Me Or Leave Me (4:38)
-04. Waiting For A Miracle (5:23)(   Читать дальше...   )Жанр: Synth-pop, Euro-DiscoПродолжительность: 01:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:442D50AC52AD0D50D1914622018209F5589EE1A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139573   (1009474) от 24.06.2021
-
-Morphology - Discography 29 Releases (2010-2021) Zyntax Motorcity, Abstract Forms, FireScope [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, IDM, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inflexion (06:13)
- 02. Indefinite (06:15)
- 03. Reduplication (05:08)
- 04. Past Tense (06:09)(   Читать дальше...   )Тип издания: WebЖанр: Electro, Acid, IDM, Techno •Продолжительность: 13:21:58 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658859ACD50B00F6B0C905BA75804D6EBF7452BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982416   (1009484) от 24.06.2021
-
-De-Phazz - Discography 42 Releases (1997-2020) Mole Listening Pearls, Phazz-a-delic [FLAC|Lossless|tracks+.cue, tracks] <Acid Jazz, Trip Hop, Soul, Future Jazz, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Saw It on the Radio (01:47)
- 02. Sabbatical (Naive) (03:29)
- 03. The Mambo Craze (Naive) (03:24)
- 04. Quicksand (04:52)(   Читать дальше...   )Тип издания: CD, WebЖанр: Acid Jazz, Trip Hop, Soul, Future Jazz, Downtempo •Продолжительность: 36:03:52 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41927135A32CD2697C3A1E33822D52EF23555B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479603   (1009587) от 24.06.2021
-
-Smyglyssna - Departures (2001) Vertical Form [FLAC|Lossless|Vinyl|tracks] <Leftfield, IDM, Ambient, Minimal>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gazebo (03:36)
- 02. What's That Smell? (03:07)
- 03. Suburban Rooftops (04:04)
- 04. Night Sea (04:05)(   Читать дальше...   )Жанр: Leftfield, IDM, Ambient, MinimalПродолжительность: 00:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0AF92963152CDA6FD6EB6FB5831801D015F7BA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479601   (1009591) от 24.06.2021
-
-DVS NME - The Electro Manifesto (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strike Wave (04:54)
- 02. Red Scare (04:47)
- 03. Commanding Heights (04:52)
- 04. Relative Form (04:39)(   Читать дальше...   )Жанр: Electro, IDM, AcidПродолжительность: 01:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE720C426DA90E64A35AD92D1C9E173E9E1DB92
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1114390   (831968) от 15.03.2017
+
+VA - Record Super Chart #478 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Sava & Irina Rimes - I Loved You (Denis First Remix)  3:20
+02.  Klaas - Riot (Extended Mix)  4:00
+03.  Ofenbach - Be Mine (Amice Remix)  3:23
+04.  Consoul Trainin - Take Me To Infinity (Amice Remix)  4:44(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2659C848B786B430F12047F24D230780988661
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005652   (832388) от 09.04.2016
 
 VA - Музыка хорошего настроения 7 (2016) [MP3|256 кб/с] <Pop>
@@ -668,33 +695,6 @@ VA - I Love Music! - Nu Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Alternative 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4C46E5EC61309DA8617C394FAA3FDD00D848DB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114175   (833496) от 14.03.2017
-
-VA - Музыкальный подарок на радио Europa Plus (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833496.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сиран Агасаров - Для Тебя 3:33
-002. Helena Shadia - Люби Меня 3:32
-003. Владимир Винс - Хватит 3:51
-004. Tiana - Телеграммы 3:33(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C4718666B66F71021EA4EC3E575DC5FE21C58AF
 ```
 
 

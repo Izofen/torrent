@@ -1,3 +1,144 @@
+###  Публикация: 1092191   (938873) от 12.01.2017
+
+VA - Oasis Of Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Gorda Project - Surfing Emotional Waves  5:46
+02.  Enrico Donner - Golfinhos  5:58
+03.  Cane Garden Quartet - Chillaxin'  5:13
+04.  Baghira - Streams of Love  5:53(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:919C443D3F361B2E854D45CFC091BEF44DD0D9B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092743   (938949) от 12.01.2017
+
+VA - Perfect Electronica Downtempo (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zellarai - Fear (Original Mix)  4:55
+02.  Zellarai - Fear (Grachikomar Remix)  4:00
+03.  Zellarai - Fear (Ethan Nichols Remix)  3:27
+04.  The Mord - The Beauty of His Native Land (Original Mix)  3:12(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:20:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2693ACE97F3E4A4CC3C9C814C825F7D3A059943
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 175505   (939275) от 15.02.2010
+
+VA - House Vip (09.02.10) [MP3|128 - 320 kbps]<Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Spencer - Let's Rock (Scotty Remix) (5:24)
+02. David Guetta feat Kid Cudi - Memories (Armand Van Helden Vocal Remix) (5:29)
+03. Dirty Disco Youth - Minds...Off (4:52)
+04. Dj Cargo Pres. Kei Morton - Get Back (Easy Tech Extended Remix) (5:04)
+05. DJ Ivan Flash - Spin Around (Original Mix) (4:38)
+06. Flo Rida - Sugar(Electrical Brothers Radio Edit 2010) (5:17)
+07. Franco Maldini - This Is A Journey (STFU Remix) (6:10)
+08. Martin Solveig feat. Dragonette - Boys & Girls (Alex Astero & Evan Sax Club Mix) (6:01)
+09. MasterBlaster - Come Clean (Electrical Brothers Remix) (6:50)
+10. Ne!tan - 2night (Scott And Dave Remix) (3:39)(   Читать дальше...)Жанр: Electro House
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364022   (939302) от 01.03.2020
+
+Pet Shop Boys - Discography: The Complete Singles Collection (1991) [FLAC|Lossless|tracks + .cue] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_939302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. West end girls
+02. Love comes quickly
+03. Opportunities (let's make lots of money)
+04. Suburbia(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF3D060B9B54AF8363650CEEDE52873EE53293F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364155   (939348) от 01.03.2020
+
+Maya Jane Coles - Take Flight (2017) 2CD [FLAC|Lossless|tracks + .cue] <Electronic, Deep House, Trip-Hop, Downbeat>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weak (4:35)
+02. Bo & Wing (4:48)
+03. Old Jam (4:49)
+04. Take Flight (4:15)(   Читать дальше...   )Жанр: Electronic, Deep House, Trip-Hop, DownbeatПродолжительность: 01:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74AC1EB9762F1BDFEC1E6A08A72BBA57411E2507
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364158   (939375) от 01.03.2020
 
 Sopor Aeternus & The Ensemble of Shadows - Island of the Dead (2020) [FLAC|Lossless|tracks + .cue] <Darkwave, Neo-Classical, Goth Rock>
@@ -557,145 +698,6 @@ VA - Music For Sex: Erotic Music 2017 (2017) [MP3|320 Kbps] <Downtempo, Chillout
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6884D2525F4E2BCB01E440CD7FDB4518C5FAF34B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091733   (941210) от 10.01.2017
-
-BT - _ (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, IDM>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tokyo (06:02)
-02. The Code Of Hammurabi (03:37)
-03. Lustral (03:52)
-04. Found In Translation (03:52)(   Читать дальше...   )Жанр: Ambient, Experimental, IDMПродолжительность: 01:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807AC83E09F15849F99C82FC0B2BE36DFCD149EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091805   (941314) от 10.01.2017
-
-VA - The Lemongrass Remix Sessions (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Wawa - Taste Of Fear (Lemongrass Full Moon Mix)  3:38
-02.  Kondencuotas Pienas - So Pure (Lemongrass Remix)  4:29
-03.  JetTricks - Lose You (feat. AdeFunke, Faye Houston) (Lemongrass Deep House Remix)  5:25
-04.  Glam Sam & His Combo - The Last Days Of Disco (feat. Biker Boy) (Lemongrass First Kiss Remix)  3:52(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:008050C6676E92DCE55330319C7995FD597021FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091700   (941534) от 10.01.2017
-
-VA - Daily Relaxing Vol.2 (Chill Out & Ambient Music In Perfection) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Florito - 90 Degrees Fahrenheit  3:59
-02.  Chris Le Blanc - The Eyes Of Revelation (Tom Appl)  7:47
-03.  Svendaq - Faithfulness  3:33
-04.  Adeve - Summertime  4:15(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A6C8568B83ACFEE63C60C8E46A139A10A871B58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 626623   (941536) от 07.03.2013
-
-VA - Planet Chill 2013-01 (Compiled By York) (2013) [MP3|320 кб/с]<Lounge, ChillOut, Deep House>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941536.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Planet Chill 2013-01 (Compiled By York) (2013)
-
-Год: 2013
-Жанр: Lounge, ChillOut, Deep House
-Продолжительность: 01:28:14Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Flight Of The Eagle (Original Mix) - Digital Elements(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091740   (941545) от 10.01.2017
-
-2muchachos - Forest Is Not What It Seems (2014) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Leftfield, Glitch>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forest Breath (05:09)
-02. Verxom Na Serom Volke (05:04)
-03. Embracing The Fairytale (04:37)
-04. A Place Where I Feel Calm (04:04)(   Читать дальше...   )Жанр: Ambient, Leftfield, GlitchПродолжительность: 01:09:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4014B337E2A41CC5CB6AA4C38BCB6D413A1334
 ```
 
 

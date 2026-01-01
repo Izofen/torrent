@@ -1,3 +1,30 @@
+###  Публикация: 1021403   (740883) от 29.05.2016
+
+The Monkees - Good Times! (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Times (02:46)
+02. You Bring The Summer (03:00)
+03. She Makes Me Laugh (03:01)
+04. Our Own World (02:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C5E23618BC320DB3A050ECB00E5759CBF096D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127276   (740914) от 20.04.2017
 
 Antares - Sea of Tranquility (1979) Reissue CD, 1994, Mellow Records [MP3|320 Kbps] <Space Rock, Prog Rock, Symphonic Rock>
@@ -666,33 +693,6 @@ Mallet - немецкая рок-группа, созданная в 1979 год
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B6662FA9E7D3EBFB5DC5E277DB2CDC7ADA7398B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523401   (751549) от 11.01.2022
-
-VA - Rock Morning Mixtape 2022 Explicit [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steppenwolf - Born To Be Wild (Single Version) (3:36)
-02. The Offspring - Why Don't You Get A Job (2:52)
-03. Imagine Dragons, Arcane, League of Legends - Enemy (From the series Arcane League of Legends) (2:53)
-04. Queens of the Stone Age - No One Knows (4:38)(   Читать дальше...   )Жанр: RockПродолжительность: 01:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14FA0143DEDD35070246F8F5950B3E351ABA28EF
 ```
 
 

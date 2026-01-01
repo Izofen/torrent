@@ -1,3 +1,57 @@
+###  Публикация: 978316   (963341) от 23.01.2016
+
+a-ha - Scoundrel Days (1986) 2CD, Deluxe Edition, Remastered, 2010, Warner Bros [FLAC|Lossless|image + .cue] <Pop, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scoundrel Days (04:01)
+02. The Swing Of Things (04:14)
+03. I've Been Losing You (04:26)
+04. October (03:54)(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 02:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1C99FA968FB07384692745D427AB17EF8F15E91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978085   (963515) от 23.01.2016
+
+VA - Viva Italia - Canzone Italiana (2006) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gepy & Gepy - Angelo Blu (3:17)
+02. Morena - Attenti Al Lupo (4:08)
+03. Stefano Borgia - Se Ti Senti Veramente Un Amico (3:28)
+04. Aleandro Gualdi - Passera' (4:59)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74FBDB6E12CE2EB392BE2CB6817B726E9C78EDF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978003   (963639) от 23.01.2016
 
 VA - I Grandi Successi Degli Anni 90 Vol.2 (2005) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -669,60 +723,6 @@ VA - Top Latino 2000 (2000) [FLAC|Lossless|tracks + .cue] <Latin, Merengue, Afro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D238F66DABF2A9D6A156E174DE0AAA8B46550AB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975970   (970818) от 16.01.2016
-
-Alessandra Amoroso - Vivere a colori (2016) [FLAC|Lossless|tracks] <Pop, Vocal
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Stupendo fino a qui (03:49)
- 02. - La vita in un anno (03:28)
- 03. - Avro cura di tutto (03:40)
- 04. - Vivere a colori (04:20)(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B016579EED58892A5A8A26C982C6693085B367E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975667   (971923) от 15.01.2016
-
-VA - Great Spanish Hits (1996) [FLAC|Lossless|tracks + .cue] <Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juanito - Amor de mis amores (3:11)
-02. Juanito - Bamboleo (2:43)
-03. Olivia Valere - Cantinero de Cuba (4:15)
-04. Chico Fuente - La Paloma (3:00)(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EE91A54A61FCDF9A957ECB290A871E75EEF74A9
 ```
 
 

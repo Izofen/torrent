@@ -1,3 +1,30 @@
+###  Публикация: 1477626   (1010818) от 16.06.2021
+
+VA - Beatport Ethnic House: Sound Pack #298 (2021) [MP3|320 Kbps] <Ethnic, Funky House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luka  Rara Taxiqueen - Dance On A DJ
+02. Friend Within - Triceratops
+03. Luka, Jackie Queens - Liquid Love
+04. Timboletti - Gone Fishing(   Читать дальше...   )Жанр: Ethnic, Funky House, ElectroПродолжительность: 08:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70FBAE8EE4294B42CCC085302E4E643BBFBDA07A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477501   (1010949) от 15.06.2021
 
 VA - Music News vol.108 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Killer Sound: Hardstyle Mixtape (2021) [MP3|320 Kbps] <Hardstyle, Hard Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F48BDE62C6BEC569F43223822B3CE41580ED86E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475174   (1012570) от 05.06.2021
-
-VA - EDC Dance Nation: Club House Mix (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012570.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kid Dynamo - Love So Deep
-002. Bostan - La Baile
-003. Goodboys & Imanbek - Goodbye
-004. Adam Cooper & Natasha Burnett - Eyes Shut(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 10:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92FF55ED6E791EA0E33BD5D79192E7DA88E76149
 ```
 
 

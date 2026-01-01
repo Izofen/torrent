@@ -1,3 +1,30 @@
+###  Публикация: 984603   (938495) от 09.02.2016
+
+VA - Italo & Space Disco Vol.2 (2016) [MP3|320 кб/с] <Italo-Disco, Spacesynth>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ernesto – Laser Coaster (04:39)
+02. Digital Galaxy – Planet Of Fire (05:02)
+03. Holomatrix – A Star Was Born (04:45)
+04. Synthesis – Guardian Of The Galaxy (07:00)(   Читать дальше...   )Жанр: Italo-Disco, SpacesynthПродолжительность: 05:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1BF0EFFD2D73A7BC26E2E2AC1914F7B58249F54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092577   (938632) от 12.01.2017
 
 VA - Our Musical Life Generation (2017) [MP3|212-320 Kbps] <Club, Hard House, Nu Disco, Dance, Bassline, Funky>
@@ -665,33 +692,6 @@ VA - In My Dream: City Party Mix (2020) [MP3|320 Kbps] <Club, EDM, Dance House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89D337383C8D980C979D6B5ACCD777922FE4ED60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092097   (939459) от 11.01.2017
-
-VA - Dance Hits Collection Vol.8 (2017) [MP3|320 Kbps] <Eurodance , House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. E Motion Feat. Tino - Get Up (Radio Version)
-02. Solid Base - Mirror, Mirror (Radio Mix)
-03. Libra - A Second Chance (Factory Team Mix)
-04. Masterjam - I Wanna Know(   Читать дальше...   )Жанр: Eurodance , HouseПродолжительность: 05:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3BF57D776528461EDB4AAC4B07754F07D7C280A
 ```
 
 

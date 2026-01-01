@@ -1,3 +1,138 @@
+###  Публикация: 1479726   (1009472) от 25.06.2021
+
+Nutronixx - Planet Of Love (2020) [FLAC|Lossless|tracks + .cue] <Synth-pop, Euro-Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planet Of Love (4:53)
+02. Heart On The Run (3:44)
+03. Love Me Or Leave Me (4:38)
+04. Waiting For A Miracle (5:23)(   Читать дальше...   )Жанр: Synth-pop, Euro-DiscoПродолжительность: 01:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:442D50AC52AD0D50D1914622018209F5589EE1A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139573   (1009474) от 24.06.2021
+
+Morphology - Discography 29 Releases (2010-2021) Zyntax Motorcity, Abstract Forms, FireScope [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, IDM, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inflexion (06:13)
+ 02. Indefinite (06:15)
+ 03. Reduplication (05:08)
+ 04. Past Tense (06:09)(   Читать дальше...   )Тип издания: WebЖанр: Electro, Acid, IDM, Techno •Продолжительность: 13:21:58 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:658859ACD50B00F6B0C905BA75804D6EBF7452BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982416   (1009484) от 24.06.2021
+
+De-Phazz - Discography 42 Releases (1997-2020) Mole Listening Pearls, Phazz-a-delic [FLAC|Lossless|tracks+.cue, tracks] <Acid Jazz, Trip Hop, Soul, Future Jazz, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Saw It on the Radio (01:47)
+ 02. Sabbatical (Naive) (03:29)
+ 03. The Mambo Craze (Naive) (03:24)
+ 04. Quicksand (04:52)(   Читать дальше...   )Тип издания: CD, WebЖанр: Acid Jazz, Trip Hop, Soul, Future Jazz, Downtempo •Продолжительность: 36:03:52 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41927135A32CD2697C3A1E33822D52EF23555B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479603   (1009587) от 24.06.2021
+
+Smyglyssna - Departures (2001) Vertical Form [FLAC|Lossless|Vinyl|tracks] <Leftfield, IDM, Ambient, Minimal>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gazebo (03:36)
+ 02. What's That Smell? (03:07)
+ 03. Suburban Rooftops (04:04)
+ 04. Night Sea (04:05)(   Читать дальше...   )Жанр: Leftfield, IDM, Ambient, MinimalПродолжительность: 00:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0AF92963152CDA6FD6EB6FB5831801D015F7BA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479601   (1009591) от 24.06.2021
+
+DVS NME - The Electro Manifesto (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strike Wave (04:54)
+ 02. Red Scare (04:47)
+ 03. Commanding Heights (04:52)
+ 04. Relative Form (04:39)(   Читать дальше...   )Жанр: Electro, IDM, AcidПродолжительность: 01:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE720C426DA90E64A35AD92D1C9E173E9E1DB92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479457   (1009595) от 24.06.2021
 
 Shaded Explorer - Harmonic Growth (2020) Pregnant Void [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Experimental, Field Recording>
@@ -551,141 +686,6 @@ Vintage Culture - Live @ Defected Livestream, Brazil (2021-06-11) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5E6D34D674BA407DB3BB7CB10B92CDB00EE9992
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026276   (1010411) от 18.06.2021
-
-MikTek - Discography 24 Releases (2009-2021) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Ambient, Psybient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (Lost Transmissions) (04:40)
- 02. The Lone Patrol (06:00)
- 03. Adelaide's Voyage (05:20)
- 04. A Rusty Kingdom (06:20)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Downtempo, Ambient, Psybient •Продолжительность: 17:07:30 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A900AE874297322644A521A121746501DD84B403
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478189   (1010485) от 18.06.2021
-
-Blank Gloss - Melt (2021) Kompakt [FLAC|Lossless|WEB-DL|tracks] <Ambient, Acoustic, Leftfield>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Those Who Plant (05:46)
- 02. Rags (03:29)
- 03. Walking Toward The End (05:46)
- 04. Hollowed Out (04:26)(   Читать дальше...   )Жанр: Ambient, Acoustic, LeftfieldПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3495F6A41EF9641592CFF514F11FA0D9C5A45B93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478216   (1010495) от 18.06.2021
-
-Odderon - Hydroelectric EP (2021) [FLAC|Lossless|WEB-DL|tracks] <IDM, Acid, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Homecoming (04:11)
- 02. Late Spring (04:12)
- 03. Hydroelectric (04:22)
- 04. Floodplain (04:33)(   Читать дальше...   )Жанр: IDM, Acid, AmbientПродолжительность: 00:20:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ACDC71D2D10D3558F6EEDD59A4DABEF2823782C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477801   (1010496) от 18.06.2021
-
-Korolova - AFTR:HRS SESSIONS 06 (2021-06-10) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alar & Korolova Feat. Yann Menge - Symphony(Dub mix)
-02. Thomas Gandey, Rafael Cerato & Antony Toga  - Freedom (Morttagua Remix)
-03. Jan Blomqvist, Alar & Korolova - Time Again
-04. Tinlicker - Past Life(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4C73B27144A3808326A14EFC55C5729A64DAB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477960   (1010499) от 18.06.2021
-
-Ofenbach - Ofenbach (2019) EP [FLAC|Lossless|tracks + .cue] <EDM, House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katchi (2:32)
- 02. Rock It (2:26)
- 03. I Got Burned (Feat. Tim Rogers) (2:38)
- 04. Be Mine (2:42)(   Читать дальше...   )Жанр: EDM, House, Nu DiscoПродолжительность: 00:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A825EA126FCFD7FDE45AE00E5709DFCF35CFF04
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1460133   (1022771) от 04.04.2021
+
+VA - Top 100 DJs (2021) [MP3|320 Kbps] <EDM, Dance, Electro, Pop, Trance, House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022771.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jason Derulo, Adam Levine - Lifestyle (David Guetta Slap House Mix)
+002. Dimitri Vegas & Like Mike, DVBBS, Roy Woods - Too Much
+003. Martin Garrix, Tove Lo - Pressure (feat. Tove Lo)
+004. Armin van Buuren - Turn The World Into A Dancefloor (ASOT 1000 Anthem)(   Читать дальше...   )Жанр: EDM, Dance, Electro, Pop, Trance, House, Tech HouseПродолжительность: 05:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBA6D05EEA7894DE8596AABA44F6B858721522B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460156   (1022795) от 04.04.2021
 
 VA - Record Super Chart 03.04.2021 [MP3|320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ VA - HGM: March Electro Dance Chart (2021) [MP3|320 Kbps] <EDM, Dance, House, Cl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20F1B0A65769530D144AD55CA422FFB60511B74A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458947   (1023523) от 31.03.2021
-
-VA - Ecologica (2021) [MP3|320 Kbps] <Chillout, Relax, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка, которая создает условия для того, чтобы Ваше психоэмоциональное напряжение исчезло бесследно, при этом самым положительным образом влияя на ваше душевное и физическое состояние в целом. Спокойная и красивая, она хорошо создаёт атмосферу умиротворения, дарит отдых и положительный заряд энергии.001. Edvard Hunger - You And Me
-002. Random J - Snowfall
-003. Marco Moli - Songs Of Love
-004. Paul Winter - September Solo(   Читать дальше...   )Жанр: Chillout, Relax, LoungeПродолжительность: 09:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BFC29F38A49A35D56B50B72D46323CDB2FAE413
 ```
 
 

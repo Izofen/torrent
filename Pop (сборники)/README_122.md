@@ -1,3 +1,30 @@
+###  Публикация: 1089024   (953610) от 02.01.2017
+
+VA - Начинаем отмечать! №2 (2016) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953610.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Robbie Williams - When You Know
+002. Spada Feat. Elen Levon - Don't You Worry
+003. Banks - Mind Games
+004. Гена Селезнев - День Когда Встретил Тебя(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F0416DC44D1AA649F917FBEE65B318DBB6C25B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088778   (953690) от 02.01.2017
 
 VA - Музыкальные новинки. Only Best Hits. Сборник № 4 (2016) [MP3|256 Kbps] <Pop>
@@ -674,33 +701,6 @@ VA - German Top 100 Single Charts 07.02.2020 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36FF5135932CE57A86C26ADD9E66BE20C60882C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976865   (967669) от 19.01.2016
-
-VA - Звездный Mix. Улетная 100-ка (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дискотека Авария - Девушка За Рулём
-02. Nick Jonas - Wilderness
-03. Vicetone feat. Kat Nestel - Nothing Stopping Me
-04. Maduk - Approaching Me(   Читать дальше...   )Жанр: PopПродолжительность: 06:22:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93237578E4725D4ABE5E16578BF0BFDDA9B3019
 ```
 
 

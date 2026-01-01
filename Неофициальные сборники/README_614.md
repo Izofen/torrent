@@ -1,3 +1,30 @@
+###  Публикация: 1095350   (924465) от 21.01.2017
+
+VA - Музыкальный плен. Часть № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924465.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Evelina - Ei Filtterii 3:08
+002. Gladushevskyy & Новые Интеллигенты - Художник 4:23
+003. The Knocks Feat. Walk The Moon - Best For Last 4:28
+004. Александр Есин - Ностальгия 4:15(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12436747236655ED9BD5C37E8F2542FE3751F1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095527   (924468) от 21.01.2017
 
 VA - German Top 100 Single Charts 20.01.2017 [MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - Русский ураган супер хитов (2016) [MP3|256 кб/с] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A3E219E6EAD488D656C330D9FAAF59E4FDAC4D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987337   (925971) от 17.02.2016
-
-VA - Modern EuroDisco 80`s (2016) [MP3|239-320 kbps] <Disco, Pop, Dance, Remix>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925971.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Linda Jo Rizzo - You're My First, You're My Last 2012
-002. Rockets - Electric Delight (Don't Stop)
-003. Boney M - Happy Song (DJ Viduta & DJ DimixeR remix)
-004. P.Lion - Happy Children (Mix Version)(   Читать дальше...   )Жанр: Disco, Pop, Dance, RemixПродолжительность: 09:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6D4BBF90A0B556F567644350CB86180DD2D05C
 ```
 
 

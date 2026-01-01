@@ -1,3 +1,137 @@
+###  Публикация: 1384154   (806161) от 18.05.2020
+
+Dom & Roland - Parasite / Homicide / Paradrenasite (2020) Hive Remaster [FLAC 2.0|44.1/24|tracks|WEB-DL] <Drum n Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dom & Roland - Parasite (06:30)
+ 02. Dom & Roland - Homicide (05:58)
+ 03. Hive - Paradrenasite (06:20)Жанр: Drum n BassПродолжительность: 00:18:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B352404FB8D3CB91C6E525022DFFD7B47CA28EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384005   (806168) от 18.05.2020
+
+Low Budget Aliens - Junk DNA (2020) XPQ? [FLAC 2.0|44.1/24|tracks|WEB-DL] <Experimental, Jungle, IDM, Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CRASh LANDING (03:20)
+ 02. Hazardous Waste Pump (03:50)
+ 03. FE Ignot (01:41)
+ 04. Geo-Stationary Monument (04:45)(   Читать дальше...   )Жанр: Experimental, Jungle, IDM, Drum & BassПродолжительность: 00:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2318B56735D9A1050CF15FA757934AE59339577D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009939   (806213) от 23.04.2016
+
+VA - Bigtime EDM Vol.8 (2016) [MP3|320 кб/с] <House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Bale - The One (feat. Aybewan) 06:19
+02. Sl Curtiz & Domovnik - Timeline (Teo Moss Remix) 05:46
+03. Dion Mavath - B52 06:19
+04. Teo Moss - Activation 05:06(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 03:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE8C9290F601983860450F9F25499F685045E7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 833125   (806283) от 12.01.2018
+
+Zero Degree - Discography 5 Releases (2005-2014) Audiophob, Ant-Zen [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Industrial, Psybient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cocoon (10:58)
+ 02. Stasis (07:17)
+ 03. Beacon (09:11)
+ 04. Distance (11:08)(   Читать дальше...   )Жанр: Psybient/Downtempo/Progressive TranceПродолжительность: 01:10:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36029179C9CA89EF5EF3B4BF36FFEE98382C5A44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384130   (806354) от 18.05.2020
+
+Max de Wardener - Where I Am Today (2004) Accidental Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Glitch, Minimal>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luster (04:37)
+ 02. Automatic (02:58)
+ 03. Until My Blood Is Pure (02:52)
+ 04. Noises From A Small Planet (05:05)(   Читать дальше...   )Жанр: Ambient, IDM, Glitch, MinimalПродолжительность: 00:33:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E944750A3FEF4F0B01196FA2F990322903E056E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 875184   (806366) от 12.01.2018
 
 VNDL - Discography 6 Releases (2011-2015) Hymen Records, Abstrakt Reflections, etc. [FLAC|Lossless|WEB-DL]<IDM, Glitch, Abstract, Experimental, Ambient>
@@ -553,141 +687,6 @@ Pessimist - Pessimist Discography 2011 - 2016 (2019) Pessimist Productions [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:312C172BAB92080C8577659275C130586212BC67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383827   (808144) от 17.05.2020
-
-VA - Ibiza Megamix 2020 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sándor - Drop The Beat (Original Mix) 5:51
-02. Franky Rizardo - X Marks The Spot 6:42
-03. Moonbootica - Lean (Original Mix) 5:13
-04. Chris Hartwig - Bang The Groove (Format B Remix) 6:10(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC9C5E3CDA59F2B7D0EC3DB3D70C826D626A3674
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197964   (808146) от 11.01.2018
-
-VA - The Best Of Liquid Soul (2018) [MP3|320 Kbps] <Psy-Trance, Progressive>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ace Ventura & Liquid Soul  -  Neurochemistry (Original Mix)  8:00
-02.  Liquid Soul & Neodyne  -  Cherub (Original Mix)  7:53
-03.  Liquid Soul & Neodyne  -  Believe (Original Mix)  7:42
-04.  Liquid Soul & Captain Hook  -  Liquid Hook (Original Mix)  7:50(   Читать дальше...   )Жанр: Psy-Trance, ProgressiveПродолжительность: 01:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0B8E964AF2AD3B47AB0FABE20F9C5FD4B72D78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383861   (808280) от 17.05.2020
-
-Accelera Deck - Perfect Nostalgia Beach Rave (2020) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfect Nostalgia Beach Rave (04:18)
- 02. Rose Croix Lips (03:50)
- 03. Salamander (05:40)
- 04. Foxglove Flowers (03:35)(   Читать дальше...   )Жанр: IDM, AmbientПродолжительность: 01:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:825B035FCFC3423417C7E86A122D09D89A4006EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009672   (808355) от 22.04.2016
-
-VA - Electrotastic Vol.21 (Everyone Wants Electro) (2016) [MP3|320 кб/с] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean Elan - Everlasting Love (feat. Steve Edwards) (Diego Miranda Remix) 05:20
-02. Dave Till, Edu Barboza, G.Oliver - Nocturnal 05:25
-03. Dirty Rush - Titans 04:27
-04. Clubbusters - Fuckin' Beat 05:48(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E5E16CD37738A0BC2FDD0B6386D73FE9152170
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009760   (808356) от 22.04.2016
-
-VA - House Progressive Resistant (2016) [MP3|320 кб/с] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luciano Delgado - Caballito Vibra 07:19
-02. Falko Niestolik - The Groove (Radio Mix) 03:18
-03. Following Light - Dell 08:40
-04. Elkana Paz - 2Me (Eran Hersh Radio Edit) 03:15(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2EAE4DD564EBBCEAA0B3BCD585FD6186D462A0B
 ```
 
 

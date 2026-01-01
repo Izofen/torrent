@@ -1,3 +1,165 @@
+###  Публикация: 1117102   (818941) от 22.03.2017
+
+VA - Just Mix Eurodisco (2009) [FLAC|Lossless|WEB|tracks + .cue] <Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818941.jpg" />
+</div>
+
+
+###  Подробнее
+
+London Boys - My Love
+Den Harrow - Tell Me Why
+Madonna vs DJ Fifty - Into The Groove
+Sandra - Secret Land (Reverse Mix)(   Читать дальше...   )Жанр: Disco, Synth-popПродолжительность: 01:20:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3FEAA014EE784510C931CAE22D9F3CD3A15B085
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382542   (818982) от 11.05.2020
+
+Laid Back - Laid Back (1981) 2019,  Brother Music [FLAC|Lossless|image + .cue] <Electronic, Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roger (04:34)
+02. Bolivia (03:57)
+03. Night Train Boogie (03:57)
+04. Maybe I'm Crazy (03:36)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 01:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896A668E62531EC89E6E9452B392EFF149BE066D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197016   (819051) от 05.01.2018
+
+Betsy - BETSY (2017) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little White Lies (03:25)
+02. Lost & Found (02:57)
+03. Fair (03:33)
+04. Last Time We Danced (03:08)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F530667DD8B06645B5DF45C8447084A510851DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196946   (819061) от 05.01.2018
+
+El Coco - Revolucion (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carry Me (5:42)
+02. Silent Lover (4:27)
+03. I'll Take My Chances (5:21)
+04. Somenthing Ya Got Makes Me Hot (6:42)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3105838AFD52C4C102CC1E65BFCF195565E3DDE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196836   (819068) от 05.01.2018
+
+VA - Dance On Fire (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lekktrobass Feat. Mike Rizos – Forever 3:47
+02. Lekktrobass – Free 3:10
+03. Beatrice Robertsson – Got To Have U Now 2:54
+04. Jayber.C And Tyexian – Hesperos’ Tyexian 4:57(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F3EC1AD765FF15880F75400354964F6A702D6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117510   (819100) от 22.03.2017
+
+Vera Lynn - Vera Lynn 100 (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| We'll Meet Again  (03:28) 
+02| Sailing  (03:05) 
+03| (There'll Be Bluebirds Over) The White Cliffs Of Dover  (03:19) 
+04| Wish Me Luck As You Wave Me Goodbye  (03:29) (   Читать дальше...   )Жанр: VocalПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3A5C0637C2F5DDC44FFA4D7703D6C7D5000DB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382508   (819128) от 11.05.2020
 
 TDHDriver - My Fantasy World (2015) Remastered 2020, Spacesynth.ru [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Spacesynth>
@@ -532,168 +694,6 @@ Wild Belle - Dreamland (2016) [FLAC|Lossless|tracks] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8922D845772BEDBB99CFFFAC377AD2F7D9F3FE12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196569   (822304) от 03.01.2018
-
-ZOLOTO - Не переживай (2018) EP [MP3|320 Kbps] <Indie Pop, Synthpop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Танцы
-02. Рёбра
-03. Миллион
-04. Сверчки(   Читать дальше...   )Жанр: Indie Pop, SynthpopПродолжительность: 00:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926258A82AB8A663952CB1727D9C55164B94A294
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196548   (822402) от 03.01.2018
-
-Flagi - Оставь свой след (2017) [MP3|320 Kbps] <Indie Pop, Synthpop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spritz
-02. Яд
-03. Мессенджер
-04. Велосипедия(   Читать дальше...   )Жанр: Indie Pop, SynthpopПродолжительность: 00:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FBFD09931DBF2CEE7374C4A6657BA3C66F332C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196643   (822408) от 03.01.2018
-
-Zoom - Zoom (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Carta (The letter) (5:49)
-02. Rescate Espacial (Space Rescue) (6:40)
-03. El Amor Es (Love Is) (6:20)
-04. La Bruja De Salem (Salem's Witch) (4:42)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0553613878F3C5BA0E0B17C64B68F83C203B2580
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116620   (822751) от 20.03.2017
-
-НеИгрушки - Я хочу быть с тобой (1999) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Весна
-02. Я хочу быть с тобой
-03. Сто дней до приказа
-04. Лишь о любви(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECAF23543E7E4AF671003F075A4C129318446C65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382075   (822772) от 09.05.2020
-
-Unyque - Makes Me Higher (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep On Making Me High (7:20)
-02. Party Down (7:01)
-03. It's Hot (6:11)
-04. Disco Lullaby (7:46)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:304305DDD5069B72F1227B25DCF30147B314C111
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007265   (822836) от 14.04.2016
-
-Chilly - The Magic of Chilly (2016) [FLAC|Lossless|tracks + .cue] <Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Your Love And For Your Love Suite 11:48
-02. Dance With Me 4:37
-03. C'mon Baby 3:10
-04. Sensation 2:45(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25E17027F4237607D6367BBF58338FC1A73B35D0
 ```
 
 

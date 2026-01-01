@@ -1,3 +1,30 @@
+###  Публикация: 1142195   (644722) от 13.06.2017
+
+VA - Ulitimate Funky House (2017) [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Groove>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 100% Feat. Jennifer John - Just Can't Wait (Saturday) (Club Mix) 07:53
+02. Lee Cabrera - Voodoo Love (Steve Angello Remix) 06:52
+03. Asle - Golden Sun (Haji & Emmanuel Remix) 06:42
+04. Mync Project Feat. Abigail Bailey - Something On Your Mind (Soul Seekerz Remix) 06:30(   Читать дальше...   )Жанр: Nu Disco, Funky, Soulful, GrooveПродолжительность: 09:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32490BDDC096F21E8B6F12D499830EEB9CA40D2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227671   (644746) от 27.05.2018
 
 VA - Заяц Рор Шоу-3 (1997) [FLAC|Lossless|image + .cue]<Pop, Dance>
@@ -424,6 +451,39 @@ magnet:?xt=urn:btih:EC026412669F59C6628BFDF764536333F2B60332
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518042   (645341) от 02.07.2012
+
+T.Ark - H.A.P.P.Y. Radio (2010) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_645341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Cover Lover (Extended Version)
+02. Count On Me (Extended Version)
+03. How Old Are You (Mixed By Luis Rodriguez)
+04. Move It
+05. Carry Me (Maxi Version)
+06. H.A.P.P.Y. Radio (Extended Version)
+07. Count On Me (Instrumental Dub Version)
+08. Under Cover Lover (Instrumental)
+09. Count On Me (Single Version)
+10. Under Cover Lover (Radio Version)(   Читать дальше...   )Жанр: Italo-Disco
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032339   (645451) от 07.07.2016
 
 VA - Radio 538 Hitzone 78 (2016) Box Set, 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
@@ -635,60 +695,6 @@ Londonbeat - 2 Albums (2004) [FLAC|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A19AE3066D20B2991C479AB425952651FC4C4706
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032321   (645853) от 07.07.2016
-
-Алиса Мон - «Потанцуй со мной» (2001) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Орхидея (4:30)
-02. Мало ли, что (3:55)
-03. Стань моим (4:11)
-04. Тет-а-тет (3:49)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A2756ECB53D9F82F35413630D348E35FAC06C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142014   (646326) от 12.06.2017
-
-Chromatics - Cherry (2016) [MP3|320 Kbps] <Electronic, Alternative Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cherry
-02. Candy
-03. Headlight's Glare
-04. Ceremony(   Читать дальше...   )Жанр: Electronic, Alternative Pop, SynthpopПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:002CFD4E2097D02E4FA2DD1769D068F63EFBEDB0
 ```
 
 

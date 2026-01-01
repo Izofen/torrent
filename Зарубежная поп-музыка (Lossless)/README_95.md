@@ -1,3 +1,58 @@
+###  Публикация: 1483485   (1006771) от 14.07.2021
+
+Jess & Matt - Wildflowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sliding Doors (00:03:10)
+02 - 1961 (00:03:42)
+03. Aftermath (00:03:46)
+04. Wildflowers (00:03:04)(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 00:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C5F89E8C1BEE6181DB953029B7D955A243AC00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483395   (1006854) от 13.07.2021
+
+VA - Pure... Alternative 80s (2011) Box Set, 4 CD [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не ошибусь, если скажу, что на нашем трекере собрана наиболее полная серия, которую в свое время издавала Sony Music (ссылка на всю серию внизу поста). И сегодня представляю Вам последний (из имеющихся у меня) боксет - Alternative 80s.
+Если честно вспомнить именно 80-е, то не то что альтернативные треки, едва доступны были и самые популярные композиции, которые гремели (   Читать дальше...   )CD1:
+01. Adam and the Ants - Stand and Deliver  (3:08)
+02. The Stranglers - No Mercy  (3:39)
+03. Big Audio Dynamite - E=MC²  (5:57)(   Читать дальше...   )Тип издания: Box Set, 4 CDРелиз состоялся: 10 окт. 2011 г.Жанр: Pop, Electronic, RockПродолжительность: 04:20:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2BEDD6667E775E9EFEE10547DF31F5E6B46B92A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483360   (1006882) от 13.07.2021
 
 VA - Beautiful and Chilled Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -641,60 +696,6 @@ Matia Bazar - The Best Platinum Collection(18 Successi Originali) (2007) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEF27F4033AF25894D1C56352B5E9589A467D04C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474128   (1013222) от 01.06.2021
-
-VA - Fresh Pop Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Perfect (4:23)
-02. Lianne La Havas - Paper Thin (4:58)
-03. Wiz Khalifa; Charlie Puth - See You Again (3:49)
-04. Paul Rey - Talking In My Sleep (2:58)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 01:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859F002CD72CE6819046123A33AD120E4F4E6DDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473144   (1013795) от 28.05.2021
-
-Moby - Reprise (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everloving (3:19)
-02. Natural Blues (4:30)
-03. Go (3:42)
-04. Porcelain (5:53)(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF26C480B0F199728669C67514E9C32395EF42B3
 ```
 
 

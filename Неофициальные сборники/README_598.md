@@ -1,3 +1,30 @@
+###  Публикация: 1369560   (901993) от 24.03.2020
+
+VA - Different Shades Of World Song (2020) [MP3|320 Kbps] <Pop Folk, Shancon, World Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901993.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aaron Watson - Red Bandana
+002. Pistol Star - Jennifer Blu
+003. Mandela - Kitem Baw Love
+004. Steevy - Voleur De Cœur(   Читать дальше...   )Жанр: Pop Folk, Shancon, World MusicПродолжительность: 07:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A12A297D4EC7382C3132D93856787581F42CCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369579   (902022) от 24.03.2020
 
 VA - Hi Games Vol.6 (Chiptune, Drum and Bass Edition) (2020) [MP3|224-320 Kbps] <Chiptune, Drum and Bass>
@@ -668,33 +695,6 @@ VA - Музыка хорошего настроения 2 (2016) [MP3|256 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41322A23333268CCE6087C9292F2C7D802428C08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492121   (902474) от 30.08.2021
-
-VA - Guided By The Heart (2021) [MP3|320 Kbps] <Alternative, rock indie>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902474.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Atlas Mountains - Coucou
-002. Baits - Feelings
-003. Major Murphy - Blind
-004. Elbow - Can't Stop(   Читать дальше...   )Жанр: Alternative, rock indieПродолжительность: 07:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:383CC47F80861E615EEEA1112CD22EA654902DE6
 ```
 
 

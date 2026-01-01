@@ -1,3 +1,138 @@
+###  Публикация: 1395830   (752116) от 12.07.2020
+
+VA - Jaytech Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House & Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solarity - Terminal 6 (Extended Mix) (7:30)
+02. Jaytech - Pyramid (Dinka Extended Mix) (6:48)
+03. Jaytech & Boom Jinx - Milano (Extended Mix) (7:00)
+04. Jaytech - Pepe's Garden (Extended Mix) (7:41)(   Читать дальше...   )Жанр: Electronic, Progressive House & TranceПродолжительность: 01:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF07E7A831B4BB5198984D564551CD0FD557540
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 739992   (752117) от 12.07.2020
+
+Witchcraft - Scattered Areas Of Invisibility (1999) AD Music [FLAC|Lossless|tracks+.cue]<Electro, Experimental, Downtempo, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Certainty Principle (5:49)
+ 02. Angel Dust (4:25)
+ 03. First Point Of Aries (6:08)
+ 04. Capture The Flag (6:01)(   Читать дальше...   )Жанр: Electro, Experimental, Downtempo, AmbientПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D3AD2CE991DE19A1B477280BE4A36214FDC4B60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 322371   (752317) от 12.04.2011
+
+R.I.O. - Shine On (2008) [FLAC|Lossless]<House / Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_752317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine On (Radio Mix) (03:23)
+02. Shine On (Spencer & Hill Radio Edit) (03:02)
+03. Shine On (Soft House Radio Mix) (03:21)
+04. Shine On (Mondo Radio Edit) (03:22)(   Читать дальше...   )Жанр: House / ElectroПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019216   (752329) от 22.05.2016
+
+VA - Five Star Chill Out Vol 1 (Luxury Beach Lounge Resort Relaxation) (2016) [MP3|320 кб/с] <Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chilhouette - The Way You Look At Me (Extended Mix) (05:46)
+02. Polyopia - In My Mind (Beach Bar Instrumental) (04:51)
+03. Soleil Fisher - Midnight Swim (05:37)
+04. Once Upon A Time - Another Way (04:30)(   Читать дальше...   )Производство: RagimusicЖанр: Lounge, Chill OutПродолжительность: 01:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB0F3BE679C9166A4870B7E561A6C1D97D923FFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019362   (752341) от 22.05.2016
+
+VA - Sirup Deep Anthems Ibiza 2016 (2016) [MP3|320 кб/с] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Croatia Squad - The D Machine (Radio Mix) (03:37)
+02. Ben Delay - I Never Felt so Right (Radio Mix) (03:43)
+03. Nora En Pure - Better off That Way (Radio Mix) (03:12)
+04. Milk & Sugar - Heat (Calippo Radio Mix) (03:11)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E955332E196326AA19C548478859DBF27D95882
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018988   (752422) от 22.05.2016
 
 Michael Rade - Dadala (2016) [MP3|320 кб/с] <House, Progressive House>
@@ -558,141 +693,6 @@ Veky - Alone (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05EC7BBF9FE9DA576859401B8018EAF3E18310E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395460   (755172) от 10.07.2020
-
-Hard EDM Workout - Running 70s 80s 90s Hits: 150 bpm (2020) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhythm Is A Dancer (3:15)
-02. What's Up (2:50)
-03. Blue (Da Ba Dee) (2:35)
-04. Be My Lover (3:05)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 03:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9358425F14947882A8312C4FE193954363FBE6ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280971   (755199) от 06.02.2019
-
-VA - Smooth Jazz Morning Lounge (Chillout Your Mind) (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florito - Springtime Chill (Original Mix) 3:52
-02. Velvet Dreamer & Tim Gelo - Eternal Beauty (Original Mix) 5:08
-03. Citrus Jam - Siesta Swing (Seagroove Cut) 5:34
-04. Marie Therese - Back to Me (Original Mix) 4:42(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B0BDC6EC71EB2A55CC4656E720737C32423246C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281132   (755201) от 06.02.2019
-
-E.R.P. - Afterimage (2018) Forgotten Future [FLAC|Lossless|Vinyl|tracks] <Electro, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning Question (05:26)
- 02. Overcast (05:39)
- 03. Wishing Still (08:34)
- 04. Insomnia (03:21)(   Читать дальше...   )Жанр: Electro, AmbientПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:259B2F6F5028A590FC5B9C36F7D14ECA8F06FA33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280900   (755204) от 06.02.2019
-
-Spacehawk - Laser Squad (2018) [MP3|320 Kbps] <Spacesynth, Spacedisco>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:24)
-02. Zeratul's Return (3:55)
-03. Cosmic Expedition (4:28)
-04. Laser Squad (3:53)(   Читать дальше...   )Жанр: Spacesynth, SpacediscoПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B219817E9050D21DB2AC5D591AA2C7E74C8DB9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281045   (755205) от 06.02.2019
-
-VA - Top Of The Lounge Music on Ciacofon Records (2018) [MP3|320 Kbps] <Downtempo, House, Dancehall>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fonzie Ciaco, Dj Memory, Dj Ciaco, Alfonso Ciavoli Cortelli - Vermilion (Fonzy C Lounge Radio Edit) 3:35
-02. Dj Memory, Fonzie Ciaco, Alfonso Ciavoli Cortelli - Purple (Fonzy C Lounge Radio Edit) 3:45
-03. Dj Memory, Fonzie Ciaco, Dj Ciaco - Magenta (Fonzy C Lounge Radio Edit) 3:31
-04. Fonzie Ciaco, Dj Memory, Dj Fonzy - Orange Juice (Dj Fonzy Lounge Radio Edit) (   Читать дальше...   )Жанр: Downtempo, House, DancehallПродолжительность: 01:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B028BF391ED236CE257C8BAC9EBCCA73FF8C10E5
 ```
 
 

@@ -1,3 +1,111 @@
+###  Публикация: 1477088   (1011126) от 14.06.2021
+
+Dig Me No Grave - From Past Aeons (2011) Limited Edition, Reissue, 2016, Symbol Of Domination [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summoning (0:44)
+02. Forbidden (2:29)
+03. Dark Predictions (3:26)
+04. Mortician (2:56)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485FB04261D26236E42CEDEDE0A8CA4027EAB045
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477084   (1011134) от 14.06.2021
+
+Dig Me No Grave - Immemorial Curse (2017) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:26)
+02. Ritual Slaughter (3:25)
+03. Initiation To Afterlife Disciplines (3:24)
+04. Cursed Acheron (3:49)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB4D7FD8F189C06F379F5B7650A0A365ACCF9655
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477087   (1011141) от 14.06.2021
+
+Dig Me No Grave - Cosmic Cult (2014) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Through The Gates (4:02)
+02. Reptile (3:20)
+03. In Oblivion (3:16)
+04. Cosmic Cult (2:45)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4AA07FF45171AD1A27A3AA956288E40F9F22B10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476538   (1011531) от 12.06.2021
+
+Ploho - Фантомные чувства (2021) [FLAC|Lossless|image + .cue] <Post-Punk, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Между нами
+02. Прости
+03. Добрые люди
+04. Камни(   Читать дальше...   )Жанр: Post-Punk, New WaveПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CEDCB654BCE49F489C02749407F165C01420618
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476065   (1011838) от 10.06.2021
 
 Monomakh, Krasnaya Ploschad - Split (1989) [FLAC|Lossless|tracks + .cue] <Russian Hard Rock>
@@ -587,114 +695,6 @@ magnet:?xt=urn:btih:55B59770D0D6F024F5423C21E654E74D773C9EBE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86FC6BF32B2121B1ADE8C4E9AC036D634EAACD5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463272   (1020617) от 17.04.2021
-
-Альфа - Звездная Серия: Звезды Российской Эстрады (2000) [FLAC|Lossless|tracks + .cue] <Pop-Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гуляка (3:18)
-02. Бега (3:00)
-03. Театр (5:24)
-04. Теплый ветер (4:40)(   Читать дальше...   )Жанр: Pop-Rock, RockПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82D896A4EEAF0EF5B6DAF9D39985F92E172C21DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463299   (1020625) от 17.04.2021
-
-VA - The Best Rock From Russia (Moroz Records Promo) (1994) [FLAC|Lossless|image + .cue] <Thrash, Death Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кино - Песня без слов
-02. Nautilus Pompilius - Отход на север
-03. Крематорий - Адольф
-04. Алиса - Плач(   Читать дальше...   )Жанр: Thrash, Death Metal, Hard RockПродолжительность: 01:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05F8EA3B432FA4DCA9F1AC2706F6CFF9C45AB5E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462912   (1020796) от 16.04.2021
-
-LOUNA - Обратная сторона (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020796.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Путь к себе
-2. Искусство
-3. Сигнал в пустоте
-4. Штурмуя небеса(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B993A6C488E396FE63FE15581C9B4B7A3709335
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412282   (1020801) от 16.04.2021
-
-КерамикА - 5 EP / 2 Single (2011-2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020801.jpg" />
-</div>
-
-
-###  Подробнее
-
-2011 - Zaprava (EP)
-2019 - Калейдоскоп любви (EP)
-2019 - Три в одном (EP)
-2020 - Люберцы (Single)Жанр: RockПродолжительность: 01:16:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109236FB0B1795F68982628B6B150CF0AD6C01C5
 ```
 
 

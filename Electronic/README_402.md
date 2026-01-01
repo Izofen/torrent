@@ -1,3 +1,138 @@
+###  Публикация: 1277734   (785028) от 21.01.2019
+
+VA - Winter Music Top 1 (2019) [MP3|320 Kbps] <House, FutureHouse, Dubstep, Other>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Papaya - I'm Burning (Tech House Mix) 9:49
+02. DJ Papaya - I'm Burning (Tribal Mix) 9:18
+03. WILKKEN & JHON CHRISTIAN - Tche Ngolove (Original Mix) 5:36
+04. Gunball & CHIPS DOWN - Shake Down (Original Mix) 4:06(   Читать дальше...   )Жанр: House, FutureHouse, Dubstep, OtherПродолжительность: 02:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4B9282ED5D28C1185C93F49C98D21C52278CE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277727   (785029) от 21.01.2019
+
+Feral - Climbing Himalaya: Part II (2018) Hypnus Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Dub Techno >
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Pine Forest (08:43)
+ 02. Rara Lake (05:52)
+ 03. Mahakala Is Watching (05:51)
+ 04. Descending (A Shaman's Dub) (06:38)Жанр: Techno, Dub TechnoПродолжительность: 00:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:361A9D8E1A7BB4877D16FE962CE4765F2E7EB778
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277680   (785032) от 21.01.2019
+
+VA - Various Artists pt.5 (2015) Etoka Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warmth - Crescent (09:34)
+ 02. Alex Humann - Minze (06:46)
+ 03. Adverb - Hyle (07:02)
+ 04. Anton Lanski - Reckless In The Dark (04:56)Жанр: Dub Techno, Ambient, Deep TechnoПродолжительность: 00:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:611BBB3404686AE8C4E4C689B2A0435C5DD0FDFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388935   (785039) от 08.06.2020
+
+VA - Erotic Lounge Sensual Hot 2020 [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cut Groove - Yedeka (Chillout Cut Mix) 3:09
+02. Club Guys - Take My Breath (Massive Chill Mix) 3:14
+03. St. Martin - Garage DH (St. Peace Mix) 3:12
+04. Anthony Maserati feat. Lolla Gee - Beyond The Time (Anthony's Life Mix) 3:13(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F7E193CA8DE03AA146834A932D5BB45CAF13CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388881   (785153) от 08.06.2020
+
+VA - Bounce Showcase, Vol.1-2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785153.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dopamine Machine - On My Count (6:32)
+2. Magnifix - The Perfection (7:31)
+3. Phanatic - Mind Control (6:46)
+4. Exciter - Imagine (5:58)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA492D48E6E29BEC0C0C53D3DEB97ECF6D0C3A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388927   (785166) от 08.06.2020
 
 Norken - Galaxy Driven (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Tech House>
@@ -560,138 +695,6 @@ Occer - Imperfect (2017) Zenon Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Ps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08F071207FF8593B7FFA146CA557B7C9712A5EC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204147   (785468) от 04.02.2018
-
-VA - Selective Deep House Vol.4 (2018) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  ThC Brothers - Bring Me Back To The Underground (original mix)
-02.  Gosha, Dessy Slavova & Anton Ishutin - I Know You (Anton Ishutin remix)
-03.  Albena Flores & Indira Boka - Rondo Minimale (original mix)
-04.  Jaques Le Noir - Oopart (original mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A567E9A94F6E2D0A2D5167F0615B04CB9776017A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204055   (785469) от 04.02.2018
-
-VA - Rhodes Journey To The Light (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Homme - Mountains Of Prologomena (feat Nefeli) (04:05)
-02. Outpass - Apela (05:19)
-03. Craun - Birds Of Dissonance (04:14)
-04. Melorman - Mrs Sun In Her Eyes (03:39)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFE5F7AF6B8077AD3A23E07BB1231E2A28B638E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203868   (785470) от 04.02.2018
-
-VA - The Sound Of Progressive House Vol.08 (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dennis Bune  -  Dark Sky (Original Mix)  8:52
-02.  DiCristino  -  Infinite (Micfreak Remix)  5:46
-03.  Foxt & Prodeeboy  -  New Era (Original Mix)  7:43
-04.  Dezza  -  Looking For (Extended Mix)  7:16(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4428D786DEB4109447208266A2A7083E2D8F84E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124853   (785541) от 12.04.2017
-
-Нейромонах Феофан & Слот - Древнерусская душа (2017) Single [MP3|320 Kbps] <Drum & Bass, Alternative Rock, Electronic>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785541.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Древнерусская душаЖанр: Drum & Bass, Alternative Rock, ElectronicПродолжительность: 00:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89688398657093F483FE314C0CC425AEC50E3D15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124827   (785573) от 12.04.2017
-
-Depeche Mode - Pop Legend: Music Legend (2000) 2CD, Bootleg [FLAC|Lossless|image + .cue] <Electonic, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream on (4:18)
-02. Something to do (3:45)
-03. Personal Jesus (4:52)
-04. Little 15 (4:12)(   Читать дальше...   )Жанр: Electonic, SynthpopПродолжительность: 02:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5343A9F320FF1590BF252DAAD420CCCB38D175FD
 ```
 
 

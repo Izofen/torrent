@@ -1,3 +1,138 @@
+###  Публикация: 1530491   (729022) от 11.02.2022
+
+MORTEN - DJ Mag Italy Radioshow (2022-02-02) [MP3|~245 Kbps (V0)] <Electro House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta & MORTEN - Permanence
+02. Anyma ft. Meg Myers - Running
+03. ARTBAT & Pete Tong ft. Jules Buckley - Age Of Love (ARTBAT Rave Mix)
+04. David Guetta & MORTEN & Roland Clark - Alive Again(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:59:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0E24C72BE5153EBB7B357619C10EF060A14862B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989003   (729173) от 01.06.2016
+
+Armin van Buuren - A State of Trance 751 - 765 (2016) [MP3|320 кб/с] <House, Trance, Progressive>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yuri Kane feat. Ana Criado – Running Wild (Original Mix)
+02. Ilan Bluestone feat. Giuseppe De Luca – Bigger Than Love (Original Mix)
+03. Danny Chen – Dawn (Original Mix)
+04. Genix & Sunny Lax – Black Water (Original Mix)(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 29:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59A43B54D0D5ED70DDCFC778CAD1BF01D0ACBAE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022048   (729869) от 01.06.2016
+
+Telegraph - Beyond Good & Evil (2016) [MP3|320 кб/с] <Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond Good & Evil (1:45)
+02. The Veil Of Maya (4:02)
+03. I Wanted Love (3:46)
+04. Game Over (4:48)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7494B4CF13812F7B55D3B9513B19DE2505695CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021726   (729888) от 01.06.2016
+
+Moomin - A Minor Thought (2016) [MP3|320 кб/с] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 123
+02. A Minor Thought
+03. Loop No. 1
+04. Morning Groove(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C6E1771DB37DAC015E18A5A60E1A295AFCD3A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529977   (729914) от 10.02.2022
+
+VA - Blue Sailing: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beamy - Elmwood (4:37)
+02. Marga Sol - What I Long For (Chill Mix) (5:24)
+03. Gary B - Bring Me Hope (Original Mix) (3:24)
+04. Michael E - Infinite Beauty (Original Mix) (4:54)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906F61A970A9029FEFBC34565A9A74E59523A365
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284211   (730048) от 20.02.2019
 
 VA - Traveling All Time: Downtempo Chill Out (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
@@ -558,141 +693,6 @@ VA - Living Room’s Just Good Mood (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFD826ECB632F0F31EADB602171875AAED41A8D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127577   (731148) от 22.04.2017
-
-VA - Black Hole House Music 04-17 (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tyng & KMRN - Cracks On The Wall (feat. Shadisha)  6:27
-02.  James DX - Maximum Effort (Original Mix)  6:01
-03.  RBYN - Angel (Metrush Remix)  3:15
-04.  Bobina & May-Britt Scheffer - Born Again (Filatov & Karas Extended Remix)  4:14(   Читать дальше...   )Жанр: HouseПродолжительность: 01:25:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A939B9F601617750A4C40F6273D287A53C2BB67D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127889   (731158) от 22.04.2017
-
-WellenVorm - Petrified Forest (2016) [MP3|320 Kbps] <Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731158.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Perm - 6:21
-2. Twilight - 5:11
-3. Thunder - 10:00
-4. Blust Wave - 0:55(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6EF46B787F158B2672CCC386D4FDD62A6A6DE33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127327   (731608) от 21.04.2017
-
-ATB - neXt (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Downtempo, Progressive House>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pages (feat. Haliene) (3:42)
-02. Never Without You (feat. Sean Ryan) (5:36)
-03. If It Takes All Night (feat. Cavale) (3:27)
-04. Stay with Me (feat. Mike Schmid) (3:19)(   Читать дальше...   )Жанр: Progressive Trance, Downtempo, Progressive HouseПродолжительность: 01:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6783C5A2AF78C2FF51A3C4337ECBC34B77C2DA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127372   (731728) от 21.04.2017
-
-VA - A State Of Trance 2017 (Mixed by Armin Van Buuren) (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alpha 9 - The Night Is Ours (2:51)
-02. Joonas Hahmo & K-System - Ymana (2:39)
-03. Alexandre Bergheau - Summer's Gone (Yoel Lewis Remix) (2:04)
-04. Fatum - Draco (3:33)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 04:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0126F6D292F642F9F28653936481AC923A35642
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021127   (731759) от 30.05.2016
-
-Maduk - Never Give Up (2016) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maduk – Nothing More (4:06)
-02. Maduk/Veela – Got Me Thinking (3:32)
-03. Maduk – One Way (4:28)
-04. Maduk/Voicians – The End (4:55)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2E9C912617A0047C9D94E95BF05068BA0D46A7
 ```
 
 

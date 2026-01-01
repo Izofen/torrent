@@ -1,3 +1,191 @@
+###  Публикация: 1096356   (917510) от 25.01.2017
+
+James Alan Shelton - Blue In The Blue Ridge (1996) [FLAC|Lossless|tracks + .cue] <Bluegrass, Guitar>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917510.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Blue In The Blue Ridge
+2. Bill Cheatum
+3. I Just Think I'll Go Away
+4. Down At Mylow's House(   Читать дальше...   )Жанр: Bluegrass, GuitarПродолжительность: 00:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99221641EEC0942DD8E203231D67F431A85AA17C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 757315   (917522) от 16.02.2014
+
+ДиДюЛя - Однажды cегодня (2013) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мечта (5:11)
+02. Охота на волка (4:03)
+03. Колыбельная (4:21)
+04. Ханг (4:12)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ACD54066B72BF9DBB00C7A4152A461507E12E11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 100669   (918210) от 14.03.2020
+
+Сборники "Звуки природы" -  музыка для релаксации [FLAC|Lossless|image + .cue] <Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2001 - Звуки джунглей
+2001 - Волшебство Ниагарского водопадаЖанр: Музыка для релаксацииПродолжительность: 01:58:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C86D9CA7576AAFA637EF285ABE43CAFD889FBD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988372   (918527) от 21.02.2016
+
+Santiano - 3 альбома (2012 - 2015) [MP3|320 кб/с] <Pop, Rock, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lieder Der Freiheit  03:40
+02. Rolling The Woodpile  03:13
+03. Die Letzte Fahrt  04:13
+04. Johnny Boy  03:32(   Читать дальше...   )Жанр: Pop, Rock, FolkПродолжительность: 01:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6A53BF39D93B679BB4456F805C1DF3F6B992C5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490411   (918918) от 20.08.2021
+
+VA - Гитарный карнавал. Музыка вокруг света (2001) [FLAC|Lossless|tracks + .cue]<Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Р. Файс ( гитара ) - К Жако ( Chez Jacquot ) 2:22
+02. Г. Луковски ( гитара )  - Intergrando 2:39
+03. Г. Луковски ( гитара ) - Спокойное утро ( La Matin calme ) 2:52
+04. Г. Луковски ( гитара ) и М. Грауэлс ( флейта ) - Ария из "Бразильской бахианы" № 5 4:08(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10671A9DFCF89D2CBEC351F7287CB0397C66CE7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988789   (918934) от 21.02.2016
+
+Ан Пьерле (An Pierle) - Новейший завет. Le Tout Nouveau Testament (2015) [MP3|320 кб/с] <ost, score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solid Rain Theme
+02. Girafes
+03. Ea
+04. Et dieu créa la pluie(   Читать дальше...   )Жанр: ost, scoreПродолжительность: 00:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC0D19CFA1B1E0B14885641F9CD94565B05779A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366564   (918981) от 14.03.2020
+
+Celtic Woman - Celebration (2020) [FLAC|Lossless|WEB-DL|tracks] <Celtic, New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. May It Be
+02. Ballroom Of Romance
+03. Granuaile’s Dance
+04. Dúlaman(   Читать дальше...   )Жанр: Celtic, New ageПродолжительность: 00:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FF8587B35AD5A0D87719633C151267C7EEA81AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096573   (919204) от 24.01.2017
 
 Kimberly Haynes - Awaken Me (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Vocal>
@@ -506,195 +694,6 @@ Aldo Shllaku - Triumph (Original Motion Picture Soundtrack) (2019) [MP3|320 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3455CF0C7DE2BDEEB1181AFE36876CF7B358AD88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988055   (922637) от 19.02.2016
-
-Nick Ingman & Prague Philarmonia - Classic Love At The Movies (1999) S&V #10/2000 [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Heart Will Go On (Titanic) (3:28)
-02. I Will Always Love You (The Bodyguard) (3:26)
-03. Love Theme (Romeo & Juliet) (3:20)
-04. We Have All TheTime InThe World (On Her Majesty's Secret Service) (3:21)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72ACE64C3A297EF60A8B093AAF98DEE651F986A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987845   (922733) от 19.02.2016
-
-Mars Lasar - Jazz from Mars (2016) [MP3|320 кб/с] <New Age, Ambient, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uptown (03:58)
-02. Clouds of Linen (03:57)
-03. Panorama (04:18)
-04. Peyote (04:34)(   Читать дальше...   )Жанр: New Age, Ambient, ElectronicПродолжительность: 01:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:640E117891F9AE17A709BEA750120CEFABF78BCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987488   (922789) от 19.02.2016
-
-African Head Charge - Songs Of Praise (1990) [MP3|320 кб/с] <Reggae, Dub>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free chant (Churchical chant of the Iyabinghi)  03:34
-02. Orderliness, godliness, discipline and dignity  03:20
-03. Hymn  05:43
-04. Dervish chant  07:45(   Читать дальше...   )Жанр: Reggae, DubПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4641D8E68F7D1ACD785CBEFBB2937F9DAE2F1B8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366290   (923562) от 11.03.2020
-
-Head Splitter - Cyberpunk 2077 Fanmade Soundtrack (2019) [MP3|320 кб/с] <Soundtrack, Electronic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923562.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:12| 01. Neon Drive
-|04:13| 02. Prototype
-|03:17| 03. Netrunner
-|03:46| 04. KyotoЖанр: Soundtrack, Electronic •Продолжительность: 00:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B23881A7F868FC8FD80B78F8F637034DA6160EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366291   (923564) от 11.03.2020
-
-Head Splitter - Cyberpunk 2077 Fanmade Soundtrack (2019) [FLAC|Lossless|tracks] <Soundtrack, Electronic>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923564.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:12| 01. Neon Drive
-|04:13| 02. Prototype
-|03:17| 03. Netrunner
-|03:46| 04. KyotoЖанр: Soundtrack, Electronic •Продолжительность: 00:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D2B9195F1948D59401D85FA74E48B08AD312119
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489722   (923894) от 17.08.2021
-
-Various Artists - Mulheres Apaixonadas, Vol. 1 (2003) [FLAC|Lossless|tracks + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tribalistas - Velha Infancia
-02. Methania, Barque - Sem Fantasia
-03. Marcia - Eu E a Brisa
-04. Luiza Possi - Eu Sou Assim(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A27A2552653821179B500A3858E68827AA027AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366394   (924012) от 11.03.2020
-
-Metal Fortress (Mike Morasky) - Team Fortress 2 Final Remix (2020) [MP3|320 кб/с]<Soundtrack, Metal, Electronic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924012.jpg" />
-</div>
-
-
-###  Подробнее
-
-|04:10| 01. Main Theme (Team Fortress 2)
-|04:25| 02. Playing With Danger
-|03:52| 03. Rocket Jump Waltz
-|04:04| 04. The Art of War(   Читать дальше...   )Жанр: Soundtrack, Metal, ElectronicПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79EE645FFE5B452A654BE4799FBB2B48E7EB873A
 ```
 
 

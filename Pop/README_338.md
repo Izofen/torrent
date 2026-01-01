@@ -1,3 +1,165 @@
+###  Публикация: 1355555   (983535) от 26.01.2020
+
+Lola Marsh - Someday Tomorrow Maybe (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Dream Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Echoes (03:44)
+02. Only For A Moment (02:48)
+03. Hold On (03:48)
+04. Strangers On The Subway (03:11)(   Читать дальше...   )Жанр: Indie Pop, Dream Pop, FolkПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F2A09EA77B9EF482DA07470471665D5A3475618
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355403   (983619) от 26.01.2020
+
+Crystal Grass featuring Steve Leach - Dance Up A Storm (1976) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream On (3:57)
+02. Now And Forever (3:00)
+03. I Sure Like The Change (2:55)
+04. I Wanna Thank You For The Music (4:47)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:310FCB726140309327CE80BFB05719696F74B7A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971901   (984548) от 04.01.2016
+
+Oonagh - Oonagh (2014) Attea Ranta • Second Edition [FLAC|Lossless|image + .cue] <Pop, Ethno-Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaa [03:55]
+02. Vergiss Mein Nicht (Duet Mit Santiano) [04:24]
+03. Orome [03:45]
+04. Falke Flieg [03:32](   Читать дальше...   )Жанр: Pop, Ethno-Pop, FolkПродолжительность: 01:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A907249CB894256324FEC4718CDEDBBF674EF555
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971601   (984644) от 04.01.2016
+
+Klusters - Olbers' Paradox (2015) [OGG|406-488 кб/с] <Alternative Pop, Psychedelic Space Rock, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебютный альбом электронного поп дуэта из Будапешта!01. Prologue
+02. Brainstorm
+03. Depths
+04. Multiverse(   Читать дальше...   )Жанр: Alternative Pop, Psychedelic Space Rock, ElectronicПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA337532E2E73384F2840892437E07456EF1D51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354991   (984858) от 25.01.2020
+
+Stockholm Underground  - Gimme Gimme Gimme & Summer Night City (1992) [FLAC|Lossless|image + .cue] <Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984858.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Gimme Gimme Gimme (Radio Edit) 3:25
+2 Gimme Gimme Gimme (Extended Club 33 Mix) 4:45
+3 Gimme Gimme Gimme (Extended Subtle Remix) 6:30
+4 Summer Night City (Extended Version) 4:47(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:22:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:681DDD15FBF6FDB5B44276313D4CA310E5492618
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355218   (984859) от 25.01.2020
+
+Alec R. Costandinos - 6 Albums (1978-1981) LP Collection [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя Alec R. Costandinos наверняка известно всем, кто интересовался историей диско-музыки. И хоть его карьера на музыкальном поприще была недолгой - он был, безусловно, одним из самых именитых и значимых композиторов, аранжировщиков и продюсеров классического диско конца 70-х годов прошлого века. Помимо предлагаемых ниже -  официально обозначенных альбомов на Discogs, (   Читать дальше...   )Список альбомов:
+1978 - Romeo & Juliet
+1978 - The Hunchback Of Notre Dame
+1978 - Trocаdero Bleu Citron(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 03:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE5C685FC2DCAE93C9AD09CD62B118AF500762C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355138   (984926) от 25.01.2020
 
 Lera Lera - Дай мне знак (2010) [FLAC|Lossless|tracks + .cue]<Pop>
@@ -554,174 +716,6 @@ VA - Radio 538 Hitzone Christmas 2015 (2015) [FLAC|Lossless|image+.cue] <Pop, Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA5816155FB79A721D743941B086B01CCAE8838B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970801   (988477) от 01.01.2016
-
-Sandra - The Art Of Love (2007) [FLAC|Lossless|image + .cue] <Pop, Electro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What D'Ya Think Of Me [04:34]
-02. The Way I Am [03:31]
-03. The Art Of Love [04:14]
-04. What Is It About Me [03:54](   Читать дальше...   )Жанр: Pop, ElectroПродолжительность: 00:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB45FAEAB22CDB38866E7DC56228A5479E0BF20C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970984   (988480) от 01.01.2016
-
-Степ - Ти не пожалкуєш (1997) [FLAC|Lossless|image+.cue] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шалалулей
-    02. Жнива
-    03. Ти не пожалкуєш
-    04. Жінка моя(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6BA831A5C39BF509106058CB876281D134D721E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971127   (988585) от 01.01.2016
-
-Gepy & Gepy - Il Meglio (1997) [FLAC|Lossless|image + .cue]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body To Body 7:04
-02. Pui' 3:29
-03. Angela 3:37
-04. Angelo Blu 3:03(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA2433943E29C2B18E45447FFAEC974EAA2BE96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432684   (988683) от 08.01.2012
-
-C.C.Catch - 25th Anniversary Box (5CD) (2011) [MP3|320 kbps] <Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DiscoПродолжительность: 00:53:17
-01. House Of Mystic Lights (4:10)
-02. Strangers By Night (4:54)
-03. Heartbreak Hotel (2:48)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7BCD7FBE1E7CE5D953CE49B03134DC7DCEDE38B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354297   (988996) от 21.01.2020
-
-The Crosslines - Cross The Line (2019) Limited Edition [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Me Your Love (6:18)
-02. My Secret Love (Extended Version) (5:41)
-03. Tell Me (Album Version) (3:47)
-04. Hotel Of The Lonely Hearts (Maxi Version) (6:50)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08F6AFFDEE011DFBFEDC346FA070F65AA98A74CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607673   (989991) от 29.01.2013
-
-Женя Белоусов - Звездная серия (2003) [MP3|256-320 кб/с]<pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989991.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Подожди меня 04:14
- 2. Вечером на лавочке 04:15
- 3. Ночное такси 04:50
- 4. Девчонка-девчоночка 04:49
- 5. Алешка 03:54
- 6. Голуби целуются 04:30
- 7. Карина 03:59
- 8. Слушай, девчонка 04:59
- 9. Вечерок 05:24
- 10. Облако волос 05:31(   Читать дальше...   )Жанр: popПродолжительность: 01:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B8B3DA68B010965A1F7101B159B032C401EB57F
 ```
 
 

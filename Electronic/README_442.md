@@ -1,3 +1,138 @@
+###  Публикация: 1378272   (848342) от 24.04.2020
+
+VA - The Ultimate Gym And Fitness Beats (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Ruland - Feel Better (Radio Version)
+02. Rock Massive - You Know Why (PH Electro Radio Mix)
+03. Mykel Mars And Afrochuck - This Isn't Happening (Edit)
+04. Ruff Ryder - Freak (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:30:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C40757C7A022EABF5072BD0E82CAB797C4BF8507
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378135   (848413) от 24.04.2020
+
+Penta - Swirlscape (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848413.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Darker Than Black (Original Mix) (8:05)
+2. Creation (Original Mix) (11:15)
+3. Something (Original Mix) (8:50)
+4. So Be It (Original Mix) (8:50)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:20:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F2F71EB216E44695835C933E9F1AABB7D262F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378009   (848420) от 24.04.2020
+
+VA - Workout & Fitness House (2020) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Supernocs - Vega G 03:56
+02. Ron T - Salvacion 05:43
+03. Supernocs - Covery 06:00
+04. Sultan Lay - Boogie Magic 08:07(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C28C86768611873E82DAEBD611393F322D872D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378304   (848496) от 24.04.2020
+
+VA - Statement Of Purpose (2007/2014) Xynthetic Netlabel [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Drum n Bass, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amorph - Eating the Ground (04:19)
+ 02. Aphorism - Covert Convert (04:23)
+ 03. Apoplexia - Zero Wing Space Combat (04:56)
+ 04. Chemical X - Asylum (07:18)(   Читать дальше...   )Тип издания: WebЖанр: IDM, Glitch, Drum n Bass, Ambient •Продолжительность: 01:31:47 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:912FE0445BA7D55BBB40B5074F098B42117CF1CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002272   (848695) от 31.03.2016
+
+Ab Ovo - Discography 6 Releases (2001-2009) Ant-Zen, Fluttering Dragon [FLAC|Lossless|tracks+.cue] <IDM, Ambient, Glitch, Experimental, Industrial>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adjmir (03:57)
+ 02. Tango (04:11)
+ 03. L'Heure Bleue (04:58)
+ 04. Verba (05:51)(   Читать дальше...   )Тип издания: CDЖанр: IDM, Ambient, Glitch, Experimental, Industrial •Продолжительность: 01:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56E9C3B69B62B4138294F6EA13D823315D3F8BBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111346   (848765) от 05.03.2017
 
 VA - Getting Ready For Some Nightclub Action: Club & Dance Music Collection (2017) [MP3|320 Kbps] <Progressive House>
@@ -554,141 +689,6 @@ VA - Relaxing Room: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:902EAB522D79B849D1D338BEFC8CA47189287EB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499164   (851271) от 30.09.2021
-
-Flavio Paulin - Paulin (1979) LP [MP3|320 Kbps] <Electronic, New Wave, Abstract, Synth-pop, Disco>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gli Occhi Della Strada (3:49)
-02. Passeggeri Del Domani (3:59)
-03. Ne' Geni Ne' Pazzi Veri (4:02)
-04. Dicembre 1999 (4:26)(   Читать дальше...   )Жанр: Electronic, New Wave, Abstract, Synth-pop, DiscoПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC8DA205FEB93E6FB6062873E36FAE326B41C113
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377621   (851890) от 22.04.2020
-
-Mark Hartman - Synthesizer Themes (1993) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Stage & Screen, Theme>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme From Miami Vice (2:23)
-02. Chariots Of Fire (3:42)
-03. Dune (3:49)
-04. Theme From Rainman (3:25)(   Читать дальше...   )Жанр: Synthpop, Stage & Screen, ThemeПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:948EA70AFF9F8A20297D8DCC64C4201A721EF98D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377620   (851891) от 22.04.2020
-
-Mark Hartman - Synthesizer Classics (1993) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Stage & Screen, Theme>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene (3:49)
-02. Hymne (2:40)
-03. Vienna (4:02)
-04. I'll Find My Way Home (3:44)(   Читать дальше...   )Жанр: Synthpop, Stage & Screen, ThemeПродолжительность: 00:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C135FA967D4C0A3E6C679C265AA4B0B3F2C2BFF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377618   (851894) от 22.04.2020
-
-Mark Hartman - Synthesizer Instrumental Popsongs (1993) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Stage & Screen, Theme>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sadness (4:36)
-02. Fragile (4:11)
-03. Nothing Compares To You (4:35)
-04. Broken Wings (4:47)(   Читать дальше...   )Жанр: Synthpop, Stage & Screen, ThemeПродолжительность: 01:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55436FA27EE1C8A80E9A289C58960C0DDCEF8691
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110696   (851952) от 03.03.2017
-
-VA - Armada Acoustic (2017) [MP3|320 Kbps] <Downtempo, Acoustic, Vocal>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Armin van Buuren feat. Trevor Guthrie & John Ewbank - This Is What It Feels Like (John Ewbank Classical Remix)  3:13
-02.  Dash Berlin & Jay Cosmic - Here Tonight (Acoustic Version) (feat. Collin McLoughlin)  2:48
-03.  Gareth Emery - I Could Be Stronger (But Only For You)  3:44
-04.  DJ Shah - Who Will Find Me (Acoustic Version) (feat. Adrina Thorpe)  4:22(   Читать дальше...   )Жанр: Downtempo, Acoustic, VocalПродолжительность: 03:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:253444282B426B4A842860E6C7A9478EABD172E8
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1099296   (905319) от 01.02.2017
+
+VA - 1EDM: Funky Club House (2017) [MP3|320 Kbps] <Funky, Club, Electro, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905319.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mazza Feat. Ariel Morer - Lift Me Up (Klaas Mix Edit)
+002. Pig&Dan - Chemistry (Original Mix)
+003. Klaas Feat. Lorela - Hungover By A Dream (Club Mix Edit)
+004. Dennis Cruz - Everybody (Original Mix)(   Читать дальше...   )Жанр: Funky, Club, Electro, HouseПродолжительность: 08:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C4C13F72DBB574C9563A860A37A6F9F4EC4046
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099511   (905428) от 01.02.2017
 
 VA - Русский зимний музобоз выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
@@ -674,33 +701,6 @@ VA - Три аккорда. Золотые хиты русского Шансо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C82F8B1B1475F04329AC09456582337C113A6FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991469   (906537) от 28.02.2016
-
-VA - Empire Garage And U.S.House (2011 - 2013) [MP3|191-320 кб/с] <House, Funky, UK Jackin, Vocal, Tribal House, Tropical>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jerome Feat. Ace Young - Dont Walk Away (Radio Edit) 03:17
-02. Matteo Marini - Rush (Original Mix) 06:07
-03. Futuristic Polar Bears - Jetlag 05:28
-04. Deep Divas & Rehnoir - Phaze (Original Mix) 05:30(   Читать дальше...   )Жанр: House, Funky, UK Jackin, Vocal, Tribal House, TropicalПродолжительность: 09:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C8E2C5886C9F5B36C7999A59687C988070F2D8
 ```
 
 

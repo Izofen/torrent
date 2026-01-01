@@ -1,3 +1,57 @@
+###  Публикация: 1137568   (667880) от 26.05.2017
+
+Вelindа Сarlislе - The Соlleсtiоn (2002) Japanese Edition [WV|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven Is A Place On Earth (4:07)
+02. I Get Weak (4:52)
+03. World Without You (4:42)
+04. Runaway Horses (4:42)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308B4EBF2ED4C5AC40DBDF82D4D8B451D0433D81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224128   (668106) от 08.05.2018
+
+West End Players and Singers - Highlights from Grease (2000) [FLAC|Lossless|image + .cue] <Musical, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Grease
+02.	Summer Nights
+03.	Hopelessly Devoted To You
+04.	You're The One That I Want(   Читать дальше...   )Жанр: Musical, PopПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD52C0EEA786807C365E7A9FCC0D6A6ABE8F896
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031378   (668499) от 03.07.2016
 
 VA - Radio Italia - Summer Hits (2016) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
@@ -641,57 +695,6 @@ VA - Sophisticated Ladies (2018) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0BA2D8DF8161A2933E47F13B4F46EF061139345
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030213   (674567) от 30.06.2016
-
-VA - Ultimate... Christmas (2015) Box Set, 4CD  [FLAC|Lossless|tracks + .cue] <Pop, Jazz, Soul, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Jazz, Soul, DiscoПродолжительность: 04:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:341D6306477011C1F01E054CAFF04EDC9B2A1B6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030414   (674568) от 30.06.2016
-
-VA - Pavarotti & Friends For War Child (1996) [APE|Lossless|image + .cue] <Rock, Pop, Classical>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Clapton • Luciano Pavarotti • East London Gospel Choir - Holy Mother
-02. Joan Osborne - Saint Teresa
-03. Elton John - I Guess That's What They Call It The Blues
-04. Liza Minnelli • Luciano Pavarotti - New York, New York(   Читать дальше...   )Жанр: Rock, Pop, ClassicalПродолжительность: 01:15:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5D6052E08ED67CBFED7A2CD8542AD3B58D6642
 ```
 
 

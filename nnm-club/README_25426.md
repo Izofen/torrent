@@ -1,679 +1,676 @@
-###  Публикация: 1607205   (1044062) от 26.01.2023
+###  Публикация: 1437370   (1042285) от 04.01.2021
 
-Sting - Brand New Day (1999) [OGG Vorbis|450 Kbps] <Rock, Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Thousand Years
-02. Desert Rose
-03. Big Lie Small World
-04. After the Rain has Fallen(   Читать дальше...   )Жанр: Rock, Pop, Pop RockПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3082EB96DAF6C863FC9F84CD55567D459C645DFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607426   (1044063) от 26.01.2023
-
-Хелен Льюис | Неудобные женщины. История феминизма в 11 конфликтах (2022) [MP3, Александра Максимова]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Патриархальная культура веками навязывала женщине идеалы кротости, жертвенного служения и смирения, роль домашнего ангела, сладость подчинения. Героини Хелен Льюис – совсем не такие. Их имена окружали скандалы. Их сажали в тюрьмы, побивали камнями, а в нынешние времена – ведь нравы смягчились! – просто осмеивают. Сложные, нетерпимые, неудобные и эгоцентричные, порой (   Читать дальше...   )Жанр: зарубежная публицистика, социологияПеревод: Александра МорозПродолжительность: 11:21:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B0E7F0339227666E5FFED746F89306D5C2FF854
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607384   (1044064) от 26.01.2023
-
-Надежда Мамаева | Курортный обман. Рай и гад (2020) [MP3, Нелли Новикова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Катя Скрипка знает, сколько бусин на браслете у того человека, который научил её плакать без слез. Она знает, что через год закончит университет и обязательно выберется из нищеты. Но она ещё не знает, что один вечер может полностью повернуть её жизнь. Нечаянное движение рукой – и судьба сталкивает Катю с её двойником – содержанкой крупного бизнесмена, которой срочно (   Читать дальше...   )Жанр: иронические детективы, остросюжетные любовные романы, современные любовные романыПродолжительность: 07:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F73F7EA1A92931ACD8CF32A4B969DE344DA859
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607467   (1044065) от 26.01.2023
-
-Sinner - Santa Muerte (2019) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine On
-02. Fiesta y copas
-03. Santa Muerte
-04. Last Exit Hell(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BCD6023FE883F3D1DE862C66FE9BE5262570160
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607408   (1044066) от 26.01.2023
-
-Cyber Attack - Cyber Agression (2010) [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyber Agression
-02. I Robot,My Name Is..Жанр: Electronic, Synth-popПродолжительность: 00:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13338A26C700D4C44F794E8A153A5F94555A8823
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607345   (1044067) от 26.01.2023
-
-Маша Ловыгина | Щучка (2023) [MP3, Ирина Долгополова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомство с семьёй любимого человека – это всегда волнительно! Но Маша Рощина не ожидала того, что последует за первой встречей. Ведь начиналось всё вполне прилично – большой красивый дом в тихом уютном месте, интеллигентные родственники, разбирающиеся в искусстве, наследство, обладателем которого скоро станет её избранник, Костя Цапельский. Это ли не мечта для (   Читать дальше...   )Жанр: детектив, триллерПродолжительность: 11:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE90B920FE121BFEB3393941D4C4B9BEF1CE2C4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607464   (1044068) от 26.01.2023
-
-Skrizhali - В холодном свете (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044068.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Быть твоей болью
-2. Истекло навсегда
-3. Супер-герой
-4. Зови когда ты ослабеешь (Гитарная версия)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D917E7437579BA808A50DD4991C2672C727C5BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607168   (1044069) от 26.01.2023
-
-Остров Пасхи - Лифты и лестницы (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Северо-юг [00:05:06]
-02 - Рукавицы [00:04:04]
-03 - Кот Шредингера [00:06:02]
-04 - Лифты и лестницы [00:03:59](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:744822AB1A590501CA897795B8AFF836DB97910E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607193   (1044070) от 26.01.2023
-
-Aikko - 3 Albums (2020-2022) [MP3|320 Kbps] <Alternative, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Aikko - 2020 - мои друзья не должны умирать
-Aikko - 2021 - Тёмные делишки
-Aikko - 2022 - Сборник акустических песенЖанр: Alternative, RockПродолжительность: 3 CD, 01:46:36
-vk
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E146EB8D570B5739635998A1B88E2CDCD95157
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607338   (1044071) от 26.01.2023
-
-VA - Piano: Jazz 'Round Midnight (1949 - 1970) 1991, Verve Records [APE|Lossless|image + .cue] <Mainstream Jazz, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nat King Cole - Mean to Me [4:14]
-02. Teddy Wilson - As Time Goes By [3:11]
-03. Bernard Peiffer - Willow Weep for Me [2:56]
-04. Oscar Peterson - Smoke Gets in Your Eyes [3:09](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, Piano JazzПродолжительность: 00:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B938A9F55A6770F7763F60BC758FA87A31F366D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607183   (1044072) от 26.01.2023
-
-Impress - 3 Albums (2019-2023) [MP3|320 Kbps] <Art Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Impress - 2019 - Крепость (The Fortress)
-Impress - 2020 - По куску земли каждому (A piece of land to everyone)
-Impress - 2023 - Враг Не Дремлет (The Enemy Is Not Asleep)Жанр: Art Rock, Hard RockПродолжительность: 3 CD, 01:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C2E4D5A84E0DA8BE24C99488D23DADA177C8975
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607257   (1044073) от 26.01.2023
-
-One Man Army and the Undead Quartet - Collection (2005 - 2011) 6 CD [FLAC|Lossless|image + .cue] <Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2005 - When Hatred Comes to Life (Demo)
-2006 - 21st Century Killing Machine (Limited edition)
-2006 - Christmas For The Lobotomizer (Single) (Limited Edition)(   Читать дальше...   )Жанр: Melodic Death, Thrash MetalПродолжительность: 04:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BDAC2DC4141C79167033484B97509F6671D55B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607353   (1044074) от 26.01.2023
-
-Наталья Ильина | Пока ты здесь (2023) [MP3, Юлия Деточкина]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044074.jpg" />
-</div>
-
-
-###  Подробнее
-
-В темном и пустом незнакомом городе приходит в себя девушка. Она не знает своего имени и ничего не помнит о себе. Кто она и почему оказалась в этом странном, пугающем месте? До захода солнца она должна вспомнить прошлое и найти ответы на свои вопросы, иначе тьма заберет ее навсегда.Жанр: мистика, триллерПродолжительность: 06:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:370DCEAC358933BFFC4404C866DBDB82BF3B557C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607350   (1044075) от 26.01.2023
-
-Маша Ловыгина | Нет в лесу страшнее зверя (2023) [MP3, Наталья Павлова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старая тайна – как глубокая заноза. Только забываешь о ней, а она тут как тут – саднит, воспаляется, мешает жить. Понимаешь, что надо вскрыть и вытащить ее наружу, но все почему-то твердят о том, что ничего не было, и ты все придумала… Чтобы разобраться и понять, что произошло с ней в детстве, Полина Скороходова отправляется с киноэкспедицией в глушь Вологодской (   Читать дальше...   )Жанр: детектив, триллерПродолжительность: 07:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC883761A2FF000EECEEE0262032942EDB851BD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607354   (1044076) от 26.01.2023
-
-Вероника Якжина | Джиразоль (2023) [MP3, Виталий Сулимов, Светлана Шаклеина]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рэймонд – бывший федеральный агент, детектив по поиску пропавших. Без особого энтузиазма он берется за новое дело. Наоми Болдер уверена, что ее младшие братья-близнецы попали в беду. С самого начала вокруг расследования творится странное. Пропадают и гибнут люди, Наоми преследуют неизвестные, которые требуют вернуть Джиразоль. Только девушка понятия не имеет, о чем (   Читать дальше...   )Жанр: детектив, триллерПродолжительность: 07:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B8B86A1CEFC741C4BB9B06494E7F920835BBF12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607473   (1044077) от 26.01.2023
-
-Lauds - Imitation Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Shoegaze, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parallel [00:03:28]
-02. Somehow [00:03:35]
-03. 24 [00:03:55]
-04. CeeDee Lamb [00:03:01](   Читать дальше...   )Жанр: Indie Rock, Shoegaze, RockПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:169439929ABBA62C09C3A9E6D0243E74D0D44114
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606940   (1044078) от 26.01.2023
-
-Almach - Don't Look Back (2023) [MP3|320 Kbps] <Atmospheric Black, Oriental Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Path of the Night (Intro) [00:02:54]
-02 - Wolf [00:05:10]
-03 - Three Steps Beyond the Horizon [00:04:55]
-04 - Don't Look Back [00:06:20](   Читать дальше...   )Жанр: Atmospheric Black, Oriental Metal, Folk MetalПродолжительность: 00:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A07EB5820F107871322F54DF28C08A13576396A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607160   (1044079) от 26.01.2023
-
-Moltano - Поэма столкновений (2023) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro [00:01:33]
-02 - Время [00:02:58]
-03 - Калаби-Яу [00:05:20]
-04 - Поезд в никуда [00:04:45](   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C79C3257E369304BD6269C1E3CD600346B9CB80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607240   (1044080) от 26.01.2023
-
-Silent Hope - Silent Hope (2023) [MP3|320 Kbps] <Gothic Rock, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sealed with Sorrow [00:04:06]
-02 - Different Pain [00:03:17]
-03 - Safer in the Shadows [00:04:14]
-04 - Never Wanted to Be Alone [00:04:58](   Читать дальше...   )Жанр: Gothic Rock, Gothic MetalПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E646C61268CC06BDC53652C00980CFD5D13A1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607462   (1044081) от 26.01.2023
-
-Чарли Чейз. Всякому овощу своё время / Be Your Age (1926) WEBRip
+Ларри Симон. Опасности и бандиты / Risks and Roughnecks (1917) DVDRip
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044081.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042285.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Безутешная вдова получает в наследство от покойного мужа пару миллионов и вовсе не хочет и дальше быть безутешной. Мало того, утешения она ищет не среди ровесников, а среди молодых и энергичных. А вот, кстати, молодой и симпатичный клерк, который как раз остро нуждается в деньгах. Отличная завязка для отношений...Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Лео МакКериАктеры: Чарли Чейз, Глэдис Хьюлитт, Лиллиан Лейтон, Фрэнк Браунли, Оливер Харди, Уилсон Бендж, William CourtrightПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:21:57
+Бандиты похитили девушку Ларри. Он пускается в погоню и проникает в логово бандитов, которые его принимают за Большого Босса.Производство: СШАЖанр: Комедия, короткометражный, немое киноРежиссер: Ларри СимонАктеры: Ларри Симон, Флоренс Кертис, Эрл Монтгомери, Джо Рок, Пьетро АрамондоСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:11:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:347D52262329AC19487DF357C1F2BB3AE663A863
+magnet:?xt=urn:btih:351C75CA045AFE7F1E5CA810E35107E92995F71A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607283   (1044082) от 26.01.2023
+###  Публикация: 1437168   (1042286) от 04.01.2021
 
-Warg - The Endless Travel (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy, Melodic Death Metal>
+VA - December EDM Charts (2020) [MP3|320 Kbps] <Tech House, Deep House, Electro>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044082.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042286.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alone (04:42)
-02. I'm Alive (03:59)
-03. When Empathy Is Gone (03:47)
-04. The Brotherhood of the Dead Sun (03:50)(   Читать дальше...   )Жанр: Epic Metal, Thrash MetalПродолжительность: 00:35:01
+Добро пожаловать в мир отличной танцевальной музыки!!! Сегодня представляется гигантский сборник электронной музыки танцевального направления. Вас ожидают только лучшие треки, горячие новинки танцполов европы, самые лучшие хиты сезона и просто интересные треки. Слушаем и наслаждаемся!001. Dj Sign And Manuel Baccano - Good Time
+002. Martin Mix - You'll Be The One
+003. Lovona - Pink Sand
+004. Kneco - Mt. Takwari(   Читать дальше...   )Жанр: Tech House, Deep House, ElectroПродолжительность: 09:19:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DF979B421BF2C36D225D9D5249D8861C606E8BF
+magnet:?xt=urn:btih:307D0B02304DB1C0F9866B6145AE741011CF5D0A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607173   (1044083) от 26.01.2023
+###  Публикация: 1437395   (1042287) от 04.01.2021
 
-Wedingoth - 4 Albums (2012-2022) [MP3|320 Kbps] <Progressive Gothic Metal>
+Ирина Котовская (сост.) | Тренажёр по чтению. И я читаю! Елена Премудрая. Русские сказки. (2019) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044083.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042287.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-Wedingoth - 2012 - The Other Side
-Wedingoth - 2016 - Alone in the Crowd
-Wedingoth - 2022 - Candlelight(   Читать дальше...   )Жанр: Progressive Gothic MetalПродолжительность: 4 CD, 03:56:29
-facebook
+Ваш ребёнок успешно освоил «Букварь». Что дальше? Как помочь ему полюбить читать не только слова, а целые книги? Идеальный вариант для маленьких читателей, переходящих от чтения слогов к чтению полных слов, а от них к целым предложениям, – книги удобного формата из серии «И я читаю!». Здесь много рисунков, но они отделены от текста и не отвлекают малыша от чтения. (   Читать дальше...   )Жанр: Детская литература/Обучение и развитие детейФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87882F9C772BC413EE67FEAAB95803C7320E6240
+magnet:?xt=urn:btih:432E741021FED66505ECDC71E593A83F53830339
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607245   (1044084) от 26.01.2023
+###  Публикация: 1437385   (1042288) от 04.01.2021
 
-Silt - The Hazmat Game (2022) [MP3|320 Kbps] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Into overdrive [00:04:04]
-02 - Mutiny [00:04:15]
-03 - Late to life [00:04:27]
-04 - Diva of death and destruction [00:05:06](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED02AEDD2B1598386EC45F509C338C960D40543
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606958   (1044085) от 26.01.2023
-
-Messial - 4 Albums (2014-2023) [MP3|320 Kbps] <Doom Death Metal>
+Primordial Throne - Possessor (2020) [MP3|320 Kbps] <Symphonic Metal, Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044085.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042288.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-Messial - 2014 - Gravitational Dissonance
-Messial - 2015 - Nucleosynthinuum
-Messial - 2020 - Ellipses I- Anthroplanetary Expansion(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 4 CD, 01:57:08
+01. Bootes Hypervoid (09:11)
+ 02. In the Arms of Nemesis (07:53)
+ 03. Calm Fury of the Stars (08:18)
+ 04. Possessor (06:49)(   Читать дальше...   )Жанр: Symphonic Metal, Death MetalПродолжительность: 01:08:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BEB5C1EFBA3BA6CC709417C89BD777158CE6768
+magnet:?xt=urn:btih:78C7CA8914B74B4ED9B2CC937A07CF40E2869F77
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607379   (1044086) от 26.01.2023
+###  Публикация: 1437290   (1042289) от 04.01.2021
 
-Silent Hope - Silent Hope (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Gothic Metal>
+K-Lite Codec Pack Update 15.9.6 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042289.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C921CFE651B8F6240062F3FB22FC3F59BBB2297
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437324   (1042290) от 04.01.2021
+
+Mono Inc. - Меlоdiеs In Вlасk (2020) [FLAC|Lossless|image + .cue] <Gothic Rock, Darkwave, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044086.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042290.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Sealed with Sorrow [00:04:06]
-02 - Different Pain [00:03:17]
-03 - Safer in the Shadows [00:04:14]
-04 - Never Wanted to Be Alone [00:04:58](   Читать дальше...   )Жанр: Gothic Rock, Gothic MetalПродолжительность: 00:39:44
+CD - 1:
+01. Life Hates You (Black vers.)
+02. In The End
+03. Time To Go(   Читать дальше...   )Жанр: Gothic Rock, Darkwave, Alternative RockПродолжительность: 02:25:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBB92BD9F6B662C4B57518D18DA67DBF21CAFBFF
+magnet:?xt=urn:btih:ED49BEECBD3B035BEB13FE8A1556DB5607DA5493
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607358   (1044087) от 26.01.2023
+###  Публикация: 1437386   (1042291) от 04.01.2021
 
-Hellium - One Way To Dead End (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
+Александр Пекарь | Хочу знать прямо сейчас. Обо всём на свете (2016) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044087.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042291.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Angst Ouverture 01:49 instrumental
-02. Trigger 04:02
-03. Everyone 04:37
-04. Filth 05:46(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:44:28
+"Обо всём на свете" - это энциклопедия на все случаи жизни. Она расскажет про устройство Вселенной и формирование Земли, про материки, моря и океаны, про обитающих на Земле животных и птиц, про организм человека. 160 страниц интереснейших сведений о том, что такое память, почему полезно спать по ночам, какие бывают профессии, какие праздники отмечают в (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DA0A06210AF2F5C5B75755F9A8EEE673CBBD0D3
+magnet:?xt=urn:btih:A22A6B99E1E7AD8B4BD7BAAB60DF0179457E8767
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437298   (1042292) от 04.01.2021
+
+VA - Beat Glam House (2021) [MP3|320 Kbps] <Club House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем отличного настроения! Очередная пятница на исходе, приближаются выходные. Кто-то мечтает сходить в модный клуб и хорошенько "встряхнуться", а кто-то за отдых на природе с романтикой, шашлычками и прочими радостями. Не важно, как ты проводишь время, главное с пользой для себя, а ещё под отличную танцевальную музыку. И раз ты здесь, раз ты смотришь эту (   Читать дальше...   )001. Sassydee - Say So (Original Mix)
+002. Paul Weekend - Carnatic
+003. Lita Brown - 2Am
+004. Max Clarke - Come Around(   Читать дальше...   )Жанр: Club House, ElectroПродолжительность: 08:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F9D0C1E6C6AB7F950999B1A6D6DB64AC53703C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437235   (1042293) от 04.01.2021
+
+VA - Beatport Techno Electronic: Sound Pack #217 (2020) [MP3|320 Kbps] <Techno, Minimal, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Декабрьский 217-й микс с музыкальной площадки Beatport несомненно заслуживает чтобы Вы обратили на него внимание даже в том случае, если вы не считаете себя настоящим приверженцем жанра техно электроники. Большое количество интересных идей заключены в оригинальную музыкальную оболочку, знакомится с которой одно удовольствие.001. Leonce - Arpjam 916
+002. Apollo Twin - Selected
+003. Andy Slate - Quarter
+004. Jeff Haymaker - Diving(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 11:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A1507E2F39D1FF0970BB90D435F5845C1070F01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437399   (1042294) от 04.01.2021
+
+Паваротти / Pavarotti (2019) BDRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проделав долгий путь от сына простого пекаря до лучшего тенора в истории, он собирал до 500 тысяч зрителей и дважды попадал в книгу рекордов Гиннеса. Лучано Паваротти по сей день символизирует недосягаемую высоту не только в искусстве, но и в стремлении сделать жизни людей по всему миру лучше.Производство: Великобритания, США / White Horse Pictures, Diamond Docs, Imagine EntertainmentЖанр: Документальный, биография, музыкаРежиссер: Рон ХовардПеревод: Дублированный ("Мосфильм-Мастер" по заказу Кинокомпании «ВОЛЬГА») (iTunes)Субтитры: Русские (iTunes), английские (forced-hardsub, full, SDH), испанские, португальские, немецкие и др.Продолжительность: 01:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136A72D3FE6EE329F7E2CD1611C887AC636AFFDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437348   (1042295) от 04.01.2021
+
+SPINNIN' - Best Of 2020 Club Mix (2020-12-26) [MP3|320 Kbps] <Electro House, Big Room, Future House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042295.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. VERWEST, Tiësto - 5 Seconds Before Sunrise
+2. Le Youth - About Us
+2. Redondo & Charles J - My Love
+4. Michael Calfan - Last Call(   Читать дальше...   )Жанр: Electro House, Big Room, Future HouseПродолжительность: 02:24:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308F4FCFC0DDF0E9D0DE9CF1CF1BFED16AF9A490
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437227   (1042296) от 04.01.2021
+
+Gary Schutt - Drastic Measures (2020) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Zombie Drive (03:57)
+ 02.Anyone but Me (04:46)
+ 03.Dreamcatcher (05:24)
+ 04.A.M.I.I.F.C (04:36)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6545BAD855A440DE561539B9A42CFF9CA2D7FB34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437163   (1042297) от 04.01.2021
+
+VA - Electronic Glitch (2020) [MP3|320 Kbps] <Electronic, Synth, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полное погружение в интенсивные потоки синтетического искусства Вам гарантирует музыка сборника под названием "Electronic Glitch". Слушайте с открытой душой и будьте готовы познать кульминацию электронного искусства и глубину открытого космоса.001. Boots & Kats - Park Talk
+002. Waqwaq Kingdom - Positive Sound
+003. Cy8Er - Yumezora Kokoro
+004. Mallorquín - Yellow Machine(   Читать дальше...   )Жанр: Electronic, Synth, TechnoПродолжительность: 11:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AAFD4409EBD5E752D8669E89C183B0AC09BC119
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437230   (1042298) от 04.01.2021
+
+Echelon - Поехали (2020) [MP3|320 Kbps] <Modern Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - На взлёт [00:01:49]
+02 - Поехали [00:04:16]
+03 - Особенный путь (feat. Alena Meta) [00:04:11]
+04 - Течение времени [00:03:54](   Читать дальше...   )Жанр: Modern Industrial Nu MetalПродолжительность: 00:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC0231EFA05C5F10B8CE2C094E808720BAE57994
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437336   (1042299) от 04.01.2021
+
+Crimson Caravan - Big Big Bang (2020) [MP3|320 Kbps] <Stoner Desert Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Big Big Bang [00:05:45]
+02 - Satisfied Cremation [00:03:35]
+03 - Heap of Junk [00:04:14]
+04 - Fire Geckos Dance [00:04:38](   Читать дальше...   )Жанр: Stoner Desert RockПродолжительность: 00:25:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D535BD5CC7D2FF34A46A63F2B5F49B2CD52519B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437176   (1042300) от 04.01.2021
+
+VA - Club Techno Electronics: EDM Liveset (2020) [MP3|320 Kbps] <Techno, Electronics>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для того, чтобы окунуться в мир клубной жизни, не обязательно посещать чопорный клуб для избранных. Достаточно просто скачать новый сборник танцевальной электроники "Club Techno Electronics: EDM Liveset" и устроить клуб у себя дома или на даче и весело зажечь с друзьями!001. Boki Fetish - Hardcatz
+002. Extra - La Pin (Fiesta Version)
+003. Dj Jackson - Hannibal
+004. Ferum - Arabian Acid(   Читать дальше...   )Жанр: Techno, ElectronicsПродолжительность: 13:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3D9220DBEF90C43805FFAF7BFD14A44803F75F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437374   (1042301) от 04.01.2021
+
+Skogmark - Aera Av Ensomhet (2020) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morbid Delusion
+02. Buried In Snow
+03. In November Forest
+04. Along The Dark Sodden Trails(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98E724183BA649C77A4F9DD342395D0076CEA1A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437393   (1042302) от 04.01.2021
+
+Compassionizer - Caress of Compassion (2020) [MP3|320 Kbps] <Progressive Rock, RIO, Avant-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Whole Creation Travaileth in Pain Together (07:16)
+ 02. Street out of Sleep (03:22)
+ 03. How Poems Lose Relevance (04:16)
+ 04. Caress of Compassion (Part 1) (03:22)(   Читать дальше...   )Жанр: Progressive Rock, RIO, Avant-ProgПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F07E5CA01401D81A34E976B086BB64D429C0A3C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437389   (1042303) от 04.01.2021
+
+Men Of Munga - Ballads Of Munga And Men (2021) [MP3|320 Kbps] <Doom Metal, Stoner Metal, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pity The Fool (03:06)
+ 02. Darkest Days (07:29)
+ 03. Unit 731 (08:50)
+ 04. Mind, Body, Our Soul (05:57)(   Читать дальше...   )Жанр: Doom Metal, Stoner Metal, Stoner RockПродолжительность: 00:54:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F79AC160EE1E2094E330B21BE1B594E3684DB81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437112   (1042304) от 04.01.2021
+
+Red Skywalker - The Origin (2021) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Skywalker (05:37)
+ 02. Nation (04:15)
+ 03. I-on Sequence (05:07)
+ 04. Generation X (04:37)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E30485C2E2CBC374C0F70C90FE8A858EAC1BDB34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437363   (1042305) от 04.01.2021
+
+Slytherin - When The Darkness Comes (2021) [MP3|320 Kbps] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (Intro) (00:53)
+ 02. The Tale of the Three Brothers (06:23)
+ 03. Tom Marvolo Riddle (06:40)
+ 04. Wizards and Muggles (06:27)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B04EC6EC8BD872A6DF7FC2FB69B8725D14DAB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437360   (1042306) от 04.01.2021
+
+RAVE CULTURE - Year Mix 2020 (2020-12-25) [MP3|320 Kbps] <Hardstyle, Big Room>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandro Silva - Ibiza 7AM
+02. David Guetta & MORTEN - Kill Me Slow
+03. W&W - Comin' To Getcha
+04. Armin van Buuren & Nicky Romero ft. Ifimay - I Need You To Know(   Читать дальше...   )Жанр: Hardstyle, Big RoomПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:588854E1E808BA549392BF3BCDDECED53CCE4FF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437306   (1042307) от 04.01.2021
+
+Crrombid Traxorm - Anamnesis Morbi (2020) [MP3|320 Kbps] <Progressive Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro-Rising Reanimation (06:26)
+ 02. Mortalgramma (03:08)
+ 03. New Vaccine (07:28)
+ 04. Stomatologic Operation (08:10)(   Читать дальше...   )Жанр: Progressive Metal, Death MetalПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E4897A08C23ED8AF565F4E9B6430240D777AA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597031   (1042308) от 07.02.2023
+
+Вампиры средней полосы (2022) WEBRip [H.264/1080p] (сезон 2, серии 1-8 из 8 + фильм о сериале)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042308.jpg" />
+</div>
+
+
+###  Подробнее
+
+С летним сезоном в Смоленске появилось не только тепло, но и новые герои — от девочки Милы, ставшей свидетельницей странных убийств, до нового следователя, который много лет назад уже приезжал в город и теперь с удивлением обнаруживает в местном отделении полиции знакомое лицо. Семье деда Славы предстоит немало испытаний: им нужно сохранить свою тайну, вновь защитить (   Читать дальше...   )Производство: Россия / "Yellow, Black & White"Жанр: Детектив, комедия, фэнтезиРежиссер: Дмитрий ГрибановАктеры: Юрий Стоянов, Татьяна Догилева, Артём Ткаченко, Ольга Медынич, Дмитрий Лысенков, Ева Смирнова, Екатерина Ланн, Вероника Лысакова, Юлия Беляева, Анастасия Стежко, Лукерья ИльяшенкоСубтитры: русские (SDH), английскиеПродолжительность: ~00:56:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E193CBE516EEE3592AC0F8B7779AADACFBD45355
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597059   (1042309) от 07.02.2023
+
+Вампиры средней полосы (2022) WEBRip [H.264/720p] (сезон 2, серии 1-8 из 8 + Фильм о сериале)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042309.jpg" />
+</div>
+
+
+###  Подробнее
+
+С летним сезоном в Смоленске появилось не только тепло, но и новые герои — от девочки Милы, ставшей свидетельницей странных убийств, до нового следователя, который много лет назад уже приезжал в город и теперь с удивлением обнаруживает в местном отделении полиции знакомое лицо. Семье деда Славы предстоит немало испытаний: им нужно сохранить свою тайну, вновь защитить (   Читать дальше...   )Производство: Россия / "Yellow, Black & White"Жанр: Детектив, комедия, фэнтезиРежиссер: Дмитрий ГрибановАктеры: Юрий Стоянов, Татьяна Догилева, Артём Ткаченко, Ольга Медынич, Дмитрий Лысенков, Ева Смирнова, Екатерина Ланн, Вероника Лысакова, Юлия Беляева, Анастасия Стежко, Лукерья ИльяшенкоСубтитры: русские, английскиеПродолжительность: ~00:58:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D13D667434DC6E60F1C45D69DAF9D2887F9067
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595729   (1042310) от 07.02.2023
+
+Пришельцы. Часть 1 / Oegye+in 1bu / Alienoid (2022) BDRip [H.264/1080p] [MVO]
+
+>>След.
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042310.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении многих веков инопланетная раса содержит своих преступников в человеческих телах, а люди об этом даже не догадываются. Способные перемещаться во времени с помощью энергетического кинжала Охранник с роботом-помощником поставлены следить, чтобы заключённые не пришли в себя и не сбежали. В 1380 году они ловят очередного проснувшегося преступника, но у его (   Читать дальше...   )Производство: Южная Корея / Caper Film, CJ EntertainmentЖанр: Фантастика, боевик, приключения, фэнтезиРежиссер: Чхве Дон-хунАктеры: Рю Джун-ёль, Ким У-бин, Ким Тхэ-ри, Со Джи-соп, Ём Джон-а, Чо У-джин, Щин Джон-гын, Ли Щи-хун, Чхве Ю-ри, Чи Гон-уПеревод: Многоголосый профессиональный (Jaskier)Субтитры: Английские (Forced, Full)Продолжительность: 02:22:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5060AA448983EBC23F3D5D3B3D0DE18364FF1BF
 ```
 
 

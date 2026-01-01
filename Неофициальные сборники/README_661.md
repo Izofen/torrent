@@ -1,3 +1,30 @@
+###  Публикация: 1473673   (1013489) от 30.05.2021
+
+VA - Music Collection Vol.3 (2020) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013489.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2illusions - Spring Day (Original Mix)
+002 7and5 - Wavecrest
+003 Acado, Vincent Marlice - Garnet
+004 Acceptable Drunk - Undoubtedly (Original Mix)(   Читать дальше...   )Жанр: Downtempo, Chillout, Lounge, Ambient, Relax, ElectronicПродолжительность: 17:33:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3673ACD6DF3C5DBD6379AAE6740E5883715DF1E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473679   (1013536) от 30.05.2021
 
 VA - Record Super Chart 29.05.2021 [MP3|320 Kbps] <Pop, Dance>
@@ -665,33 +692,6 @@ VA - Options Remake 125 Tracks New May (2021) [MP3|320 Kbps] <Funky, Soulful, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E01B0A09B979D56329864D0708C832BCC0F0EBB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472723   (1014162) от 26.05.2021
-
-VA - Simply 90s: Greatest Hits of the 90ies (2021) [MP3|320 Kbps] <Electronic, Pop, Dance, Hip Hop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eiffel 65 - Blue (Da Ba Dee) (Dj Ponte Ice Pop Radio)
-02. Tom Jones - Sex Bomb (Album Version)
-03. Whigfield - Saturday Night
-04. Salt-N-Pepa - Push It(   Читать дальше...   )Жанр: Electronic, Pop, Dance, Hip HopПродолжительность: 02:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D78C4ECEB007281FED9AD4CB35D14D876CD9D9C2
 ```
 
 

@@ -1,3 +1,36 @@
+###  Публикация: 516122   (654734) от 27.06.2012
+
+VA - Союз Клубный. Выпуск 8 (2012) [MP3|256 kbps]<Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654734.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Горячий шоколад - Стены (Andry Makarov Club remix)
+002 Каролина - Летний дискобар (Версия 2012)
+003 Бурановские Бабушки - Party for Everybody (DJ Slon remix )
+004 Алина Гросу - Взрослая
+005 KSELA feat. DJ ALIX - Наше Лето (Summer Hit)
+006 Dj Tarantino & Katrin Moro - Я Буду Помнить (original mix)
+007 Artik & Asti - Облака (DFM mix)
+008 Dan Balan - Не любя
+009 AD Men's - Жара (extended mix)
+010 DJ Andrey Keyton feat. JWELL - Лететь (DJ Vitalik Vitamin remix)(   Читать дальше...   )Жанр: ClubПродолжительность: 07:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B837E6F86D5FDF25ED5A178A242B53F55765D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516088   (654740) от 27.06.2012
 
 VA - Самый Взрывной Летний МIX (2012) [MP3|128-320 кб/с]<House, Pop>
@@ -726,33 +759,6 @@ VA - Unique Disco (2018) vol 2 [MP3|320 Kbps] <Electronic, Funk-Soul, PopRock, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:203323022E2F8335B6D726E214C3E1F175E49E36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226279   (655765) от 20.05.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 18.05.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jax Jones - Breathe (Ina Wroldsen)
-02. Camelphat & Elderbrook - Cola (Robin Schulz Extended Remix)
-03. Justin Timberlake - Say Something (ft. Chris Stapleton)
-04. Dynoro feat. Gigi D'Agostino - In My Mind(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:23:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29321FFE87EDC4EFB0EF1EBCA4DDE2E48987AB73
 ```
 
 

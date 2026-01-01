@@ -79,6 +79,39 @@ magnet:?xt=urn:btih:01E57F4E2946C46C7FC526BCD1716FE59465DB65
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515372   (650743) от 29.06.2012
+
+VA - Музыка для катания на велосипеде - iBike Real Ride Music (2010-2011) [MP3|320 кб/с]
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_650743.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. There for Tomorrow - Re:Burn
+2. Benga feat. Youngman - Ho
+3. Magnetic Man - I Need Air (Album Version)
+4. Kelly Dean & Steady - Teflon ft Kemst (Datsik & Excision remix)
+5. Skism - Back Off (SubFlex Remix)
+6. Freestylers B-Boy Stance (feat Tenor Fly)
+7. Hyper Set Fire To Me
+8. Das Pop - Fool For Love (SebastiAn Remix)
+9. Toxic Avenger - Angst one
+10. Datsik - overdose(   Читать дальше...   )Жанр: dubstepПродолжительность: 01:43:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516581   (651164) от 29.06.2012
 
 VA - Europa Plus Включи Весь Мир! Лето (2012) [MP3|128 kbps]<Pop>
@@ -704,33 +737,6 @@ VA - Русская Дискотека ХХ Века - 24 (2010) [MP3|320 Kbps]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD9FB7A1733AB92934076F728F537B9EED1EE8F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031530   (652007) от 04.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 57 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Computer People - Little Computer People ( 1998 )
-02. Queen - Radio Ga Ga ( 1984 )
-03. Blue System - Magic Symphony ( 1989 )
-04. E-Rotic - Willy Use A Billy... Boy ( 1995 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E3C25C6377BB9DAD42E6BC7FA06CFBD9F3512A0
 ```
 
 

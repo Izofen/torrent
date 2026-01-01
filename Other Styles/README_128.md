@@ -1,3 +1,192 @@
+###  Публикация: 1278824   (766932) от 28.01.2019
+
+c h a p e l s - Repertoire (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Chapels
+02 Delicate
+03 Free Spirit
+04 Lost(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46FDA3C8D81B86108D0EF9FFA66DFCA9E9668C38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125471   (767036) от 16.04.2017
+
+Объединенный хор Свято-Троицкой Сергиевой Лавры и Московской Духовной академии - Русская святая Пасха. The Russian Holy Easter. Избранные праздничные гимны (1995) [FLAC|Lossless|image + .cue] <R ...
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767036.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лаврский пасхальный звон и крестный ход
+2. Пасхальное начало (Московский напев)
+3. Пасхальный канон (Московский напев, катавасия киевского распева в гармонизации иеромонаха Нафанаила)
+4. Кондак Пасхи (Напев Свято-Троицкой Лавры)(   Читать дальше...   )Жанр: Russian choral musicПродолжительность: 01:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53C64A9FAB190273D17608D30F5F9B0B2AD60E3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607541   (767446) от 30.06.2020
+
+VA - Intouchables (Неприкасаемые / 1+1 /) - OST (2011) [FLAC|Lossless|tracks + .cue] <Electronic, Blues, Classical, Stage & Screen>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ludovico Einaudi - Fly
+02. Earth, Wind & Fire - September
+03. Omar Sy, Francois Cluzet, Audrey Fleurot - Des References...
+04. Ludovico Einaudi - Writing Poems(   Читать дальше...   )Жанр: Electronic, Blues, Classical, Stage & ScreenПродолжительность: 00:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D4747FECD47FD01720570B241B72A78F9B69A37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 745322   (767609) от 27.01.2019
+
+Michel Legrand & His Orchestra - Strings On Fire (1962) LP /Columbia/ [MP3|320 кб/с]<Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfidia 				(03:19)
+02. El Chocio 				(02:38)
+03. Boulevard Of Broken Dreams 		(02:26)
+04. What Is This Thing Called Love	(02:55)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:429C014CA4A5BD6744033701317E654EFD169294
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125501   (767922) от 15.04.2017
+
+Blackmore's Night - The Village Lanterne (2006) Box Set, Limited Edition [FLAC|Lossless|image + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767922.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	25 Years
+2.	Village Lanterne
+3.	I Guess It Doesn't Matter Anymore
+4.	The Messenger (Instrumental)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3835D70E6AC28C9B5B16A11196AB50EDA39CEA89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277967   (768349) от 26.01.2019
+
+Христина Соловій - Любий друг (2018) [MP3|320 Kbps] <Pop-Folk, Folk Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768349.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Любий друг
+2. Хвиля
+3. Океан
+4. Шкідлива звичка(   Читать дальше...   )Жанр: Pop-Folk, Folk RockПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFBFB4F002BA492E97A7ED94D7EBFC501B776156
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278437   (768403) от 26.01.2019
+
+Vangelis - Vangelis Nocturne-the Piano Album (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Classical Crossover>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturnal Promenade (5:51)
+02. To the Unknown Man (5:14)
+03. Irina Valentinova – Mythodea - Movement 9 (3:48)
+04. Moonlight Reflections (3:10)(   Читать дальше...   )Жанр: New Age, Classical CrossoverПродолжительность: 01:15:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:966263B0B4AA15E184745362DC147EA3F1414169
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278809   (768467) от 26.01.2019
 
 Julia Kent - Temporal (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Classical, Instrumental, Cello>
@@ -506,195 +695,6 @@ Hilmar Orn Hilmarsson & Sigur Ros - Englar Alheimsins (2001) [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C471921BE1BB1B87EE9C15E3B48AD55C88C9625
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213318   (771934) от 16.03.2018
-
-Geoff McGarvey, Graeme Keavney - Dusk (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771934.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  McGarvey - Culburra
-2.  Keavney - Cow Bay
-3.  McGarvey - Pobblebonk
-4.  McGarvey - Ku-ring-gai(   Читать дальше...   )Жанр: Modern Classical, Ambient, New AgeПродолжительность: 01:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0A4DC83A98AE4BFE4B00E843D4EAA1393C0112
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213255   (771997) от 16.03.2018
-
-Graeme Keavney, Geoff McGarvey - Dawn (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771997.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. McGarvey - Pebble Beach
-2. McGarvey - Blue Mountain
-3. Keavney - Newport
-4. McGarvey - Salvation Creek(   Читать дальше...   )Жанр: Modern Classical, Ambient, New AgeПродолжительность: 01:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A081BFFD14C28D7B5DE9F5BD1DA0BEA66A51B7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016015   (772552) от 12.05.2016
-
-Hang Massive - Beats For Your Feet (2012) [FLAC|Lossless|tracks] < Folk, World, New Age>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Again (live)     06:04
-02. Skanegatan (live)    04:05
-03. Increasing Obviousness (live)    04:36
-04. Omat Odat (live)    06:14(   Читать дальше...   )Жанр: Folk, World, New Age,Продолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6425163A5582C8A217C49E3CB34629259719FB29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015741   (772555) от 12.05.2016
-
-Emir Kusturica & The No Smoking Orchestra - The Best Of... (2009) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Gypsy Punk, Balkan>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bubamara (Main Version)
-02. Kana O Del Barvarel
-03. Upside Down
-04. Unza Unza Time(   Читать дальше...   )Жанр: Folk-Rock, Gypsy Punk, BalkanПродолжительность: 01:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA5781B3ED5233A4E56D1ABE0986D7E9C64B074
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213214   (773084) от 15.03.2018
-
-Paul Mauriat - Piano Ballade & Remember (2016) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Ballade (1984)
-01. Hello
-02. A Chance for Heaven
-03. Only You(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327ABDE9B798A4B27D93B2EF7FE9F61B6B1D9957
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213013   (773092) от 15.03.2018
-
-Robin Spielberg - Moonlight & Lovesongs (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soon Its Gonna Rain (from The Fantasticks)
-02. Dream, Dream, Dream
-03. Moonlight in Vermont
-04. Moon River (From Breakfast at Tiffanys)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2278F06D8E41251186F5AB935FC1D3F129F3E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213024   (773224) от 15.03.2018
-
-Michael E & Jirka - The Garden Of The Open Mind (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773224.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mantra (5:25)
-2. Beautiful Solitute (3:24)
-3. Tokyo Morning (5:19)
-4. Flight Over India (4:45)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70CDB81393B1651FA88EB453952D69671B7C92E9
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 992247   (902424) от 01.03.2016
+
+Montserrat Caballe - Caballe and Friends (1997) [FLAC|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caballe / Je Veux vivre dans le reve (3:51)
+02. Caballe / Questo cor ben lo comprende (3:08)
+03. Caballe, Carreras / Ah, quegli occhi... Mia gelosa! (5:55)
+04. Caballe / Spargi d'amore pianto (4:30)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35897A2798BB4141522F2542559C74C728BDFAE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992262   (902428) от 01.03.2016
+
+Jennifer Thomas - Winter Symphony (2015) [FLAC|Lossless|tracks] <Instrumental, Classical crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels We Have Heard On High (feat. The Ensign Chorus) (5:18)
+02. Dance of the Sugar Plum Fairy (3:31)
+03. Carol of the Bells (4:37)
+04. Alleluia (feat. Felicia Farerre & The Ensign Chorus) (6:16)(   Читать дальше...   )Жанр: Instrumental, Classical crossoverПродолжительность: 00:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:563E2E08A4C3041E4387B647FF1C4278341CBFDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099737   (903069) от 02.02.2017
 
 Emika - Melanfonie (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electronic, Classical, Orchestral>
@@ -650,66 +704,6 @@ Escala - Quadrasonic (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B716EB0CAA352129E2E8C2A8D3F008CE30CAD3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285209   (935232) от 21.01.2011
-
-Jon Lord & Royal Liverpool Philarmonic Orcestra - To Notice Such Things (2010) [FLAC|Lossless]<Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Notice Such Things: I. As I Walk Out One Evening
- 02  To Notice Such Things: II. At Court
- 03. To Notice Such Things: III. Turville Heath
- 04. To Notice Such Things: IV. Stick Dance
- 05. To Notice Such Things: V. Winter Of A Dormouse
- 06. To Notice Such Things: VI. Afterwards
- 07. Evening Song
- 08. For Example
- 09. Air On A Blue String
- 10. AfterwardsЖанр: ClassicalПродолжительность: 00:54:24
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984770   (938263) от 09.02.2016
-
-Khatia Buniatishvili - Kaleidoscope - Mussorgsky, Ravel, Stravinsky (2016) [MP3|320 кб/с] <Classical, Piano>
-
->>Классика
->>Фортепиано
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Promenade
-02. I. Gnomus
-03. Promenade
-04. II. Il vecchio castello(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E67DEB7026F00746BB417082847B16CBE6B9723
 ```
 
 

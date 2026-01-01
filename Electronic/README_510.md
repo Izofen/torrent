@@ -1,3 +1,135 @@
+###  Публикация: 1457590   (1023795) от 29.03.2021
+
+VA - H25PITAL (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. makoto, Pete Simpson - Spread Love (05:53)
+02. Logistics - Jungle Music (DRS & Dynamite MC x Logistics Remix) (03:29)
+03. Cyantific, Diane Charlemagne - Don't Follow (Unglued Remix) (05:39)
+04. Netsky - Memory Lane (Flava D Remix) (03:51)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558F3DA928A77AD7CCBD2BD4726AFA3471EF6FCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378008   (1023820) от 29.03.2021
+
+Jeffrey van der Wielen | Fnord - Discography 8 Releases (2019-2021) Pro Audio Records [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Glitch, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UC1.01Тип издания: WebЖанр: IDM, Ambient, Glitch, Experimental •Продолжительность: 04:58:26 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3062C83059A5FD45F8B62B6E89571F978159BE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458603   (1023822) от 29.03.2021
+
+Lycoriscoris - Chiyu (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Organic House, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Senkai (5:30)
+ 02. Shizumu (3:52)
+ 03. Chiyu (4:56)
+ 04. Omokage (5:23)(   Читать дальше...   )Жанр: Tech House, Deep House, Organic House, AmbientПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6BD2C46F3A877E449D1763E27802999C62E4B24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458639   (1023830) от 29.03.2021
+
+Surrogate - Mistress 15 (2021) Mistress Recordings [FLAC 2.0|44.1/24|tracks|WEB-DL] <Techno, Dub Techno>
+
+>>Electronic
+>>Trance, House, Techno (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saudade (05:34)
+ 02. Alcantara (04:43)
+ 03. Konsequenz (05:07)
+ 04. Atlantico (05:04)(   Читать дальше...   )Жанр: Techno, Dub TechnoПродолжительность: 00:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D4B6F024B2712266C9D58182350A688BE4266B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458647   (1023861) от 29.03.2021
+
+Iiney - Emperor of Will (Remix Version) (2021) Liberty Rhythm [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chance (Aveorm Dub Flying Remix) (10:14)
+ 02. Whiteness (Alex Zender Remix) (13:06)
+ 03. Whiteness (R.Hz Remix) (10:05)
+ 04. Snow (Specdub Remix) (09:08)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:10:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7716D80D7FCBB35A306273CB13BFE0802488783F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992695   (1023913) от 28.03.2021
 
 Nils Frahm - Discography 47 Releases (2005-2021) Erased Tapes, Sonic Pieces [FLAC|Lossless|tracks+.cue, tracks] <Modern Classical, Ambient, IDM, Abstract, Contemporary>
@@ -554,140 +686,6 @@ Goldfrapp - Head First (2010) [FLAC|Lossless|tracks + .cue]<Electro, Synth-pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B733A970C18A9BD99578924D74D11F5C990F2C96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406503   (1025082) от 22.03.2021
-
-Osamu Sato | 佐藤理 - Discography 18 Releases (1983-2020) Sony, Music Mine, Linen Records [FLAC|Lossless|tracks+.cue, tracks] <Experimental, IDM, Future Jazz, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monaural 808 (Mono Mix) (00:52)
- 02. Piano 808 (Mono Mix) (04:39)
- 03. I Want You 808 (Extended Mono Mix) (03:53)Тип издания: CD, Web, Vinyl, CassetteЖанр: Experimental, IDM, Future Jazz, Ambient •Продолжительность: 17:16:12 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31021F0CDDFA1FE44F56B737F4C542D109307EE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258530   (1025089) от 22.03.2021
-
-Martin Abrahamsson (Bauri, Deltidseskapism, Stalaktiten Och Mirjam) - Collection 8 Releases (1998-2021) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Glitch, Ambient, Techno, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Konstangest (00:27)
- 02. Tysk Ubat (03:43)
- 03. Pingis (03:35)
- 04. Golvmopp (01:45)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM, Glitch, Ambient, Techno, Experimental •Продолжительность: 05:39:56 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4305621C281F98FBC4A8A8E4322C4A556E29BC48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456359   (1025095) от 22.03.2021
-
-VA - Electro Workout 2021: Motivation Training Music [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rene Rodrigezz - Tom's Diner (Original Mix) (02:25)
-02. Stephan F - New Spirit (Original Mix) (02:59)
-03. Turbotronic - Love Me (Original Mix) (03:13)
-04. MaxRiven - Kernkraft 400 (Original Mix) (02:45)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:24:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:811476F279EC0D19996D332232A8174DC85CA218
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456462   (1025129) от 22.03.2021
-
-4T Thieves and Friends - Liminal Space - The Remixes (2021) Kahvi Collective [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Downtempo, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brioskj - Nuances (06:59)
- 02. Audio Cephlon - Nuances (04:54)
- 03. Mr Ventham - Liminal Spaces (07:10)
- 04. aAirial - Aesthetic Preservation (03:44)(   Читать дальше...   )Жанр: IDM, Glitch, Downtempo, AmbientПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D09A4E34D9EAE4A96BE9C8B3DA0DEFE3A2BF74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175017   (1025245) от 21.03.2021
-
-D.Å.R.F.D.H.S. (D.A.R.F.D.H.S.) - Discography 13 Releases (2013-2020) [FLAC|Lossless|WEB-DL|tracks] <Experimental, Techno, Ambient, Industrial, Dark Ambient>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Självbedrägeri (04:19)
- 02. Andens Desperata Framåtanda (07:05)
- 03. Dödsuppväckningar (04:07)
- 04. Vaneföreställningsvärlden (03:53)(   Читать дальше...   )Тип издания: WebЖанр: Experimental, Techno, Ambient, Industrial, Dark Ambient •Продолжительность: 09:19:18 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B8EC15B9415A913054BFE5EDD0FAF6F2FD6A4C
 ```
 
 

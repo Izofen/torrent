@@ -1,3 +1,30 @@
+###  Публикация: 1443356   (1035773) от 28.01.2021
+
+VA - Beatport Tech House: Electro Sound Pack #227 (2021) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы искали качественный сборник настоящей электронно танцевальной музыки, который просто разорвет сабвуфер в вашей машине, то можете считать, что попали по адресу. Простые и динамичные треки музыки в стиле Tech House сделают своё дело, чтобы поднять Ваше настроение!001. Munkler - Ten Million Hornets
+002. Dyba - My Deep Jungle
+003. Lucasmb - Live For It
+004. Frank Frost - Chorus Spatium(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 08:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:403A2F0105614A58D8BE34291BEB01E34C62D97E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616859   (1035832) от 04.03.2023
 
 VA - Drum And Bass: Live In Moment (2023) [MP3|320 Kbps] <DnB, Bassline, Electro>
@@ -668,33 +695,6 @@ Everybody Loves An Outlaw - Compilation (2023) [MP3|320 Kbps] <Rock, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02694C093284EDFE549FBA7E990CF8ECF1A9464F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616001   (1036994) от 28.02.2023
-
-Rebekka Bakken - Compilation (2023) [MP3|320 Kbps] <Vocal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Closer
-02. Black Shades
-03. Little Drop of Poison
-04. Things You Leave Behind(   Читать дальше...   )Жанр: VocalПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CA9BA2754EAE42A75B6121EBADFFFDBF41F743D
 ```
 
 

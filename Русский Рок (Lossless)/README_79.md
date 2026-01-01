@@ -1,3 +1,108 @@
+###  Публикация: 1612339   (1040358) от 15.02.2023
+
+Обе-Рек - Персональный ад (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Персональный ад [00:04:33]
+02. Радость моя [00:05:01]
+03. Дом [00:04:15]
+04. Весна [00:05:49](   Читать дальше...   )Жанр: RockПродолжительность: 01:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDC4A650918A0B166989326D1B682B5F0C13794
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438895   (1040575) от 10.01.2021
+
+Павел Смеян - Коллекция  2CD, (2017-2020)   [FLAC|Lossless|tracks] <Рок, Рок-опера>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Рок, Рок-операПродолжительность: 01:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F67BD9D7F06436BEA62537DE5A176B4E4031B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612042   (1040632) от 14.02.2023
+
+Инсайт - 1225 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Инсайт [00:04:09]
+02. Все с нуля [00:04:00]
+03. Другими глазами [00:04:27]
+04. Дай мне силы [00:04:07](   Читать дальше...   )Жанр: RockПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CDBB66BFB5F170F1FB91B89D6EBDB981DCF5220
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612034   (1040635) от 14.02.2023
+
+Dzen (Андрей Нагорный) - Глаза Анютины (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хинди [00:03:09]
+02. Элемент Криминала [00:03:44]
+03. Война и Мир [00:04:02]
+04. Аляска [00:03:44](   Читать дальше...   )Жанр: RockПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EFCBF5637976109B4AB842582357EB60387231A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611451   (1040843) от 13.02.2023
 
 Shiningstar - Songs of the Northern Lands - Chapter One (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
@@ -589,114 +694,6 @@ magnet:?xt=urn:btih:85059EF03309C17F3D9F19AB58CBE94C6646D0BC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:010DBDD663CAA1D8589DDE6C8ADB1C59B2C1EC63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606570   (1044452) от 22.01.2023
-
-Dark Princess - Phoenix (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phoenix (3:18)
-02. Taste of Freedom (3:13)
-03. The Void (4:10)
-04. Worth Waiting For (4:04)(   Читать дальше...   )Жанр: Gothic Metal, Female VocalПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86AFCB4F3B991252401CFDC7F0F5C396439B0846
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606158   (1044557) от 21.01.2023
-
-Aella (Аэлла) - Жизнь Происходит Сейчас (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Танцы В Каменном Лесу (00:03:56)
-02 - Я Так Хочу (00:03:27)
-03 - Клеопатра (00:04:09)
-04 - Белая Лилия (00:04:00)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B17813A08B1063432F71F51F6F1BB7649EDF0FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606137   (1044562) от 21.01.2023
-
-h84u - Кали - Юга (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Взлетай [00:03:22]
-02. Город ждет [00:03:19]
-03. Кали-Юга [00:03:13]
-04. Внутренний враг [00:02:39](   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:24:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:191D876B3E2D8698B5B9FE9FB5CB4A6EE667F2B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606147   (1044567) от 21.01.2023
-
-Zuname - Vertigo (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night in Rostock [00:03:22]
-02. You Have to Be Strong [00:02:17]
-03. I'm Not Afraid [00:03:22]
-04. Señor Diego [00:03:35](   Читать дальше...   )Жанр: Celtic PunkПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C7EB1DA00482A822E2DEBBBC17010E340CCB591
 ```
 
 

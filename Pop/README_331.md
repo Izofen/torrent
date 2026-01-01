@@ -1,3 +1,165 @@
+###  Публикация: 980826   (952970) от 31.01.2016
+
+Eleanor Friedberger - New View (2016) [FLAC|Lossless|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. He Didn't Mention His Mother 04:00
+02. Open Season 04:42
+03. Sweetest Girl 03:01
+04. Your Word 03:41(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:898587C55CA8B62433CCC3416703EA0B1CEBC9B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980693   (953030) от 31.01.2016
+
+VA - Rhythm of Life (1991) [FLAC|Lossless|tracks + .cue] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953030.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Stevie B. - Because I Love You (The Postman Song)
+2.Chimes, The - I Still Haven't Found What I'm Looking For
+3.DNA Featuring Suzanne Vega - Tom's Diner
+4.Beats International - Dub Be Good To Me(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01F3274055EE478AEE6AD1D0F9A0CC16286C545F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981065   (953039) от 31.01.2016
+
+Monica Naranjo - Monica Naranjo (1994) Remastered, 2012, Sony Music [MP3|320 кб/с] <Latin, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953039.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	El Amor Coloca	4:01
+2	Sola	4:08
+3	Oyeme	4:58
+4	Supernatural	3:58(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6562F0E5E7B8D63C2A9BDA9104F83715A84CB7EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089193   (953751) от 02.01.2017
+
+Mark Ashley - Greatest Hits II (2013) [MP3|320 Kbps] <Disco,  Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Are Not Alone
+02. It's All Over
+03. You Are My Paradise
+04. Destination Love(   Читать дальше...   )Жанр: Disco,  Euro-DiscoПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133E9798AE41324B76CEF491062A743640D3CF03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361598   (954201) от 20.02.2020
+
+Moulin Rouge - Moulin Rouge (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Moulin Rouge была диско-проектом под руководством продюсера Майкла Загера. Они выпустили один одноименный альбом в 1979 году, который содержал исключительно диско-окрашенные кавер версии раннего материала Bee Gees.01. Holiday (5:34)
+02. Run To Me (5:48)
+03. Lonely Days (5:23)
+04. To Love Somebody (6:47)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF00E28F20BEFC731ECF8643F2E2697D18E0D439
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361675   (954213) от 20.02.2020
+
+Mouzon's Electric Band - Baby Come Back (1979) LP [MP3|320 Kbps] <Electronic, Disco, Jazz, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All My Loving (3:24)
+02. Everybody Get Down (4:34)
+03. I Want To Hold Your Hand (3:12)
+04. I Still Love You (3:52)(   Читать дальше...   )Жанр: Electronic, Disco, Jazz, Rock, PopПродолжительность: 00:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:911FC8F0FAA3A8EC2BA753BC3B74509170FDBF83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361539   (954276) от 20.02.2020
 
 King Sporty & The Root Rockers - Fire Keep On Burning (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -539,165 +701,6 @@ Demis Roussos - Collected (2015) 3CD, Compilation [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B3CE06A031F090BE4C6FB5BD091E345672B34A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360352   (960742) от 15.02.2020
-
-Ирина Дубцова - О любви... (2008) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1593F71E7A8FBD38C50DA13F1CB6FC046CA6AF22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360354   (960930) от 15.02.2020
-
-Аурика Ротару - Счастье-свободная птица (2006) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Счастье - свободная птица 3:20
-02. Двi голубки 3:25
-03. Сентименте 4:48
-04. Сопiлка 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1833FA687110A25F32C60DC4BCEAF4D2A85AC546
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978922   (961062) от 25.01.2016
-
-Philippe Chatel - Renaissance (2016) [FLAC|Lossless|tracks] <Chanson, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 heures du matin (2:49)
-02. L'absence (4:07)
-03. La fille dans la bouteille (3:03)
-04. Chanson du pere (2:26)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A294C66639F90FC291A969CC5DC782CF71B044B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979091   (961122) от 25.01.2016
-
-Carrie Underwood - Storyteller (2015) [FLAC|Lossless|tracks] <Pop, Pop Rock, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Renegade Runaway 3:40
-02 Dirty Laundry 3:25
-03 Church Bells 3:15
-04 Heartbeat 3:31(   Читать дальше...   )Жанр: Pop, Pop Rock, CountryПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F335BA23B70E3386F345554634CC418537FD068
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 621506   (961492) от 21.02.2013
-
-Забытый Разговор - Возвращение (1997) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Арабское золото
-02. Нежная бэйби
-03. Если хочешь
-04. Раз в 1000 лет(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A2CBFBF3A456F3B21601B27C2F2079CB47CE5D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360256   (961781) от 14.02.2020
-
-Donna Summer - 19 Albums, 3 Compilations (1974-2013) Collection [MP3|320 Kbps] <Electronic, Funk Soul, Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Донна Саммер – «Королева диско». Американская певица стала иконой диско и поп-сцены, пять раз была номинирована на премию «Грэмми», за 34 года своей работы выпустила предлагаемые альбомы, множество синглов и компиляций. Было продано более 130 миллионов записей, а хиты в ее исполнении звучат до сих пор.Список альбомов:
-1974 - Lady Of The Night
-1975 - Love To Love You Baby
-1976 - A Love Trilogy(   Читать дальше...   )Жанр: Electronic, Funk Soul, Disco, PopПродолжительность: 19:55:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0338CE4176BACFAA8D9678634442F6826FEA9540
 ```
 
 

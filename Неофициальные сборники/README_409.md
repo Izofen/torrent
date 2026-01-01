@@ -1,3 +1,30 @@
+###  Публикация: 903369   (659065) от 30.05.2015
+
+VA - Summer Dance Hits (2015) [MP3|320 кб/с]<Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Froidz - Enjoy The Silence (Froidz Club Remix Edit)
+02. Sandro Silva - Firestarter (Original Mix)
+03. Charming Horses feat. Emma Carn - You And I (Original Mix)
+04. Wildstylez & Audiotricz - Turn The Music Up! (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 05:09:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B198CFCB4C8324F1F8CF4217D37968CE4E1AB88E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903325   (659141) от 30.05.2015
 
 VA - Sexy Trance #86 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
@@ -686,33 +713,6 @@ VA - Yin-Yang Deep House Music Vol.01 (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ABB15C5BDEAFEA1F9490FC777B5709D2AE929CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139077   (661305) от 01.06.2017
-
-VA - Yin-Yang Deep House Music Vol.02 (2017) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661305.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nico Stojan feat. Iannis Ritter - Dedicated
-002. FonnikDeep - Love (Broken Instrumental)
-003. James Silk - La Noche
-004. Sound Slave - Lost in Lost Angeles City (Deephope Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1133D38CE3E24867F3091779AB2F7257806541DE
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 997670   (869695) от 19.03.2016
+
+Jean Sibelius - Lemminkainen Suite, Pohjola’s Daughter (Finnish Radio Symphony Orchestra, Hannu Lintu) (2015) [DTS 2.0, 5.0|ISO|64/1|SACD-R] <Orchestral>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lemminkäinen Suite
+01-I Lemminkäinen and the Maidens on the Island
+02-II The Swan of Tuonela
+03-III Lemminkäinen in Tuonela(   Читать дальше...   )Жанр: OrchestralФормат: DST64Продолжительность: 01:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F485FFD2684CF7B58904605DB26DF7BCC08104C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996845   (869809) от 19.03.2016
+
+George Frideric Handel - Arminio (2016) [FLAC 2.0|96/24|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (03:14)
+02. Menuet (01:01)
+03. Act 1: Fuggi, mio bene (00:57)
+04. Il fuggir, cara mia vita (02:48)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:378D2F0AFF89D776760C6E4CEB3A92FEA95A4B61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996822   (869810) от 19.03.2016
 
 Maria Callas - Callas at La Scala (2014) [FLAC 2.0|96/24|Lossless|WEB-DL|tracks] <Classical, Opera>
@@ -647,60 +701,6 @@ Kalman - Die Csardasfurstin (Сильва) (1968) 1994 Hungaroton Classic Kft [A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:267990C5A3BFAC51A5247007F062F354F61A2998
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105215   (876401) от 17.02.2017
-
-Tina Guo - The Journey (2011) [FLAC|Lossless|tracks + .cue] <Classical Contemporary>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lament [04:20]
-02. Introduction and Polonaise Brillante in C Major, For Cello and Piano, Op. 3 [09:06]
-03. Le Grand Tango [11:16]
-04. Winter Star [05:09](   Читать дальше...   )Жанр: Classical ContemporaryПродолжительность: 00:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA7137DCCBA77FF93A0125F607675E5B925D6C4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996965   (876944) от 15.03.2016
-
-VA - Золотое Барокко (2001) S&V #02/2001 [FLAC|Lossless|tracks + .cue] <Baroque>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876944.jpg" />
-</div>
-
-
-###  Подробнее
-
-4
-01. Georg Friedrich Handel - Arrival of the Queen of Sheba (3:02)
-02. Johann Sebastian Bach - Concerto In D, BWV 1043 (7:18)
-03. Georg Philipp Telemann - Violin Concerto No.8 in G (2:08)(   Читать дальше...   )Жанр: BaroqueПродолжительность: 01:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5644432D56594C82FD75F69C249F781F4D8702
 ```
 
 

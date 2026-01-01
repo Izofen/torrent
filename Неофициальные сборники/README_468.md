@@ -1,3 +1,36 @@
+###  Публикация: 787860   (736315) от 18.05.2014
+
+DJ P@F - Made In ZP City (2011) [MP3|256 кб/с]<Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prodigy ( DJ P@F mix) - Rat Poison & Girls
+02. Timeriders & Ray Clarke & Twilight ( DJ P@F mix) - Future Generation & Electronic & Can U Feel Da Bass
+03. Eminem & Linkin Park (DJ P@F) - The Real Slim Shady & In The End
+04. Global Deejays - The Sound Of San Francisco (DJ P@F remix)
+05. P.O.D & The Crystal Method.( DJ P@F mix) - Boom (cut version)
+06. D12 & Linkin Park & X-ecutioners ( DJ P@F) - Blow My Buzz & It's Goin' Down (Exclusive Bonus Treack)
+07. 50 Cent & Linkin Park (DJ P@F mix) - Hustlers Ambition & One Step Closer (Extreme mix)
+08. Freestyle Project (DJ P@F mix) - Los Angeles Lakers (MUSIC DONT STOP) (NBA version)
+09. Freestyle Project (DJ P@F mix) - All Stars (ELECTRIC REALITY) (NBA version)
+10. Fatboy Slim (DJ P@F mix) - Ya Mama (Counter-Strike 1.6 version)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C06BBB7F977290E858C85296822247504D2D3702
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527712   (736339) от 29.01.2022
 
 VA - My Sexy Blues (2022) [MP3|320 Kbps] <Blues>
@@ -668,33 +701,6 @@ VA - Progressive Trance Sound Party (2020) [MP3|320 Kbps] <Progressive Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2602AA291E02338B1B6559E1C526ECD112955EC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526977   (737799) от 26.01.2022
-
-VA - My Best Hammond Organ (2022) [MP3|320 Kbps] <Hammond Organ, Jazz, Fashion Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joey DeFrancesco - One Hundred Ways (09:10)
-02. Al Kooper,Steve Stills - Season of the Witch (11:08)
-03. Bob Belden,Billy Drummond,John Hart,Nicholas Peyton,Sam Yahel - Tom Thumb (06:41)
-04. Jimmy Smith - T'ain't No Use (06:09)(   Читать дальше...   )Жанр: Hammond Organ, Jazz, Fashion JazzПродолжительность: 07:21:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F5DD3A64E29F95F419EC6F7562863E270B49BEB
 ```
 
 

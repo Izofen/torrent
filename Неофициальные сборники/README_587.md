@@ -1,3 +1,30 @@
+###  Публикация: 1103548   (886074) от 12.02.2017
+
+VA - Planet of Chillout: Fifteen Organic Downtempo and Chillout Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anuwat Chamroon - Funky Organs
+02. Doktor Gigi - Rich and Healthy
+03. Thai Ragga Collective - Sunny Afternoon
+04. Baramee Thawan - Sunthat(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B251D2B090500BFDC1917607952893D05BC3425
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995130   (886234) от 10.03.2016
 
 VA - Лучшие новинки. Non-Stop Весенний (2016) [MP3|256-320 кб/с] <Pop, Dance>
@@ -674,33 +701,6 @@ VA - Beatport Hard Techno: Sound Pack #342 (2021) [MP3|320 Kbps] <Techno, Minima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99A4DABC68390236FF3EBD8FFEF39DDE4F6EBAD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494623   (887745) от 08.09.2021
-
-VA - HGM: Organic House Deep Downtempo Mix (2021) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887745.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ben Pierre - Shima
-002. Báez - Is It Real
-003. Facundo Borras - Anyone
-004. Raffaele Ciavolino - Do You Love Me(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 09:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8AFA863C948439AA0DDB4706494501BF1EC7B55
 ```
 
 

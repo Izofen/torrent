@@ -1,3 +1,30 @@
+###  Публикация: 1388352   (786716) от 06.06.2020
+
+VA - Worldwide Rap Singles - Май 2020 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786716.jpg" />
+</div>
+
+
+###  Подробнее
+
+US (США)
+001. $NOT feat. Night Lovell - Human [02:52]
+002. 1010 Benja SL - Woodrow [03:39]
+003. 121569 - Pleafure [01:52](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 60:59:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2B0D41EE8E3A67A4F4860BAD58173843D56E743
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388362   (786717) от 06.06.2020
 
 VA - ЕвроХит Топ 40 Europa Plus 05.06.2020 [MP3|320 Kbps] <Pop, Dance>
@@ -665,33 +692,6 @@ VA - Techno Frozen (2021) [MP3|320 Kbps] <Techno, Minimal, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87E17AF71B01BC9F66F24B1D282BE8B732831DFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512363   (787468) от 24.11.2021
-
-VA - Chill Electronic: Casa Ambiente Mix (2021) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787468.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Important - Except
-002. Sonic Art - Orbital Journey
-003. Rey&Kjavik - Zula
-004. 808 Lounge - Changes(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, AmbientПродолжительность: 08:26:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA2BDD60C7E68B25C4BB28D08B590145B2357523
 ```
 
 

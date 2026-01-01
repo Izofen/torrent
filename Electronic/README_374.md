@@ -1,3 +1,138 @@
+###  Публикация: 1217040   (746126) от 02.04.2018
+
+Sonar - Volt Revisited (2003) Hands Productions [FLAC|Lossless|Vinyl|tracks] <Rhythmic Noise, Industrial, Electro>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Is Always A Waste (Geistform Remix) (04:21)
+ 02. Got The Message (Electronicat Remix) (08:32)
+ 03. Hostage (Ah Cama-Sotz Remix) (04:44)
+ 04. Tafoukt (Rotorik Remix) (05:04)(   Читать дальше...   )Жанр: Rhythmic Noise, Industrial, ElectroПродолжительность: 00:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC922B6CDCCA14A5CF6FB282498556C20072A9A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216927   (746127) от 02.04.2018
+
+VA - Love Nightlife, Vol. 1 The Lounge Room Grooves By Kolibri Musique (2017) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ministry of Da Funk - Juicy Beats (5:09)
+02. Dawn Ahenk - Don't Need Ya (4:10)
+03. #Mali - French Avenue (5:34)
+04. PhonkworX - Night Fever (Funky Deep Mix) (5:03)(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F39B19A0B4B1E9241AF53E22D5FF8870CF4ADF97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216932   (746131) от 02.04.2018
+
+VA - Love Nightlife, Vol. 2 The Lounge Room Grooves (2018) [MP3|320 Kbps] <House, Deep House, Downtempo>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Why Can’t We Live Together (T.B.C. Re-Edit) T.B.C. 5:46
+02 Walkman Castanea 5:20
+03 Sunshine Artem B1 4:07
+04 I Alt Kellini 5:28(   Читать дальше...   )Жанр: House, Deep House, DowntempoПродолжительность: 01:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE3ED535529449756670775371C4985B42BEFF4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216982   (746237) от 02.04.2018
+
+VA - Einfach Nur Mugge 2018 [MP3|320 Kbps] <House, Deep House, Big Room>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manuel Baccano - Love Me Like You Never Did Before [2:55]
+02. Leines - The Grace [3:29]
+03. Yoshua - Lug Mich An (DBN Radio Edit) [3:14]
+04. Dj Soulstar - Bollywood (Radio Mix) [3:27](   Читать дальше...   )Жанр: House, Deep House, Big RoomПродолжительность: 02:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294F43C3A2901011F327B8F59917B2CE99FD2B9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524143   (746521) от 14.01.2022
+
+Bonobo - Fragments (2022) [FLAC|Lossless|Web-DL|tracks] <Downtempo, Ambient, Deep House>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Polyghost (feat. Miguel Atwood-Ferguson) (1:49)
+02. Shadows (feat. Jordan Rakei) (4:45)
+03. Rosewood (4:03)
+04. Otomo (feat. O’Flynn) (6:12)(   Читать дальше...   )Производство: Ninja Tune - ZENDNL279Жанр: Downtempo, Ambient, Deep HouseПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72DAF2FB63F16F88C53575716821C0B50DAE2383
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282105   (746544) от 11.02.2019
 
 Nivhek - After its own death / Walking in a spiral towards the house (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Experimental, Eletronic>
@@ -557,140 +692,6 @@ VA - Big Party: EDM Anthems (2019) [MP3|320 Kbps] <Big Room, Progressve House, F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4C4EB385936DF08AE6302B8B044D52AA619A570
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019529   (748640) от 24.05.2016
-
-VA - Summer Chill (2016) [MP3|320 кб/с] <Chill Out, Chill House>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damon Paul - Rhythm Is a Dancer (Patricio Amc Luna Mix) (02:52)
-02. Marc Mounier - There Were Times (B.Infinite Remix) (03:30)
-03. B.Infinite - Summerdream (Radio Mix) (03:59)
-04. Project Blue - Waiting for the Sun (Malibu Beach Mix) (06:34)(   Читать дальше...   )Производство: Sounds UnitedЖанр: Chill Out, Chill HouseПродолжительность: 01:21:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6414615A9C59BD38079A97883A60B97D34BCB81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216608   (749214) от 31.03.2018
-
-Carpenter Brut - Leather Teeth (2018) [MP3|320 Kbps] <80s, Dark Synth, Retrowave, Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749214.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Leather Teeth (3:53)
- 2. Cheerleader Effect (feat. Kristoffer Rygg) (3:38)
- 3. Sunday Lunch (3:15)
- 4. Monday Hunt (2:56)(   Читать дальше...   )Жанр: 80s, Dark Synth, Retrowave, SynthwaveПродолжительность: 00:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77DB3FD5966ACF44A290CF2B5805685450438F28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216634   (749330) от 31.03.2018
-
-George FitzGerald - All That Must Be (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. George FitzGerald – Two Moons Under (05:01)
-02. George FitzGerald – Frieda (05:30)
-03. George FitzGerald – Burns (04:13)
-04. George FitzGerald & Lil Silva – Roll Back (03:28)(   Читать дальше...   )Жанр: House, Deep House, DowntempoПродолжительность: 00:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40E10FA66085B85ABD683EDD8EE27EC4428F072
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523699   (749672) от 12.01.2022
-
-MUST DIE! - CRISIS VISION (2021) 2CD Deluxe Edition [FLAC|Lossless|tracks + .cue] <Dubstep, Breakbeat, D'n'B, Hardstyle, Trap>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NIHILISM BEGINS AT HOME (2:42)
-02. LOL OK (4:03)
-03. FUCK UR STYLE (3:24)
-04. LIFE SUCK (4:02)(   Читать дальше...   )Производство: Never Say DieЖанр: Dubstep, Breakbeat, D'n'B, Hardstyle, TrapПродолжительность: 01:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D1C91237ACC669AA4FFF877BBD58FB9793E4505
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998287   (750008) от 09.02.2019
-
-Solar Bears - Discography 8 Releases (2010-2016) Planet Mu, Sunday Best [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Electro, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Separate From The Arc (Andrew Weatherall Mix 1) (04:45)
- 02. Separate From The Arc (Andrew Weatherall Mix 2) (05:42)
- 03. Separate From The Arc (04:41)Тип издания: CD, WEBЖанр: IDMПродолжительность: 00:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACEC855C5B0CACCC107DA17437F2E7D7B639E85D
 ```
 
 

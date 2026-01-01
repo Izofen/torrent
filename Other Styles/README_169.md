@@ -1,3 +1,204 @@
+###  Публикация: 175887   (932044) от 20.02.2010
+
+VA - Дорогой Джон / Dear John (Original Motion Picture Soundtrack) (2010) [MP3|320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Joshua Radin & Schuyler Fisk - Paperweight (03:22)
+02. The Swell Season - The Moon (04:40)
+03. 311 - Amber (03:28)
+04. The Donkeys - Excelsior Lady (03:34)
+05. Wailing Souls - Things & Time (03:22)
+06. Amanda Seyfried - Little House (03:17)
+07. Fink - This Is the Thing (04:25)
+08. Rosi Golan - Think of Me (03:09)
+09. Rachael Yamagata & Dan Wilson - You Take My Troubles Away (03:40)
+10. Deborah Lurie - Dear John Theme (01:53)Жанр: SoundtrackПродолжительность: 00:34:48
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 176594   (932066) от 20.02.2010
+
+Ibiza - Chill Guitars (2007) [FLAC|Lossless]<Relax / Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. In Credo - The Strings Of Spain
+2. Floating Clouds - Sun And Water
+3. Kid Coconutz - Needed Moonlight
+4. Noise Boyz - Supernatural
+5. Skysurfer - Impressions
+6. Dessert Tunes - Remade Sundays
+7. The Man Behind C. - Pitcard
+8. In Credo - La Guitarra
+9. Adam Bowen - La Alahambra
+10. In Credo - Siesta Del Sol(   Читать дальше...   )2007Жанр: Relax / InstrumentalПродолжительность: 01:16:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093851   (932102) от 16.01.2017
+
+Kitaro - Best Of Kitaro (2009) 4CD [FLAC|Lossless|tracks + .cue] <New Age, World Music>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winds blows over the hill [6:30]
+02. Floating lotus [5:29]
+03. Daichi [6:10]
+04. Silence [6:13](   Читать дальше...   )Жанр: New Age, World MusicПродолжительность: 03:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8666226FEE0172DA7793CF7DC3FA19184084673A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986126   (932310) от 13.02.2016
+
+Arne Woutersax - Beautiful Singles (2015) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Sax, Nu Disco>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это захватывающее музыкальное путешествие, наполненное особенным настроением ярких городов мира, чувственным звучанием саксофона и респектабельными тембрами раритетных аналоговых синтезаторов. Работа над альбомом велась под руководством московского nu-disco продюсера, специалиста по классическим аналоговым синтезаторам Александра Боброва при участии российского саксофониста (   Читать дальше...   )01. Theme Of San Remo
+02. Theme Of Monaco
+03. Theme Of Verona
+04. Theme Of Barcelona(   Читать дальше...   )Жанр: Instrumental, Sax, Nu DiscoПродолжительность: 01:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D042C4BAB9FE9C2FFC263FA548E0E5C27CDAEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093767   (932365) от 16.01.2017
+
+Fridrik Karlsson - Moods of Iceland (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fridrik Karlsson - Island er land pitt [00:05:38]
+02. Johanna Vigdis Arnardottir - Vegir liggja til allra atta [00:04:08]
+03. Johanna Vigdis Arnardottir - Vikivaki [00:03:35]
+04. Fridrik Karlsson - Kvoldsigling [00:03:57](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C48194E7A56289308470DAC562CD527B46AE12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093798   (932368) от 16.01.2017
+
+Bernward Koch - Remembering (2015) [FLAC|Lossless|tracks + .cue] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remembering (4:23)
+ 02. New Morning (6:35)
+ 03. My Secret (3:56)
+ 04. Over the Fields (5:32)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6773DDA022EC68CE04518A65E3F33AE5AB61895A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094029   (932380) от 16.01.2017
+
+Dan Gibson - Relax The Body (2006) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rest and relaxation
+02. The freshest air
+03. free and easy
+04. Releasing(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF9920440E1DAD578F4B32BC6DEADAB3FC6D0B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093923   (932433) от 16.01.2017
 
 Donna Stewart - Meditations to Heal Your Life (2013) [FLAC|Lossless|WEB-DL|tracks] <Meditative, Spoken Word>
@@ -555,235 +756,6 @@ Move D - The Silent Orbiter (2014) [FLAC|Lossless]<Ambient, Experimental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFFD7E156CD4E2F12DC543B06FC0C08FC5408316
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 861136   (934778) от 20.01.2015
-
-Seda Bagcan - Sunrise (2014) [MP3|320 кб/с]<New age, Mantras, Vocal>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(07:10) 01. Wahe Guru Sat Nam
-(07:54) 02. Ra Ma Da Sa Sa Say So Hung
-(11:13) 03. Gobinde Mukande Udare Apare
-(10:33) 04. Guru Ram Das Guru
-(08:26) 05. Sa Ta Na Ma
-(07:16) 06. Ad Gurey Nameh
-(08:16) 07. Wahe Guru Wahe Jeeo
-(03:06) 08. Long Time SunЖанр: New age, Mantras, VocalПродолжительность: 01:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03B878F535AF4F6F88201DBFCC0A6CE674083BBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628717   (934961) от 11.03.2013
-
-Metal Gear Rising: Revengeance - Vocal Tracks (2013) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Rules of Nature (Platinum Mix) 2:30
-02. The Only Thing I Know For Real (Maniac Agenda Mix) 2:26
-03. Dark Skies (Platinum Mix) 2:21
-04. I'm My Own Master Now (Platinum Mix) 2:10
-05. A Stranger I Remain (Maniac Agenda Mix) 2:25
-06. Return to Ashes (Platinum Mix) 2:15
-07. The Stains of Time (Maniac Agenda Mix) 2:10
-08. Red Sun (Maniac Agenda Mix) 2:13
-09. A Soul Can't Be Cut (Platinum Mix) 2:19
-10. Collective Consciousness (Maniac Agenda Mix) 2:38(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB78E9D2102BEEF2ED8D4AE848839B73505513E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628290   (935083) от 11.03.2013
-
-Rurouni Kenshin - Original Soundtrack (2012) [MP3|320 кб/с]<Movie OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01	暁闇の戦い
-02	生生流転 ～新時代へ～
-03	観柳帝国 ～我執の猛～
-04	狂血
-05	邂逅 (壱)
-06	業の道
-07	人斬り抜刀斎 ～殺人剣～
-08	逆刃刀
-09	るろうに
-10	喧嘩上等!(   Читать дальше...   )Жанр: Movie OSTПродолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F93D9CC6B0CE4E2A4F2CF01548049588C9D71E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628202   (935090) от 11.03.2013
-
-VA - Magic of waltz (2CD) (2008) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
- 1. Dmitri Shostakovich - Waltz no.2 - (2:37)
- 2. Aram Khachaturian - Waltz from masquerade suite - (4:07)
- 3. Peter Tchaikovsky - Waltz from swan lake suite - (6:49)
- 4. Johan Strauss - Voices of spring - (6:00)
- 5. Leo Delibes - Waltz from coppelia - (2:00)
- 6. Emile Waldteufel - The Skaters Waltz - (8:40)
- 7. Charles Gounod - Waltz from Faust - (5:24)
- 8. Peter Tchaikovsky - Waltz from the sleeping beauty - (5:04)
- 9. Hector Berlioz - Valse: Allegro non troppo - (6:14)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:819061AB385CB59EB9A7A133924E774DC9810180
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 754088   (935175) от 06.02.2014
-
-You Can't Win, Charlie Brown - Diffraction/Refraction (2014) [FLAC|Lossless]<Indie, Baroque, Alternative>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. After December (03:37)
- 02. Fall for You (04:44)
- 03. Post Summer Silence (02:57)
- 04. Be My World (04:22)
- 05. I Wanna Be Your Fog (03:15)
- 06. Shout (04:53)
- 07. Natural Habitat (04:01)
- 08. Heart (02:21)
- 09. From Her Soothing Mouth (03:10)
- 10. Under (04:10)(   Читать дальше...   )Жанр: Indie, Baroque, AlternativeПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6BB1632A7A9D28863B80947E85E46DD9CBF3EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628628   (935185) от 11.03.2013
-
-Ralph Dokin Orchester - Casatschok Party (1974) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Casatschoc
-02. Die Zigeunerkarawane
-03. Kalinka
-04. Moldavian – Casatschoc
-05. Bublitschki
-06. Kutscher -Treib Die Pierde Nicht
-07. Heja – Casatschoc
-08. Zwei Gitarren
-09. Metjeliza
-10. Kasbek(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10436726C81C5BCA361A809692DF005905C083E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 627793   (935196) от 11.03.2013
-
-Richard Clayderman and Berdien Stenberg - Amour pour Amour (1989) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Amour Pour Amour
- 02. Enfant Qui Parlait aux Oiseaux
- 03. Orages de l'Ete
- 04. Printemps du Coeur
- 05. Il y Avait Aussi des Etoiles
- 06. Nuit des Magiciens
- 07. Bram Bogart Melody
- 08. Oiseaux Tristes du Zuiderzee
- 09. Seulement Se Parler
- 10. Danseurs de Lune(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E8EAD25B8EBDC7AC693A914F2574ACD9589BCA1
 ```
 
 

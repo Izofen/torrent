@@ -1,3 +1,138 @@
+###  Публикация: 1619971   (1032537) от 18.03.2023
+
+VA - Space Odyssey - Trip Two: First Human In Space (2017) [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Zona-X - Intro
+02 - Ray Orion - Mystery Of 3 Planets
+03 - SynthOne - Cosmodroom
+04 - Amateon - Journey To The Sun(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D442C52DB4A3D677CFDBAB41538B7095395373AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446748   (1032547) от 10.02.2021
+
+VA - FOCUS (2021) RBL266 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Dub Techno, Minimal, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MINT (JPN) - Gamble Galaxy (6:18)
+ 02. Jerome Steam - Legal Stuff (7:11)
+ 03. Kalkara - Galaxy (8:07)
+ 04. M.A.F.F - Iris (6:21)(   Читать дальше...   )Жанр: Tech House, Deep House, Dub Techno, Minimal, TechnoПродолжительность: 04:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F241106E2A7D91AA2D67798FD22A39237F5C1C37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032989   (1032602) от 09.02.2021
+
+Max Richter - Discography 55 Releases (2002-2020) [FLAC|Lossless|tracks+.cue, tracks] <Modern Classical, Ambient, Contemporary, Minimal>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032602.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. On The Nature Of Daylight (06:14)
+ 02. A Catalogue Of Afternoons (01:49)
+ 03. Spring  (00:42)(   Читать дальше...   )Тип издания: CD, WebЖанр: Modern Classical, Ambient, Contemporary, Minimal, Soundtrack •Продолжительность: 59:14:45 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D53AB121B570BA1E28E7BE62E8EA2E9AAFC0524
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309966   (1032664) от 09.02.2021
+
+Public Memory - Discography 7 Releases (2016-2020) Felte Records [FLAC|Lossless|WEB-DL|tracks+.cue, tracks <Ambient, Leftfield, Experimental, Downtempo, Trip Hop, Krautrock>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Worn Shadow (01:04)
+ 02. Bad Orbit (05:13)
+ 03. Dusseldorf Witch Hat (04:23)
+ 04. Courtroom Tap Water (01:19)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, Leftfield, Experimental, Downtempo, Trip Hop, Krautrock •Продолжительность: 03:08:15 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:322BE5086C97ACADAC8440298240F6BEFE5EAC80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125872   (1032678) от 09.02.2021
+
+Arca - Discography 24 Releases (2011-2021) UNO, Mute, XL Recordings [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Bass Music, Abstract, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knot (02:13)
+ 02. Harness (02:00)
+ 03. Fossil (01:35)
+ 04. Feminine (00:37)(   Читать дальше...   )Тип издания: CD, WebЖанр: Experimental, Bass Music, Abstract, Ambient •Продолжительность: 14:34:20 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29603692BAC228C7D6A3216983EFF8C1E909B0F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446429   (1032741) от 09.02.2021
 
 VA - DNBB Recap 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
@@ -540,129 +675,6 @@ Tim Schaufert - Once Moved Too Slow (feat. Yosie) (2020) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD1EDCCC289E9C41F7C87B353D2D8D77BF312B35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446074   (1033065) от 08.02.2021
-
-Tim Schaufert - Footprints (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Footprints (03:12)Жанр: AmbientПродолжительность: 00:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:989F0E78693EC2E54C8A5D3E230972E52654F499
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446173   (1033067) от 08.02.2021
-
-Tim Schaufert - am i the only one (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. am i the only one (feat. Seven) (02:36)Жанр: AmbientПродолжительность: 00:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A64B4790DE61CF56111FEA1656DF75C635125D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261143   (1033233) от 07.02.2021
-
-Olan Mill (Alex Smalley) - Discography 20 Releases (2010-2021) Serein, Facture, Preservation [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Modern Classical, Drone, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CI-MXD (40:30)
- 02. Electrostatic (01:41)
- 03. Redox (04:22)
- 04. Protonation (04:30)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient/Modern ClassicalПродолжительность: 12:28:31 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B81E4EE8564F566084D558A2F1DAB14EF64F236
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445830   (1033269) от 07.02.2021
-
-Tim Schaufert - Temporary (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Temporary (02:05)Жанр: Electronic, AmbientПродолжительность: 00:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:267889052FE686C712E681F57C7CCB541FEB25CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445884   (1033271) от 07.02.2021
-
-Tim Schaufert, Subsets, CASHFORGOLD - Cycles (2018) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Ambient>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tim Schaufert, Subsets, CASHFORGOLD - Cycles (04:10)Жанр: AmbientПродолжительность: 00:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27CAEA754D4BCC0754A76A343DA88A554388BA24
 ```
 
 

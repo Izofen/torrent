@@ -1,3 +1,30 @@
+###  Публикация: 1505545   (802861) от 28.10.2021
+
+VA - Beatport Drum And Bass: Sound Pack #359 (2021) [MP3|320 Kbps] <D&B, Bassline, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802861.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kutlo - Machine Learning
+002. Disrupta - Like The Sun
+003. Dr.P - Jump Wid It
+004. Loudek - In My Mind U Are All(   Читать дальше...   )Жанр: D&B, Bassline, DubstepПродолжительность: 12:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC855E4D6116D4BF0DDBB33870E7FC258CA26B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505334   (802866) от 28.10.2021
 
 VA - Synth of Waves 3 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
@@ -669,33 +696,6 @@ VA - Beatport Big Room House: Sound Pack #85 (2020) [MP3|320 Kbps] <Club, Dance 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DE5118F3CDD46803F99824B68626663BB39F9A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010389   (804396) от 24.04.2016
-
-VA - Future Trance Energy 001 April TOP (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snatt And Vix - Rapture (Tau-Rine Remix) 06:44
-02. UCast - Gearbox (Extended Mix) 07:14
-03. Konrad Bergen - The Way Of Nature (DJ Myde Rmx) 07:41
-04. Abide - Perpetuity (Original Mix) 08:02(   Читать дальше...   )Жанр: TranceПродолжительность: 02:27:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C316CB817E021F6C2546283D7CCF222C769730
 ```
 
 

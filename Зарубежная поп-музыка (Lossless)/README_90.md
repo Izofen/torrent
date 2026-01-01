@@ -1,3 +1,57 @@
+###  Публикация: 1362420   (949590) от 23.02.2020
+
+Selena Gomez - Rare (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rare (3:41)
+02. Dance Again (2:50)
+03. Look At Her Now (2:43)
+04. Lose You To Love Me (3:26)(   Читать дальше...   )Производство: Interscope Records – B003154102Жанр: PopПродолжительность: 00:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E57480E3AA00F3E83B72CF47CAD11CB8A8C74581
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361729   (949598) от 23.02.2020
+
+Justin Bieber - Changes (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Around Me (02:16)
+02. Habitual (02:48)
+03. Come Around Me (03:20)
+04. Intentions (feat. Quavo) (03:32)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70CD9690111269209668D630902EB17CFD5CF55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362353   (949696) от 23.02.2020
 
 Dubstar - Stars (1995) Single [FLAC|Lossless|tracks + .cue] <Pop, Synthpop>
@@ -638,60 +692,6 @@ Tennis - Swimmer (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8AEF7031E4B985FCC0015299CA50F949166B4A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978316   (963341) от 23.01.2016
-
-a-ha - Scoundrel Days (1986) 2CD, Deluxe Edition, Remastered, 2010, Warner Bros [FLAC|Lossless|image + .cue] <Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scoundrel Days (04:01)
-02. The Swing Of Things (04:14)
-03. I've Been Losing You (04:26)
-04. October (03:54)(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 02:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C99FA968FB07384692745D427AB17EF8F15E91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978085   (963515) от 23.01.2016
-
-VA - Viva Italia - Canzone Italiana (2006) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gepy & Gepy - Angelo Blu (3:17)
-02. Morena - Attenti Al Lupo (4:08)
-03. Stefano Borgia - Se Ti Senti Veramente Un Amico (3:28)
-04. Aleandro Gualdi - Passera' (4:59)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74FBDB6E12CE2EB392BE2CB6817B726E9C78EDF4
 ```
 
 

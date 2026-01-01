@@ -1,3 +1,30 @@
+###  Публикация: 1212354   (776007) от 11.03.2018
+
+VA - Women Blues (2000-2016) (2018) 2CD  [MP3|320 Kbps] <Blues, Blues-Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ana & Milton Popovic - Did Somebody Make A Fool Out Of You (4:36)
+02. Sarah Brown - Good Fella Robert (3:15)
+03. Maria Muldaur - I Done Made It Up In My Mind (4:10)
+04. Peter Karp & Sue Foley - Fine Love (2:59)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 02:11:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB1A27FBB4F8CF6D6F9267DBEDB5EF2CC6572BF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212433   (776009) от 11.03.2018
 
 VA - Зарубежные Хиты (Март) (2018) [MP3|320 Kbps] <Dance, Pop, Club>
@@ -668,33 +695,6 @@ VA - Trance Maniacs Party - Melody Of Heartbeat #163 (2016) [MP3|320 кб/с] <T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45E1686D1E5C38099CFB1C3ABFB974BDEB13CD61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212120   (776262) от 10.03.2018
-
-VA - Dance Hot Mixes Popular Radio Mixes (2018) [MP3|320 Kbps] <Dance, Club, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776262.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ya Rick Ft. Addie Nicole - Follow My Destiny (Original Mix) 03:17
-002. Vinicius Nape, Jonathas Noronha - Explore (Original Mix) 06:12
-003. Tyron Hapi, Mimoza - Anyway (Majestic Remix) 02:34
-004. Thomas Mengel Ft. Isotobia Forrest - Invincible (Mike Shiver Extended Mix) 04:44(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 07:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81DB6F4EE58638D329F62F42CBD05011D5820049
 ```
 
 

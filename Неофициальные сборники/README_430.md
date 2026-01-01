@@ -1,3 +1,30 @@
+###  Публикация: 1289299   (686633) от 16.03.2019
+
+VA - Hot & Sweaty Nu Disco (2019) [MP3|320 Kbps] <Funky, Groove, Nu Disco, Indie Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lifelike - The Chase (Extended Mix)
+02. Anderson Paak Feat. T.I. - Come Down(N-You-Up & Nick Studer Remix)
+03. Francis Mercier & Zak Ria - Feels Like I'm Alive (Feat. Zak Ria)(Original Mix)
+04. Chevals - Fairy Tales (Original Mix)(   Читать дальше...   )Жанр: Funky, Groove, Nu Disco, Indie DanceПродолжительность: 03:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ECC760F5295FC52FC333FA22E8C58A358A3669D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028755   (686644) от 24.06.2016
 
 VA - Загорелое лето №1 (2016)  [MP3|256 кб/с] <Pop>
@@ -680,39 +707,6 @@ VA - Инструментальная музыка (2012) vol. № 66 [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFA0A2DDF58C8922FBC8962ACF28391A081D4DE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505960   (687783) от 06.06.2012
-
-VA - Инструментальная музыка (2012) vol. № 63 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. М.Таривердиев - Воспоминание о Венеции
-02. E.Simoni - Ballerina
-03. Cusco - Alcatraz
-04. J.Last & R.Clauderman - Indigo Bay
-05. J.Emblow - Tonight
-06. Behzad - Touch My Soul
-07. Botticelli - Song Sung Blue
-08. Vangelis - Movement VI
-09. Зодиак - Зодиак (mix)
-10. The B.B.S.O. - Living Next Door To Alice(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31FA9A8D341235E0E4548F68E35B606CC2B63D5F
 ```
 
 

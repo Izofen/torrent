@@ -1,3 +1,207 @@
+###  Публикация: 754791   (883464) от 07.03.2014
+
+VA - Колядки та щедрівки (2008) [MP3|224-256 кб/с]<Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+79. Нова радість стала
+80. Разом нині прославім
+81. Радуйтеся всі людіє
+82. Слава буди во вишних Богу
+83. Нині Адаме
+84. В Вифлеємі тайна
+85. Днесь щасливі часи
+86. Согласно співайте
+87. Що за радість
+88. Скинія златая(   Читать дальше...   )Жанр: FolkПродолжительность: 06:11:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8523D6A520257E152106C505D9D29F2A703EC930
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 186193   (883758) от 24.03.2010
+
+VA - Faire Celts - A Woman's Voices (2000) [MP3|320 kbps]<Celtic folk, world music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. He Moved Through the Fair — Sinéad O'Connor
+02. Voice — Eimear Quinn
+03. Hebridean Hale-Bopp — Capercaillie, Karen Matheson
+04. Woman's Heart — Mary McLaughlin
+05. Can You See the Border — Imaginary Heaven, Nina Loretto, Keri Steel
+06. This Piece of Earth — Jenny Schuab, West Eden
+07. Molly Na gCuach Ní Chuilleanáin — Mairéad Ní Mhaonaigh
+08. I Am Going to the West — Connie Dover
+09. Érin Grá Mo Chroí — Cathy Jordan
+10. Hoireann O — Talitha MacKenzie(   Читать дальше...)Жанр: Celtic folk, world music
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 640955   (884165) от 08.04.2013
+
+Властелин Колец - The Lord Of The Rings: The Complete Recordings (2005-2007) [FLAC|Lossless]<Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ScoreПродолжительность: 09:59:07
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995306   (884258) от 11.03.2016
+
+VA - Romantic Collection-Cinema (1999) [FLAC|Lossless|image + .cue] < Soundtrack, Pop, Ballad>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Un Homme Et Une Femme (Francis Lai)
+02. Love Theme From The Godfather (Nino Rota)
+03. The Windmils Of Your Mind (& His Orchestra) (Henry Mancini)
+04. Love Story (Francis Lai)(   Читать дальше...   )Жанр: Soundtrack, Pop, BalladПродолжительность: 01:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0BBB4E5F55CC9FDB6040C99C673B0FEB4110A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641165   (884372) от 08.04.2013
+
+Хор Санкт-Петербургского подворья монастыря Оптина Пустынь - Русское церковное пение (2004) [MP3|320 кб/с]<Духовные песнопения>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Достойно есть. Византийский распев соло – Д. Попов [01:34]
+2. Херувимская песнь. Староболгарский распев – игумен Силуан [05:42]
+3. Воспойте людие. Знаменный распев [01:47]
+4. Величание преподобному Сергию, игумену Радонежскому. Путевой распев [01:11]
+5. Тебе одеющагося. Болгарский распев [04:25]
+6. Достойно и праведно есть. Строчное пение [01:09]
+7. Возбранной Воеводе. Знаменное многоголосие – Греческий распев [01:25]
+8. Свете тихий. Знаменное многоголосие – Греческий распев [02:31]
+9. Совет превечный. Ранний партес – Знаменный распев [04:39]
+10. Милость мира. Ранний партес – Греческий распев [04:56](   Читать дальше...   )Жанр: Духовные песнопенияПродолжительность: 01:02:20
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995414   (884406) от 11.03.2016
+
+Acoustic Heroes - Relaxing Piano Sounds (Acoustic Bar and Lounge Music) (2014) [MP3|320 кб/с] <Piano, Acoustic>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rather Be
+02. Habits
+03. Dangerous
+04. Shake It Off(   Читать дальше...   )Жанр: Piano, AcousticПродолжительность: 01:12:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BE7642704C1ED35A7E63D543659EA52ECEAFA5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995521   (884612) от 11.03.2016
+
+Gomer Edwin Evans - Celtic Legends of Ireland (2016) [MP3|320 кб/с] <New Age, Instrumental, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Claddagh Legend
+02. Mystical Ireland
+03. The Hill of Tara
+04. Holy Drums(   Читать дальше...   )Жанр: New Age, Instrumental, RelaxПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9712E1C340CC6C8507F403F99E25D55F717BD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 641325   (884629) от 08.04.2013
 
 Deep Forest - Deep Africa (2013) [MP3|320 кб/с]<New Age/World Music/Ethnic>
@@ -553,196 +757,6 @@ Solar Fields and Lisa Miskovsky - Mirror's Edge / Still Alive: The Remixes (2008
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C6EEF5E6F1767B95B8F3CADDA071D1E3E991D2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371654   (886921) от 02.04.2020
-
-Art of Empathy - End Of I (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Neofolk, Darkwave, Atmospheric>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Souls Shine Brightest (06:48)
-02. End Of I (06:29)
-03. Here Comes Everybody (06:02)
-04. Their Playground (08:04)(   Читать дальше...   )Жанр: Neofolk, Darkwave, AtmosphericПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1A6BA29762C2832F51205E673222132F634CB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 13292   (887271) от 17.02.2015
-
-"Солярис, Зеркало, Сталкер" 1990-1999
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Сталкер - Тема
-Сталкер - Поезд
-Солярис - Болезнь
-Солярис - Станция
-Солярис - Слушая Баха (Земля)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494655   (887713) от 08.09.2021
-
-Guy Sweens - Rise of the Inca (2021) [MP3|320 Kbps] <New age, Ethnic, Native American>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viracocha
-02. Inti Raymi
-03. Cusco
-04. The Power of Stones(   Читать дальше...   )Жанр: New age, Ethnic, Native AmericanПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A910CE733E6CAE39981F88C047E53E63E8559B71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994672   (887788) от 09.03.2016
-
-Omnia - Naked Harp (2015) [MP3|320 кб/с] <Folk, World, Celtic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Morning in May  03:08
-02. The Flutterby Set  04:42
-03. Eleanor Plunkett  02:43
-04. The Fairy Queen  02:50(   Читать дальше...   )Жанр: Folk, World, CelticПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA85238EE5D1596FDDAA9E2E46DEC7C3AD229475
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 145860   (887976) от 01.04.2020
-
-Enigma - Greatest Hits (2008) 2CD Digipack Edition [FLAC|Lossless|image + .cue] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out From The Deep (Short Radio Edit) (3:27)
-02. Seven Lives (4:25)
-03. Goodbye Milky Way (5:53)
-04. Following The Sun (Radio Edit) (4:16)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 02:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5B012AB3BBDA7ABBA29D8A46D12F779F76BFD3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 224083   (887981) от 01.04.2020
-
-Bliss - 8 Альбомов (1997-2007) [FLAС|Lossless|tracks] <Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1997 - Flying Free
-1997 - The Journey
-1999 - Through These Eyes(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 07:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C0664D4DAF34DBFC370F39275A81AC9FABF7FCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513757   (888049) от 01.04.2020
-
-VA - Музыка гармонии сна (2008) [FLAC|Lossless|image + .cue] <Relax, New age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прохлада и чайки (1:57)
-02. Прилив (5:28)
-03. Музыка океана (9:03)
-04. Южный закат (1:41)(   Читать дальше...   )Жанр: Relax, New ageПродолжительность: 01:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA9956FA93FC0AEAF0AE3B965974A5648A7A9FA7
 ```
 
 

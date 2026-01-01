@@ -1,3 +1,30 @@
+###  Публикация: 1131122   (710402) от 04.05.2017
+
+VA - Italo & Space Disco Vol.4 (2017) [MP3|320 Kbps] <Italo-Disco, Synthpop, Syntwave>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Neon Talk - Overachiever  2:51
+02.  Mr. Maen - Timmy Goes To Space  3:33
+03.  Alex Amster - December (Nastech Dub)  5:10
+04.  Quasars - Queens Of Aerobics  5:54(   Читать дальше...   )Жанр: Italo-Disco, Synthpop, SyntwaveПродолжительность: 07:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC80118370496C62511BADD42133AE39902A76D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131153   (710661) от 04.05.2017
 
 Mark Ashley - Mp3 Play (2017) [MP3|320 Kbps] <EuroDisco, Synthpop>
@@ -668,33 +695,6 @@ VA - Real Retro House Party (2016) [MP3|320 кб/с] <Jumpstyle, Techno, Hard Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC7DC0C0CD5A4C5025EAB588AFB0627B3DF9A4B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025040   (712217) от 11.06.2016
-
-VA - FLASHBACK! MIXED BY FERRYS (2014) [MP3|320 кб/с] <Electronic, House, Euro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vanilla Ice, Thomas Gold – Ice Baby
-02. Britney Spears – I Wanna Go
-03. Snoop Dogg, David Guetta – Sweat
-04. Scooter – How Much Is The Fish(   Читать дальше...   )Жанр: Electronic, House, Euro HouseПродолжительность: 01:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B82ACF6F62C6E809C922D434F2D813CD1616237B
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1366414   (923272) от 11.03.2020
+
+VA - B машину ремиксы Vol. 2 (2020) [MP3|320 Kbps] <House, Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goody - Panamera (Rakurs & Ramirez Remix)
+02. Robert Miles Vs. & Wham - Last Christmas Children (Djs & Mars Fm Remix)
+03. Иракли - Все Будет Оk (DJ. Noiz & DJ Rocket Radio Remix)
+04. Onika - Ищу Любовь (Demeter Remix)(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 03:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31636343753B9937871DB794B5CFA96C587C32F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 288041   (923699) от 28.01.2011
 
 VA - Ураган хитов (2011) [MP3|128 kbps]<Pop>
@@ -663,33 +690,6 @@ VA - Автозвук. Отборный зимний хит (2017) [MP3|256 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B44016543692EC354035C77E74B309420AEDC2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093978   (932434) от 16.01.2017
-
-VA - 100 пудовые зимние хиты на Europa Plus. Выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932434.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bruno Mars - Chunky 3:07
-002. Stas Prime Feat. Mary Pen - Подари Мне Любовь 3:25
-003. Rae Sremmurd - Black Beatles 4:52
-004. Александр Прокофьев - Над Морем 3:48(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:411BC1834EAA644F1894156846DC26DB05F1470D
 ```
 
 

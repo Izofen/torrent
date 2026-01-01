@@ -1,3 +1,30 @@
+###  Публикация: 1012636   (793561) от 01.05.2016
+
+VA - Record Super Chart № 434 (30.04.2016) (2016) [MP3|320 кб/с] <House, Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KSHMR feat. Sidnie Tipton -  Wild Card (Original Mix)  3:18
+02. Crystal Lake & Headhunterz -  Say Goodbye (Headhunterz Edit)  4:02
+03. DJ KUBA & NE!TAN -  Party On!  3:35
+04. Twenty One Pilots -  Stressed Out (Dave Winnel Remix)  4:24(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 02:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C472B6377A84AEC8ED77C0854A60115A3CF41D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386687   (793564) от 30.05.2020
 
 VA - The Official UK Top 40 Singles Chart 29.05.2020 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Сегодня на радио хиты FM Vol.2 (2019) [MP3|320 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F47B791292BA1E8D1FC21714FC6D1E408CBA2B24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509611   (794077) от 13.11.2021
-
-VA - Beatport Drum And Bass: Sound Pack #365 (2021) [MP3|320 Kbps] <D&B, Bassline, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794077.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aries, Kelvin - Dancehall
-002. Jon The Dentist - Seahorses Forever
-003. Jaguar Paw - Nastya
-004. Neman - Mistakes(   Читать дальше...   )Жанр: D&B, Bassline, ElectroПродолжительность: 08:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5952D47D8F3AF253093BAF892B3E3613F4C568E
 ```
 
 

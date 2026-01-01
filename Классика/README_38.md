@@ -1,3 +1,57 @@
+###  Публикация: 1196603   (820518) от 04.01.2018
+
+New London Chorale - The Classic Christmas Collection (1998) [MP3|320 Kbps] <Сrossover Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For unto us
+02. Stille Nacht
+03. Winter wonderland
+04. Oh Tannenbaum(   Читать дальше...   )Жанр: Сrossover Classical, TraditionalПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE8BB8DBE8E017327D03BDE6F8E065ECE4B6D7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196646   (820522) от 04.01.2018
+
+New London Chorale - Young Christmas (2001) [MP3|320 Kbps] <Crossover Classical, Traditional>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820522.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	See Amid The Winter’s Snow
+2	O Little Town Of Bethlehem
+3	In The Bleak Mid Winter
+4	The Holly And The Ivy(   Читать дальше...   )Жанр: Crossover Classical, TraditionalПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF8476FAB6F2B5FA8F7BA8331B30B641BB01867
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196695   (820525) от 04.01.2018
 
 David Lanz - French Impressions (2017) [FLAC|Lossless|WEB-DL|tracks] <Piano, Classical, New Age>
@@ -653,60 +707,6 @@ VA - Beautiful Piano (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70CF81984E73841686D6C935483FE86926F58640
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004997   (834160) от 08.04.2016
-
-Narciso Yepes, Melos Quartett - Luigi Boccherini: 3 Gitarren-Quintette (1971) 1990, Deutsche Grammophon [FLAC|Lossless|tracks] <Classical>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quintet No.4 for Guitar and Strings in D G.448 - "Fandango"
-01. Allegro Maestoso   04:53
-02. Pastorale   05:18
-03. Grave assai - Fandango    07:13Жанр: ClassicalПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F1D587A2B1A00CCFD300BEDAA300302A6079D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005029   (834361) от 08.04.2016
-
-Bruce Brubaker - Glass Piano (2016) Extended Version [FLAC|Lossless|WEB-DL|tracks] <Classical, Minimalism, Electronic>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mad Rush (16:58)
-02. Metamorphosis 1 (6:27)
-03. Metamorphosis 2 (7:09)
-04. Metamorphosis 4 (6:09)(   Читать дальше...   )Жанр: Classical, Minimalism, ElectronicПродолжительность: 01:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:726DA86CE3A9FDFAF95854BEE115F31BA5C80DCF
 ```
 
 

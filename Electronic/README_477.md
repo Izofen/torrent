@@ -1,3 +1,135 @@
+###  Публикация: 153255   (934345) от 04.03.2020
+
+The Crystal Method - Divided By Night (2009) [FLAC|lossless]<Breakbeat/Electronic>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Divided By Night (5:01)
+02. Dirty Thirty (feat Peter Hook) (5:24)
+03. Drown In The Now (feat Matisyahu) (5:47)
+04. Kling To The Wreckage (feat Justin Warfield) (4:04)(   Читать дальше...   )Жанр: Breakbeat, ElectronicПродолжительность: 01:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60AD1E7FB336D7AAB333E217BCD5287E2E06B58F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984368   (935493) от 11.02.2016
+
+Ultravox - The Voice:The Best Of Ultravox (1997) [FLAC|Lossless|image + .cue] <New Vawe,  Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935493.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Vienna	4:39
+2	Sleepwalk	3:12
+3	The Voice	4:24
+4	We Came To Dance	4:06(   Читать дальше...   )Жанр: New Vawe,  Synth-popПродолжительность: 01:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF2E0AD9515F007C7735DFD438C75F62F86A4E65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984738   (935557) от 11.02.2016
+
+VA - Suanda Music Radio Top 10 January 2016 (Mixed by Roman Messer) (2016) [MP3|320 кб/с] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer feat Natalie Gioia - Religion (Original Mix)
+02. Jan Johnston - Skysearch (Aimoon Dub Mix)
+03. Sarah Russell - Take Me Back (Original Mix)
+04. Aurosonic feat Nicol Cache - Tell Me Why (Mhammed El Alami Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:476FE18CC46487416377A0A0110F51D72B656943
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364591   (936265) от 03.03.2020
+
+Sibewest - Cyberlove (2020) IMMINENT [FLAC|Lossless|WEB-DL|tracks] <Future Garage, Synthwave, House>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_936265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyberlove (04:37)Жанр: Future Garage, Synthwave, HouseПродолжительность: 00:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ECA458B48DD330B779F6C29AA3E50B1A6BBD180
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364578   (936387) от 03.03.2020
+
+Killstarr - Worlds Apart (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave, Dreamwave, 80s>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_936387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Worlds Apart (4:40)
+ 02. Wonderland (4:03)
+ 03. In Motion (3:16)
+ 04. The Traveller (4:37)(   Читать дальше...   )Жанр: Electronic, Synthwave, Retrowave, Dreamwave, 80sПродолжительность: 00:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5FDF3B1031630C15A3904A076907FB5BF540F54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364530   (936389) от 03.03.2020
 
 Vladislav Delay - Rakka (2020) Cosmo Rhythmatic [FLAC|Lossless|WEB-DL|tracks] <Experimental, Noise, Ambient>
@@ -557,147 +689,6 @@ Trentemoller - The Last Resort (2006) Limited Edition [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B590D51BAC8A54148E04674792FEEDAC484D70AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092191   (938873) от 12.01.2017
-
-VA - Oasis Of Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Gorda Project - Surfing Emotional Waves  5:46
-02.  Enrico Donner - Golfinhos  5:58
-03.  Cane Garden Quartet - Chillaxin'  5:13
-04.  Baghira - Streams of Love  5:53(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:919C443D3F361B2E854D45CFC091BEF44DD0D9B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092743   (938949) от 12.01.2017
-
-VA - Perfect Electronica Downtempo (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Zellarai - Fear (Original Mix)  4:55
-02.  Zellarai - Fear (Grachikomar Remix)  4:00
-03.  Zellarai - Fear (Ethan Nichols Remix)  3:27
-04.  The Mord - The Beauty of His Native Land (Original Mix)  3:12(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:20:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2693ACE97F3E4A4CC3C9C814C825F7D3A059943
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 175505   (939275) от 15.02.2010
-
-VA - House Vip (09.02.10) [MP3|128 - 320 kbps]<Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Spencer - Let's Rock (Scotty Remix) (5:24)
-02. David Guetta feat Kid Cudi - Memories (Armand Van Helden Vocal Remix) (5:29)
-03. Dirty Disco Youth - Minds...Off (4:52)
-04. Dj Cargo Pres. Kei Morton - Get Back (Easy Tech Extended Remix) (5:04)
-05. DJ Ivan Flash - Spin Around (Original Mix) (4:38)
-06. Flo Rida - Sugar(Electrical Brothers Radio Edit 2010) (5:17)
-07. Franco Maldini - This Is A Journey (STFU Remix) (6:10)
-08. Martin Solveig feat. Dragonette - Boys & Girls (Alex Astero & Evan Sax Club Mix) (6:01)
-09. MasterBlaster - Come Clean (Electrical Brothers Remix) (6:50)
-10. Ne!tan - 2night (Scott And Dave Remix) (3:39)(   Читать дальше...)Жанр: Electro House
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364022   (939302) от 01.03.2020
-
-Pet Shop Boys - Discography: The Complete Singles Collection (1991) [FLAC|Lossless|tracks + .cue] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_939302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. West end girls
-02. Love comes quickly
-03. Opportunities (let's make lots of money)
-04. Suburbia(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF3D060B9B54AF8363650CEEDE52873EE53293F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364155   (939348) от 01.03.2020
-
-Maya Jane Coles - Take Flight (2017) 2CD [FLAC|Lossless|tracks + .cue] <Electronic, Deep House, Trip-Hop, Downbeat>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weak (4:35)
-02. Bo & Wing (4:48)
-03. Old Jam (4:49)
-04. Take Flight (4:15)(   Читать дальше...   )Жанр: Electronic, Deep House, Trip-Hop, DownbeatПродолжительность: 01:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74AC1EB9762F1BDFEC1E6A08A72BBA57411E2507
 ```
 
 

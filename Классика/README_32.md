@@ -1,3 +1,57 @@
+###  Публикация: 1223769   (671516) от 06.05.2018
+
+VA - Angelica (1997) Compilation [FLAC|Lossless|image + .cue] <Rock, Crossover Classical, Vocal>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671516.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. O Mio Babbino Caro
+2. Jesu, Joy Of Man's Desiring
+3. Un Bel Di
+4. Der Holle Rache (Queen Of The Night)(   Читать дальше...   )Жанр: Rock, Crossover Classical, VocalПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B27C176A1C2C442C7A47A348E28ED8A385839E6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223417   (671523) от 06.05.2018
+
+New London Chorale - Young Christmas (2001) Reissue [FLAC|Lossless|image + .cue] <Crossover Classical, Traditional>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	See Amid The Winter’s Snow
+02	O Little Town Of Bethlehem
+03	In The Bleak Mid Winter
+04	The Holly And The Ivy(   Читать дальше...   )Жанр: Crossover Classical, TraditionalПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FE1A0D8E305A7E7C7C04B8372231FE3FD43B6BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 899309   (673100) от 19.05.2015
 
 Grieg - Peer Gynt(Sir Neville Marriner & Academy of St. Martin In The Fields Orchester) (1983) [FLAC|Lossless]<Classical, Romantic Period, Song, Dance, Prelude, Incidental, Lullaby>
@@ -649,60 +703,6 @@ Piano Quartet in G major, Op. 202, No. 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D95F7530825EA162A7C6A6648331332CC2ADB4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288452   (695548) от 11.03.2019
-
-Ilyin - Lie (2019) [MP3|320 Kbps] <Neo-Classical, Baroque>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ilyin - RF Constitution. Art. 21. Dignity
-02. Ilyin - RF Constitution. Art. 23. Personal immunity
-03. Ilyin - RF Constitution. Art. 45. The defence of rights
-04. Ilyin - RF Constitution. Art. 25. The house is untouchable(   Читать дальше...   )Жанр: Neo-Classical, BaroqueПродолжительность: 00:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8456A10349F0C5959AAF0EA5642B3E56BE5BF025
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027289   (696197) от 19.06.2016
-
-Aaron Rosand - Brahms: 3 Violin Sonatas; 21 Hungarian Dances; Joachim: Romance in B Flat (1991, 1993) 2007, Musical Concepts [FLAC|Lossless|tracks] <Classical, Chamber Mu
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696197.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-Sonata for violin & piano No. 1 in G major ("Regen"), Op. 78 
-1. Vivace ma non troppo 	Aaron Rosand 	 10:08
-2. Adagio 	Aaron Rosand 	 7:59(   Читать дальше...   )Жанр: Classical, Chamber MusicПродолжительность: 02:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:391F6DDCF7D58373D8C7659D58E36673C00AE999
 ```
 
 

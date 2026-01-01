@@ -1,3 +1,57 @@
+###  Публикация: 1442026   (1037242) от 23.01.2021
+
+Henk van Daam - Millionen Kusse (2014) [FLAC|Lossless|image + .cue] <Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037242.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wann
+2. Millionen Küsse
+3. Ich steh dir zur Seite
+4. Wann bist du bei mir(   Читать дальше...   )Жанр: SchlagerПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E6817D8C673AC1D6C381368E07750AA51BF33F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441334   (1037762) от 21.01.2021
+
+Selena Gomez - Rare (Box Set, Limited Edition, Special Edition ) - [Japan] (2020) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rare (03:4)
+02. Dance Again (02:50)
+03. Look At Her Now (02:42)
+04. Lose You To Love Me (03:26)(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DDA8956DECB543A510D5181F6703749F89D85C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441506   (1037791) от 21.01.2021
 
 Rhye - Home (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie-Pop, RnB, Downtempo>
@@ -642,60 +696,6 @@ https://deezer.com/album/400976817
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC3BC4EA7E5BC0D7F07FF8FE6D461C1AB553ED01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437106   (1042535) от 03.01.2021
-
-VA - From Sweden With Love - The Next Generation (2006) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Knife / Silent Shout 04:53
-02. Peter Bjorn and John / Young Folks 04:39
-03. Vapnet / Färjemansleden 03:35
-04. Timo Räisänen / Let's Kill Ourselves a Son 03:15(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE62E4DC44BAACFF6CBCE60A359D3901C3841F57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437002   (1042555) от 03.01.2021
-
-Karizma Duo - Late Night Karizma (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sail On (4:03)
-02. Dream a Little Dream of Me (3:14)
-03. Feel (3:15)
-04. Mandy (2:50)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A9C20263B498DDA335B04A93872C9D5C8FDFB60
 ```
 
 

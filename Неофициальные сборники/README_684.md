@@ -1,3 +1,30 @@
+###  Публикация: 1438492   (1040885) от 09.01.2021
+
+VA - Music News vol.62 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040885.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Raikhana Mukhlis - Дышу (03:07)
+ 002. Above & Beyond feat. Richard Bedford - Thing Called Love (Oliver Heldens Remix) (05:38)
+ 003. Alle Farben & Fools Garden - Lemon Tree (03:16)
+ 004. Alok & Daniel Blume - Rapture (02:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540B91E41612DA56F023F5A09E8E64C6983A60D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438260   (1041059) от 08.01.2021
 
 VA - Radio Discomania (2021) [MP3|320 Kbps] <Pop, Italo-Disco, Euro-Disco, Synthdance>
@@ -668,33 +695,6 @@ VA - December EDM Charts (2020) [MP3|320 Kbps] <Tech House, Deep House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:307D0B02304DB1C0F9866B6145AE741011CF5D0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437298   (1042292) от 04.01.2021
-
-VA - Beat Glam House (2021) [MP3|320 Kbps] <Club House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всем отличного настроения! Очередная пятница на исходе, приближаются выходные. Кто-то мечтает сходить в модный клуб и хорошенько "встряхнуться", а кто-то за отдых на природе с романтикой, шашлычками и прочими радостями. Не важно, как ты проводишь время, главное с пользой для себя, а ещё под отличную танцевальную музыку. И раз ты здесь, раз ты смотришь эту (   Читать дальше...   )001. Sassydee - Say So (Original Mix)
-002. Paul Weekend - Carnatic
-003. Lita Brown - 2Am
-004. Max Clarke - Come Around(   Читать дальше...   )Жанр: Club House, ElectroПродолжительность: 08:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F9D0C1E6C6AB7F950999B1A6D6DB64AC53703C5
 ```
 
 

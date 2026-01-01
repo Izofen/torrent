@@ -1,3 +1,164 @@
+###  Публикация: 864075   (921623) от 28.01.2015
+
+VA - Лучшие новинки радиоэфира vol.1 (2014) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Так мало выходит сегодня приличных сборников российской попсы.Тем неожиданней эта компиляция, выпущенная "Квадро Диск Украина".
+За простеньким (даже несколько не затейливым оформлением) Вы услышите действительно треки и которые не сходят с эфиров, и которые промелькнули почти не замеченными, и те которые может быть кто-то пропустил.
+Особенно хороши два (   Читать дальше...   )01. Григорий Лепс и Ани Лорак - Зеркала  (3:49)
+02. Виа Гра  - Перемирие  (3:44)
+03. Пицца - Оружие  (3:29)
+04. Светлана Тарабарова - Мы верим в любовь  (3:03)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FC811BFFE90758C653B397E3DA8AF536571B954
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288505   (921857) от 29.01.2011
+
+Горячие головы - Дискография (2000-2006) [MP3|320 kbps]<Pop,Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop,DanceПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C73913C6207325A59FBED0B98A03FF491B980D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366507   (922240) от 12.03.2020
+
+Mandy Moore - Silver Landings (2020) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I’d Rather Lose (03:45)
+02. Save A Little For Yourself (03:39)
+03. Fifteen (04:09)
+04. Tryin' My Best, Los Angeles (04:01)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C23D45153915BAE068BE31299C058764BC4BA882
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987723   (922334) от 19.02.2016
+
+VA - Max Mix 30 Aniversario Vol 1, 2 - La Leyenda Del Primer Megamix Espanol (2015) [MP3|320 кб/с] <Disco, Italo-Disco, Italo House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Va - Max Mix 30 Aniversario Vol 1 Megamix (By Mike Platinas) B.P.M. 118-122 (12:30)
+02. Va - Max Mix 30 Aniversario Vol 1 Mix (By Mike Platinas) B.P.M. 124 (13:12)
+03. Va - Max Mix 30 Aniversario Vol 1 Jingles & Effects (03:02)
+04. Italian Boys - Forever Lovers (Extended Vocal Version) (06:10)(   Читать дальше...   )Жанр: Disco, Italo-Disco, Italo HouseПродолжительность: 07:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EDA26359A721F84A052521746968CDC59C0613E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366738   (922359) от 12.03.2020
+
+Yumi Zouma - Truth or Consequences (2020) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonely After (03:40)
+02. Right Track / Wrong Man (02:56)
+03. Southwark (03:22)
+04. Sage (03:01)(   Читать дальше...   )Жанр: Dream Pop, Indie, ElectronicПродолжительность: 00:33:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA0C0A8C4F6943C76AF89FA2936ED791AB8CE7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095945   (922377) от 22.01.2017
+
+VA - 2017 Grammy Nominees (2017) [FLAC|Lossless|tracks + .cue] <Pop, Dance, Club>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922377.jpg" />
+</div>
+
+
+###  Подробнее
+
+59-я ежегодная церемония вручения Grammy Awards пройдет 12 февраля 2017 года. Телесеть CBS будет транслировать шоу в прямом эфире из Staples Center в Лос-Анджелесе. На церемонии будут определены лучшие записи композиций и альбомов года в различных номинациях (записанных или воспроизведенных с 1 октября 2015 года по 30 сентября 2016 г.). Номинанты были объявлены 6 (   Читать дальше...   )01. Beyonce - Don't Hurt Yourself (Feat. Jack White)  (3:54)
+02. Twenty One Pilots - Stressed Out  (3:11)
+03. Sia - Cheap Thrills (Feat. Sean Paul)  (3:42)
+04. Drake - Hotline Bling  (3:48)(   Читать дальше...   )Жанр: Pop, Dance, Club, Rock, R&B, Trance, House, OtherПродолжительность: 01:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C46E910EB4429E5CAA1656A6AC7F3CD4BBBC3F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366748   (922436) от 12.03.2020
 
 Yumi Zouma ‎ - Yoncalla (2016) Japanese Edition [FLAC|Lossless|tracks + .cue] <Dream Pop, Indie, Electronic>
@@ -535,165 +696,6 @@ EMIN - LOVE IS (2021) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:174BB26462EA0034E74543F267FDAEAF1422CF54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987260   (927453) от 16.02.2016
-
-Валерий Ободзинский - Всё сбудется. Избранное (2003) [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эти глаза напротив (3:33)
-02. Девушка (3:45)
-03. Настоящая любовь (3:01)
-04. Встреча (3:09)(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BED94E266801A5D5EC53BE23BC445B27FACBC19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987347   (927545) от 16.02.2016
-
-Иванушки International - Конечно Он (1996) [FLAC|Lossless|image + .cue] <Pop, Europop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Тучи 04:11
-02. 	Этажи 04:01
-03. 	Вселенная 03:42
-04. 	Малина 04:09(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E261D4240B135A66977031AFF5CC69736B2231E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095030   (927560) от 19.01.2017
-
-Руки Вверх! - Забери ключи (2017) Single [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Забери ключиЖанр: PopПродолжительность: 00:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FEDE1A14B22EAAAE90EBFAD73869FF8946D613E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987155   (927805) от 16.02.2016
-
-Animal Collective - Painting With (2016) [MP3|320 кб/с] <Psychedelic pop, Indie Rock, Experimental>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FloriDada (04:06)
-02. Hocus Pocus (03:17)
-03. Vertical (04:15)
-04. Lying in the Grass (03:35)(   Читать дальше...   )Жанр: Psychedelic pop, Indie Rock, ExperimentalПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7B224475E34C1232CB23C6C915C832497F1535
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 755412   (927918) от 10.02.2014
-
-Bad Boys Blue - Bad Boys Best (2007) [FLAC|Lossless|image + .cue]<Synth-pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  You're A Woman   (3:55)
-02.  Back To The Future   (3:45)
-03.  L.O.V.E. In My Car   (3:32)
-04.  Jungle In My Heart   (3:41)(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 01:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED72348D9F811BFDECB80559DC09CCE2A9534C7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986871   (928788) от 15.02.2016
-
-VA - KuschelRock: Lovesongs Of The 90's (2016) Special Edition [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sinéad O'Connor - Nothing Compares 2 U (1990) - 5:09
-02. Oasis - Wonderwall (1995) - 4:13
-03. Faith No More - Easy (1992) - 3:06
-04. Extreme - More Than Words (Single Version) (1991) - 4:00(   Читать дальше...   )Жанр: Top 40, Ballad, Pop, Soul, Rock, Alternative Rock, Pop Rock, Soft Rock, R&B, Reggae Pop, Stage & Screen, VocalПродолжительность: 02:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:332159396F66FCD27B14BDADCC1634994B8AA624
 ```
 
 

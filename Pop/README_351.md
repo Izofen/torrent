@@ -1,3 +1,165 @@
+###  Публикация: 1461313   (1021953) от 09.04.2021
+
+Mirko Hirsch - Love Is Blind: Songs from the Motion Picture Pretty Boy (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Italo-Disco, AOR>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is Blind (Long Version) (3:57)
+02. Return to Neon (Alternate Ending) (4:37)
+03. King Without a Crown (6:12)
+04. When Love Said No (4:23)(   Читать дальше...   )Жанр: Synthpop, Italo-Disco, AORПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D759C20B024CAF44225E1F13C4F714FDE1B65737
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461359   (1021956) от 09.04.2021
+
+Hott City - Ain't Love Grand (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feelin' Love (6:45)
+02. If All We're Gonna Do Is Dance (8:34)
+03. Ain't Love Grand (5:05)
+04. I Took His Money (7:03)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:33:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4315B5689CB07EB80A2AD0226B36F9B32F82005F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461202   (1021998) от 08.04.2021
+
+VA - ZYX Italo Disco Spacesynth Collection 6 (2020) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laserdance - It's Over (5:03)
+02. Bellatrix - Vector (5:37)
+03. Blue Star Project - Happy Dance (ZYX Version) (5:24)
+04. DJ Con-T - Space Adventure (Vanello Remix) (5:44)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, SynthpopПродолжительность: 02:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4E693E5C58995665F377DF650957DD7D6EEA04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461176   (1022000) от 08.04.2021
+
+Dick St. Nicklaus - Magic (1979) LP [MP3|320 Kbps] <Disco, Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic (3:39)
+02. Help Yourself (3:19)
+03. What's The Reason (4:51)
+04. Can't Give Up (2:54)(   Читать дальше...   )Жанр: Disco, Pop, Soft RockПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1196500EA58BF0EC47E970BCB387E7351BCE5315
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461242   (1022075) от 08.04.2021
+
+VA - Beats Of The Night - Studio 54 Vol. 2 (1980) 2LP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mitsou - Rock 'N' Roll Is Back Again (4:16)
+02. Heather Parisi - Disco Bambina (5:14)
+03. La Flavour - Mandolay (5:29)
+04. Rinder & Lewis - Willie And The Hand Jive (4:28)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAB20323CDC632B3B4E04C72199346CA0BD6F832
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460968   (1022276) от 07.04.2021
+
+The Wonderland Band - Wonder Woman (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thrill Me (With Your Super Love) (7:57)
+02. Superman Theme (6:19)
+03. Wonderland Love Theme (7:04)
+04. Paradise Island (7:13)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D09C71982797E07274E6BA4B2E42E3FF9BE9FD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460779   (1022451) от 06.04.2021
 
 Bob McGilpin - 3 Albums (1978-1980) LP [MP3|320 Kbps] <Electronic, Disco, Pop, Funk Soul>
@@ -532,168 +694,6 @@ VA - 50s 60s and 70s Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E13035781BE95A2C5CE395FD4FAE0EC441CA14F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458324   (1024068) от 28.03.2021
-
-Eva Eva Eva - Eva Eva Eva (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Me Please Forever (3:34)
-02. Vedrai (2:51)
-03. Do (3:09)
-04. Argentina (3:54)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B6E187348FE2973D818634CE7C5617BDE9DA0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457972   (1024099) от 27.03.2021
-
-*NSYNC ('N Sync) - No Strings Attached (2000) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bye Bye Bye (3:21)
-02. It's Gonna Be Me (3:13)
-03. Space Cowboy (4:24)
-04. Just Got Paid (4:11)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95AA68FFFA42D147DECEAE72C2C6829B1BFA116D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458012   (1024176) от 27.03.2021
-
-Inga & Anete Humpe - Swimming With Sharks (серия "Другие восьмидесятые") (1987) [MP3|320 Kbps] <German Pop, Synthpop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Careless Love
-02. Idiot
-03. No Longer Friends
-04. Conspiracy(   Читать дальше...   )Жанр: German Pop, Synthpop, New WaveПродолжительность: 00:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E1E9AD9CF6BDEE8FFE7898EEB5DDFD67711DDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457280   (1024377) от 26.03.2021
-
-Thomas Anders - Cosmic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Rider
-02. Undercover Lover
-03. Ready For Romance
-04. Je Ne Sais Pas(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED3C1A28ED189B8686EE91ACADB679E9727975E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457466   (1024379) от 26.03.2021
-
-Vanessa Mai - Mai Tai (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sommerwind (2:35)
-02. Leichter (2:53)
-03. Morgenlicht (2:56)
-04. Vanessa Mai, Fourty - Mitternacht (3:03)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60BA633E833F7581D5D40637C3640B56D0BDD8E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457192   (1024523) от 25.03.2021
-
-Taylor Swift - Evermore (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Willow
-02. Champagne Problems
-03. Gold Rush
-04. ‘Tis The Damn Deason(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 01:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6176C4CC790C6708155817622524EED983DA8906
 ```
 
 

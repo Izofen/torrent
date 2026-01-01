@@ -1,3 +1,30 @@
+###  Публикация: 1205862   (783172) от 11.02.2018
+
+Друга Ріка - Піраміда (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Секрет (04:41)
+02. Доки я не пішов (03:34)
+03. Ти є я (03:48)
+04. Оооо / Брудний і милий (05:12)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C95B10D9CFA7EA0B9D447C1A7F4FF3748C841443
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390314   (783421) от 14.06.2020
 
 Built to Spill - Built to Spill Plays The Songs of Daniel Johnston (2020) [MP3|320 Kbps] <Indie Rock>
@@ -668,33 +695,6 @@ The Tibbs - Tribute to Pink Floyd (12 Classic Hits) (2014) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA7676FF6A90889A571BEBFC230D8A923FCB41FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388658   (786568) от 07.06.2020
-
-VA - Rockin' the 90's (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786568.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Skid Row - Monkey Business
-2. Thunder - Dirty Love
-3. Nickelback - Leader of Men
-4. Honeymoon Suite - Say You Don't Know Me(   Читать дальше...   )Жанр: RockПродолжительность: 02:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6971276CDA0CCD730A5670E794851D5D71F5AAB
 ```
 
 

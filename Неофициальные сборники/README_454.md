@@ -1,3 +1,30 @@
+###  Публикация: 1129907   (718612) от 30.04.2017
+
+VA - Record Super Chart #484 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Matt Nash - Know My Love  4:23
+02.  KSHMR & Crossnaders feat. Micky Blue - Back To Me  2:59
+03.  Грибы - Тает Лёд (Kolya Funk & Lavrushkin Remix)  4:00
+04.  Martin Garrix feat. Brooks - Byte  4:45(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB12A2F2282132D8A8935123915B982950C700E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129829   (718632) от 30.04.2017
 
 VA - German Top 100 Single Charts 01.05.2017  [MP3|320 Kbps] <Pop>
@@ -672,33 +699,6 @@ VA - Easy Jazz Love Songs (2016) [MP3|320 кб/с] <Jazz, Instrumental, Easy Lis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:746F83D0424993D3DB515E63F7835B49E30F3576
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024201   (720315) от 07.06.2016
-
-VA - Love Therapy: Romantic Piano and Instrumental (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toni Verde - Heroes of Galaxy - Main Theme
-02. LifeBlood - Essence
-03. Toni Verde - Piano Moods
-04. Josh Freeman - A Cup of Tea(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:970BFB6077868C91A98931D42DE89EBCF31BB7B6
 ```
 
 

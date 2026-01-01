@@ -1,3 +1,165 @@
+###  Публикация: 1399178   (734304) от 29.07.2020
+
+Eclipse - Night And Day (1977) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Love (4:16)
+02. Born To Be Wild (3:28)
+03. Sunshine Superman (4:12)
+04. You Really Got Me (8:10)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53D107B50B3906A5401A723A19AC93758A730CA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399109   (734334) от 29.07.2020
+
+Natalie Cole - Unpredictable (1977) LP [MP3|320 Kbps] <Funk Soul, Rhythm & Blues, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Heart (4:09)
+02. Still In Love (3:46)
+03. Party Lights (4:09)
+04. I've Got Love On My Mind (4:20)(   Читать дальше...   )Жанр: Funk Soul, Rhythm & Blues, DiscoПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF59964FF362852A943C1A6908A69979A41AF367
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528491   (734454) от 02.02.2022
+
+VA - Valentine's Day 2022 [MP3|320 Kbps] <Pop, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Counting Crows - Accidentally In Love (From "Shrek 2" Soundtrack)
+02. Imagine Dragons - Not Today
+03. Frank Sinatra, Count Basie and his Orchestra - Fly Me To The Moon (2008 Remastered)
+04. K-Ci & JoJo - All My Life (Radio Edit)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 02:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AD8DE6B3EA62DC2AD94E71509236004C36C24EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 788202   (734659) от 21.05.2014
+
+VA - Pure... 70s (2013) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Soft Rock, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотя поп музыку 70-х не заслуженно называют "ширпотребом",  бокссет от Sony Music с четырьмя дисками показывает, что это десятилетие принесло ничто иное, как огромное разнообразие хитов. Хотелось бы обратить ваше внимание на таких исполнителей как O'Jays с его "Love Train," Bill Withers с замечательной "Lean on Me," Billy Paul с "Me (   Читать дальше...   )01. Jacksons - Show You The Way To Go  (5:29)
+02. Andrea True Connection - More More More  (3:08)
+03. Baccara - Yes Sir I Can Boogie  (4:32)
+04. Gladys Knight & The Pips - Baby Don't Change Your Mind  (3:07)(   Читать дальше...   )Жанр: Pop, Rock, Soft Rock, Pop-RocПродолжительность: 04:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E149DA7D06DCC3DA8562569A0B276DE0B2633553
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398896   (734692) от 28.07.2020
+
+VA - NOW That's What I Call Music! 106 (2020) 2 CD, UK Series [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734692.jpg" />
+</div>
+
+
+###  Подробнее
+
+И так, 24 июля 2020 года вышел летний сборник новинок из топов Великобритании и Ирландии. Не путайте с такой же серией из USA. Здесь действительно собрали всех тех исполнителей, которые занимали верхние строчки таблицы популярности на протяжении последних нескольких месяцев. Несколько видео к этому сборнику сможете посмотреть внизу. А теперь наслаждайтесь хорошей (   Читать дальше...   )CD1:
+01. Jawsh 685 x Jason Derulo - Savage Love (Laxed - Siren Beat)  (2:51)
+02. Harry Styles - Watermelon Sugar  (2:54)
+03. Dua Lipa - Break My Heart  (3:42)(   Читать дальше...   )Релиз состоялся: 24 июля 2020 годаЖанр: Pop, Rock, DanceПродолжительность: 02:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E66D0A4FE6D640F088A4499336296F41DB44F2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398957   (734765) от 28.07.2020
+
+The Galactic Force Band - Spaced Out Disco (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Conversation (Theme From Close Encounters Of The Third Kind (3:45)
+02. Theme From 2001 (4:58)
+03. Cantina Band (From Star Wars) (4:07)
+04. Space Dust (2:20)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:26:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98E33EB9218E746EBB015B0574D14246E67EB930
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528326   (734957) от 01.02.2022
 
 VA - The Top 100 Most Played: Dance (2022) [MP3|320 Kbps] <Pop, Dance>
@@ -530,169 +692,6 @@ VA - Love Songs 2020 (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86EC0858860BD2A494E84C91E56939D84F21B80C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 787181   (736673) от 17.05.2014
-
-VA - Pure... 60s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Soft Rock, Pop-Roc>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постепенно пополняется наша коллекция Pure... от Sony.
-Подоспели и 60-е годы. Этот щедрый набор с четырьмя дисками вобрал в себя почти 70 оригинальных записей хитов 60-х, включая песни Боба Дилана, Byrds, Элвиса Пресли и Джонни Кэша. Хотя, на мой взгляд, коллекция достаточно эклектичная, тем не менее, охватывая огромный пласт песен 60-х, она, бесспорно, даст представление (   Читать дальше...   )01. Bob Dylan - I Want You  (3:07)
-02. Van Morrison - Brown Eyed Girl  (3:03)
-03. Roy Orbison - Oh Pretty Woman  (2:58)
-04. Elvis Presley - Suspicious Minds  (4:34)(   Читать дальше...   )Жанр: Pop, Rock, Soft Rock, Pop-RocПродолжительность: 03:30:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D67AEC948C2DC63165A041FD5F3D995F3E054CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397898   (736685) от 24.07.2020
-
-Alekseev (Никита Алексеев) - 2 Альбома (2017 - 2019) [FLAC|Lossless|tracks + .cue]<Рор>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Моя звезда
-02. Так буває
-03. Целуй
-04. Как ты там(   Читать дальше...   )Жанр: РорПродолжительность: 01:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85ABAF18A145648F034AF33BD609E10E5E4D05A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398180   (736687) от 24.07.2020
-
-Ann-Margret - Ann-Margret (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Message (6:54)
-02. What I Do To Men (6:03)
-03. Love Rush (6:08)
-04. Never Gonna Let You Go (5:03)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77360804CFB641A42BE896F08029C48F4655421
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398015   (737058) от 23.07.2020
-
-Trini - Transformed By Time (1978) LP [MP3|320 Kbps] <Funk, Soul, Vocal, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Helplessly (5:58)
-02. Trini's Medley (Candida, Yellow Bird, Save The Last Dance For Me) (8:36)
-03. If I Had A Hammer (3:28)
-04. Lemon Tree (4:20)(   Читать дальше...   )Жанр: Funk, Soul, Vocal, DiscoПродолжительность: 00:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25080FCBCE007613312D0300486B169070F824EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397980   (737097) от 23.07.2020
-
-Sigma Fay - Love's Fool (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cha Cha (4:00)
-02. Leave Me (3:22)
-03. Tonight (4:19)
-04. Pirate (4:10)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D7E5D31165ECFB0866136983099278D9C216F67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397721   (737506) от 22.07.2020
-
-VA - GANGSTER MUSIC, Vol. 2 (2020) [MP3|320 Kbps] <Eurodance, Technopop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737506.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mari Ferrari/M.Z.I/S-Elm/Vianne - Drop Dead
-2. Hafex/Qodës - Harder
-3. KDDK - ASTRA
-4. Rasster/Honso - Phantom(   Читать дальше...   )Жанр: Eurodance, TechnopopПродолжительность: 00:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F7A1B942BF9957C47F2C2B31196B86DACB9DD7
 ```
 
 

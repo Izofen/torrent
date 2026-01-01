@@ -1,3 +1,54 @@
+###  Публикация: 1030213   (674567) от 30.06.2016
+
+VA - Ultimate... Christmas (2015) Box Set, 4CD  [FLAC|Lossless|tracks + .cue] <Pop, Jazz, Soul, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Jazz, Soul, DiscoПродолжительность: 04:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:341D6306477011C1F01E054CAFF04EDC9B2A1B6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030414   (674568) от 30.06.2016
+
+VA - Pavarotti & Friends For War Child (1996) [APE|Lossless|image + .cue] <Rock, Pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eric Clapton • Luciano Pavarotti • East London Gospel Choir - Holy Mother
+02. Joan Osborne - Saint Teresa
+03. Elton John - I Guess That's What They Call It The Blues
+04. Liza Minnelli • Luciano Pavarotti - New York, New York(   Читать дальше...   )Жанр: Rock, Pop, ClassicalПродолжительность: 01:15:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5D6052E08ED67CBFED7A2CD8542AD3B58D6642
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136495   (674623) от 22.05.2017
 
 Julio Iglesias - The Very Best Of Julio Iglesias (2007) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -647,60 +698,6 @@ Bonnie Tyler - Between The Earth And The Stars (2019) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CE10FA71B2FD3C64681B025547881515BD2531F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289433   (686626) от 16.03.2019
-
-Rozalén - Cerrando Puntos Suspensivos (2018) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686626.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. 80 Veces (03:13)
-02. Comiendote a Besos (04:00)
-03. Las Hadas Existen (03:42)(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009509C70D6A003193454380CDE7DAA76907FC0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535381   (686703) от 06.03.2022
-
-Marc Anthony - Pa'lla Voy (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin, Salsa>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pa’lla Voy
-02. Yo Le Mentí
-03. No Se Quita
-04. Nada de Nada(   Читать дальше...   )Жанр: Pop, Latin, SalsaПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C88C12B3F66F148F6ED95B141717110D3DCAB7E1
 ```
 
 

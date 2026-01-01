@@ -1,3 +1,138 @@
+###  Публикация: 857795   (890144) от 06.09.2021
+
+Synkro (Joe McBride, S.Y.N.K.R.O) - Discography 58 Releases (2007-2021) [FLAC|Lossless|tracks+.cue, tracks]<UK Garage, Dubstep, Drum & Bass, Future Garage, Bass, IDM, Ambient>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Lever - RGB (03:34)
+ 02. Jack Lever - Process.IOn (04:07)
+ 03. Joe McBride - tx_333 (03:33)
+ 04. Joe McBride - Eostre Acid (04:20)Тип издания: CD, Web, VinylЖанр: UK Garage, Dubstep, Drum & Bass, Future Garage, Bass, IDM, Ambient •Продолжительность: 24:27:28 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07198797D9B7922F70511ED56C24E4EABB9A01CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993522   (890165) от 06.09.2021
+
+Hecq | Ben Lukas Boysen - Discography 39 Releases (2003-2021) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Experimental, Ambient, Modern Classical, Dubstep, Abstract>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Siren Songs (Theme) (02:45)
+ 02. Fractional Felonies (06:16)
+ 03. Solomon's Lair (05:34)
+ 04. Siren Song (Echo) (06:13)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM, Experimental, Ambient, Modern Classical, Dubstep, Abstract •Продолжительность: 33:53:50 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC724C26D2C116C964D86C219E215855D9A61159
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371490   (890173) от 31.03.2020
+
+VA - Still in My Arms (Compiled by Bayu & Moopie) (2020) A Colourful Storm [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Glitch, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gimmik - Scope (03:01)
+ 02. Plod - Aptaxi (03:05)
+ 03. Bauri - Have No Fear (03:55)
+ 04. Num Num - South Quay (03:19)(   Читать дальше...   )Жанр: IDM, Downtempo, Glitch, AmbientПродолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5098059D078C21AB7C6AD5B1F6F3E806855AB5DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371686   (890175) от 31.03.2020
+
+Jjos - One More Night (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathe [03:54]
+02. Back To Me [03:40]
+03. Closer To You [03:41]
+04. One More Night [05:42](   Читать дальше...   )Жанр: Lounge, Chill Out, Easy ListeningПродолжительность: 00:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A96108D48D4639F3CD6462DF525D9D6F8AB9163
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371452   (890179) от 31.03.2020
+
+Orisma - Travel Beyond (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890179.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Orisma; DJ Bim - The Beginning of a Dream (2020 Album Version) (8:38)
+2. Travel Beyond (8:00)
+3. Orisma; Nas Mondro - Black Hole (8:15)
+4. Orisma; Christie Bell - Smile (9:19)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:693749D02D77FA933C4792774B0A0599C1BE0788
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467653   (890676) от 06.09.2021
 
 Serge Geyzel - Discography 13 Releases (2019-2021) Mindcolormusic, Zodiak Commune [FLAC|Lossless|WEB-DL|tracks] <Breaks, IDM, Electro, Acid, Ambient>
@@ -562,141 +697,6 @@ Robert Miles - Dreamland (The Winter Edition) (1996) Unofficial Release [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8800DFE27D9C95D54C5EA097145543BFB73CAE0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371061   (893539) от 29.03.2020
-
-Sasha - Airdrawndagger (2002) 2CD, Mixed, Limited Edition [FLAC|Lossless|tracks + .cue] <Progressive House, Breaks, Progressive Trance, Ambient>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drempels (1:25)
-02. Mr Tiddles (4:54)
-03. Magnetic North (5:18)
-04. Cloud Cuckoo (8:27)(   Читать дальше...   )Жанр: Progressive House, Breaks, Progressive Trance, AmbientПродолжительность: 02:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5CA7AE818B4A815F644C5BF82900017C744D07B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371029   (893674) от 29.03.2020
-
-Karmahacker - Mind Spread (2018) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mind Spread (7:16)
-02. Dub Stab (7:06)
-03. Cryostasis (10:14)
-04. Exo 2 (8:24)(   Читать дальше...   )Жанр: Psychill, Downtempo, AmbientПродолжительность: 01:10:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22CA07DBB0B3AC430CEC98F8BCD78793064C0F1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992759   (893803) от 06.03.2016
-
-Lady Gaga - The Remix (2010) [FLAC|Lossless|tracks + .cue] <Progressive House, House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Dance (Richard Vission remix) (6:14)
-02. Poker Face (LLG vs. GLG radio mix remix) (4:03)
-03. Lady Gaga feat. Marilyn Manson - LoveGame (Chew Fu Ghettohouse mix) (5:21)
-04. Eh, Eh (Nothing Else I Can Say) (FrankMusik remix) (3:49)(   Читать дальше...   )Жанр: Progressive House, House, ElectroПродолжительность: 01:17:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2B9B2B066DFF12EEE87660D6F8C6D3E1F213C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493713   (894209) от 04.09.2021
-
-Crooked Colours - Langata (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Organic House, Downbeat, Electroacoustic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Be There (4:39)
- 02. Do It Like You (3:11)
- 03. Heart String (3:46)
- 04. Just Breathe (3:37)(   Читать дальше...   )Жанр: Deep House, Organic House, Downbeat, ElectroacousticПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF4F0D500027EA82535CCF35CFA1E20CA90624C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493580   (894223) от 04.09.2021
-
-Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Sound Bar Chicago, United States 2021-08-14) (2021-09-02) [MP3|320 Kbps] <Progressive House, Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID
-02. Estiva - Metamorphoses
-03. Jerome Isma-Ae & Alastor - Timelapse
-04. LTN - When it Rains(   Читать дальше...   )Жанр: Progressive House, Trance, TechnoПродолжительность: 02:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3769142D923094B8AB3963ADBED119C72FB189
 ```
 
 

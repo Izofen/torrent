@@ -1,3 +1,30 @@
+###  Публикация: 1001024   (855532) от 27.03.2016
+
+VA - Dr. Metal Presents: Vol.7 (2016) [MP3|224 кб/с] <Heavy, Speed, Power Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855532.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sinbreed-Creation Of Reality
+002. Dark Empire-Northern Sky
+003. AtVance-Right or Wrong
+004. StormWarrior-Odinn's Warriors(   Читать дальше...   )Жанр: Heavy, Speed, Power MetalПродолжительность: 07:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:544CE74059C1DCB52E2E3A3D77A13F83E3D6B447
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110188   (855553) от 01.03.2017
 
 VA - World Latino Mix (2017) [MP3|320 Kbps] <Latin, Dance, Pop>
@@ -667,33 +694,6 @@ VA - Running Of Dance Hits Friends (2017) [MP3|320 Kbps] <Pop, House, Club, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B282700F771FC9FC7B4B513139BEF8CDA7BE8EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000655   (857374) от 26.03.2016
-
-Вероника Агапова - Сборник песен (2016) [MP3|128-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Бессонница
-02 - В землянке
-03 - Выше звёзд
-04 - Где-то где-то(   Читать дальше...   )Жанр: PopПродолжительность: 02:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA882008F6FA2704C2C94EBC2F3E0B461C39103F
 ```
 
 

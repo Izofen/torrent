@@ -1,3 +1,138 @@
+###  Публикация: 1125860   (767130) от 16.04.2017
+
+VA - Lovely Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lamar Ensemble - Inspirational Shortcut
+02. The Sura Quintet - Keep Me Company
+03. Diario - Ancient Stone Steps
+04. Miraflores - Savory(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627EDDBE29147EE8ED550247C0619F9EF33BCB61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125768   (767140) от 16.04.2017
+
+TC - Atlantic Treasure (2016) [MP3|320 Kbps] <Ambient, Modern Classical>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767140.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wonderland - 02:59
+2. Navigator - 10:50
+3. Pastory - 07:15
+4. Clockwork - 06:36(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 01:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:875EE9CB2066544E28790CD246C5B9CDA6ED1489
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125905   (767144) от 16.04.2017
+
+VA - Lakeside Chill Sounds Vol.7 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ialaz - Interlude 1  1:33
+02.  Lemongrass - Lazy Eve  4:08
+03.  The Diventa Project - French Pleasure  4:51
+04.  Mathieu & Florzinho - Miracle Of Love (feat. Madeevah)  5:13(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C9C30C07E66D1E36887065190E078BD13DF251
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125567   (767192) от 16.04.2017
+
+VA - Chill Out In Montecarlo Vol.4 (Luxury Compilation) (2017) [MP3|320 Kbps] <Chill Out, Trance>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chris Wilson - Back Seat  3:40
+02.  Leslie Darsy - Delicate Soul  3:58
+03.  Bob Lane DJ - Until The End Of Time  5:09
+04.  Sean Woodby - Acoustic Mood  4:01(   Читать дальше...   )Жанр: Chill Out, TranceПродолжительность: 01:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD823D5251B0E652925251451A4FD527926FA5E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213887   (767360) от 18.03.2018
+
+VA - Running Beats Vol.16 - Musik Zum Laufen (Inkl. 5 KM & 10 KM Mix) (2018) [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lost Frequencies & Zonderling  -  Crazy  2:33
+02.  Boogie Pimps  -  Somebody to Love (Rework) (Audax Remix)  4:39
+03.  Sound Of Legend  -  Push The Feeling On (Radio Edit)  3:03
+04.  EDX  -  Runnin'  3:26(   Читать дальше...   )Жанр: House, DanceПродолжительность: 03:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC50D5DD0FF18FB7CD73EECB90E26B54B6226C7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213755   (767365) от 18.03.2018
 
 VA - Markus Schulz & Cosmic Gate - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
@@ -560,141 +695,6 @@ VA - Unique Sense In Miami (Mixed by Abstract Vision) (2017) [MP3|320 Kbps] <Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F1E09494534FB19C952754FE65E48ACB3120F8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125507   (768110) от 15.04.2017
-
-VA - Trance Mission (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sungazers - Beneath The Sky (Radio Cut)  4:25
-02.  TrancEye - When The Sun Goes Down (Radio Cut)  3:19
-03.  Zage & Ekatherina April - My Moon (DJ T.H. Radio Edit)  3:51
-04.  Andy Groove - The Knot (feat Sam Vince) (Omniks Edit)  3:44(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D827C967587C63B84D94FEA2DB479B466B845C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213507   (768166) от 17.03.2018
-
-Dense - Bellwether (2018) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Progressive Trance, Psychill>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circulating Carpet Ride (07:50)
-02. Garden of the Future (06:52)
-03. A New Life (08:18)
-04. Moon Crater Four (07:57)(   Читать дальше...   )Жанр: Psybient, Progressive Trance, PsychillПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD78D19AD8C43B6BA2011DAAAD0508E9BF9334C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213582   (768183) от 17.03.2018
-
-VA - Wake Your Mind Sessions 003 (Mixed by Cosmic Gate) (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cosmic Gate & JES  -  Fall Into You (Eskai Intro Remix)  3:25
-02.  Di Rugerio  -  Aeternis (Original Mix)  7:24
-03.  Max Freegrant & Slow Fish  -  Sweet Lies (Original Mix)  3:50
-04.  Tinlicker feat. Thomas Oliver  -  Nothing Without You (Extended Mix)  7:22(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 05:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196F26713A3EFFC23007F25C6F710B3BDDC41E64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213439   (768184) от 17.03.2018
-
-VA - Black Hole Trance Music 03 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RAM - Guiding Star (feat Clare Stagg - LTN extended remix)
-02. Quench - Dreams (Nicholson's extended Cathedral remix)
-03. Cosmic Gate & Markus Schulz - AR (Patrick White extended remix)
-04. Jam & Spoon - Odyssey To Anyoona (Mr Sam Return Of The Phoenix Club remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A6A0C24D3A629CC13490E62F8301BE55562978
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213595   (768186) от 17.03.2018
-
-VA - Funky Disco House Grooves Vol.09 (2018) [MP3|320 Kbps] <House, Indie-Dance, Nu-Disco, Funky-Groove>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Riley - Feel So (Original Mix)
-02. Deepscale feat. Mary Irene - Promise Me Love (Original Mix)
-03. B.A.N.G! - Circles (A Love State Of Mind) (Instrumental Extended)
-04. JazzyGo - Kuasar (Original Mix)(   Читать дальше...   )Жанр: House, Indie-Dance, Nu-Disco, Funky-GrooveПродолжительность: 02:24:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0213CDFAE63E302F2CFA16F93B9AD6D0E32C93B2
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1112517   (838407) от 11.03.2017
+
+Regina Spektor - Soviet Kitsch (2004) [FLAC|Lossless|image + .cue] <Art Rock, Alternative Rock, Folk Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ode to Divorce
+02. Poor Little Rich Boy
+03. Carbon Monoxide
+04. Flowers, The(   Читать дальше...   )Жанр: Art Rock, Alternative Rock, Folk Rock, PunkПродолжительность: 00:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A602611D9F07F8ADA8DE9EB61BBBA83F20AECE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113321   (838421) от 11.03.2017
+
+David Fonseca - Bowie 70 (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alt. Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Absolute Beginners (Feat. Tiago Bettencourt) (5:29)
+02. Modern Love (Feat. Manuela Azevedo) (4:41)
+03. Let's Dance (Feat. Afonso Rodrigues) (5:23)
+04. Life On Mars? (Feat. Antonio Zambujo) (4:59)(   Читать дальше...   )Жанр: Alt. RockПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2623B2CE54087CCEC7F18689EADC224552DA7709
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 878915   (838825) от 17.03.2015
+
+Awolnation - Run (2015) [FLAC|Lossless] <Alternative Rock, Indie, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run (04:02)
+  02. Fat Face (03:33)
+  03. Hollow Moon (Bad Wolf) (04:19)
+  04. Jailbreak (04:41)(   Читать дальше...   )Жанр: Alternative Rock, Indie, ElectronicПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CD9FB93F0F0006E8DF196924B1963FFE9485E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 878935   (838935) от 17.03.2015
 
 Celldweller - End of an Empire. Chapter 03: Dreams (2015) [FLAC|Lossless]<Industrial Metal, Electronic>
@@ -621,99 +702,6 @@ Sex Pistols - 76-77 (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B4BED6C9AC30EFF44B33D20F50CE87648679DC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498202   (857929) от 26.09.2021
-
-We Butter The Bread With Butter - Das Album (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Das Album Intro [00:01:03]
-02. Dreh auf! [00:03:02]
-03. 20 km/h [00:03:11]
-04. N!CE [00:03:06](   Читать дальше...   )Жанр: Metalcore, ElectronicПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22DAFE4682CEE05E21730B791C5E5E65F4061EFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 646940   (858219) от 22.04.2013
-
-Nico Vega - Nico Vega (2009) [FLAC|Lossless]<Alternative, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Burn Burn 2:30
-2. Million Years 2:42
-3. So So Fresh 3:09
-4. Living Underground 4:21
-5. Wooden Dolls 4:15
-6. Gravity 2:42
-7. Be Giving 3:43
-8. Iron Man 4:08
-9. Family Train 3:33
-10. Blood Machine 2:30(   Читать дальше...   )Жанр: Alternative Rock, IndieПродолжительность: 00:47:53
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 304673   (858249) от 06.03.2011
-
-The Pretenders - The Pretenders II (1981) [FLAC|Lossless]<New Wave>
-
->>След.
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. The Adultress (4:01)
-02. Bad Boys Get Spanked (4:09)
-03. Message Of Love (3:29)
-04. I Go To Sleep (3:00)
-05. Birds Of Paradise (4:20)
-06. Talk Of The Town (2:48)
-07. Pack It Up (3:54)
-08. Waste Not Want Not (3:50)
-09. Day After Day (3:49)
-10. Jealous Dogs (5:45)(   Читать дальше...   )Жанр: New WaveПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-нет
 ```
 
 

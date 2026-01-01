@@ -1,3 +1,30 @@
+###  Публикация: 1086744   (868524) от 12.04.2020
+
+Lera Lynn - Discography (2011-2019) [MP3|320 кб/с] <Folk-Rock, Independent Post-Americana>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868524.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011 - Have You Met Lera Lynn?
+2012 - Ring Of Fire (EP)
+2013 - Lying In The Sun (EP)
+2014 - The Avenues(   Читать дальше...   )Жанр: Folk-Rock, Independent Post-AmericanaПродолжительность: 03:24:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C9C5733FDB9B074C926038F5ABD3F15727E5DAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107022   (870061) от 21.02.2017
 
 Grace Slick - Manhole (1973) Reissue, 2011, Retroworld [MP3 |320 Kbps] <Psychedelic Rock>
@@ -677,33 +704,6 @@ Rhythm Sophie - Born To Live The Blues (2014) [MP3|320 кб/с] <Rhythm & Blues,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25EA827C6684F2DF7387D8ED3449665B837E7DAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103836   (883522) от 13.02.2017
-
-VA - Eddie Stobart Trucking Songs: Trucking All over the World (2014) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883522.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-
- 1. Queen - Another One Bites the Dust [03:32]
- 2. Status Quo - Rockin' All Over the World [03:32](   Читать дальше...   )Жанр: RockПродолжительность: 03:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96759E465B14B082C95A218F6E08300C8FE5197F
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1025313   (712129) от 11.06.2016
+
+Band Of Horses - Why Are You OK (2016) [FLAC|Lossless|image + .cue] <Alternative-Rock, Indie-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dull Times/The Moon (7:00)
+02. Solemn Oath (4:00)
+03. Hag (4:33)
+04. Casual Party (3:54)(   Читать дальше...   )Жанр: Alternative-Rock, Indie-RockПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86B5275B158EB16ED686FE5DB1BBA7EF87329E21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400607   (713123) от 08.08.2020
+
+Tribal Ink - Surrounded By Freaks (2003) [FLAC|Lossless|tracks + .cue] <Alternative, Nu-Metal, Rap-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To My Face (3:29)
+02. Don't You Push Me (3:18)
+03. Refugee (3:13)
+04. California Love (3:29)(   Читать дальше...   )Жанр: Alternative, Nu-Metal, Rap-MetalПродолжительность: 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A38ADF9F251145B2C9AE248A95466A49E0EBC959
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286425   (713187) от 02.03.2019
+
+Marianas Trench - Phantoms (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eleonora (01:08)
+02. Only the Lonely Survive (03:43)
+03. Echoes of You (feat. Roger Joseph Manning Jr.) (05:18)
+04. Don’t Miss Me? (04:00)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15C7239FDBE8954D2296D19665DCBAE4DAA32307
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401056   (713497) от 08.08.2020
 
 In Hearts Wake - Kaliyuga (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
@@ -612,87 +693,6 @@ P J Harvey & John Parish - A Woman A Man Walked By (2009) [FLAC|Lossless]<Altern
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128818   (726260) от 26.04.2017
-
-Gorillaz - Humanz (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hip-Hop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/20. Intro: I Switched My Robot Off (0:24)
- 02/20. Ascension (feat. Vince Staples) (2:36)
- 03/20. Strobelite (feat. Peven Everett) (4:33)
- 04/20. Saturnz Barz (feat. Popcaan) (3:02)(   Читать дальше...   )Жанр: Alternative Rock, Hip-HopПродолжительность: 01:09:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E99CC24D56CD81BD0DE9EE860B246F781691E9BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667731   (726925) от 13.06.2013
-
-Iggy Pop - 3 альбома (1988 - 1993) [FLAC|Lossless]<Alternative Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_726925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Character (1:09)
-02. Wild America (5:45)
-03. Mixin' The Colors (4:50)
-04. Jealousy (6:04)(   Читать дальше...   )Жанр: Alternative Rock, PunkПродолжительность: 01:15:54
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530367   (727813) от 12.02.2022
-
-Eddie Vedder - Earthling (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invincible (4:47)
- 02. Power of Right (3:34)
- 03. Long Way (4:45)
- 04. Brother the Cloud (4:22)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26077D15F85683E2E7A0A1DB44BDA55573DD00DD
 ```
 
 

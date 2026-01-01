@@ -1,3 +1,138 @@
+###  Публикация: 1284771   (727831) от 22.02.2019
+
+VA - Anjunadeep 10 (Mixed by Jody Wisternoff & James Grant) (2019) [FLAC|Lossless|Web-DL|tracks] <Deep House, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hiatus – Relic (4:19)
+02. Lycoriscoris – Belong (4:16)
+03. OCULA – Immunity (4:43)
+04. BAILE – Soft Light (3:33)(   Читать дальше...   )Производство: Anjunadeep - ANJCD067DЖанр: Deep House, HouseПродолжительность: 05:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:036B64C80552055A95C31FA0CDCA12E8FA81BA68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284742   (727836) от 22.02.2019
+
+VA - Chill House: Something For Your Mind Your Body & Your Soul (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bernd Loorbach - Cafe del Mar (Patricio AMC Chill Mix)
+02. Damon Paul feat. Simone Mangiapane - Rhythm Is a Dancer (Matyas Glut Chill Mix)
+03. Bass Boom Deejays feat. Chris Burke - Don't Be so Shy (Patricio Amc Remix)
+04. G-Lati and Mellons feat. Damian Pipes - Hero (Manu M. Guitar Chill Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C4CFB176635B266A06572698A4504AB926C1499
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284673   (727844) от 22.02.2019
+
+VA - Ibiza Overload '19 (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Drake - Treasure (Original Mix)
+02. Nadia A Lee - Feeling Fine (Original Mix)
+03. Gustavo Mendez - Acid Jack (Original Mix)
+04. Frank Delgado - Ibiza Vibe (Original Mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F055AFFB0410623F05434E6ECE592AE5FC379B03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284527   (727847) от 22.02.2019
+
+VA - Melodic House Sessions, Vol.12 (2019) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gregor - The Winter Carnival (Original Mix) 8:24
+02. Koffee & AmFlow - Raw Uncut (UnCut HardCore Instrumental) 5:15
+03. Alex Lem - Siren (Original Mix) 3:48
+04. Polyakk - Boom (Original Mix) 2:24(   Читать дальше...   )Жанр: HouseПродолжительность: 02:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61DA5D0FCA00EBA46C8D59F50DE971C2A68F40ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022679   (727854) от 03.06.2016
+
+VA - The Annual Festival Sessions (2016) [MP3|320 кб/с] <Club House, Electro House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phorsicht - Phreude (3:36)
+02. Prash - Bring That Bass (Extended Mix) (4:48)
+03. Sebastien Nox - O_B_O (4:46)
+04. Jamie My Angel - Runaway with Me (Radio Version) (3:35)(   Читать дальше...   )Жанр: Club House, Electro House, ProgressiveПродолжительность: 04:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A3084B39C0F7F8EC73B2A265D19D503186698E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284532   (728653) от 21.02.2019
 
 Woob - スリープ 研究 プログラム (2018) Time Limited [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Berlin-School>
@@ -559,141 +694,6 @@ Ben Nicky - Live @ Hellfire, Victoria Warehouse Manchester, United Kingdom (2022
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBDD0B32AFD864995CDB526A2044F1457EFDFB41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530491   (729022) от 11.02.2022
-
-MORTEN - DJ Mag Italy Radioshow (2022-02-02) [MP3|~245 Kbps (V0)] <Electro House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & MORTEN - Permanence
-02. Anyma ft. Meg Myers - Running
-03. ARTBAT & Pete Tong ft. Jules Buckley - Age Of Love (ARTBAT Rave Mix)
-04. David Guetta & MORTEN & Roland Clark - Alive Again(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:59:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E24C72BE5153EBB7B357619C10EF060A14862B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989003   (729173) от 01.06.2016
-
-Armin van Buuren - A State of Trance 751 - 765 (2016) [MP3|320 кб/с] <House, Trance, Progressive>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yuri Kane feat. Ana Criado – Running Wild (Original Mix)
-02. Ilan Bluestone feat. Giuseppe De Luca – Bigger Than Love (Original Mix)
-03. Danny Chen – Dawn (Original Mix)
-04. Genix & Sunny Lax – Black Water (Original Mix)(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 29:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59A43B54D0D5ED70DDCFC778CAD1BF01D0ACBAE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022048   (729869) от 01.06.2016
-
-Telegraph - Beyond Good & Evil (2016) [MP3|320 кб/с] <Electronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond Good & Evil (1:45)
-02. The Veil Of Maya (4:02)
-03. I Wanted Love (3:46)
-04. Game Over (4:48)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7494B4CF13812F7B55D3B9513B19DE2505695CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021726   (729888) от 01.06.2016
-
-Moomin - A Minor Thought (2016) [MP3|320 кб/с] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 123
-02. A Minor Thought
-03. Loop No. 1
-04. Morning Groove(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:05:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C6E1771DB37DAC015E18A5A60E1A295AFCD3A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529977   (729914) от 10.02.2022
-
-VA - Blue Sailing: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beamy - Elmwood (4:37)
-02. Marga Sol - What I Long For (Chill Mix) (5:24)
-03. Gary B - Bring Me Hope (Original Mix) (3:24)
-04. Michael E - Infinite Beauty (Original Mix) (4:54)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:906F61A970A9029FEFBC34565A9A74E59523A365
 ```
 
 

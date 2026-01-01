@@ -1,3 +1,164 @@
+###  Публикация: 1473502   (1013681) от 29.05.2021
+
+Fancy - I'm Still A Fool (2021) Single [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I’m Still A Fool
+02. I’m Still A Fool (Extended)
+03. Lovers (Split Mirrors Remix)Жанр: Euro-DiscoПродолжительность: 00:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:122D1245142113F51A8CA35F589749456CA66DD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473400   (1013712) от 29.05.2021
+
+Claude Denjean - 3 Albums (1970-1976) Collection [MP3|320 Kbps] <Electronic, Downtempo, Lounge, Space-Age, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский скрипач, композитор и аранжировщик Клод Денжан, вероятно, наиболее известен оркестровыми аранжировками, которые он написал для Шарля Азнавура, включая "Idiote je t'aime" и меланхоличную "Non, je n'ai rien oublie". Денжан писал партитуры для других артистов, в том числе для Моник Тюберт и Макса Фурнье. Он также работал в качестве композитора (   Читать дальше...   )Список альбомов:
+1970 - Moog!
+1973 - Open Circuit
+1976 - Moods(   Читать дальше...   )Жанр: Electronic, Downtempo, Lounge, Space-Age, DiscoПродолжительность: 01:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB8912480402A9449FCF8769997695CB0A8ED8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473144   (1013795) от 28.05.2021
+
+Moby - Reprise (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everloving (3:19)
+02. Natural Blues (4:30)
+03. Go (3:42)
+04. Porcelain (5:53)(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF26C480B0F199728669C67514E9C32395EF42B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473183   (1013812) от 28.05.2021
+
+Леонид Агутин - Включите свет (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013812.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Включите свет
+2. Счастье не вешает нос
+3. Сочи (feat. Jimmy Rosenberg)
+4. Цветы(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE0697B2EE4766575D9382FDFE761A53FD1FDA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473181   (1013838) от 28.05.2021
+
+Винтаж - PLATINUM 2 (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013838.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я верю в любовь (feat. DJ M.E.G. & NERAK )
+2. Белая
+3. Немного рекламы (feat. Clan Soprano)
+4. Знак Водолея(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E5A720938665E801C544AA38884874FAE0271D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473156   (1013841) от 28.05.2021
+
+Нани Брегвадзе - 3 Альбома (2006 - 2007) [FLAC|Lossless|tracks + .cue]<Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я Вас любил
+02. Не уезжай
+03. Звон гитары
+04. Я помню вальса звук прелестный(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 02:22:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12A3E96CE38F498F023F458D0E6F777DAB40F5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473187   (1013842) от 28.05.2021
 
 Texas - Hi (2021) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
@@ -530,168 +691,6 @@ Latex - Random Love (1995) [FLAC|Lossless|tracks + .cue] <Euro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB1E2D450E99ADAFFDE5CAFC1531F53A1C1D4F2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470935   (1015412) от 18.05.2021
-
-Boney M. - Rasputin - Lover Of The Russian Queen (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rasputin [00:03:41]
-02. Daddy Cool [00:03:28]
-03. Rasputin [00:03:06]
-04. Ma Baker [00:04:35](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9BACF792866203CF97A88B9D72C23DF329ADFBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470927   (1015442) от 18.05.2021
-
-Boney M. - Rasputin - Lover Of The Russian Queen (2021) [MP3|320 Kbps] <Retro, Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rasputin [00:03:41]
-02. Daddy Cool [00:03:28]
-03. Rasputin [00:03:06]
-04. Ma Baker [00:04:35](   Читать дальше...   )Жанр: Retro, Pop, DiscoПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC9F925352CD9785F9A77B3CB7A6D384CCB8A2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470920   (1015474) от 18.05.2021
-
-Bonnie Tyler - The RCA Years (2019) 4CD, Box Set, Compilation, Cherry Red Records [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015474.jpg" />
-</div>
-
-
-###  Подробнее
-
-1977 - The World Starts Tonight
-1978 - Natural Force
-1979 - Diamond Cut
-1981 - Goodbye To The IslandЖанр: Pop, Pop Rock, Soft RockПродолжительность: 03:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8632BC642B888744BF6B32999CD14FEC96E795F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470915   (1015499) от 18.05.2021
-
-Champagne - 2 Albums (1977, 1979) LP [MP3|320 Kbps] <Electronic, Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голландский диско-поп проект, в который входили Полетт Бронкхорст, Труди Гюйсденс, Ян Вреденбург, Берт ван дер Виль. Их называли - "Голландским ответом шведской группе АВВА" вихрем ворвавшимся в чарты большинства стран мира в конце 70-х, чей успех удивил всех, включая самих участников и создателей этой группы.01. Valentino (3:22)
-02. Rock 'n Roll Star (2:54)
-03. The Air That I Breath (3:55)
-04. No Love At All (2:27)(   Читать дальше...   )Жанр: Electronic, Disco, PopПродолжительность: 01:16:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB05FC1D1C57A917E3AE5E5B974DE9F40AFA65F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470914   (1015502) от 18.05.2021
-
-VA - Ultimate NRG Party (2004) [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donna M. - Diva (English Mix) (3:54)
-02. Boys In The Dark - Santa Maria (3:28)
-03. Inside<>Out - Believe (NRG Radio Mix) (4:01)
-04. Hanky Panky - Truly Madly Deeply (NRG Radio Mix) (3:16)(   Читать дальше...   )Жанр: Dance, Disco, Hi-NRGПродолжительность: 01:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1BFECF8D3C579DB17E7460BDDAF5DD36BDBD7AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470700   (1015631) от 17.05.2021
-
-Vincent International - Retro (2020) [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015631.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Where Do You Go
-2. I Love You Again
-3. You're My Love, You're My Life
-4. Be The One(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA37BE0356F56DAC123A198C62950542363DBFA
 ```
 
 

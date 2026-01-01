@@ -1,3 +1,136 @@
+###  Публикация: 1214653   (764065) от 22.03.2018
+
+VA - Spring Progressive House Vol.1 (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  1touch  -  Surfing Swans (Original Mix)  6:11
+02.  In5um  -  Window (Denis Neve Remix)  7:17
+03.  Tom Clave & Julian Wess feat. Seven Note  -  Just with You (Breame Remix)  5:31
+04.  Lunarbeam  -  Autumn (Jon Medina Remix)  9:54(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCC24DC266A2A90CEC5C1825931D1E309E263E0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214482   (764067) от 22.03.2018
+
+VA - Freakin Miami (Mixed by House Of Virus) (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  House Of Virus & LoVance  -  Freak (Vibe Killers Remix)  4:56
+02.  Skapes  -  Supersonic (Kyle Watson Remix)  4:15
+03.  2MINDSTogether  -  Keep Dancing (Original Mix)  3:37
+04.  Sleezy D  -  I've Lost Control (Flashmob Remix)  4:47(   Читать дальше...   )Жанр: HouseПродолжительность: 03:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D17975C204D8AE60510B8D71B5F84011D3880617
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214633   (764070) от 22.03.2018
+
+VA - Sunset Inspirational Grooves (2018) [MP3|320 Kbps] <Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lo Greco Bros & Flow Bop  -  Midnight In Paris (Original Mix)  5:23
+02.  Public Invasion Project  -  Our Trip (Original Mix)  4:08
+03.  Lo Greco Bros feat. Doctor Feelx  -  You & Us (Deep Mix)  6:42
+04.  John Type  -  Sunflower Lola (Original Mix)  4:59(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 01:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:894E63B5F7508E9F2E814EB2DC7A0D2D1EC7AEA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214666   (764074) от 22.03.2018
+
+VA - FG Top 10: March (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Max Freegrant & Slow Fish  -  Sweet Lies (Extended Mix)  7:13
+02.  Tony Hammer & Josa  -  Carpe Noctem (Original Mix)  6:23
+03.  Orphyd  -  Little Dreamer (Extended Mix)  6:19
+04.  Jon Bourne  -  Ameera (Original Mix)  5:31(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440186DED56364262F8E18F2F177E602622697F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214528   (764140) от 22.03.2018
+
+G.R.I.T. - KALMADS E.P. (2018) Exalt Records [FLAC|Lossless|Vinyl|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midway Across the Bridge (04:01)
+ 02. This Journey of Ours (04:15)Жанр: Dub Techno, AmbientПродолжительность: 00:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58BABD869E302DA773F841BF2B95D540FB278FCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214526   (764141) от 22.03.2018
 
 S.O.N.S - Shin-Okubo One Night Stand (2018) [FLAC|Lossless|Vinyl|tracks] <Techno, Ambient, Acid, Experimental>
@@ -560,141 +693,6 @@ Onuka - Mozaika (2018) [MP3|320 Kbps] <Electronic, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD4FE642BF1929AFA90CAD91AC50DCB2CAE76307
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214479   (764898) от 21.03.2018
-
-VA - Anjunabeats in Miami (2018) [FLAC|Lossless|image + .cue] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond & Zoe Johnston – Always feat. Zoe Johnston (Original Mix)
-02. Above & Beyond & Richard Bedford – Northern Soul feat. Richard Bedford (Spencer Brown Remix)
-03. Ilan Bluestone & Koven – Another Lover feat. Koven (Extended Mix)
-04. Gabriel & Dresden & Sub Teal – Only Road feat. Sub Teal (Cosmic Gate Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D85291C54E0EA0279F2351F1D11C489ED20E125
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214387   (764901) от 21.03.2018
-
-GusGus - Lies Are More Flexible (2018) Soyuz Music [FLAC|Lossless|tracks + .cue] <House, Synthpop, Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Featherlight (5:17)
- 02. Don't Know How to Love (5:12)
- 03. Fireworks (4:56)
- 04. Lifetime (5:49)(   Читать дальше...   )Жанр: House, Synthpop, Tech House, TechnoПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B14D943053E96DE33DE050FB257E234E34D987
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214426   (764926) от 21.03.2018
-
-VA - Anjunadeep In Miami 2018 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Bohmer - After Earth (7:37)
-02. Alex Metric & Ten Ven - Otic (7:16)
-03. Martin Roth - Guude Laune (6:45)
-04. Eli & Fur - White Sails (6:17)(   Читать дальше...   )Жанр: Deep Progressive HouseПродолжительность: 01:27:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E28CD8CF7F97E55E0E76D54DB0DCE4BF563E1B03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214476   (764967) от 21.03.2018
-
-VA - Progressive Miami (2018) [MP3|320 Kbps] <Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ruslan Radriges vs. Neurofunq & Tiff Lacey  -  Wonderfull (Original Mix)  3:38
-02.  Mivase  -  I Can't Give Up (Extended Mix)  4:24
-03.  Roman Messer feat. Angel Falls & Armos  -  Higher (LTN Extended Sunrise Remix)  6:05
-04.  MOROSHKA  -  4AM (Original Mix)  4:44(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FEC14319C96101D64B17F5CB66DF73F6D8F7A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214333   (764975) от 21.03.2018
-
-Occult - Axum (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1138 (04:49)
-02. Axum (04:52)
-03. Ark (04:16)
-04. Nazca (04:16)(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 00:27:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54035612822B1E21B5363528F559A3C9901A1FF3
 ```
 
 

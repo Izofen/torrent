@@ -1,3 +1,138 @@
+###  Публикация: 1225514   (659843) от 16.05.2018
+
+Simian Mobile Disco - Murmurations (2018) Wichita [FLAC|Lossless|tracks+.cue] <Tech House, Ambient, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boids (04:33)
+ 02. Caught In A Wave (feat. Deep Throat Choir) (06:44)
+ 03. We Go (feat. Deep Throat Choir) (08:31)
+ 04. Gliders (03:40)(   Читать дальше...   )Жанр: Tech House, Ambient, Deep HouseПродолжительность: 00:53:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FED1C19172861F5500B9704C584855FF0DCC1E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139299   (659907) от 02.06.2017
+
+VA - Drum&BassArena 2017 (2017) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dimension - Generator
+ 02. Sub Focus - Nobody Knows
+ 03. Friction - All Nite
+ 04. The Upbeats - Say Go (feat. Mara TK)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 08:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F23863D7C7AE5756BFE60A771B728A7C9228814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539095   (660083) от 23.03.2022
+
+Tensnake - L.A. Noir (2022) Mixed & Unmixed [FLAC|Lossless|WEB-DL|tracks] <EDM, Nu Disco, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightshift (Mixed) (Enduro Disco Noir Mix) (5:22)
+ 02. Simpansi (Mixed) (Factory Sequences Noir Mix) (5:24)
+ 03. Call Me (Mixed) (Tensnake Noir Mix) (4:31)
+ 04. Antibodies (Mixed) (Street Player Noir Mix) (4:29)(   Читать дальше...   )Жанр: EDM, Nu Disco, Club HouseПродолжительность: 01:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2B227F425E1EDC6ED871A9B2AC805907B0C89BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139294   (660095) от 02.06.2017
+
+VA - Euphoric Trance (2017) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ana Criado - Still There's You (A.R.D.I. Remix) 6:22
+02.  Susana - Only Summer Knows (Original Mix) 7:24
+03.  ReOrder & Katty Heath - Love Again (Blue5even Remix) 7:21
+04.  Alan Morris & Elles De Graaf - Calm The Night (Ferrin & Morris Remix) 6:54(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 04:20:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36E7B98A1C14E8B16DCAF727F916F48C900F0960
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139323   (660204) от 02.06.2017
+
+VA - Electronic Chillout Instrumentals (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Excentric Cosmonauts - Inspiration Station
+02. Man Without Voice - Spring Time
+03. Earth Dream - Forest Stream
+04. Ambient Groovebox - Breaking Free(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:52:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AEB303596CF16F6B53A3A9EBCDEE0E84C377385
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139358   (660273) от 02.06.2017
 
 VA - This Is My Church Vol.5 The Chill out Edition (2017) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -566,141 +701,6 @@ Spacekraft - То падая, то взлетая (Сон) (2016) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DAEC1D738FDF9AB05F8FB0C9DA2E8851161B6E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138593   (663160) от 30.05.2017
-
-VA - Deep House Music (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luca Elle - T-Bass
-02. Jazz Juice - Fever - ChrisB Remix
-03. Chartclimbers - Lead Man Holler
-04. Dariush - The Elves(   Читать дальше...   )Жанр: HouseПродолжительность: 01:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FD3253E6B3B4C9F46D1772DD362C3069231E3AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138521   (663239) от 30.05.2017
-
-VA - Summer Chill. Smooth Beach Lounge Grooves for Easy Listening (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moon de Lounge - La Mer Se Calme - Extended Beach Mix
-02. Melounge - Maldives Beach Sunset
-03. Bouche - Wind Pillow
-04. Chantilas - Chapter Three(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:249A7FC954EA5B918B89B95888FC619873C01C15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138581   (663240) от 30.05.2017
-
-VA - Blue Lounge 3: Bossa Lounge and Chillout Moods Selection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jean-Michel Vallet - Moody Lounge 2:57
-02.  Christophe Goze - I Like It (Main) 3:32
-03.  Simon Di - Push Tempo (Main) 2:19
-04.  Luigi Seviroli - Lifesource (Full Mix) 2:16(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2887A535036F0AABD50AAD712703ABA7EEAD610D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138480   (663242) от 30.05.2017
-
-VA - Masters Of Dance 8 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jay Frog - Like It! (Radio Edit) 3:20
-02.  Cliff Wedge - No One Like U (Radio Edit) 3:46
-03.  Leyla Ek - Discobedience (Radio Edit) 2:53
-04.  Brothers - Sacrifice (Best DJ Version Radio) 3:33(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C57AEDECACB909A3B673C81ADB16B1F69E11E085
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138419   (663246) от 30.05.2017
-
-VA - Ambient Nectar (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sura Quintet – Endless Horizon 05:57
-02. Space Scavengers – Sound Asleep 03:58
-03. DJ Bilko – Autumn Waves 04:55
-04. Azaleh – Unbound 03:09(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617059E88683690FD879526CB3C7C697F42881B3
 ```
 
 

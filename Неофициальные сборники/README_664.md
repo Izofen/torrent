@@ -1,3 +1,30 @@
+###  Публикация: 1467456   (1017648) от 04.05.2021
+
+VA - Shazam & Apple Music Chart (Россия Топ 100 Апрель) (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017648.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ramil' - Сон (2:57)
+002. Egor Kreed - (Не)идеальна (2:38)
+003. escape, Konfuz - Не смотри (2:32)
+004. HammAli & Navai - Нет твоей вины (2:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:01:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2655371B682BDEE7DA977FB39BAE065F077AB222
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467495   (1017695) от 04.05.2021
 
 VA - Gold Italian Hits (2021) [MP3|320 Kbps] <Pop, Italian Pop>
@@ -665,33 +692,6 @@ VA - Melodic Chill House (2021) [MP3|320 Kbps] <Chill, Deep House, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:474AC59531D9720E987C24137E450B23EAEE660D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465899   (1018802) от 28.04.2021
-
-VA - The Alternative History: Rock Indie Music (2021) [MP3|320 Kbps] <Indie Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рок — это путь. Это такая тропинка. Через тьму, через страх, через твои собственные ночные кошмары. Если у тебя в груди живет боль, и ты поешь, ты играешь эту музыку — ты выводишь ее в мир и выводишь себя к свету!001. Daka - Just Friends
-002. Champagne Colored Cars - Cache Memory
-003. Chris Garneau - Old Code
-004. Accidents - Cuando El Dia Llegue(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 08:22:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CBB9E6FFB77DFC8316F6D808BA057C44ED0B633
 ```
 
 

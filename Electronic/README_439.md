@@ -1,3 +1,138 @@
+###  Публикация: 1246510   (838922) от 29.04.2020
+
+Wanderwelle - Discography 7 Releases (2015-2020) Silent Season [FLAC|Lossless|WEB-DL|tracks+.cue, tracks] <Dub Techno, Ambient, Techno, Techno Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Decay (04:16)
+ 02. Reliquary (02:32)
+ 03. Shells (05:07)
+ 04. Vanitas (05:06)(   Читать дальше...   )Тип издания: CD, WebЖанр: AmbientПродолжительность: 04:53:51 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E0162F8397DF60D386EE80A47A7F075AEBEBAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379628   (839200) от 29.04.2020
+
+Silvis Silentii - The Sounds of Nature (2016-2020) (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Field Recording>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZOOM0001 (01:04)
+ 02. ZOOM0002 (02:35)
+ 03. ZOOM0003 (02:29)
+ 04. ZOOM0004 (02:22)(   Читать дальше...   )Жанр: Field RecordingПродолжительность: 01:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721A619BA56015EF8AC1688C5E93EC5E2C4C7D3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379574   (839333) от 29.04.2020
+
+VA - Extreme Sports Music Vol 1 (2020) [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind Date - Selekta (Original Mix)
+02. Crew 7 - WTF (Club Edit)
+03. Lao'n And Fallon - Bermuda (Original Mix)
+04. Bad Booty Brothers ft Piure - Different (Gorden And Doyle Remix Edit)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F26D484FF73648651D515C40366C302DA942EE00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379589   (839440) от 29.04.2020
+
+VA - Extreme Sports Music Vol 3 (2020) [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Cypress - Play It Loud (A2C Remix Edit)
+02. Jetty Rachers - Shockwave (Radio Edit)
+03. Santino Kluge - Fly (Club Edit)
+04. John Bounce - Bass Catcher (Radio Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9BF7B4AB0D5313AF96503BD074F6B8AA3115CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379580   (839450) от 29.04.2020
+
+VA - Extreme Sports Music Vol 2 (2020) [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Edward Hilder – Back In Usa (Radio Edit)
+02. Trillogee And Taw ft Gemeni – TNT (Happy Gangsters Remix Edit)
+03. Edher Torres – If You Sexy (Radio Edit)
+04. Reaster And Danage – Milf (Radio Cut)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D03A7EFBD0F684FA3082641EBD74D0EC3C45B524
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379605   (839556) от 29.04.2020
 
 Above & Beyond - Anjunabeats Essentials (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech Trance>
@@ -560,142 +695,6 @@ Kiiara - Low Kii Savage EP (2016) [FLAC|Lossless|WEB-DL|tracks] <postrnb, future
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDEBF161B7B2123E1F45935ADE3225EBF78F542B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112826   (841727) от 09.03.2017
-
-VA - Hoch Die Hande Wochenende Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daiden - Snow Is Falling 03:45
-02. Luke Meyers - Play House (Vocal Edit) 05:40
-03. Milord - The World Is Mine (Club Mix) 06:41
-04. James Marley Feat. Nathan Brumley - Summer Won't Wait (Extended Mix) 05:50(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADD18ED321DF13E0E19BF0560BFBD2345C23419C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003707   (841844) от 04.04.2016
-
-Gareth Emery - 100 Reasons to Live (2016) [MP3|320 кб/с] <Progressive Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gareth Emery - The Story So Far (06:43)
-02. Gareth Emery feat. Joseph - Cloudline (06:54)
-03. Gareth Emery feat. Gavrielle - Far From Home (03:50)
-04. Gareth Emery feat. Wayward Daughter - Reckless (03:22)(   Читать дальше...   )Жанр: Progressive Trance, Progressive HouseПродолжительность: 01:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7C2E696155095A6A74E5D0430FC8FCD4BC16753
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003868   (841860) от 04.04.2016
-
-VA - Spring Lounge 2016: Sounds Like Sunshine (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillwalker - Heaven's Waiting (Vocal Mix)
-02. Phonotronic - Peace in Mind (Sunset Anthem Mix)
-03. Vladi Strecker - Across the Sea (The White Bird Mix)
-04. DJ Maretimo - Sun Addicted (Pure Beach Cut)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B66ABCC951BBF341F5D0DB0294B5844C02D6DF0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 877804   (841879) от 15.03.2015
-
-Skrillex - Дискография (2009-2015) [MP3|320 кб/с]<Dubstep, Brostep, Breakbeat, Electro House>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее имя музыканта – Сонни Джон Мур (Sonny John Moore). Он родился 15 января 1988 года в Калифорнии, а его воспитанием занимались приемные родители. Только в 16 лет он узнал имена своих настоящих биологических папы и мамы, хотя самих этих людей он знал еще с детства.
-В девять лет Сонни подарили первый музыкальный инструмент – это была гитара, но только спустя (   Читать дальше...   )EP & Singles:
-2009 - Gypsyhook (CD EP)
-2010 - My Name Is Skrillex (EP)
-2010 - Scary Monsters And Nice Sprites (CD EP)(   Читать дальше...   )Жанр: Dubstep, Brostep, Breakbeat, Electro HouseПродолжительность: 08:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA9E2840FC55726500AFC5CA62E9E9F9C4ABCAB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003791   (841894) от 04.04.2016
-
-VA - Trance Only Vol.6 (Future Club and Hardtrance Anthems) (2016) [MP3|320 кб/с] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Altek - 2nd Chance 07:46
-02 Blufeld - A World Less Ordinary (Mark Found Remix) 09:38
-03 Benya - Rhea (Fredin Remix) 07:12
-04 Arrakeen, Jaki Song - Time (Neo Kekkonen Remix) 07:18(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3779D53D3A5C2E7AED524AEF71322029B396A348
 ```
 
 

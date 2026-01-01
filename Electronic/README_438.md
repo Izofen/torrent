@@ -1,3 +1,138 @@
+###  Публикация: 1379987   (836387) от 01.05.2020
+
+Interactive Noise - The Unreleased Live Mix (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836387.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Unreleased Live Mix (Live) (39:03)
+2. Darth & Vader - Return of the Jedi, Pt. 2 (The Unreleased Live Mix Cut) (4:52)
+3. Felguk - Galaxy Traveller (Neelix & Interactive Noise Remix) (4:09)
+4. Rolling In The Distance (The Unreleased Live Mix Cut) (4:26)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9073F16C2C462F658F0DD7835906042F1F151388
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501366   (836408) от 09.10.2021
+
+Korolova - Live @ New York, United States (2021-08-27) [MP3|320 Kbps] <Progressive House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BetweenUs - All I See
+02. Piero Pirupa - Everybody's Free (To Feel Good) (Alexander Alar & Korolova Remix)
+03. Franky Wah - Now We Are Free
+04. Phonique ft. Rebecca - Feel What You Want (Alexander Alar & Korolova Remix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC5686AAAD5F554DE25FD6F1294A170F66E753E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501398   (836410) от 09.10.2021
+
+Stephan Bodzin - Boavista (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earth (7:33)
+ 02. LLL (6:52)
+ 03. Astronautin (7:33)
+ 04. Boavista (7:37)(   Читать дальше...   )Жанр: Tech House, Techno, MinimalПродолжительность: 02:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B6166A474DA1D86358215A07E1291FB19908E55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501383   (836411) от 09.10.2021
+
+VA - Spacedance, Vol. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spacesynth, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Based on Bass - Magic World (Spacemix) (4:28)
+02. Daylight - Touring Space (5:21)
+03. Humphrey Robertson - Space Rhythm (Sd4 Version) (5:19)
+04. Daylight - Memories of Time (5:21)(   Читать дальше...   )Жанр: Spacedance, Spacesynth, RetrowaveПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D27FB44BF987AC025D1A378521F34993E229CBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501401   (836414) от 09.10.2021
+
+Korolova & Two Are - Live @ Kachanivka Palace, Ukraine (2021-10-08) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SevenEver & Two Are - Need To Feel Loved
+02. Two Are - Rover
+03. Korolova & Asher Swissa ft. Evelynka - ID
+04. Two Are - In The Sky(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA87E2C5A56F173F0ED21C98E66112A5BA5B0C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113579   (836470) от 12.03.2017
 
 VA - Sexy Sax and Chill: Sensual Smooth Jazz Bar Lounge for Intimate Romantic Erotic Moments (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -556,141 +691,6 @@ VA - HeavensGate vol.3 Aluminium Edition (Mixed by Alex M.O.R.P.H B2B Woody Van 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E002E29703C707E74E6DED6AC3F87946410D3E88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246510   (838922) от 29.04.2020
-
-Wanderwelle - Discography 7 Releases (2015-2020) Silent Season [FLAC|Lossless|WEB-DL|tracks+.cue, tracks] <Dub Techno, Ambient, Techno, Techno Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Decay (04:16)
- 02. Reliquary (02:32)
- 03. Shells (05:07)
- 04. Vanitas (05:06)(   Читать дальше...   )Тип издания: CD, WebЖанр: AmbientПродолжительность: 04:53:51 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E0162F8397DF60D386EE80A47A7F075AEBEBAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379628   (839200) от 29.04.2020
-
-Silvis Silentii - The Sounds of Nature (2016-2020) (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Field Recording>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZOOM0001 (01:04)
- 02. ZOOM0002 (02:35)
- 03. ZOOM0003 (02:29)
- 04. ZOOM0004 (02:22)(   Читать дальше...   )Жанр: Field RecordingПродолжительность: 01:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:721A619BA56015EF8AC1688C5E93EC5E2C4C7D3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379574   (839333) от 29.04.2020
-
-VA - Extreme Sports Music Vol 1 (2020) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blind Date - Selekta (Original Mix)
-02. Crew 7 - WTF (Club Edit)
-03. Lao'n And Fallon - Bermuda (Original Mix)
-04. Bad Booty Brothers ft Piure - Different (Gorden And Doyle Remix Edit)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F26D484FF73648651D515C40366C302DA942EE00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379589   (839440) от 29.04.2020
-
-VA - Extreme Sports Music Vol 3 (2020) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Cypress - Play It Loud (A2C Remix Edit)
-02. Jetty Rachers - Shockwave (Radio Edit)
-03. Santino Kluge - Fly (Club Edit)
-04. John Bounce - Bass Catcher (Radio Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C9BF7B4AB0D5313AF96503BD074F6B8AA3115CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379580   (839450) от 29.04.2020
-
-VA - Extreme Sports Music Vol 2 (2020) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Edward Hilder – Back In Usa (Radio Edit)
-02. Trillogee And Taw ft Gemeni – TNT (Happy Gangsters Remix Edit)
-03. Edher Torres – If You Sexy (Radio Edit)
-04. Reaster And Danage – Milf (Radio Cut)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D03A7EFBD0F684FA3082641EBD74D0EC3C45B524
 ```
 
 

@@ -1,3 +1,27 @@
+###  Публикация: 309840   (840913) от 16.03.2011
+
+Va - Дискотека От Руки Вверх (2011) [MP3|256 kbps]<Pop/Dance >
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop/DanceПродолжительность: 06:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739725E0C86E78E1069735F8470D67696090B409
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500388   (840949) от 06.10.2021
 
 VA - Осень на Love Radio (2021) [MP3|320 Kbps] <Pop, Dance>
@@ -656,33 +680,6 @@ VA - Blues Forever vol.69 - vol.72 (2017) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44CEF850C96EE188B45049F5BA3FF611763449AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002986   (843025) от 03.04.2016
-
-VA - Blues Forever vol.45 - vol.48 (2016) [MP3|320 кб/с] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rocky Athas Group - Slow Driver
-02. Buck & Evans - Treat Me Right
-03. Gregg Alliman - Rendezvous With The Blues
-04. Blindside Blues Band - Talkin' Bout My Baby(   Читать дальше...   )Жанр: BluesПродолжительность: 05:14:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:122E8FE5F4D1C8DBEADC56DBB0BD7EC796904796
 ```
 
 

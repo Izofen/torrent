@@ -1,3 +1,57 @@
+###  Публикация: 1228027   (639409) от 30.05.2018
+
+Pee Wee Russell - Portrait of Pee Wee (1958) 1991, DCC Jazz [APE|Lossless|image + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Old Feeling [4:19]
+02. World On A String [4:28]
+03. Exactly Like You [3:10]
+04. It All Depends On You [4:03](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E08CA4408BC2E438261BC6CE6BE12E37632A43C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228153   (639412) от 30.05.2018
+
+James P. Johnson - 1928 - 1938 (1992) Classics [FLAC|Lossless|tracks + .cue] <Ragtime, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daylight Savin' Blues [2:49]
+02. Georgia's Always On My Mind [2:49]
+03. Riffs [3:05]
+04. Feelin' Blue [2:56](   Читать дальше...   )Жанр: Ragtime, Stride, Piano JazzПродолжительность: 01:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82EBC67EDEED3A42BB9CC45976780C3F4EA7998
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143097   (639462) от 16.06.2017
 
 Youn Sun Nah - She Moves On (2015) ACT [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -641,60 +695,6 @@ Artie Shaw and His Orchestra - 22 Original Big Band Hits (1938, 1939) 1987, Hind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:226DC8B806C985146FFB1DF2CB02F59866F34B90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142764   (641190) от 15.06.2017
-
-Joe Wilder - The Pretty Sound & Jazz from 'Peter Gunn' (1959) 2003, Collectables [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harbor Lights [03:41]
-02. I Hear Music [03:22]
-03. It's So Peaceful in the Country [05:03]
-04. Autumn in New York [05:05](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7952DF4EE6ACAA489901566F436A502C414B251A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142728   (641192) от 15.06.2017
-
-Bobby Short - Loves Cole Porter & Guess Who's in Town (1971, 1987) 2CD, 2001, Collectables [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641192.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Rap Tap on Wood [02:41]
-02. You've Got That Thing [03:27]
-03. You Don't Know Paree [03:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E585747F25FBA0A1A4D1D53B4318058C298B20
 ```
 
 

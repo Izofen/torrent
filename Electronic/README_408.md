@@ -1,3 +1,138 @@
+###  Публикация: 1276064   (789050) от 14.01.2019
+
+VA - Solamah Cille-Free Dance Vol.1 (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nihal Shukran - Matter
+02. Shiva Belmiv - Street
+03. Najuk Andrik - Tears
+04. Gobija Benne - War(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A41809D34352D70F9A9BEAB91598D25CAE7371
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276073   (789051) от 14.01.2019
+
+VA - Dance Mix Vol.2 (2019) [MP3|320 Kbps] <House, Dance, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DMITRY HERTZ - Christmas 2017 (Original Mix) 9:56
+02. Starque & Constantine P. - Ignore Yesterday, Live Future (Original Mix) 5:08
+03. Steve Darren - Today (Original Mix) 7:19
+04. Slugger Punch - Not Today (Original Mix) 4:41(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4FC1728982FD24527232F18832BD808C3631001
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202759   (789055) от 31.01.2018
+
+Anima Infinity - With Eyes Closed (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Vocal>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternal Life (3:46)
+02. Voyager (feat. Jens Gad) (4:44)
+03. Rendez-Vous (3:44)
+04. Into the Deep (5:48)(   Читать дальше...   )Жанр: Ambient, Downtempo, VocalПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFAB661F92B7AFF73BA5DF2C903482B71C30CD46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202996   (789057) от 31.01.2018
+
+VA - Cafe del Mar Chilled (Mixed) (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blue States  -  Your Girl (Mixed)  4:55
+02.  Jakatta  -  It Will Be (Mixed)  3:37
+03.  Sumsonic Presents  -  Falling (Mixed)  5:26
+04.  Moonwatcher  -  Sofa Loafer (Original Afterhours Mix) (Mixed)  4:41(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4621BB69962B412C5AA21883066B680ACA86AD03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203016   (789064) от 31.01.2018
+
+Svårmod Records (Svarmod Records) - Label 2 Releases (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Dark Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeterno (06:33)
+ 02. Generator Insaniam (05:46)
+ 03. Alternatively Insanire (05:30)
+ 04. Sator Abstentia (06:32)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient/Techno/Dark AmbientПродолжительность: 00:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57C21A34FD6CB9282F2CE8984B3DFA51DBCAFA5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276046   (789074) от 14.01.2019
 
 VA - Restricted Dance Reloaded (2019) [MP3|320 Kbps] <Uplifting Trance>
@@ -560,141 +695,6 @@ VA - The Best Of Disco Lab, Vol. 1 (2019) [MP3|320 Kbps] <Tech House, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:108992E3E2732F9024DCD551653D614A7B817730
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 864776   (789505) от 30.01.2018
-
-Organoid | Ligea - Discography 5 Releases (2011-2015) Section 27 [FLAC|Lossless]<IDM, Downtempo, Glitch, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crystal Silence (03:27)
- 02. Microgravity (02:53)
- 03. Sky Of Blue (04:34)
- 04. Soft Machine (03:01)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Downtempo, Glitch, Ambient •Продолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F07694B987062B9908948F1B743F98B8A6A6A87F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202685   (789516) от 30.01.2018
-
-VA - Best Of Chillout 2018 Vol.01 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Puremusic  -  Unsaid (Original Mix)  5:54
-02.  Koda  -  The Last Stand (Stray Theories Remix)  7:57
-03.  Claes Rosen  -  U (Original Mix)  4:45
-04.  Tokyo Boulevard  -  Unisex (Original Mix)  5:06(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03EC29E787842C93F8FB4E058AFC6C6351EAA45B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202679   (789525) от 30.01.2018
-
-VA - Chillout Therapy Vol.2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bernd Filz  -  Welcome On Earth (Original Mix)  4:25
-02.  Aaron The Baron feat. Clifford Borg  -  Simplicity In A Kiss (Original Mix)  4:41
-03.  Maurizio Piacente feat. Dalise  -  Wings (Original Mix)  4:32
-04.  Massivan feat. Bea Luna  -  That Day (Olson Dreamer Remix)  2:56(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D341BD308B67CC22F7518F28CC1F395385C6A69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202815   (789527) от 30.01.2018
-
-Spacecraft - Spacecraft (1997) Lektronic Soundscapes [FLAC|Lossless|tracks+.cue] <Ambient, Space, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Planetary Orbit (05:40)
-02. Zero, One (22:07)
-03. Topo Scan (07:14)
-04. Transmission (06:42)(   Читать дальше...   )Жанр: Ambient, Space, DroneПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D5E8F33E31C8B135CE08DFA665796DBD68BA532
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202787   (789528) от 30.01.2018
-
-Robert Rich - Inner Landscapes (1999) Hypnos / Soundscape [FLAC|Lossless|tracks+.cue] <Ambient, Experimental, Field Recording>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part 1 (13:23)
-02. Part 2 (11:20)
-03. Part 3 (08:14)
-04. Part 4 (13:25)(   Читать дальше...   )Жанр: Ambient, Experimental, Field RecordingПродолжительность: 01:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E5E1EF18E97E77F5FD324C28AB70B098430E75
 ```
 
 

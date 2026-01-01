@@ -1,3 +1,162 @@
+###  Публикация: 651813   (837262) от 03.05.2013
+
+VA - Кружатся диски - Популярные исполнители 70-х - 90-х годов [23 CD] (2013) [MP3|320 Kbps] <Retro>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ю.Антонов - У берез и сосен
+02. Е.Мартынов - Лебединая верность
+03. Маленький принц - Голос в ночи
+04. О.Анофриев - Есть только миг(   Читать дальше...   )Жанр: RetroПродолжительность: 30:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5D58F531EAA4DA05814A1DCB00810179A399413
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379650   (837385) от 30.04.2020
+
+Юрий Шатунов - Спасибо Тебе (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837385.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Спасибо ТебеЖанр: PopПродолжительность: 00:04:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A33BCF198FC1AAF7E4C1CF64ED86AE6FB5DAC645
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379821   (837459) от 30.04.2020
+
+Филипп Киркоров - Романы, Часть 2 (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837459.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Цвет настроения синий
+2. Ты
+3. Никогда
+4. За горизонты(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5247AE8A5FBF6634E4E1A72516EB07F3D3DAEE63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379823   (837557) от 30.04.2020
+
+Людмила Зыкина - Людмила Зыкина (2020) Remastered [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837557.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Что было, то было
+2. Ниточка
+3. Лирические попевки
+4. У мосточка возле броду(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:059C3AF8656ACD73B5C95FD00EC6D873CC621750
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379859   (837697) от 30.04.2020
+
+Eddy Grant - Walking On Sunshine (1978) LP [MP3|320 Kbps] <Electronic, Reggae, Funk Soul, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking On Sunshine (5:20)
+02. Living On The Frontline, The Frontline Symphony (13:19)
+03. My Love, My Love (4:32)
+04. Just Imagine I'm Loving You (6:34)(   Читать дальше...   )Жанр: Electronic, Reggae, Funk Soul, DiscoПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9AF18DF031FDE5623DF68BF331D995BDC96228
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379682   (837699) от 30.04.2020
+
+Melophonia - Limelight Disco Symphony (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Limelight Disco Symphony (11:33)
+02. The Frog And The Toad (4:01)
+03. Feeling Good (5:59)
+04. Love Is A Many Splendored Thing (3:48)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B39582E7B4DA952D6FA759EED5CAE1D89FB1123
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004645   (837740) от 06.04.2016
 
 Бумбокс - Люди (2016) EP [MP3|320 кб/с] <Pop>
@@ -533,168 +692,6 @@ magnet:?xt=urn:btih:F4396B1B828799663B7900F3B984F3BBA3F5232E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59FD0CB19FBFB2F9F64A49CBBF611CEA70613B38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379169   (841102) от 28.04.2020
-
-Hayley Williams - Petals for Armor (2020) Scene [FLAC|Lossless|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simmer (04:26)
-02. Leave It Alone (04:05)
-03. Cinnamon (03:32)
-04. Creepin' (02:58)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:55:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE116DE6E79542202499FB9F0989B046EF6974E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379153   (841213) от 28.04.2020
-
-William Hennessey - De pire en pire (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop, Alternative>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Naissance (01:41)
-02. Fous (02:52)
-03. De pire en pire (feat. Mohammed Baazi) (04:20)
-04. Damy (04:31)(   Читать дальше...   )Жанр: Indie Pop, AlternativeПродолжительность: 00:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1FAE708C0662789221A0E2CA1C9D023B8A2DC0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003703   (841276) от 04.04.2016
-
-F. R. David - серия "Золотые хиты дискотек" (Golden Disco Hits) (2001) compilation [FLAC|Lossless|image + .cue] <pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Words  3:31
-02.  Pick up the phone  3:15
-03.  Givin it up  3:19
-04.  Don`t go  4:35(   Читать дальше...   )Жанр: popПродолжительность: 01:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C44AE945FF43D1A9974713F3839E41BD076CFDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500803   (841293) от 06.10.2021
-
-Saint DX - Unmixtape (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop, Chillwave, Synthpop, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (feat. Voyou) (1:54)
- 02. Ilya (2:26)
- 03. A Phone Call (feat. David Numwami) (2:42)
- 04. Can't Get You (feat. Ménage à trois) (2:48)(   Читать дальше...   )Жанр: Electronic, Indie Pop, Chillwave, Synthpop, DowntempoПродолжительность: 00:21:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05F461E9091CF5BFDA1D5B7A769F982553190F33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500788   (841396) от 06.10.2021
-
-Saint DX - SDX (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop, Chillwave, Synthpop, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prime of Your Life (3:37)
- 02. Xphanie (3:08)
- 03. I Still Care (3:41)
- 04. Staccato (5:24)(   Читать дальше...   )Жанр: Electronic, Indie Pop, Chillwave, Synthpop, DowntempoПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5A4C183BC3069881EFED69A00EF85A217DD817F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003995   (841794) от 04.04.2016
-
-Kim Carnes - Essential (2011) [MP3|320 кб/с] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bette Davis Eyes (03:43)
-02. Cry Like A Baby (03:05)
-03. Don't Fall In Love With A Dreamer (03:41)
-04. It Hurts So Bad (03:00)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD8CDD559816729D95F505F6D732B2A2A35D343
 ```
 
 

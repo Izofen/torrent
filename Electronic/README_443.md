@@ -1,3 +1,138 @@
+###  Публикация: 1499164   (851271) от 30.09.2021
+
+Flavio Paulin - Paulin (1979) LP [MP3|320 Kbps] <Electronic, New Wave, Abstract, Synth-pop, Disco>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gli Occhi Della Strada (3:49)
+02. Passeggeri Del Domani (3:59)
+03. Ne' Geni Ne' Pazzi Veri (4:02)
+04. Dicembre 1999 (4:26)(   Читать дальше...   )Жанр: Electronic, New Wave, Abstract, Synth-pop, DiscoПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC8DA205FEB93E6FB6062873E36FAE326B41C113
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377621   (851890) от 22.04.2020
+
+Mark Hartman - Synthesizer Themes (1993) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Stage & Screen, Theme>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme From Miami Vice (2:23)
+02. Chariots Of Fire (3:42)
+03. Dune (3:49)
+04. Theme From Rainman (3:25)(   Читать дальше...   )Жанр: Synthpop, Stage & Screen, ThemeПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948EA70AFF9F8A20297D8DCC64C4201A721EF98D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377620   (851891) от 22.04.2020
+
+Mark Hartman - Synthesizer Classics (1993) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Stage & Screen, Theme>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygene (3:49)
+02. Hymne (2:40)
+03. Vienna (4:02)
+04. I'll Find My Way Home (3:44)(   Читать дальше...   )Жанр: Synthpop, Stage & Screen, ThemeПродолжительность: 00:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C135FA967D4C0A3E6C679C265AA4B0B3F2C2BFF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377618   (851894) от 22.04.2020
+
+Mark Hartman - Synthesizer Instrumental Popsongs (1993) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Stage & Screen, Theme>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sadness (4:36)
+02. Fragile (4:11)
+03. Nothing Compares To You (4:35)
+04. Broken Wings (4:47)(   Читать дальше...   )Жанр: Synthpop, Stage & Screen, ThemeПродолжительность: 01:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55436FA27EE1C8A80E9A289C58960C0DDCEF8691
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110696   (851952) от 03.03.2017
+
+VA - Armada Acoustic (2017) [MP3|320 Kbps] <Downtempo, Acoustic, Vocal>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Armin van Buuren feat. Trevor Guthrie & John Ewbank - This Is What It Feels Like (John Ewbank Classical Remix)  3:13
+02.  Dash Berlin & Jay Cosmic - Here Tonight (Acoustic Version) (feat. Collin McLoughlin)  2:48
+03.  Gareth Emery - I Could Be Stronger (But Only For You)  3:44
+04.  DJ Shah - Who Will Find Me (Acoustic Version) (feat. Adrina Thorpe)  4:22(   Читать дальше...   )Жанр: Downtempo, Acoustic, VocalПродолжительность: 03:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:253444282B426B4A842860E6C7A9478EABD172E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110168   (852022) от 03.03.2017
 
 VA - Vocal Trance (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance, Vocal Trance>
@@ -558,141 +693,6 @@ VA - Workout in Da House (2020) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E729A839911B1BEB724ED801DE5C8238AD6FF21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001446   (853697) от 28.03.2016
-
-Jan Blomqvist - Remote Control (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stories Over [03:46]
-02. More (feat Elena Pitoulis) [08:46]
-03. Empty Floor [08:19]
-04. Her Great Escape [03:54](   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:17:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBC016F8B9678EC876DBAB37AF2215CD94287114
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110177   (853799) от 02.03.2017
-
-VA - Beautiful Lounge Collection Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853799.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Modern Lounge Heroes - A Journey - Original Mix 6:50
-002. Cool Beach - Destination Sunshine - Original Mix 2:29
-003. AMS - More Than Ever People - Original Mix 6:34
-004. Montgomery - Super - Original Mix 2:45(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1C0BFB1B321DEA430DA44E99ED4040A05E93020
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110373   (853801) от 02.03.2017
-
-VA - Deep Desire (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lamar Ensemble - Inspirational Shortcut  5:48
-02.  Diario - Beijo Grande  5:40
-03.  Jay Jay & The Snakes - Walk Good  5:55
-04.  Hints Of Soul - The Dreaming State  5:05(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B04EED9440CD5DA4527566B748E31CAAC82055C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110389   (853802) от 02.03.2017
-
-VA - Tropical Village Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Gorda Project - Do That Again  5:53
-02.  Enrico Donner - Catch a Glimpse  5:56
-03.  Zero Feedback - Deep In The Rain Forest  6:35
-04.  Gorda's Groove - Vocofeeling  5:07(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2715370C8F3EC7F28A23C7A612B57C5EF3BF460F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110398   (853809) от 02.03.2017
-
-VA - Mout: Deep Spirit Vol.8 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853809.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Philip Bader - Rootsa - Lee Jones Remix 7:41
-002. Ltzenkirchen - Out of My Head - Ill-Boy Phil & Sebastian Fleischer Remix 6:12
-003. Steve Rachmad - Secret Life of the Machines - Klartraum Remix 7:49
-004. Dirty Doering - I Would - Marcus Meinhardt Remix 7:43(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96EC9B2C08C96D8E737A43F3FA1310A37AB92ED3
 ```
 
 

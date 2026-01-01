@@ -1,3 +1,165 @@
+###  Публикация: 1839497   (1046632) от 29.11.2025
+
+Madonna - Bedtime Stories – The Untold Chapter (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Survival (Quiet Storm Demo Remix)
+02 - Secret (Allstar New Single Mix)
+03 - Right On Time (Original Demo Edit)
+04 - Don't Stop (Original Demo Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:093FB05551CF8E5066A01C74D6BFDABE55DAF903
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839404   (1046633) от 29.11.2025
+
+Ed Sheeran - Play (2025) Deluxe, 2025, Atlantic Records UK [FLAC 24/44.1, FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening [00:04:00]
+02. Sapphire [00:02:59]
+03. Azizam [00:02:42]
+04. Old Phone [00:03:41](   Читать дальше...   )Жанр: PopПродолжительность: 01:28:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD306F6A429944F3D81BFB6BFCBA7B116F16B58C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839710   (1046838) от 30.11.2025
+
+VA - 00s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gorillaz - Feel Good Inc (3:42)
+02. Red Hot Chili Peppers - Snow (Hey Oh) (5:34)
+03. Kylie Minogue - Can’t Get You out of My Head (3:51)
+04. Coldplay - Yellow (4:26)(   Читать дальше...   )Жанр: PopПродолжительность: 05:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2549AF7AE834132595EE5751414823C00CDB6A91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840108   (1046999) от 03.12.2025
+
+VA - 10s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Mars - That’s What I Like (3:25)
+02. Lil Wayne - Sucker for Pain (4:03)
+03. Charlie Puth - We Don’t Talk Anymore (3:37)
+04. Coldplay - A Sky Full of Stars (4:27)(   Читать дальше...   )Жанр: PopПродолжительность: 05:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC3052CB41C475C36C38A0487C18B4E56CACB0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840248   (1047148) от 04.12.2025
+
+VA - 70s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1047148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kate Bush - Wuthering Heights (3:25)
+02. Blue Swede - Hooked on a Feeling (2:52)
+03. Christopher Cross - Sailing (4:16)
+04. Rod Stewart - Da Ya Think I’m Sexy (5:31)(   Читать дальше...   )Жанр: PopПродолжительность: 05:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC049D878A4157CD9A5B62BFEC1F736BD6C4E9A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840515   (1047414) от 05.12.2025
+
+Kylie Minogue - Kylie Christmas [Fully Wrapped] (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1047414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - It's the Most Wonderful Time of the Year
+02 - XMAS (Amazon Music Original)
+03 - Santa Baby
+04 - Hot in December(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB1CFC8407224AA471D31435A6369121682C6E92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840693   (1047473) от 07.12.2025
 
 VA - Hooked On a Feeling - 70s Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -187,7 +349,7 @@ magnet:?xt=urn:btih:4DA27BAC622D142902E98AE988CFD1E8752CAE11
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844539   (1050079) от 
+###  Публикация: 1844539   (1050079) от 27.12.2025
 
 Greater Vision - Perfect Candidate (2000) [FLAC|Lossless|tracks + .cue] <Gospel, Christian>
 
@@ -241,7 +403,7 @@ magnet:?xt=urn:btih:C5BC42DFBE78D6A2EC5D441A38DE68F8C07E7117
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844762   (1050179) от 
+###  Публикация: 1844762   (1050179) от 28.12.2025
 
 VA - Venti Compilation 11 (2025) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Disco, Hi NRG, Electro, Synth-pop>
 
@@ -268,7 +430,7 @@ magnet:?xt=urn:btih:23FB5E252F23754371ECDC2AB443B55CA0FB5F11
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844528   (1050319) от 
+###  Публикация: 1844528   (1050319) от 27.12.2025
 
 Андрей Защитник - Таро (Deluxe album) (2026) [MP3|320 Kbps] <Indie-Folk, Indie-Pop, Synthwawe>
 
@@ -290,6 +452,60 @@ magnet:?xt=urn:btih:23FB5E252F23754371ECDC2AB443B55CA0FB5F11
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FA4F38F50953A960034FCAB4F09B42ED120CA4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844934   (1050357) от 29.12.2025
+
+Baby's Gang - Challenger (Deluxe Edition) (2016) [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Challenger
+02. Jamin
+03. Happy Birthday (To My Mammy)
+04. Happy Song (Remix)(   Читать дальше...   )Жанр: Electronic, Pop, Italo-Disco, Synth-popПродолжительность: 01:12:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:974A8EE311FE32B20021B2393C2ED5543823440B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845308   (1050531) от 31.12.2025
+
+VA - Dos Décadas Dance (2001) 5 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, House, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soft Cell - Tainted Love
+02. Visage - Fade To Grey
+03. Human League - Don't You Want Me
+04. Culture Club - Do You Really Want To Hurt Me(   Читать дальше...   )Жанр: Electronic, Italo-Disco, House, Synth-popПродолжительность: 06:24:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FF0A62A21E275BCC42A2F0CBE5D9FC232FE7BF
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1280851   (757095) от 05.02.2019
+
+VA - German Top 50 Party Schlager Charts 04.02.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+02. Kerstin Ott - Regenbogenfarben
+03. Maite Kelly - Die Liebe Siegt Sowieso
+04. Maite Kelly - Heute Nacht für immer(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F693DBEB09E911ED62306A7600A88A3DEF6E672F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018117   (757549) от 19.05.2016
 
 VA - Jazzy Instrumentals (Instrumental Tracks Contaminated by Jazz) (2016) [MP3|320 кб/с] <Jazz, Bossa Nova, Instrumental, Easy Listening>
@@ -674,33 +701,6 @@ VA - Союз XXXL - Весенний Драйв (2016) [MP3|320 кб/с] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B95BFE637F66594C7081BFAED81698D913EA562
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017738   (759186) от 18.05.2016
-
-VA - Chill Acoustic Jazz Playlist (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Pomeroy - Chasing Cars
-02. Meg Birch - Ain't No Sunshine
-03. Henrietta Adewole - Smile
-04. Chess Galea - At Last(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:837C4830FEA63B28D8C161494FE57E03C9F7BC80
 ```
 
 

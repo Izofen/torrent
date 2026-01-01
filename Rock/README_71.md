@@ -1,3 +1,30 @@
+###  Публикация: 1533646   (703218) от 25.02.2022
+
+Антитіла - MLNL (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703218.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Топити за своє
+2. Кіно
+3. Маскарад
+4. Стань(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A6E15E6AC2115675EBD0993AC6A4EAF0E889B1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026429   (704065) от 15.06.2016
 
 Epolets - Cult (2016) [MP3|320 кб/с] <Alternative Rock, Indie Rock>
@@ -665,33 +692,6 @@ The Mamas & The Papas - All The Leaves Are Brown: The Golden Era Collection (2CD
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285612   (718814) от 27.02.2019
-
-Randy Pie - 6 Albums (1974-1986) Collection [MP3|320 Kbps] <Krautrock, Prog Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Истоки этой группы из Гамбурга восходят к The Rattles, бит-группе 60-х годов, а именно к Herbert Hildebrandt (guitar), Klaus-Georg Meyer, Bernd Schulz (organ) и Dicky Tarrach (drums). В 1972 году эти музыканты образовали группу Randy, Pie & Family и записали два сингла для Atlantic. Но в конце года разбежались, и Tarrach создал группу Randy Pie с Bernd Wippich (   Читать дальше...   )Список альбомов:
-1974 - Highway Driver
-1974 - Randy Pie
-1975 - Kitsch(   Читать дальше...   )Жанр: Krautrock, Prog Rock, Pop RockПродолжительность: 04:28:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C66D327324E2D9E9A162FF3BAAC06D229645A7
 ```
 
 

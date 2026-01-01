@@ -1,3 +1,138 @@
+###  Публикация: 1114543   (832155) от 15.03.2017
+
+VA - Nu Disco Super Hits 2017 (Volume 002) (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Kristina Mailana - Forget Me Not (Original Mix)  4:21
+02.  Echo Boy - Get Do It (Original Mix)  4:58
+03.  Crystal Shakers - Stand Alone (Original Mix)  4:49
+04.  DJ Favorite - Do You Wanna House (Original Mix)  5:26(   Читать дальше...   )Жанр: HouseПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E204534284BEA2BE56FF8400E8EE410E82D46DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114554   (832157) от 15.03.2017
+
+VA - Electro Nation (2017) [MP3|320 Kbps] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dario Rodriguez & Mr. V - Beat Back  3:45
+02.  DBN - Dublin  4:46
+03.  Monoloop - Uuck  4:31
+04.  Beat Kat - Rock It  5:23(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58873E805C47B72C433C33E456A54D1886F94F93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005573   (832706) от 09.04.2016
+
+VA - Lazy Sundays Vol 3 (2016) [MP3|320 кб/с] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eva Be feat. Ben Ivory - Closer (Kasar Remix) (04:50)
+02. Miki Leris - Test My Lemonade (Alberto Casallo Remix) (06:29)
+03. Pablo Einzig - Coins & Paper (08:53)
+04. Cram - Move Me (Larse Remix) (06:35)(   Читать дальше...   )Производство: Tenor RecordingsЖанр: Deep House, Chill HouseПродолжительность: 02:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:006A4CFA12BEAA7F57635C094B07BE6F83518B98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 773835   (832756) от 04.04.2014
+
+Psyrius - Sorry Pluto (2014) Uxmal Records [FLAC|Lossless|WEB-DL|tracks]<Ambient, Psybient, Space, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mercury (9:15)
+ 02. Venus (7:39)
+ 03. Earth (8:16)
+ 04. Mars (9:53)(   Читать дальше...   )Жанр: Ambient, Psybient, Space, DowntempoПродолжительность: 01:09:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221105BB3C49703A94FB1CE4945C765D83196B37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005343   (832839) от 09.04.2016
+
+VA - Progressive House Spring Essentails (2016) [MP3|320 кб/с] <House, Progressive House, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jayeson Andel & LTN - Clockwork (LTN Remix) 06:11
+02. Matt Fax - Hidden Feelings (Original Mix) 07:53
+03. Blugazer,Catherine, Blue Symmetry - Vertigo (eleven.five Remix) 07:50
+04. Nigel Good & Sarah Clark - This Is You (Blood Groove & Kikis Remix) 07:42(   Читать дальше...   )Жанр: House, Progressive House, TranceПродолжительность: 02:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163C2FFB8067C353C96A1217E5C0B5872A0D62B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380575   (833307) от 03.05.2020
 
 VA - Aly & Fila - FSOE Top 20 April 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting Trance>
@@ -560,141 +695,6 @@ VA - Southbeat Music Pres: Gym Music Motivation (2020) [MP3|320 Kbps] <Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8764CD84E86FBA64CD5FAEC24BCCCB107B6B9824
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379987   (836387) от 01.05.2020
-
-Interactive Noise - The Unreleased Live Mix (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836387.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Unreleased Live Mix (Live) (39:03)
-2. Darth & Vader - Return of the Jedi, Pt. 2 (The Unreleased Live Mix Cut) (4:52)
-3. Felguk - Galaxy Traveller (Neelix & Interactive Noise Remix) (4:09)
-4. Rolling In The Distance (The Unreleased Live Mix Cut) (4:26)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9073F16C2C462F658F0DD7835906042F1F151388
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501366   (836408) от 09.10.2021
-
-Korolova - Live @ New York, United States (2021-08-27) [MP3|320 Kbps] <Progressive House, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BetweenUs - All I See
-02. Piero Pirupa - Everybody's Free (To Feel Good) (Alexander Alar & Korolova Remix)
-03. Franky Wah - Now We Are Free
-04. Phonique ft. Rebecca - Feel What You Want (Alexander Alar & Korolova Remix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC5686AAAD5F554DE25FD6F1294A170F66E753E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501398   (836410) от 09.10.2021
-
-Stephan Bodzin - Boavista (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth (7:33)
- 02. LLL (6:52)
- 03. Astronautin (7:33)
- 04. Boavista (7:37)(   Читать дальше...   )Жанр: Tech House, Techno, MinimalПродолжительность: 02:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B6166A474DA1D86358215A07E1291FB19908E55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501383   (836411) от 09.10.2021
-
-VA - Spacedance, Vol. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spacesynth, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Based on Bass - Magic World (Spacemix) (4:28)
-02. Daylight - Touring Space (5:21)
-03. Humphrey Robertson - Space Rhythm (Sd4 Version) (5:19)
-04. Daylight - Memories of Time (5:21)(   Читать дальше...   )Жанр: Spacedance, Spacesynth, RetrowaveПродолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D27FB44BF987AC025D1A378521F34993E229CBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501401   (836414) от 09.10.2021
-
-Korolova & Two Are - Live @ Kachanivka Palace, Ukraine (2021-10-08) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SevenEver & Two Are - Need To Feel Loved
-02. Two Are - Rover
-03. Korolova & Asher Swissa ft. Evelynka - ID
-04. Two Are - In The Sky(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EA87E2C5A56F173F0ED21C98E66112A5BA5B0C0
 ```
 
 

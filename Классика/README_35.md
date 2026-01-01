@@ -1,3 +1,57 @@
+###  Публикация: 1213652   (767335) от 18.03.2018
+
+VA - Piano Cloud Series - Volume One (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, Minimal>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nils Frahm - Nils has a new piano
+02. Library Tapes - Running by the roads, running by the fields (Solo Piano)
+03. Peter Broderick - Eyes Closed And Traveling
+04. Fabrizio Paterlini - Everyone wants to be found(   Читать дальше...   )Жанр: Modern Classical, Piano, MinimalПродолжительность: 01:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E3A3C179D49770FED65763E1197108778C64DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 199232   (767395) от 27.01.2019
+
+Д.Д.Шостакович-Симфония №7 'Ленинградская' дирижёр Марис Янсонс (1995) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_767395.jpg" />
+</div>
+
+
+###  Подробнее
+
+9 августа 1942 года по планам фашистского командования Ленинград должен был пасть, на этот день был назначен парад немецких войск в городе. Но в этот день в Большом зале Ленинградской филармонии, на стене которой красовалась надпись: "Граждане! Осторожно! При артобстреле эта сторона опасна!" – в городе, где люди каждый день гибли от голода и бомбёжек – (   Читать дальше...   )1. Allegretto (26:03)
+2. Moderato (Poco allegretto) (10:02)
+3. Adagio (16:22)
+4. Allegro non troppo (16:17)Жанр: Classical, симфоническая музыкаПродолжительность: 01:08:44
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393419   (767601) от 30.06.2020
 
 Maxence Cyrin - Aurora (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, Ambient>
@@ -633,60 +687,6 @@ Andrew Jasinski - Sea (2014) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45F1595F7D23EBB3FA5EE2435B579DDB4D6E9A04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391496   (781016) от 20.06.2020
-
-Andrew Jasinski - Embracing the Universe (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Neo-Classical, Instrumental, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embracing the Universe (6:22)
-02. Transforming Fire (13:24)
-03. Moon Bear (14:10)
-04. Immersion (3:54)Жанр: Modern Classical, Neo-Classical, Instrumental, PianoПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C19181F0487815A9E0062DED546570E38A11D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206194   (782511) от 13.02.2018
-
-Tom Parker Featuring Berdien Stenberg & Jaap van Zweden - Bach - The Brandenburgs - The Concertos 1, 2 & 3 (A Tom Parker Project) (1995) 1997 [FLAC|Lossless|image + .cue] <Classical, Neo ...
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto No. 1
-1	Allegro	4:37
-2	Adagio	3:36
-3	Allegro	5:10(   Читать дальше...   )Жанр: Classical, Neo-ClassicalПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED3AC30438511152F62343156AF34CE27B50DF2
 ```
 
 

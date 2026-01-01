@@ -1,3 +1,30 @@
+###  Публикация: 1206995   (781288) от 16.02.2018
+
+VA - Лучшие клубные новинки Vol.12 (2018) (2018) [MP3|320 Kbps] <Dance, Club,Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Mase & Sharliz - SKY (Original Mix) 6:26
+02. A.U.R.A feat. Tamra Keenan - Dance All Night 3:36
+03. Aaron Mcclelland - You 3:45
+04. Above & Beyond feat. Richard Bedford - Northern Soul (Ben Bohmer Extended Mix) 6:23(   Читать дальше...   )Жанр: Dance, Club,OtherПродолжительность: 19:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:884208BA04B764B2FE6AFA9008B59B53562B58A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206979   (781293) от 16.02.2018
 
 VA - German Top 100 Single Charts 16.02.2018 [MP3|320 Kbps] <Pop>
@@ -673,33 +700,6 @@ Doug MacLeod - The Blues Is Made With Soul (1984-2017) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4988C3A74286D4454DD3C053B84933E2C73BB31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390523   (782662) от 16.06.2020
-
-VA - Suspended Dreams: Weekend Picks Deep House (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782662.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. I-Ly - Trip The Light Fantastic
-002. Gianni Serra - Dance With Me
-003. Gorgonoize - Tranquility (Original Mix)
-004. Green Pistaches - Cut It Out(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:905D2C7DF5F830C6C82A120196423F436A3D8A02
 ```
 
 

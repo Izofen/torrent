@@ -1,3 +1,138 @@
+###  Публикация: 1002971   (845112) от 02.04.2016
+
+Sasha - Scene Delete (2016) [MP3|320 кб/с] <Electronic, Ambient, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Channel Deq (2:13)
+02. View2 (5:50)
+03. Baracus (6:46)
+04. Linepulse (6:16)(   Читать дальше...   )Жанр: Electronic, Ambient, DowntempoПродолжительность: 02:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1292D17007B08F956203A5920B6111A2A9E04DCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112025   (845153) от 07.03.2017
+
+VA - The Tribal House of Istanbul (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Dello - Gulbahar [00:09:03]
+02. Stradivarius - Hang on the Vibe [00:06:58]
+03. Kephee - What Happened [00:06:47]
+04. Oscar Vaught - Freak On [00:03:10](   Читать дальше...   )Жанр: House, Tech House, Deep House, ElectronicПродолжительность: 02:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF62499DEEA0AA73229923F3C44F548FED88E53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003059   (845201) от 02.04.2016
+
+VA - 10 Years Stil Vor Talent (Presented By Oliver Koletzki) - 2016 [MP3|320 кб/с] <Tech House, Deep House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HVOB – Envy
+02. Joachim Pastor – Clean Slate
+03. Bjorn Starig – Moqui Marble
+04. Teenage Mutants/EdOne/Bodden – Expression(   Читать дальше...   )Жанр: Tech House, Deep House, TechnoПродолжительность: 03:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616D84860CC664BB45FD212AFC9AF2DDC45B6B19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111640   (845228) от 07.03.2017
+
+VA - Chilling Sunset Tunes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rey Salinero - Recuerdos [05:58]
+02. Morris Jones - Here We Are (Alfreo Molino Mix) [06:41]
+03. Arrojas - Cala de Piedras [05:57]
+04. The Sura Quintet - Keep Me Company [06:04](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D52BC21BB7B5E3225309683CC3A1EC671822BE73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002860   (845294) от 02.04.2016
+
+Oliver Schories - Relatively Definitely (2016) [MP3|320 кб/с] <Tech House, Deep House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Curl
+02. Marin
+03. Floyd
+04. Barac(   Читать дальше...   )Жанр: Tech House, Deep House, TechnoПродолжительность: 01:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEAA0FC22CDF46D092E82D08E0068D4ED52E0460
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003110   (845297) от 02.04.2016
 
 Ed Ed - Eclectic 01 (2016) [MP3|320 кб/с] <Tech House, Progressive>
@@ -557,141 +692,6 @@ Zymosis - Timeless (2020) Sentimony Records [FLAC|Lossless|WEB-DL|tracks] <Psybi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57D5636F5F18632A956924FD12E5061DC2EE44C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378272   (848342) от 24.04.2020
-
-VA - The Ultimate Gym And Fitness Beats (2020) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Ruland - Feel Better (Radio Version)
-02. Rock Massive - You Know Why (PH Electro Radio Mix)
-03. Mykel Mars And Afrochuck - This Isn't Happening (Edit)
-04. Ruff Ryder - Freak (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:30:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C40757C7A022EABF5072BD0E82CAB797C4BF8507
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378135   (848413) от 24.04.2020
-
-Penta - Swirlscape (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848413.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Darker Than Black (Original Mix) (8:05)
-2. Creation (Original Mix) (11:15)
-3. Something (Original Mix) (8:50)
-4. So Be It (Original Mix) (8:50)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:20:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33F2F71EB216E44695835C933E9F1AABB7D262F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378009   (848420) от 24.04.2020
-
-VA - Workout & Fitness House (2020) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Supernocs - Vega G 03:56
-02. Ron T - Salvacion 05:43
-03. Supernocs - Covery 06:00
-04. Sultan Lay - Boogie Magic 08:07(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C28C86768611873E82DAEBD611393F322D872D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378304   (848496) от 24.04.2020
-
-VA - Statement Of Purpose (2007/2014) Xynthetic Netlabel [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Drum n Bass, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amorph - Eating the Ground (04:19)
- 02. Aphorism - Covert Convert (04:23)
- 03. Apoplexia - Zero Wing Space Combat (04:56)
- 04. Chemical X - Asylum (07:18)(   Читать дальше...   )Тип издания: WebЖанр: IDM, Glitch, Drum n Bass, Ambient •Продолжительность: 01:31:47 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:912FE0445BA7D55BBB40B5074F098B42117CF1CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002272   (848695) от 31.03.2016
-
-Ab Ovo - Discography 6 Releases (2001-2009) Ant-Zen, Fluttering Dragon [FLAC|Lossless|tracks+.cue] <IDM, Ambient, Glitch, Experimental, Industrial>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adjmir (03:57)
- 02. Tango (04:11)
- 03. L'Heure Bleue (04:58)
- 04. Verba (05:51)(   Читать дальше...   )Тип издания: CDЖанр: IDM, Ambient, Glitch, Experimental, Industrial •Продолжительность: 01:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E9C3B69B62B4138294F6EA13D823315D3F8BBB
 ```
 
 

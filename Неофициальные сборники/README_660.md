@@ -1,3 +1,30 @@
+###  Публикация: 1475174   (1012570) от 05.06.2021
+
+VA - EDC Dance Nation: Club House Mix (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012570.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kid Dynamo - Love So Deep
+002. Bostan - La Baile
+003. Goodboys & Imanbek - Goodbye
+004. Adam Cooper & Natasha Burnett - Eyes Shut(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 10:19:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92FF55ED6E791EA0E33BD5D79192E7DA88E76149
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474770   (1012629) от 04.06.2021
 
 VA - Shazam Хит-парад World Top 200 Май (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Soft Rock (2021) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CDD0A252776DD7A1F3FE7F2A0A42E0094F5A80A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473673   (1013489) от 30.05.2021
-
-VA - Music Collection Vol.3 (2020) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013489.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 2illusions - Spring Day (Original Mix)
-002 7and5 - Wavecrest
-003 Acado, Vincent Marlice - Garnet
-004 Acceptable Drunk - Undoubtedly (Original Mix)(   Читать дальше...   )Жанр: Downtempo, Chillout, Lounge, Ambient, Relax, ElectronicПродолжительность: 17:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3673ACD6DF3C5DBD6379AAE6740E5883715DF1E9
 ```
 
 

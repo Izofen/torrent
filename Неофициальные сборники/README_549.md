@@ -1,3 +1,30 @@
+###  Публикация: 1115592   (826771) от 18.03.2017
+
+VA - Beatport Trance Pack (18.03.) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ahmed Romel vs. A & Z - Revive (Extended Mix)  6:48
+02.  Giuseppe Ottaviani & Tricia Mcteague - Loneliest Night (Onair Mix)  6:59
+03.  Allen Watts - Polarize (Original Mix)  6:16
+04.  Greg Downey - Midnight (Original Mix)  7:21(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 03:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73B7A8D5DC87B787CDD3FA89FE98D34AF2DA744
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006587   (826897) от 12.04.2016
 
 VA - 100 Пудовый Auto hit №2 (2016) [MP3|128-320 кб/с] <Рор>
@@ -669,33 +696,6 @@ Joe Cocker and friends - Isolation (2020) [MP3|320 Kbps] <Blues,Soul,Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4512300E681DCE317D923B3F0B28FEC06A097E29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006307   (829191) от 11.04.2016
-
-VA - EDM Signature Series Deejay (2016) [MP3|236-320 кб/с] <Italo-Disco, Hands Up, Funky, DanceCore, Progressive, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dance Euro
-01. Acarina - Frei Zu Sein (Radio Cut) 02:48
-02. Arnold Palmer - Melbourne Trumpet (Extended Instrumental Mix) 04:41
-03. Boris Zhivago - Mona Lisa (Vocal Album Edit) 07:58(   Читать дальше...   )Жанр: Italo-Disco, Hands Up, Funky, DanceCore, Progressive, ClubПродолжительность: 09:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF7736A4DDB822164B59F03B7D2D3AC5C617293
 ```
 
 

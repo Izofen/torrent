@@ -1,3 +1,165 @@
+###  Публикация: 1399807   (724850) от 02.08.2020
+
+Adriano Celentano - Antologia (Remastered) (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724850.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stai Lontana Da Me (Remastered) (2:11)
+002. I Want to Know Part II (Remastered) (5:21)
+003. Storia D'Amore (Remastered) (4:53)
+004. Grazie Prego Scusi (Remastered) (2:04)(   Читать дальше...   )Жанр: PopПродолжительность: 05:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E23309354231F5948D0A65071F0A8784B249E928
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284976   (724922) от 24.02.2019
+
+Earphones - This Is Pop? (2004) [MP3|320 Kbps] <Eurodance, Italodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Birds In Time (1:32)
+02. Birds (2:53)
+03. Sexcrime (2:52)
+04. Short Happy Life (3:17)(   Читать дальше...   )Жанр: Eurodance, ItalodanceПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89FE4B5B84DCACFC98155F68BC1981FAF16D3846
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399905   (724995) от 02.08.2020
+
+VA - Claw Collection, Vol. 1 (Essential Dance Tunes Only for Dj's) (2013) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Berte - Sin Tu Amor (Extended Mix) (5:04)
+02. Paul - Tonight (Original Extended Mix) (4:37)
+03. Fabio Amoroso - Roadhouse Blues (Stefano Iezzi Original Mix) (4:57)
+04. Joe Berte - The Queen of the Night (Joe Berte Extended Mix) (5:53)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDCFB4318FA33F05B8A7A69B6BC7D149A071DAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218209   (725028) от 08.04.2018
+
+Fancy - 30 Years - The New Best Of (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Flames of Love (Radio Version)	3:28
+02.	Slice Me Nice	4:06
+03.	Come Back and Break My Heart (Radio Mix)	4:01
+04.	We Can Move a Mountain (Single Version)	3:48(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58D68B39220C5637901C5AD484699E9B2B267D0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399740   (725068) от 02.08.2020
+
+Beyoncé - The Lion King: The Gift (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725068.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Beyoncé - Bigger
+2. Beyoncé - Find Your Way Back
+3. Tekno & Lord Afrixana & Mr Eazi & Yemi Alade - Don't Jealous Me
+4. Burna Boy - Ja Ara E(   Читать дальше...   )Жанр: Pop, RnBПродолжительность: 01:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:389F95BF754872AE1A3890B74B3984F759A915A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399911   (725072) от 02.08.2020
+
+Dario Silver (Mirko Hirsch) - Electric Heartbeat (2017) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco, Eurobeat, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Tonight (Extended Version) (4:37)
+02. Electric Heartbeat (6:36)
+03. Computer Girl (5:34)
+04. Disco Delirio (5:25)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, Eurobeat, Hi-NRGПродолжительность: 01:15:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B756B5044504A829CFECBAA409A97FC57C9B5D30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399908   (725081) от 02.08.2020
 
 Blue Talking - Forever Fantasy (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco>
@@ -535,168 +697,6 @@ Roxette - Good Karma (2016) [MP3|320 кб/с] <Pop Rock, Soft Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FB8D8C1FFE707CEFCC5274C68744855304E2703
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128366   (728435) от 24.04.2017
-
-Mozgi - На белом (2017) [MP3|320 Kbps] <Pop, Dance-Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интролль
-02. Мощь (Сила)
-03. Казино (Попёрло) (Скит)
-04. Ипо Ипо(   Читать дальше...   )Жанр: Pop, Dance-PopПродолжительность: 00:25:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52F9674BEF39D27E1DE422D9ABC85A496C9A8E89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128385   (728661) от 24.04.2017
-
-Белый День - Весело живём! Лучшие песни (2004) Compilation [APE|Lossless|image + .cue] <Pop-Folk>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Весело живём!
-02. Дарья
-03. Ах, мамочка
-04. Валенки(   Читать дальше...   )Жанр: Pop-FolkПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10BD441354E661793A317E440388EC10F5F5C4C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128381   (728672) от 24.04.2017
-
-Белый День - Трактористка (2003) [FLAC|Lossless|image + .cue] <Pop-Folk>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Трактористка
-02. Димочка
-03. Дарья
-04. Встали высокие сосны(   Читать дальше...   )Жанр: Pop-FolkПродолжительность: 00:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE847C75608657D56BC2B60A7D8DD8DE6E56991
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530531   (728694) от 11.02.2022
-
-VA - Созвездие хитов. Застольные песни 1 (2004) [MP3|320 Kbps] <Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А. Джигарханян - ...щас спою! ( из М/ф )
-02. В. Девятов - Коробейники
-03. О. Воронец - Ромашки спрятались
-04. А. Литвиненко и Т. Мушта - Огней так много золотых(   Читать дальше...   )Жанр: РетроПродолжительность: 01:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6834181C218CBA378F0889F0E3F90F68FB2EBD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022494   (728710) от 02.06.2016
-
-Fifth Harmony - Reflection (2015) Deluxe Edition [FLAC|Lossless|image + .cue] <Pop, Dance, RnB>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Top Down 3:40
-02. BO$$ 2:51
-03. Sledgehammer 3:51
-04. Worth It (feat. Kid Ink) 3:45(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD40757C2EE02933F38B8BD8A4E4871EA2227A15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530551   (728801) от 11.02.2022
-
-VA - Созвездие хитов-киношлягеры vol.1 (2004) [MP3|320 Kbps] <Soundtrack>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Оркестр Ленинградской Гос. Филармонии - Увертюра
-( к/ф Приключения Шерлока Холмса и Доктора Ватсона )
-02. А. Ведищева - Песня о медведях
-( к/ф Кавказкая пленница )(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:10:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B20BEEE28E6705F658FF1C753B6F38E66F4B918
 ```
 
 

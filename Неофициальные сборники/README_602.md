@@ -1,3 +1,30 @@
+###  Публикация: 991469   (906537) от 28.02.2016
+
+VA - Empire Garage And U.S.House (2011 - 2013) [MP3|191-320 кб/с] <House, Funky, UK Jackin, Vocal, Tribal House, Tropical>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jerome Feat. Ace Young - Dont Walk Away (Radio Edit) 03:17
+02. Matteo Marini - Rush (Original Mix) 06:07
+03. Futuristic Polar Bears - Jetlag 05:28
+04. Deep Divas & Rehnoir - Phaze (Original Mix) 05:30(   Читать дальше...   )Жанр: House, Funky, UK Jackin, Vocal, Tribal House, TropicalПродолжительность: 09:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38C8E2C5886C9F5B36C7999A59687C988070F2D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991503   (906551) от 28.02.2016
 
 VA - Avantgarde Chillout Vol 3 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -668,33 +695,6 @@ VA - Волчья доля 100 хитов (2016) [MP3|192-320 кб/с] <Шанс
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0918FAC3D724243694CA2FCFAB8624E6CEE406E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991323   (908024) от 27.02.2016
-
-VA - Dance Hits Collection Vol.7 (2016) [MP3|320 кб/с] <Eurodance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tanaka - More, More, More
-02. L.E.T. Generation - Send Me An Angel (Hard Club Mix)
-03. Xstress - I've Got The The Feeling
-04. Valencia No Existe - Feel Your Loving (Extended Mix)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 06:12:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD75F5E800D606954F0A5C788C6FB5EAA1593B33
 ```
 
 

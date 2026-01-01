@@ -1,3 +1,30 @@
+###  Публикация: 1376543   (858921) от 18.04.2020
+
+VA - German Top 100 Single Charts 17.04.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights
+02. Samra - BaeBae
+03. Drake - Toosie Slide
+04. Bonez MC - Shotz Fired(   Читать дальше...   )Жанр: PopПродолжительность: 05:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F05E2F667AFD1F7564C8CB337D53DBCC0CAEAEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109229   (859014) от 27.02.2017
 
 VA - The Most Live Rock'n'Roll (2017) [MP3|320 Kbps] <Rock 'n' Roll , Rockabilly>
@@ -668,33 +695,6 @@ VA - The Brutal Might (2021) [MP3|320 Kbps] <Metal, Hard Rock, Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1E38526780174F0DF4381CD76136B06C9317AEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497889   (859656) от 25.09.2021
-
-VA - Clubbing Electro House (Vol.05) (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859656.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dave Owens - Skyline
-002. Moroni feat. Corey Andrew - Super Lady
-003. Shutdown - It's All Inside You
-004. Jerem A - Real Time(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 08:22:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7721623A87F8938BA3B51E280D36970D279693AD
 ```
 
 

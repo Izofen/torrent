@@ -1,3 +1,69 @@
+###  Публикация: 616488   (975021) от 10.02.2013
+
+Rouge Hot - Oriental Instruments VS Occidental Music (2005-2008) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somewhere, My Love [03:55]
+02. Myth [05:20]
+03. Garmen [04:33]
+04. Speak Softle Love [04:11]
+05. Csardas [05:32]
+06. Auf Flugeln des Gesanges [04:44]
+07. Peaceful Lake [04:04]
+08. Europa [05:06]
+09. El Bimbo [03:27]
+10. Memory [04:09](   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EFD82DDE58EE3A93D6B866C3BC8E4F13A4EBB0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614993   (977259) от 08.02.2013
+
+Stile Antico & Fretwork - Tune Thy Musicke to Thy Hart (2012) [FLAC|Lossless]<Sacred Music, Religious>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Tomkins (1572-1656): O praise the Lord - Stile Antico [03:44]
+02. John Amner (~1641): O ye little flock - Stile Antico, Fretwork [07:06]
+03. John Taverner (c.1490-1545): In nomine - - Stile Antico, Fretwork [02:03]
+04. Robert Ramsey (1590-1644): How are the mighty fall'n - Stile Antico [06:29]
+05. Thomas Tallis (c.1505-1585): Purge me, O Lord Antico - Stile Antico [01:51]
+06. John Amner: A stranger here Antico - Stile Antico [05:04]
+07. Robert Parsons (c.1530-1570): In nomine a 4 no. 1 - Stile Antico, Fretwork [02:35]
+08. John Browne (fl.1480-1505): Jesu, mercy, how may this be? - Stile Antico [10:03]
+09. Robert Parsons: In nomine a 4 no. 2 - Stile Antico, Fretwork [02:18]
+10. Giovanni Croce (c.1557-1609): From profound centre of my heart - Stile Antico [04:36](   Читать дальше...   )Жанр: Sacred Music, ReligiousПродолжительность: 01:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA0C122727F82ADB0F00E17B7F15C787808C607C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 611441   (977305) от 08.02.2013
 
 Liszt - Complete Tone Poems Vol.1 & Vol.2 (Bernard Haitink & London Philharmonic Orchestra) (1993) 4CD [FLAC|Lossless]<Classical, Romantic Period, Symphony, Tone Poem>
@@ -725,72 +791,6 @@ Pablo Sarasate - Music for Violin and Orchestra: Tianwa Yang (2009) CD3 [MP3|224
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E6A106B3E60D3E0EC7C8C26A2B38EB0DA4F3DBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608220   (992487) от 26.01.2013
-
-VA - 100 Шедевров класики 1 (2013) [MP3|256 кб/с]<Классическая музыка>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Верди - Триумфальный марш (Аида)
-02. Бизе - Сюита (Кармен)
-03. Штраус - Вальс ''Голубой Дунай''
-04. Россини - Увертюра к опере ''Севильский цирюльник''
-05. Чайковский - Концерт N1 для фортепиано с оркестром, часть 1
-06. Шопен - Вальс N2 си-минор (2 вальса, опус 69)
-07. Свиридов - Романс (Метель)
-08. Гендель - Анданте (Сюита ''Музыка воды'' HWV 348)
-09. Чайковский - Танец пастушков (Щелкунчик)
-10. Бетховен - Лунная соната (Соната для фортепиано N14)(   Читать дальше...   )Жанр: Классическая музыкаПродолжительность: 04:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D77542262C560589D71FD0FB491673A276C538
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609305   (992548) от 26.01.2013
-
-Ludovico Einaudi - In a Time Lapse (2013) [MP3|320 кб/с]<Neoclassical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992548.jpg" />
-</div>
-
-
-###  Подробнее
-
-(2:05) 01. Corale
-(5:31) 02. Time Lapse
-(4:22) 03. Life
-(3:27) 04. Walk
-(4:25) 05. Discovery At Night
-(5:32) 06. Run
-(4:51) 07. Brother
-(2:57) 08. Orbits
-(6:25) 09. Two Trees
-(7:52) 10. Newton's Cradle(   Читать дальше...   )Жанр: NeoclassicalПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9657D61294D66813D4331E5049ECCDAE73F8AEFD
 ```
 
 

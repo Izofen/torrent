@@ -1,3 +1,165 @@
+###  Публикация: 1369357   (903255) от 23.03.2020
+
+Dua Lipa - Future Nostalgia (2020) [MP3|320 Kbps] <Synthpop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Nostalgia
+02. Don't Start Now
+03. Cool
+04. Physical(   Читать дальше...   )Жанр: Synthpop, DanceПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0909C37CF5C99EA47CC914214207EF998DC1DA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369274   (903293) от 23.03.2020
+
+Dua Lipa - Future Nostalgia (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903293.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Future Nostalgia (03:04)
+2. Don't Start Now (03:03)
+3. Cool
+4. Physical (03:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AE3F7E234D2366E2414F29BBE36539F9D8646DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369536   (903356) от 23.03.2020
+
+Joy - 4 Albums (1986-2011) Collection 2LP+2CD [MP3|320 Kbps] <Electronic, Europop, Euro-Disco, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Joy (Джой, рус. радость) - австрийская англоязычная европоп/евродиско-группа. Образована в 1984 году. Наиболее известна своими синглами Touch By Touch, Valerie и Hello.Список альбомов:
+1986 - Hello
+1986 - Joy And Tears
+1989 - Joy(   Читать дальше...   )Жанр: Electronic, Europop, Euro-Disco, Synth-popПродолжительность: 02:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2491B514225E4A710CA5B1DA78A29FCFEF0359E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369211   (903531) от 23.03.2020
+
+VA - ZYX Italo Disco New Generation Vol. 16 (2020) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Italove - Burn This City (Flashback Ri-Mix) (6:22)
+02. Savage - Magic Carillon (Also Playable Mono Remix) (5:30)
+03. Carino Cat feat. Fred Ventura - The Carino Crew (4:57)
+04. Romantic Gladiators - Hero (Warrior Version) (5:24)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Nu-DiscoПродолжительность: 02:28:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136E4008BEC31CE340F0FA9C49D547225DADEE56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369190   (903812) от 23.03.2020
+
+Bosson - Best of 11-Twelve (2013) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guardian Angel (3:40)
+02. Every Single Time (3:58)
+03. Baby I Believe In You (3:44)
+04. Loveshock (3:21)(   Читать дальше...   )Жанр: Dance-pop, EuropopПродолжительность: 00:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89ADDCDB4244FB215D23CFACC4224D2A96B75414
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 867302   (904409) от 07.02.2015
+
+Дмитрий Маликов - Cafe "Safari" (2015) [FLAC|Lossless]<Pop, Instrumental>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Улыбка ангела
+02. Линия горизонта
+03. Медные небеса
+04. Кафе "Сафари"(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:363768EA3429AEE2EC8F813653F7F06991DD1915
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099641   (904590) от 01.02.2017
 
 Лев Лещенко - Лучшее (2012) Box Set, 2CD [FLAC|Lossless|image + .cue] <Retro>
@@ -536,168 +698,6 @@ magnet:?xt=urn:btih:22AD9E4FD60402B659CB6E4E4BD9D0507FD4CFD9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A40B9C93955FFC5E93CF60421CF03DAEA6C67D0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099076   (907180) от 31.01.2017
-
-VA - Twelve Inch Eighties: When the Going Gets Tough (2017) [MP3|320 Kbps] <Pop, R&B, New Wave, Italo Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907180.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-
-01. Belinda Carlisle - Leave A Light On (Extended Version) 08:07
-02. The Bangles - Walk Like An Egyptian (Extended Version) 05:50(   Читать дальше...   )Жанр: Pop, R&B, New Wave, Italo DiscoПродолжительность: 03:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD99B53CBA76F49E5F752526E1F75BF36D722C57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635786   (907363) от 27.03.2013
-
-Кай Метов - Для тебя и о тебе (2013) [FLAC| image +.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тема Любви
-02. Дорога к твоему сердцу
-03. Сны о тебе
-04. Женская непредсказуемость(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:02
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368865   (907485) от 21.03.2020
-
-VA - Pop Classics (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clean Bandit, Sean Paul, Anne-Marie - Rockabye (feat. Sean Paul & Anne-Marie)
-02. Anne-Marie - Alarm
-03. Bruno Mars - 24K Magic
-04. RITA ORA - Anywhere(   Читать дальше...   )Жанр: PopПродолжительность: 01:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:021632C3557F257F5CE6E9138657C1E0168BD164
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098305   (908392) от 30.01.2017
-
-Ken Laszlo - The Best Of (1994) [APE|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonight (Original Edit) [3:57]
-02. Hey Hey Guy (Original Long Edit) [7:33]
-03. Glasses Man [4:19]
-04. Baby Call Me (Mix Edit) [7:28](   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:50:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD1A9C9724A5795F30246C65773AF47CAEEAFD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098751   (908575) от 30.01.2017
-
-VA - In The Club 2017.1 (2017) [MP3|320 Kbps] <House, Dance, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908575.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-
-01. Lost Frequencies - What Is Love 2016
-02. Dimitri Vegas Like Mike - Stay a While(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 5:14:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA4FCF43B64BC833A93D9A5AC937A06535E743C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098400   (908606) от 30.01.2017
-
-Frédéric Mercier - 3 Albums (1978-1986) LP [MP3|320 Kbps] <Electronic, Ambient, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1978 - Pacific
-1979 - Music From France
-1986 - AventureЖанр: Electronic, Ambient, Synth-pop, DiscoПродолжительность: 01:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99E1966488B78BC76F72E8292E27435D850ED09
 ```
 
 

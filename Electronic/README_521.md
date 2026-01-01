@@ -1,3 +1,126 @@
+###  Публикация: 1446074   (1033065) от 08.02.2021
+
+Tim Schaufert - Footprints (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Footprints (03:12)Жанр: AmbientПродолжительность: 00:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:989F0E78693EC2E54C8A5D3E230972E52654F499
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446173   (1033067) от 08.02.2021
+
+Tim Schaufert - am i the only one (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. am i the only one (feat. Seven) (02:36)Жанр: AmbientПродолжительность: 00:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A64B4790DE61CF56111FEA1656DF75C635125D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261143   (1033233) от 07.02.2021
+
+Olan Mill (Alex Smalley) - Discography 20 Releases (2010-2021) Serein, Facture, Preservation [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Modern Classical, Drone, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CI-MXD (40:30)
+ 02. Electrostatic (01:41)
+ 03. Redox (04:22)
+ 04. Protonation (04:30)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient/Modern ClassicalПродолжительность: 12:28:31 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B81E4EE8564F566084D558A2F1DAB14EF64F236
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445830   (1033269) от 07.02.2021
+
+Tim Schaufert - Temporary (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Temporary (02:05)Жанр: Electronic, AmbientПродолжительность: 00:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:267889052FE686C712E681F57C7CCB541FEB25CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445884   (1033271) от 07.02.2021
+
+Tim Schaufert, Subsets, CASHFORGOLD - Cycles (2018) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Ambient>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tim Schaufert, Subsets, CASHFORGOLD - Cycles (04:10)Жанр: AmbientПродолжительность: 00:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27CAEA754D4BCC0754A76A343DA88A554388BA24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445887   (1033278) от 07.02.2021
 
 VA - Pure Retrowave, Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
@@ -543,136 +666,6 @@ Dubble Vision & Pixel (DNB) - Rastafari Army (2017) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04AD87776BA2708185EE49C9AAD4842C5B75E760
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445523   (1033558) от 06.02.2021
-
-Newt - -273C (1997) Quantum Loop [FLAC|Lossless|tracks+.cue] <IDM, Techno, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motive One (07:21)
- 02. Hull Break (06:30)
- 03. Ostad-Revisited (08:14)
- 04. Testone (05:31)(   Читать дальше...   )Жанр: IDM, Techno, ExperimentalПродолжительность: 01:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:461FB836C35A68EF43E749624E5578284DCDC30F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445557   (1033559) от 06.02.2021
-
-Dreazz & Emery - Ethiopian Jungle (2015) [FLAC|Lossless|WEB-DL|tracks] <Jungle>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreazz, Emery - Bam Bam The Alarm (06:02)
-02. Dreazz, Emery - Etheopian Jungle (05:28)Жанр: JungleПродолжительность: 00:11:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F001CBD8F6939A424F404FF716C991E2362BADFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618871   (1033675) от 13.03.2023
-
-Wes Borland - Mutiny on the Starbarge (2023) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Experimental>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are the Airlock [00:05:07]
-02. Mounting the Husk [00:03:34]
-03. Lexicon Galactus [00:05:16]
-04. Don't Believe in Trees [00:02:21](   Читать дальше...   )Жанр: Trip-Hop, ExperimentalПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EF4A6251E512F19FD23D3BF7ABDDAA4919A3169
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445302   (1033690) от 05.02.2021
-
-Eroticamila - Porn Mood Erotic Sounds (2020) [MP3|320 Kbps] <Easy Listening, Electronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pure Desires
-02. Sensual Dance
-03. Fancy Games
-04. We Fall in Ecstasy(   Читать дальше...   )Жанр: Easy Listening, ElectronicПродолжительность: 01:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9AE5A3DCB10AB903C68E2D9C54E82D97E4885C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376076   (1033703) от 05.02.2021
-
-Nicolas Jaar | A.A.L. (Against All Logic) | Ancient Astronaut - Discography 47 Releases (2008-2021) Other People [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Ambient, House, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coyote Gospel (06:00)Тип издания: CD, Web, VinylЖанр: Experimental, Ambient, House, Downtempo •Продолжительность: 19:25:28 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:815C0E4B0968A21CFE33E1FA79474B9C6690240B
 ```
 
 

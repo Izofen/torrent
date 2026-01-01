@@ -1,3 +1,138 @@
+###  Публикация: 1138593   (663160) от 30.05.2017
+
+VA - Deep House Music (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luca Elle - T-Bass
+02. Jazz Juice - Fever - ChrisB Remix
+03. Chartclimbers - Lead Man Holler
+04. Dariush - The Elves(   Читать дальше...   )Жанр: HouseПродолжительность: 01:23:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FD3253E6B3B4C9F46D1772DD362C3069231E3AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138521   (663239) от 30.05.2017
+
+VA - Summer Chill. Smooth Beach Lounge Grooves for Easy Listening (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moon de Lounge - La Mer Se Calme - Extended Beach Mix
+02. Melounge - Maldives Beach Sunset
+03. Bouche - Wind Pillow
+04. Chantilas - Chapter Three(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:249A7FC954EA5B918B89B95888FC619873C01C15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138581   (663240) от 30.05.2017
+
+VA - Blue Lounge 3: Bossa Lounge and Chillout Moods Selection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jean-Michel Vallet - Moody Lounge 2:57
+02.  Christophe Goze - I Like It (Main) 3:32
+03.  Simon Di - Push Tempo (Main) 2:19
+04.  Luigi Seviroli - Lifesource (Full Mix) 2:16(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2887A535036F0AABD50AAD712703ABA7EEAD610D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138480   (663242) от 30.05.2017
+
+VA - Masters Of Dance 8 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jay Frog - Like It! (Radio Edit) 3:20
+02.  Cliff Wedge - No One Like U (Radio Edit) 3:46
+03.  Leyla Ek - Discobedience (Radio Edit) 2:53
+04.  Brothers - Sacrifice (Best DJ Version Radio) 3:33(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C57AEDECACB909A3B673C81ADB16B1F69E11E085
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138419   (663246) от 30.05.2017
+
+VA - Ambient Nectar (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sura Quintet – Endless Horizon 05:57
+02. Space Scavengers – Sound Asleep 03:58
+03. DJ Bilko – Autumn Waves 04:55
+04. Azaleh – Unbound 03:09(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617059E88683690FD879526CB3C7C697F42881B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138374   (664137) от 29.05.2017
 
 Ovnimoon - Voyage (2017) [FLAC|Lossless|WEB|tracks] <Psy-Trance, Goa Trance>
@@ -557,141 +692,6 @@ Becky Hill - Only Honest On The Weekend (2022) Deluxe Edition [FLAC 2.0|44.1/24|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4001B08FF57B64122013BE1274A8431AC108C34D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137706   (665417) от 28.05.2017
-
-VA - Future Trance Vol. 80 (2017) [MP3|320 Kbps] <House, Trance, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Zedd & Alessia Cara - Stay 3:31
-02.  Axwell Ingrosso feat. Kid Ink - I Love You 3:11
-03.  The Chainsmokers & Coldplay - Something Just Like This 4:07
-04.  Martin Garrix & Dua Lipa - Scared To Be Lonely (Brooks Remix) 3:21(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 03:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F759DF4AB82A0E8CC540E3256A6909356CC4DFAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137623   (665418) от 28.05.2017
-
-Maitreya - Avatar Kalki (2017) [MP3|320 Kbps] <Ethnic, Psychillout, Psybient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Om Namo
-02. Bhaifajyaguru
-03. Kalachakra
-04. MahaMrityunjaya(   Читать дальше...   )Жанр: Ethnic, Psychillout, Psybient, Relax, MeditationПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5295B9ED8DDDDC358EC39E6B40DF8AF2C4C182F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137788   (665427) от 28.05.2017
-
-VA - Erotic Massage Lounge - Sexy Chillout Obsession Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Guru - Addicted To Tantric Sex (Sensual Love Mix) 04:56
-02. From A To A - Perfect Pillow (New Age Mix) 05:00
-03. Once Upon A Time - Like You 04:10
-04. Melounge - Maldives Beach Sunset 05:02(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E9CE3A83A7D047E2A1EC11775AD07778F949A86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537962   (665442) от 18.03.2022
-
-VA - Black Hole Trance Music 03-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Durand & Christian Burns - Almost Home (Extended Mix) [06:30]
-02. Siskin - Never Alone (Extended Mix) [07:45]
-03. Ciaran Mcauley & Clara Yates - Light A Rainbow (Extended Mix) [05:25]
-04. Cosmic Gate & Olivia Sebastianelli - We Got The Fire (Extended Mix) [07:04](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0436AC52B44599AEA45E7D87C61689337F8ABD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137509   (665564) от 28.05.2017
-
-VA - Summer Hits (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mivase - I Can't Give Up (Original Mix) 3:12
-02.  Russian Dolls & Nathia Kate - Always (feat. Robin Vane) (Original Mix) 4:24
-03.  WeareD - Assertive (Original Mix) 2:49
-04.  Frainbreeze - Signs Of Time (feat. Natune & Angel Falls) (Vadim Bonkrashkov Remix) 4:26(   Читать дальше...   )Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 01:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CB60E09896311C8768A80A4838CF1D12860F19
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1201385   (792876) от 24.01.2018
+
+Emotions Music - Autumn Vol. 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Think Different 6:30
+02. Sea Breeze 7:54
+03. Golden Leaves 6:47
+04. Autumn Rustle 10:29(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13C42779D0C35261B6BD93F47E70307810AE194
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201301   (792878) от 24.01.2018
+
+VA - Lounge Affair Vol.2 (2018) [MP3|320 Kbps] <Lounge,Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazzamor - He's Not There (Original Mix)
+02. No Noise - Karma Shabda (Original Mix)
+03. Burning Simitkovic - Pass By (Original Mix)
+04. Joe Le Blanc - Upset (Original Mix)(   Читать дальше...   )Жанр: Lounge,ChilloutПродолжительность: 01:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0013CF831455F60D567F312CD2A7297793094773
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201118   (792879) от 24.01.2018
+
+VA - Hed Kandi: Back To Love (2017) [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moloko - Sing It Back (Boris Musical Mix Edit) (4:38)
+02. Madison Avenue - Don't Call Me Baby (3:43)
+03. Supermen Lovers - Starlight (3:47)
+04. David Guetta - Just A Little More Love (Wally Lopez Remix Edit) (3:33)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F1271139FAA718120C16A8EAB3F58E77F94328
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201175   (792880) от 24.01.2018
+
+VA - True Hits Vol.2 (2018) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer  -  True (Temple One Radio Edit)  3:34
+02.  Alpha Force & Mike Van Fabio feat. Robin Vane  -  Save Me (Radio Edit)  3:40
+03.  LTN & Attila Syah  -  B29 (Original Mix)  4:24
+04.  Christian Zechner & Three Faces  -  Lost In Time (Steve Allen Radio Edit)  4:23(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB92CEF6DA583F3A9FD02D9BDD12E8C515AFEA0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201294   (792884) от 24.01.2018
+
+VA - Lost In House (25 Groovy Dancefloor Tunes) Vol.1 (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pedro Mirano  -  Nine Floors (Original Mix)  6:35
+02.  Due Magic  -  Fantastic (Original Mix)  6:20
+03.  Soap Bubbles  -  Banana (Original Mix)  5:34
+04.  Alex Gusti  -  Life For Rent (Original Mix)  6:37(   Читать дальше...   )Жанр: HouseПродолжительность: 02:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2856D7CDDA2242A7B61ACFB0EAEF6D0BF760B89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509750   (792901) от 14.11.2021
 
 VA - Quiet Day: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -562,139 +697,6 @@ VA - Ace Ventura - Christmas Selection Vol. 4 (2017) [MP3|320 Kbps] <Psytrance  
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4305327CEAF8216E13A8FBD146E48276B6D0E784
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028672   (793961) от 23.01.2018
-
-RaLax - Discography 10 Releases (2012-2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, Abstract, Ambient, Downtempo, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Spirit (04:25)
- 02. Ancestral Dip (04:35)
- 03. Dead Memory (03:04)
- 04. Foiled Knowledge (04:28)Тип издания: WEBЖанр: IDM, Abstract, Ambient, Downtempo, Experimental |Продолжительность: 00:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4848420F461A5AD67BB8B3E7A7B24F7303C29A10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509451   (793968) от 13.11.2021
-
-Sonny Fodera - Wide Awake (2021) [FLAC 2.0|44.1/24/16|tracks|WEB-DL] <Deep House>
-
->>Electronic
->>Trance, House, Techno (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	You	(Sonny Fodera Feat. Sam Tompkins)	(3:25)
-02.	Angel	(Sonny Fodera Feat. Clementine Douglas)	(3:10)
-03.	Nah	(Sonny Fodera & Kolidescopes Feat. Sinead Harnett)	(2:50)
-04.	So High	(Sonny Fodera Feat. Dan Caplen)	(3:00)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:394E7E6A030DBA2365E0822A0E3199FBB75C6D5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201051   (794022) от 23.01.2018
-
-Takashi Wada - Discography 8 Releases (2004-2015) REALJO[K]E Recordings, Onitor, WADA [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Leftfield, Acoustic, House, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Castle of Sand Pt.1 (07:32)
- 02. A Castle of Sand Pt.2 (06:53)Тип издания: CD, WEBЖанр: HouseПродолжительность: 00:14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28919ABE5290949A8E1945079888688EF53B5F91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201080   (794068) от 23.01.2018
-
-VA - Urban Dance Vol.23 (2018) 3CD [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794068.jpg" />
-</div>
-
-
-###  Подробнее
-
-СD1:
-01.  Ofenbach vs. Nick Waterhouse  -  Katchi  2:34
-02.  Alan Walker, Noah Cyrus & Digital Farm Animals  -  All Falls Down  3:19
-03.  Jason Derulo feat. French Montana  -  Tip Toe  3:09(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:12:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D49E1745FA438B00E551733B1074BFF59D6DCD06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200960   (794069) от 23.01.2018
-
-VA - Mysterious Station Dark The Best Of 2017 (Mixed by Dr Riddle) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trance Hunter - Power Of The Code (Jens Jakob remix)
-02. Nx-Trance - Symbiont (original mix)
-03. Stella Project - Universe (Mark Eworth remix)
-04. Luca Gazzola - North Rose (Diego Morrill's Manticore mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:683D1E1B0AF47AAF9FA49553E5DB7EF81F4F712A
 ```
 
 

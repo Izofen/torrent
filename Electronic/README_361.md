@@ -1,3 +1,138 @@
+###  Публикация: 1218770   (719640) от 11.04.2018
+
+VA - The Ultimate Euphoric Trance Vol. 9 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barry - Behind The Scene (Original Mix)
+02. Dave - Flying (Original Mix)
+03. Trance Arts - Gods Love (Original Mix)
+04. Soni - Soner Ozdemir - Space (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACFE80E0E1C9DFCC08384C62286B69D77C00930C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218771   (719642) от 11.04.2018
+
+VA - Dark Club Vol.4 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Costa Pantazis -Katatome (Roman Messer Remix)
+02. Carl Nicholson -Ak47 (Nicholson's 2018 Remix)
+03. Feel -Firedrops (Wilderness X A-Line Extended Remix)
+04. Steve Dekay -Hade (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:25:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ECFF80F5BD975DC6A2B95159D8587989A473C59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024211   (720174) от 07.06.2016
+
+VA - Armin van Buuren - A State Of Trance Festival (Warm Up Sets) (2016) [FLAC|Lossless|WEB-DL||tracks] <Deep House, Techno, Tech House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silinder - A World Is Watching (Michael A Remix) (7:24)
+02. Nicolas Petracca - Blast From The Past (Mitaric's Division Remix) (8:02)
+03. Ruttenbergs - The Fat Duck (Original Mix) (7:15)
+04. Sebastian Weikum - There She Is (Original Mix) (6:25)(   Читать дальше...   )Жанр: Deep House, Techno, Tech House, Progressive HouseПродолжительность: 07:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA2F470D34AEBBB49D0C165EFAB06EE7775D19AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024148   (720177) от 07.06.2016
+
+VA - Woman Trance Voices Vol. 13 (2015) [FLAC|Lossless|tracks+.cue] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First State feat. Anita Kelsey - Falling (Daniel Skyver Remix) (7:48)
+02. Aimoon & Vlad Varel feat. Eva Kade - One More Night (Matt Chowski Remix) (7:52)
+03. RAM & James Dymond feat. Kim Kiona - End Of Times (Flynn & Denton Remix) (8:00)
+04. Michael Flint & Stephanie Kay - Hide (6:04)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E15CC6495026238FC48DFE06395847B2E203F91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023953   (720308) от 07.06.2016
+
+Hypnotix - Star Gates (2006) 2CD, mCITY Edition 2016 [MP3|320 кб/с] <Electronic, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. N.O.M.M.O  (1:00)
+02. Window To The Past  (4:45)
+03. Contact  (0:57)
+04. Star Gates  (4:20)(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 01:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27864D805D34D9E395B13FD29C1792ED47F6D2A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024218   (720310) от 07.06.2016
 
 Bobina - Speed Breaker (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Progressive House>
@@ -560,141 +695,6 @@ Cløtur (Clotur) - Levels of Consciousness (2017) Warok Music [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5EEECABD4FD37FCF7AD1E4DA5372EDC503F3717
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023863   (722029) от 06.06.2016
-
-VA - NRJ Dance Hits 2016 (2016) 2CD [MP3|320 кб/с] <Dance, Electronic, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imany - Don't Be So Shy (Filatov & Karas Remix) (3:10)
-02. Sia - Cheap Thrills (3:31)
-03. Mike Posner - I Took A Pill In Ibiza (Seeb Remix) (3:19)
-04. Zara Larsson - Lush Life (3:22)(   Читать дальше...   )Жанр: Dance, Electronic, House, Pop, Rap, DancehallПродолжительность: 02:26:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B022C0D83697367218E81244A5512FD0E07385
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 790455   (722046) от 27.05.2014
-
-Rameses B - Reborn (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass, Liquid Funk, Chillout, Minimal House>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Years From Now
-02. Ecosystem
-03. Earth Calls
-04. Through The Mist(   Читать дальше...   )Жанр: Drum & Bass, Liquid Funk, Chillout, Minimal HouseПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B3374B1D483190A5731D567A070656EC067A5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129029   (722155) от 28.04.2017
-
-Parov Stelar - The Burning Spider (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Nu Jazz>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Burning Spider (feat. Lightnin' Hopkins) (04:14)
-02. Step Two (feat. Lilja Bloom) (02:54)
-03. Soul Fever Blues (feat. Muddy Waters) (03:04)
-04. Everything Of My Heart (03:07)(   Читать дальше...   )Жанр: Electronic, Nu JazzПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C6F37452C2CDABC9BBCCE4365E74AABE5D221D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023950   (722249) от 06.06.2016
-
-Above & Beyond - Acoustic II (2016) [FLAC|Lossless|tracks + .cue] <Electronic>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello (02:47)
-02. We're All We Need (05:02)
-03. On My Way To Heaven (05:14)
-04. Save Me (06:11)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEDA5C46ED3500FA031A47BDADD89FFD94CF4474
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023702   (722254) от 06.06.2016
-
-Jeff Pearce - Follow The River Home (2016) [FLAC|Lossless|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under Summer Stars [00:04:00]
-02. Downstream I [00:03:49]
-03. Outpost [00:06:13]
-04. Snowfall [00:04:46](   Читать дальше...   )Жанр: AmbientПродолжительность: 00:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94338B0A32ACDE086468198D5A9FC69BFCB81CD8
 ```
 
 

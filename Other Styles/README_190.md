@@ -1,3 +1,189 @@
+###  Публикация: 647055   (1004040) от 03.08.2021
+
+Dragoslav Pavle Aksentijevic - Древнее Сербское Псалмопение XIII-XIV вв. (2007) [MP3|320 кб/с]<Православные песнопения>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Православные песнопенияПродолжительность: 00:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CAD397C45BEAB5A3148894B584B13515F02A70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349314   (1004225) от 02.01.2020
+
+Shinnobu - The Enigma III (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etheric Worlds III (4:57)
+02. Warriors of Light (5:31)
+03. Mirages (feat. Angelux Ruddy) (5:28)
+04. Enigma from Man (feat. Angelux Ruddy) (8:13)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F2DD8F2B531D81D51F8898845B5FF9C612D243A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348680   (1004272) от 02.01.2020
+
+Ani Tsering Wangmo - Immeasurable Joy (2006) [FLAC|Lossless|tracks + .cue] <Tibetan Chants>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Siddhi Yang (5:49)
+02. She Nying Yang (6:06)
+03. Tarai Yang (6:52)
+04. Mani Yang (8:31)(   Читать дальше...   )Жанр: Tibetan ChantsПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4777DA693CDE2B26AAA461300654A41483CFF19D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349436   (1004436) от 01.01.2020
+
+VA - Fiesta Latina 2019 (80 Big Latin Hits 2019/2020!) [MP3|320 Kbps] <Latin, Reggaeton, Salsa>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somos del Barrio – Con Calma (Reggaeton Version)
+02. Grupo Extra – A Traves del Vaso (Bachata Version)
+03. Charanga Habanera – Traicionera
+04. Somos del Barrio – Loco Contigo (Reggaeton Version)(   Читать дальше...   )Жанр: Latin, Reggaeton, Salsa, BaciataПродолжительность: 04:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:549987BF72CA37B8B95B71D040DC2423D12207EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485551   (1005204) от 27.07.2021
+
+Gheorghe Zamfir - Pan Flute Improvisations (1988) [FLAC|Lossless|image + .cue] <Instrumental, Folk, World>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gheorghe Zamfir - румынский музыкант, играющий на модернизированной версии румынского национального инструмента, пан-флейте (най), которая состоит из 20-30 трубок, с расширенным звуковым диапазоном и большим количеством тонов. Gheorghe Zamfir стал известен широкой публикев 1960-х, в частности, благодаря швейцарскому музыканту Marcel Cellier, исследователю румынской (   Читать дальше...   )1. Domasnea (5:14)
+2. Jebel (4:41)
+3. Arad (6:54)
+4. Oltera (6:46)(   Читать дальше...   )Жанр: Instrumental, Folk, WorldПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE6AD143B079E8F6FFE7F17D0299CFE61C7810D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485618   (1005257) от 26.07.2021
+
+Нейромонах Феофан - Акустика, Ч.2 (2021) [MP3|320 Kbps] <Folk, Acoustic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005257.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пасынок Правил (Акустическая Версия)
+2. Замиренье (Акустическая Версия)
+3. Дрова (Акустическая Версия)
+4. Везде Пляшу (Акустическая Версия)(   Читать дальше...   )Жанр: Folk, AcousticПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43AA388DE73D693D6409128DF5BB9B6ED73C40B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484500   (1005931) от 21.07.2021
+
+Jim Brickman - Bedtime Story Volumes Two & Three (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. Touch of Dreams (08:55)
+02. Chamomile (08:39)
+03. Bedtime Breeze (07:56)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:24:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A18295C171323EB7044A2C31AE99150EA3D66B51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 422630   (1006219) от 18.07.2021
 
 Хор Турецкого - Такая Великая любовь... (2004) [FLAC|Lossless|tracks] <Vocals, Art>
@@ -505,195 +691,6 @@ magnet:?xt=urn:btih:08223BB4C7CADFD716A88BF98E3B5F893829D4D2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2EFE8EA09BFFC631EB13E0FFC05FC51686BDEAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 169972   (1012498) от 05.06.2021
-
-Roses Never Fade - Roses Never Fade (2009) [FLAC|Lossless|image + .cue] <Folk Rock, Neo-Folk, Psychedelic>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sickness That Never Sleeps - 3:25
-02. Runaway - 2:10
-03. Cauterize November - 2:00
-04. Fourth Horseman - 2:42(   Читать дальше...   )Жанр: Folk Rock, Neo-Folk, PsychedelicПродолжительность: 00:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E1A6CF360DBA71150556CD85C8842DBF09C3AB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474406   (1012935) от 02.06.2021
-
-Ben Leinbach - The Spirit of Yoga (2003) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Khumjung
-02. Horizon of Gold
-03. Mother's Wingspan
-04. The HierophantЖанр: New Age, MeditativeПродолжительность: 00:62:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FD609BC08945B113F46394837744389B0892641
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473523   (1013522) от 30.05.2021
-
-Yiruma - f r a m e (2021) Reissue [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nocturnal Mind (3:15)
- 02. f l o w e r (3:54)
- 03. Walking In The Forest (3:07)
- 04. f r a m e d (Piano Version) (3:53)(   Читать дальше...   )Жанр: New Age, Modern Classical, PianoПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D778C15F0D4207555809DB220AAB4E1AB3C425BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473053   (1013858) от 28.05.2021
-
-Aethera - The Caelic Mystery (2005) [FLAC|Lossless|image + .cue] <New Age, Celtic, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013858.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Into Blue 3:44
-2 The Mountain Side 3:52
-3 Dungannon Dew 2:56
-4 The Green Side 4:24(   Читать дальше...   )Жанр: New Age, Celtic, FolkПродолжительность: 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7EB2BE080624102D16580F977FFA51019B40876
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472923   (1014013) от 27.05.2021
-
-Llynya - The Guiding Light - Celtic Mantras (2002) [FLAC|Lossless|image + .cue] <Celtic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014013.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Northern Star 4:03
-2 Come And Lay Down 6:10
-3 At Home 4:36
-4 Fare Thee Well 6:21(   Читать дальше...   )Жанр: Celtic, New AgeПродолжительность: 00:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F87231602CCD8D93E93485D1A6070A09821C5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472983   (1014026) от 27.05.2021
-
-Elbosco - Angelis (1995) [FLAC|Lossless|image + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014026.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Nirvana 4:51
-2 A Kind Of Birds 4:18
-3 Nebo 4:43
-4 Spend A Happy Day 4:39(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D26D2CDB7DDB8FD0C4B359DD1F1B4A3D8FB827B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472724   (1014169) от 26.05.2021
-
-Orinoco Haven - Acoustic Guitar Pearls Vol. 1-3 (2008) [FLAC|Lossless|WEB-DL|tracks] <Guitar, Acoustic, Covers>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Your Song (4:27)
-02. Hotel California (6:36)
-03. If You Leave Me Now (3:59)
-04. More Than Words (5:25)(   Читать дальше...   )Жанр: Guitar, Acoustic, CoversПродолжительность: 02:27:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1712D4C5050E0C7E151BCAE8696A14351D65502F
 ```
 
 

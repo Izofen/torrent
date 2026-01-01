@@ -1,3 +1,30 @@
+###  Публикация: 1490076   (900717) от 31.08.2021
+
+John Lennon & Plastic Ono Band - The Ultimate Collection (2021) 8CD [MP3|320 Kbps] <Rock, Art-Rock, Pop-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mother (Take 91 / Out-take / Raw Studio Mix) [00:03:59]
+02. Hold On (Take 18 / Out-take / Raw Studio Mix) [00:02:07]
+03. I Found Out (Take 7 / Out-take / Raw Studio Mix) [00:07:51]
+04. Working Class Hero (Take 10 / Out-take / Raw Studio Mix) [00:03:43](   Читать дальше...   )Жанр: Rock, Art-Rock, Pop-RockПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BEC893B9EC86833E6FDE284C7A523FA1AA0A6D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992444   (900742) от 02.03.2016
 
 VA - Europa Plus Украина Тор 40 February 4th week (2016) [MP3|320 кб/с] <Pop, Dance, Club, Remix>
@@ -671,33 +698,6 @@ VA - Warm Lounge Sounds (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Rela
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B994913A15B0DEC5E7B878AAF708CF2EDDD8A6EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369560   (901993) от 24.03.2020
-
-VA - Different Shades Of World Song (2020) [MP3|320 Kbps] <Pop Folk, Shancon, World Music>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901993.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aaron Watson - Red Bandana
-002. Pistol Star - Jennifer Blu
-003. Mandela - Kitem Baw Love
-004. Steevy - Voleur De Cœur(   Читать дальше...   )Жанр: Pop Folk, Shancon, World MusicПродолжительность: 07:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A12A297D4EC7382C3132D93856787581F42CCD
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1130912   (710671) от 04.05.2017
+
+VA - Psy Moon Trance Vol.1 (2017) [MP3|320 Kbps] <Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Awaken - Rouge  6:57
+02.  Sensifeel - Color Of Life  7:46
+03.  D-Vision - Hot Drive (Agent Kritsek Remix)  7:25
+04.  Zighla Bashshar - Magic Trip  7:20(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6159D1780BAEB0D2791781EB529D741A16126166
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131196   (710783) от 04.05.2017
+
+VA - Chillout May 2017: Top 10 Spring Relaxing Chill Out and Lounge Music  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Rostej - Loneliness
+02. Insigo - Walking Into The Void
+03. Dmitry Lee'o - R.a.
+04. Cardmoth - Holiday Loneliness(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F23ABE975DB6543AAB0680E6931FB035CA1CE06B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130714   (710785) от 04.05.2017
+
+VA - Disco Dance Rimini 2017 [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clemens Rumpf, Marcell Russell – Ain’t Dancing Without You (Funky House Edit) (Funky House Edit) (5:28)
+02. Emmiel – Every Hour of Every Day (Kooky Electro Funk Remix) (Kooky Electro Funk Remix) (3:15)
+03. Adam Rise – Rocking to the Beat (4:29)
+04. Alfonso – Fever in the Disco (Deep Underground Mix) (Deep Underground Mix) (8:35)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4185E6673A5BBD239455D28C20F7FF95B91A1484
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130994   (710791) от 04.05.2017
+
+Takkra - Technicolor Talk (2017) [MP3|320 Kbps] <Ambient, Psychill>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elements 03:56
+02. Cinematic Frequencies 08:11
+03. The Encounter 07:16
+04. Mobius 05:42(   Читать дальше...   )Жанр: Ambient, PsychillПродолжительность: 01:13:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:051618DE5643135F768ADF9E3A444EADD412A3EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131025   (710796) от 04.05.2017
+
+VA - 5 Years Auditive (2017) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jonas Saalbach & Samuel Fach – Vital Signs
+02. Krink – A Passenger
+03. Mauro Basso – Drone (Tim Engelhardt Remix)
+04. Krink – A Passenger (Pazul remix)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7511E6A261B6F9CBD00CD3096B3B46952855C5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131182   (710814) от 04.05.2017
 
 Moon Frog - Standing On Ceremony (2017) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -559,141 +694,6 @@ ROTANOV - DEEP DANCE 01 (2016) [MP3|320 кб/с] <Deep House, Nu Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:309E83AE1F0A4E97ED4B98A9B12D81CD1E2D2120
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025424   (712119) от 11.06.2016
-
-VA - iChill You Vol 1 (2016) [MP3|320 кб/с] <Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eskadet - Inaccessible (7:34)
-02. Lemongrass - Deep River (Stuce The Sketch Remix) (6:07)
-03. Tim Angrave - Contemplation Elevation (9:13)
-04. Peter Pearson - I Fell in Love (6:11)(   Читать дальше...   )Производство: Floating MusicЖанр: Lounge, Chill OutПродолжительность: 02:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:960DAEAC02EC3465B9E3D1958F98F575C58CDDD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024892   (712219) от 11.06.2016
-
-Hamlet His Highness - For All & None (2015) [MP3|125-320 кб/с] <Ambient, Electronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712219.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Floating Through The Mist 04:32
-2. The Stream Of A Pleasant Dark 10:28
-3. For All And None 05:45
-4. The Pilgrim 02:16(   Читать дальше...   )Жанр: Ambient, ElectronicПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CE941D941BE45BB4F625C78ABF1D3DD6ADBD054
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025298   (712290) от 11.06.2016
-
-VA - Hooki-Sonic Recordings Summer Chill-Out Sampler (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Hookiss - Relax - Gregorian Chillout Mix [7:47]
-02. Susy Seven - Come with Me [7:00]
-03. The Soul Elephant - Nobody [5:14]
-04. Joxephad - Love for Chillout [4:59](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956774EA27B301901569ADBE9561FF6BAD105B74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025188   (712295) от 11.06.2016
-
-VA - Chilling Feeling (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lamar Ensemble - Tonal Colors [5:32]
-02. Amen B & Jeffron Vox - Clouds (Bardalimov's Deep Edit) [5:48]
-03. The Sura Quintet - Hit Your Deadline [5:32]
-04. Logophilia - Anakena [5:32](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:741DDBFAACE917FE562210F921FE3DEC4C817EBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130396   (712360) от 03.05.2017
-
-Klangstabil - Collection 10 Releases (1995-2015) Ant-Zen, MHz [FLAC|Lossless|tracks+.cue, tracks] <Industrial, Experimental, EBM, Electro, IDM, Techno>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712360.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Mein Name Ist... (04:08)
- 02. Gloomy Day (Daruma Version) (05:06)
- 03. Kill All Lifeforms (05:12)(   Читать дальше...   )Тип издания: CD, WebЖанр: Industrial, Experimental, EBM, Electro, IDM, Abstract, Techno •Продолжительность: 01:18:18+01:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2DDD85DB37B005EEE8319D24894185341E2C5D3
 ```
 
 

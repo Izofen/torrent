@@ -1,3 +1,138 @@
+###  Публикация: 1214479   (764898) от 21.03.2018
+
+VA - Anjunabeats in Miami (2018) [FLAC|Lossless|image + .cue] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond & Zoe Johnston – Always feat. Zoe Johnston (Original Mix)
+02. Above & Beyond & Richard Bedford – Northern Soul feat. Richard Bedford (Spencer Brown Remix)
+03. Ilan Bluestone & Koven – Another Lover feat. Koven (Extended Mix)
+04. Gabriel & Dresden & Sub Teal – Only Road feat. Sub Teal (Cosmic Gate Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D85291C54E0EA0279F2351F1D11C489ED20E125
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214387   (764901) от 21.03.2018
+
+GusGus - Lies Are More Flexible (2018) Soyuz Music [FLAC|Lossless|tracks + .cue] <House, Synthpop, Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Featherlight (5:17)
+ 02. Don't Know How to Love (5:12)
+ 03. Fireworks (4:56)
+ 04. Lifetime (5:49)(   Читать дальше...   )Жанр: House, Synthpop, Tech House, TechnoПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B14D943053E96DE33DE050FB257E234E34D987
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214426   (764926) от 21.03.2018
+
+VA - Anjunadeep In Miami 2018 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Bohmer - After Earth (7:37)
+02. Alex Metric & Ten Ven - Otic (7:16)
+03. Martin Roth - Guude Laune (6:45)
+04. Eli & Fur - White Sails (6:17)(   Читать дальше...   )Жанр: Deep Progressive HouseПродолжительность: 01:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E28CD8CF7F97E55E0E76D54DB0DCE4BF563E1B03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214476   (764967) от 21.03.2018
+
+VA - Progressive Miami (2018) [MP3|320 Kbps] <Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ruslan Radriges vs. Neurofunq & Tiff Lacey  -  Wonderfull (Original Mix)  3:38
+02.  Mivase  -  I Can't Give Up (Extended Mix)  4:24
+03.  Roman Messer feat. Angel Falls & Armos  -  Higher (LTN Extended Sunrise Remix)  6:05
+04.  MOROSHKA  -  4AM (Original Mix)  4:44(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FEC14319C96101D64B17F5CB66DF73F6D8F7A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214333   (764975) от 21.03.2018
+
+Occult - Axum (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1138 (04:49)
+02. Axum (04:52)
+03. Ark (04:16)
+04. Nazca (04:16)(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 00:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54035612822B1E21B5363528F559A3C9901A1FF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304050   (765263) от 03.07.2020
 
 D. Batistatos - Discography 11 Releases (2006-2020) Cosmicleaf Records [FLAC|Lossless|tracks+.cue, tracks] <Psychill, Downtempo, Dub, Ambient>
@@ -557,141 +692,6 @@ Weber & Weber - Music Box (2019) Lemongrassmusic [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D6B9C898CA125DDCAEFAABCFFDA4447303D4E37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521350   (766102) от 01.01.2022
-
-VA - Anjunadeep. The Remixes 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lakou Mizik – Sanba Yo Pran Pale (DJ Koze Remix Radio Edit) (05:13)
-02. Alan Fitzpatrick – Warning Signs (CamelPhat Remix) (03:14)
-03. Eli & Fur – Come Back Around (Maya Jane Coles Remix) (03:42)
-04. CRi – Stranger (DJ BORING Remix) (04:35)(   Читать дальше...   )Жанр: Progressive House, Deep House, Tech HouseПродолжительность: 03:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B0D4E78C4C6B98C43563D562DD2C56284CA3150
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521336   (766106) от 01.01.2022
-
-Midnight Danger - Nights at Lake Milsen (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Darksynth, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into an Abyss of Fear (feat. Sonia Anubis) (4:55)
-02. Maniac (feat. Martin Sweet) (4:44)
-03. Fatal Attraction (feat. Max Cruise) (4:43)
-04. A Storm Out There (3:25)(   Читать дальше...   )Жанр: Retrowave, Darksynth, SynthwaveПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E84FF1C1F88A685604630DBD673EB429B27D690B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279414   (766111) от 29.01.2019
-
-Blind Date - Dreamworld (1986) LP [MP3|320 Kbps] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Heart Keeps Burning (4:01)
-02. Traces (3:48)
-03. Back Out On The Street (4:27)
-04. Dreamworld (4:59)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F07743BFA0C2811BDB2ADCA34052D6FB6C7097D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279497   (766115) от 29.01.2019
-
-nthng - Shine (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine (06:21)
-02. Embryo (04:59)
-03. Lyla (03:52)
-04. Atom (09:48)Жанр: Ambient, TechnoПродолжительность: 00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FECEA687AB5F5FBCCE532D85F8F56C1593FC2E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279283   (766116) от 29.01.2019
-
-Kid Koala - Music to Draw To: Io (2019) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Experimental, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circle of Clouds (07:36)
-02. All for You (feat. Trixie Whitley) (03:20)
-03. Torus (03:04)
-04. Transmission 4 (03:43)(   Читать дальше...   )Жанр: Trip-Hop, Experimental, AmbientПродолжительность: 01:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE11C68DF95494D9D05CBFF4F7D5047C1CCDCB4F
 ```
 
 

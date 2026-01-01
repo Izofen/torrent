@@ -1,3 +1,192 @@
+###  Публикация: 1610792   (1041359) от 11.02.2023
+
+Indian Spirit - Discography (2009 - 2020)  6 Releases [MP3|320 Kbps] <Native American, New Age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circle Of Fire [05:03]
+02. The Counterclockwise Circle Of Dance [05:46]
+03. Return From River Island [06:11]
+04. Dance Of The Warrior [06:01](   Читать дальше...   )Жанр: Native American, New Age, World musicПродолжительность: 05:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D78D540F1B3ED8BCCD8F0FEED70A650A04DE68E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610304   (1041524) от 10.02.2023
+
+Laya Project - Laya Project  (2006)  2CD [FLAC|Lossless|tracks + .cue] <World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041524.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD ONE:
+01. Glorious Sun Remix
+02. Muliya
+03. A New Day(   Читать дальше...   )Жанр: WorldПродолжительность: 45:06 + 50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16382E1975297FA8AC101913413F3F566671ED75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611126   (1041567) от 10.02.2023
+
+Ennio Morricone - Love Songs & Romantic Scores (2023) [FLAC|Lossless|WEB-DL|tracks] <Film Soundtracks>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Califfa (Main Theme) (2:37)
+02. D'amore si vive (3:00)
+03. Love Theme (Version 2) (2:48)
+04. Prima e dopo l'amore (1:57)(   Читать дальше...   )Жанр: Film SoundtracksПродолжительность: 01:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:585ED2BBA3A8DA9AA9A42A4B1D6476386FB352A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611036   (1041646) от 10.02.2023
+
+Oota Dabun - Ani Kuni (2011) [MP3|320 Kbps] <Native American, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ani Kuni (English Radio Mix) (English Radio Mix) [03:47]
+02. Ani Kuni (French Radio Mix) (French Radio Mix) [03:47]
+03. Ani Kuni Traditional (Native Radio Mix) (Native Radio Mix) [04:05]
+04. Ani Kuni (Tribal House Club Mix) (Tribal House Club Mix) [03:54](   Читать дальше...   )Жанр: Native American, New AgeПродолжительность: 00:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D320D5E19582393546B7BE6822808806C32D3E7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608721   (1043501) от 31.01.2023
+
+VA - Шедевры цыганской музыки, 4 Альбома (2000) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Соколовский хор 3:00
+02. Мохнатый шмель 2:40
+03. Что так грустно 2:50
+04. Вино в бокале 4:00(   Читать дальше...   )Жанр: Folk
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B8A5E85C813FC6C251AB95D56E48E52D603B054
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607598   (1043899) от 27.01.2023
+
+Земфира & Дмитрий Емельянов - CACTUS (2023) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043899.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Земфира - Cказка.начало
+2. Земфира - Превращение
+3. Дмитрий Емельянов - Минус
+4. Дмитрий Емельянов - Радио(   Читать дальше...   )Жанр: OSTПродолжительность: 00:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F37EB59B9AD5F7E74541ACC01553196C91C0D01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606893   (1044228) от 24.01.2023
+
+Era - The Very Best Of (2004) [OGG Vorbis|480 Kbps] <Rock, Pop, Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ameno remix
+02. Don't go away
+03. The mass
+04. Mother remix(   Читать дальше...   )Жанр: New Age, Pop, ClassicalПродолжительность: 01:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97B6CFB194865C537A764E426E974E68A23FB07D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606056   (1044417) от 22.01.2023
 
 Le Grand Orchestre De Paul Mauriat - Penelope (1971) Reissue, Remastered, 1997, Philips [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listening>
@@ -258,6 +447,33 @@ magnet:?xt=urn:btih:B1A7CC24F722AA6E4A3FCFC0C371FFF4198A6D90
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B76A954BC1BF53B878EA20FC26D9BDAEBA708994
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845464   (1050661) от 31.12.2025
+
+VA - The Orient Collective: Sahara Stories (2025) [FLAC|Lossless|WEB-DL|tracks] <The Orient Collective>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1050661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kalico Jak, Tibetania - Essence of Time (Original Mix) (7:31)
+02. Marga Sol, Darles Flow, Tibetania - Sizzla (Original Mix) (5:04)
+03. Discojack, Fecky Farris, Tibetania - Wojira (Original Mix) (5:59)
+04. Elias Fassos, RisK (Gr), Tibetania - Safe (Original Mix) (6:30)(   Читать дальше...   )Жанр: The Orient CollectiveПродолжительность: 01:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:138E31F132F2A66C20A74C88F7758C14BB1860A4
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1217908   (740239) от 07.04.2018
+
+VA - DJ Robert Miles - In The Mix (1997) Mixed [MP3 (image + .cue)|320 Kbps] <Breakbeat, Goa Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicane - Offshore (4:14)
+02. Goldie - Inner City Life (3:35)
+03. Prana - Geomantik (4:10)
+04. D-Saw - Track 7:22 (2:51)(   Читать дальше...   )Жанр: Breakbeat, Goa Trance, Progressive TranceПродолжительность: 01:15:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE60CD8EF5078F43BE89AC5CF2C84B7074D0C5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217964   (740240) от 07.04.2018
+
+VA - Sensual Lounge Vibes (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Worldtraveller - Maui Pie (Living Room Surf St Mix) 4:21
+02. Marga Sol - Butterflies 6:51
+03. Don Gorda Project - Symbolic Interaction 6:24
+04. Desiree Paris - Behind The Door 6:53(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11F1EC8A24321F643E08AE45A0B18E2A22F0FF30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217999   (740248) от 07.04.2018
+
+Fief - Fief III (2017) [MP3|320 Kbps] <Dungeon Synth, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dodecahedronous Questing 2:56
+02. Secret Shops 3:40
+03. The Sword That Sang 4:15
+04. Innkeeper 4:11(   Читать дальше...   )Жанр: Dungeon Synth, AmbientПродолжительность: 00:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B07FF9904208D26CDAAEBDB04F7B1163B036B2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217992   (740319) от 07.04.2018
+
+VA - Spring Club Tunes 2018 [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Ross - Example 03:55
+02. Jake Jones - You (feat Addie - Quoala remix) 03:33
+03. Alan Marvin - Memories (feat Scarlett Quinn) 03:39
+04. DeLoops - OK Without You (Oddboy remix) 03:44(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7681B98DE2A0DD7EBE7E87D274694EB79DB30A1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283324   (740337) от 16.02.2019
+
+VA - Black Hole Trance Music 02-19 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giuseppe Ottaviani feat. Clara Yates - Why (Extended Mix)
+02. Ferry Corsten & Ilan Bluestone - We're Not Going Home (Extended Mix)
+03. Andy Moor & Somna feat. Monika Santucci - Free Fall (Extended Mix)
+04. Driftmoon & Eco - They'll Never Find Us (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2246C61B6DCDA1885F06B9A1D37930A47F58884
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283196   (740338) от 16.02.2019
 
 Mono Peninsula - Metro/Pol (2018) Rohs! Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub>
@@ -557,141 +692,6 @@ Angelika Yutt - Beautiful Coloratura (Ambient & Chill) (2017) [MP3|320 Kbps] <Ba
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F32FF2B30AF897125C30F55B648AFB17FFD7144B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126820   (741119) от 20.04.2017
-
-VA - Chriss Ronson - Focus: 003 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chriss Ronson - One Shot (original mix) (07:00)
-02. Onur Ozman - There's No Shame (Chriss Ronson's Cre8tion remix) (07:00)
-03. Chriss Ronson - Bamboo Basket (original mix) (06:41)
-04. Chriss Ronson - Razbora (original mix) (06:43)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B51F0236FFD8CBBFC6B5D4432282BCA0F6D583
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127041   (741120) от 20.04.2017
-
-VA - Calmness Sky Is The Limit Vol.1 (Waves Of Chill Out) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Velvet Dreamer - Forgotten Places  5:37
-02.  351 Lake Shore Drive - Frozen Heart  6:52
-03.  Inventors Of The Sun - Wonder Of Romance  5:19
-04.  Karen Gibson Roc - She Smiles  5:04(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F98FFEBC1DC1F5AE32EB6B9F88677B4053746FAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126972   (741122) от 20.04.2017
-
-VA - Chill out Nation Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L.O.B. Lord Of Beat - Deep Down - Original Mix
-02. Childboy - Atmo Evening - Original Mix
-03. D-Chill - Dusty Light - Original Mix
-04. Raviv - Good Together - Ahsnati Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CEA93DC230C18E81A04FD08502A4FBAE5D50846
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126724   (741125) от 20.04.2017
-
-VA - Chill Out Amsterdam (Lounge From The Lowlands) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Monte La Rue - Monsieur Mushroom  5:12
-02.  Faberge - Costa del Amstel  5:01
-03.  Da Vince - Nothing Is  4:58
-04.  Tom Urleena - Color My Pants  4:28(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D90CF5A2B9BF6F2B4D3EE650C953154531F46A0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127079   (741126) от 20.04.2017
-
-VA - Ori Uplift & Shimotsukei - Uplifting Only 218 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Ribeca - Amoroso
-02. illitheas - Alive
-03. Naeba & Soundfly - Love Is Out There
-04. FAN FAVORITE: Tycoos - Things We Left Behind(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D487A336AF48F2C1046351C8E4D78DA56FB7C7DE
 ```
 
 

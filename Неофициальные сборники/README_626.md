@@ -1,3 +1,30 @@
+###  Публикация: 1091032   (944982) от 08.01.2017
+
+VA - Top 100 EDM Songs & DJ Tracks December (2017) [MP3|320 Kbps] <Electronica, Indie, Nu Disco, Tech>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944982.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Green Velvet, Prok & Fitch - Sheeple (Original Mix) 7:02
+002. Pryda - Lillo (Original Mix) 8:38
+003. Basement Jaxx - Jump N Shout (Erik Hagleton Remix) 6:32
+004. Dennis Cruz - Everybody (Original Mix) 6:52(   Читать дальше...   )Жанр: Electronica, Indie, Nu Disco, TechПродолжительность: 10:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C69485C0823B74EBB00AEE3109FD73A3A354AA47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363054   (945016) от 26.02.2020
 
 VA - Shazam Хит-парад Russia Top 100 Февраль (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -677,33 +704,6 @@ VA - Снежный коктейль. Выпуск 50/50 (2016) [MP3|256 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B983FDD27A697ABEA342CD13D261F662E56BE2CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982603   (946353) от 04.02.2016
-
-VA - Goa Session By Rocky Tilbor (2 CD) (2016) [MP3|320 кб/с] <Psychedelic, Progressive PsyTrance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946353.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:  
-
-01. Atmos - Transport To Another (Yotopia Remix) 08:35
-02. Ticon - 1987 (Riktam & Bansi Remix) 07:48(   Читать дальше...   )Жанр: Psychedelic, Progressive PsyTranceПродолжительность: 02:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA4B7677FCC60DC8F13E7E7DC5478B7EE5534AB8
 ```
 
 

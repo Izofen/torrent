@@ -1,3 +1,30 @@
+###  Публикация: 1092097   (939459) от 11.01.2017
+
+VA - Dance Hits Collection Vol.8 (2017) [MP3|320 Kbps] <Eurodance , House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. E Motion Feat. Tino - Get Up (Radio Version)
+02. Solid Base - Mirror, Mirror (Radio Mix)
+03. Libra - A Second Chance (Factory Team Mix)
+04. Masterjam - I Wanna Know(   Читать дальше...   )Жанр: Eurodance , HouseПродолжительность: 05:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3BF57D776528461EDB4AAC4B07754F07D7C280A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363901   (939534) от 01.03.2020
 
 VA - Record Super Chart 627 (2020) [MP3|320 Kbps] <Pop, House, Dance>
@@ -668,33 +695,6 @@ VA - Дискотека зимних дорог. Русские хиты (2017) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2AFDB3DD2381AD2D830055EE8E7A8B7D8A99D8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091641   (941511) от 10.01.2017
-
-VA - LUXEmusic: Dance Super Chart Vol.101 (2017) [MP3|320 Kbps] <House, Mash Up, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alex Milano & Денис Раско - Двигай (Extended Mix)  3:42
-02.  Fargo - Мой Папа Из ФСБ (DJ Ice Radio Edit)  3:10
-03.  Depeche Mode - Precious (DJ Shevtsov Remix)  6:09
-04.  Burak Yeter feat. Danelle Sandoval - Tuesday (DJ Jurbas & DJ Trops Radio Edit)  2:54(   Читать дальше...   )Жанр: House, Mash Up, Club, DanceПродолжительность: 03:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF605DDC2127EE70D420FCFB3CBFDDC842BB13F
 ```
 
 

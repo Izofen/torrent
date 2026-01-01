@@ -1,3 +1,162 @@
+###  Публикация: 1200999   (793802) от 23.01.2018
+
+Julio Iglesias - Se Tornassi... All The Hits (2013) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Manuela
+02. Un Giorno Tu Un Giorno Io
+03. Quando Si Ama Davvero(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 02:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AD8368860AB57DF047DD11C3F263D2001FF59D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201104   (793809) от 23.01.2018
+
+Mylene Farmer  - Rolling Stone (2018) Single [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mylène Farmer - Rolling StoneЖанр: PopПродолжительность: 03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42E772B1CDEC0AA2B5DA567532496388BFEA2033
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201029   (793938) от 23.01.2018
+
+Ministry Of Beat - 100% Strength (2018) [MP3|320 Kbps] <Dance, Eurobeat, Electro>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – That’s Physical
+02 – Muscle Games
+03 – Lost In Your Mind
+04 – Adrenalin Love(   Читать дальше...   )Жанр: Dance, Eurobeat, ElectroПродолжительность: 03:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0721705A89DE81A9072554D7CFAAB8B61F5207A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201066   (793947) от 23.01.2018
+
+Ханна - Мысли. Часть 1 (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793947.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Не вернусь
+2. Глаза
+3. Буду
+4. Изучай меня(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFD4B50777F1EAEB85808488B8E31DB19E5DE19C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509495   (794029) от 13.11.2021
+
+Kylie Minogue - DISCO (2021) Guest List Edition [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic [00:04:10]
+02. Miss A Thing [00:03:56]
+03. Real Groove [00:03:14]
+04. Monday Blues [00:03:09](   Читать дальше...   )Жанр: Dance-pop, DiscoПродолжительность: 01:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A554A8019A6659A34AF83879194ADBA9BD47A61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200258   (794065) от 23.01.2018
+
+Eleven - 11 (2012) [MP3|320 Kbps] <Dance, Synthpop, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 11:11
+02. Love Comes from Yourself
+03. Hollow Earth
+04. Another Life(   Читать дальше...   )Жанр: Dance, Synthpop, ElectroПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBBB2BB65963DFB35DEB1DC4568B4F00A38E46FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012251   (794283) от 30.04.2016
 
 VA - Disco 80's Maxi Club Hits Vol. 1-3 (Remixes & Rarities) (2012) [MP3|320 кб/с] <Italo Disco, Eurodisco, Synthpop>
@@ -533,168 +692,6 @@ VA - Euro Disco: The Lost Legends Vol. 13 (2017) [MP3|320 Kbps] <Euro-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B3BB634AA7F5279D36D447F29387166B45536B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274073   (795034) от 05.01.2019
-
-Mode-One - Коллекция (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen Of My Heart (8:36)
-02. Heaven Is Waiting (5:56)
-03. I Wanna Feel You (7:24)
-04. Game Of Love (Extended Mix) (feat. Lian Ross) (6:01)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CA394FCDF694BA2CE237CEEEE68AA54118F3300
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274103   (795046) от 05.01.2019
-
-Little Mix - LM5 (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, R&B, Hip-Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The National Manthem
-02. Woman Like Me (Feat. Nicki Minaj)
-03. Think About Us
-04. Strip (Feat. Sharaya J)(   Читать дальше...   )Жанр: Pop, R&B, Hip-HopПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30F0952F6E3E5BE736258A8F7FF81A394E096E35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274015   (795047) от 05.01.2019
-
-Black Level - Disco Action (1976) LP [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Pilot (4:16)
-02. Sexy Walkin' (4:34)
-03. Speedy Walk Machine (3:41)
-04. Please Touch My Body (6:25)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C0BDC7F3BD00D2EC57E7E2D91DF6147581D1358
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274045   (795048) от 05.01.2019
-
-VA - Abriss Ski Hits 2018 - Die XXL Apres Ski Schlager Discofox Hits bis zum Karneval und Fasching 2019 (2018) [MP3|320 Kbps] <Schlager, Pop, Party>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jägermeister DJ Alex, Matty Valentino - Auffe aufn Berg
-02. Ingo ohne Flamingo - Saufen morgens, mittags, abends
-03. DJ Apres Ski Hits - Johnny Däpp
-04. Isi Glück feat. Jägermeister DJ Alex - Ich will zurück zu Dir (Hände hoch Après Ski)(   Читать дальше...   )Жанр: Schlager, Pop, PartyПродолжительность: 05:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CADC41C4F1DE02DAC80AF0D8C29D498E91C6A68E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274025   (795049) от 05.01.2019
-
-VA - Best of Hands Up Freaks 2k18 (Deejay Edition) (2018) [MP3|320 Kbps] <Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Luke Smash - Erase You (Hands Up Freaks Remix Edit)
-02.  Grrtz - Light up the Night (Hands up Edit)
-03.  Marious - Dragons (Radio Mix)
-04.  Jinpachi Futushimo - Maximum Overload 2k18 (Radio Edit)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:08:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D7B62FBAC65CD0606F74486F3F91E00FC4AA440
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386280   (795194) от 28.05.2020
-
-Lady Gaga - Chromatica (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chromatica I
-02. Alice
-03. Stupid Love
-04. Rain On Me (feat. Ariana Grande)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34336F56D6620288E60E269C01DEA367D3CC2A73
 ```
 
 

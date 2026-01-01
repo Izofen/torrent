@@ -1,3 +1,30 @@
+###  Публикация: 1140229   (656753) от 05.06.2017
+
+VA - The Horizont Of Bliss (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge, Relax>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soty - Sun Touch (Intro Mix) 3:52
+02.  Kool & Klean - The Way You Look Tonight 5:07
+03.  Don Markus - I Don't Won't Illusion 5:10
+04.  Soul Guru - Addicted To Tantric Sex (Sensual Love Mix) 4:56(   Читать дальше...   )Жанр: Downtempo, Chillout, Lounge, RelaxПродолжительность: 07:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82BECB742D3DD77E25B99EDF36D38CFF3DFB80D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140153   (656757) от 05.06.2017
 
 VA - Empire Records - Chillout 13 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -707,33 +734,6 @@ VA - 150 Sport Dance Music (2018) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96E317303FF51EBC793E9BDAD71B153CE67A2AE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139955   (657813) от 04.06.2017
-
-VA - Tropical Serenity: 100 Relaxing Sounds (2017) [MP3|320 Kbps] <Downtempo, Chillout, Ambient, Relax>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657813.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Tequila Sunset - Kiss (feat. Namwann) (Original Mix) 3:57
-002.  Chillaxing Jazz Kollektion - Every Good Thing 4:58
-003.  Robien M - Catch A Glimpse 4:12
-004.  Ingo Herrmann - Amorph (Original Mix) 3:09(   Читать дальше...   )Жанр: Downtempo, Chillout, Ambient, RelaxПродолжительность: 07:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBDEF2AE3FD039CF6D6E7B267F5909C7ACB3C3F3
 ```
 
 

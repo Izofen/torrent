@@ -1,3 +1,30 @@
+###  Публикация: 1214944   (761663) от 24.03.2018
+
+VA - German Top 100 Single Charts 23.03.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761663.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marshmello Anne-Marie - FRIENDS
+002. Olexesh - Magisch (feat. Edin)
+003. Rudimental - These Days (feat. Jess Glynne Macklemore Dan Caplen)
+004. Drake - God's Plan(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:625CCA83D077BBAD8A838262D6E70422257856BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 15325   (761666) от 06.07.2020
 
 Трибьют Энио Морриконе "We all Love Ennio Morricone" 2007
@@ -665,33 +692,6 @@ VA - Горячая 100ка русского шансона (2016) [MP3|256 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D89C36342F2667DD3D33E703F2D62F6DFDD804D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017114   (763038) от 16.05.2016
-
-VA - Tallinna Terrace Club Collection 3CD (2016) [MP3|320 кб/с] <Downtempo, Nu Disco, Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763038.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-
-01. The Project & Artenvielfalt feat. Miss Natnat - I'm Done (House Mix) (04:40)
-02. AN.DU & Fomin feat. Osha - Allright (Extended Mix) (05:08)(   Читать дальше...   )Жанр: Downtempo, Nu Disco, Vocal HouseПродолжительность: 04:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC48AE441BC25CBFC8D884936538834F1B0B923
 ```
 
 

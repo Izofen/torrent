@@ -1,3 +1,30 @@
+###  Публикация: 1603433   (1045743) от 09.01.2023
+
+VA - New Years Eve Ultimate House Party (2022) [MP3|320 Kbps] <Club, Progressive, Afro House, Groove>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oliver Gunning - Uncertain Sky (Mimo Remix)
+02. Saintrop - Back in My Life
+03. D Seven - Pianodance (South Blast Showtime Mix)
+04. Q-Busta - This Feels Like(   Читать дальше...   )Жанр: Club, Progressive, Afro House, GrooveПродолжительность: 01:48:06 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A976EAAC31803F8C3D61473D653842BFA04B399
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602851   (1045909) от 07.01.2023
 
 VA - German Top 100 Single Charts 06.01.2023 [MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - #010 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75C26466DA114FAAB9A1EECE52102A55EDA9650C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840943   (1047689) от 08.12.2025
-
-VA - #009 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Johnny Moeller - Gun Barrel Boogie (4:03)
-02.  Omar And The Howlers - Hideaway (2:58)
-03.  Bywater Call - Everybody Knows (3:53)
-04.  The Matt Swanton Band - Cooking With Fire (3:41)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BEB64337ACE2227CE9FF6E1E75E570990A6EBC7
 ```
 
 

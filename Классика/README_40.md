@@ -1,3 +1,57 @@
+###  Публикация: 999558   (848595) от 31.03.2016
+
+Viktor Merzhanov - Russian Piano School (1995) [FLAC|Lossless|tracks] <Classical, Keyboard>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848595.jpg" />
+</div>
+
+
+###  Подробнее
+
+• Johannes Brahms - Variations on a Theme by Paganini Op.35
+01. Sketch-book 1   11:53
+02. Sketch-book 2   09:59
+(   Читать дальше...   )Жанр: Classical, KeyboardПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C31B8515D2F2BA21E6AC229211226E6F976FFDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002124   (848600) от 31.03.2016
+
+Schnittke, Stravinsky - Piano music (Boris Berman) (1991) [FLAC|Lossless|tracks] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Schnittke
+01. Piano Sonata no. 1 (1987) -1- Lento (06:38)
+02. Piano Sonata no. 1 (1987) -2- Allegretto (05:49)
+03. Piano Sonata no. 1 (1987) -3- Lento (06:48)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 00:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8410EE70FD938C7E63E2542749A3980770DF7AFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002305   (848604) от 31.03.2016
 
 Elina Garanca - Elina (2013) [FLAC|Lossless|image + .cue] <Classical, Opera>
@@ -638,60 +692,6 @@ Ton Koopman, Musica Antiqua Amsterdam - Haydn: Complete Harpsichord Concertos (1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43AB370F7B676719C03A0ED65CBB97F42186F315
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001277   (853850) от 28.03.2016
-
-Tatiana Sergeeva - Russian Harpsichord Music of the XIX century. (1997) [FLAC|Lossless|image + .cue] <Classical, Baroque, Keyboard>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bortnyansky: Sonata B-dur  3:57
-02.  Bortnyansky: Sonata C-dur - I. Allegro moderato  4:41
-03.  II. Adagio  6:18
-04.  III. Rondo  2:36(   Читать дальше...   )Жанр: Classical, Baroque, KeyboardПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89568C70D7B25A25D5CCBABFC64047DEC1000D4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001503   (853858) от 28.03.2016
-
-Raphael Ensemble - Korngold: String Sextet, Schoenberg: Verklarte Nacht (1990) [FLAC|Lossless|tracks] <Classical, Chamber Music>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sextet for strings in D, Op. 10
-01. Moderato - Allegro    09:47
-02. Adagio    10:44
-03. Intermezzo (Moderato, con grazia)    07:04(   Читать дальше...   )Жанр: Classical, Chamber MusicПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2419C4DF915F48EE5CA4DEE4E5B9E42B2C7E0D06
 ```
 
 

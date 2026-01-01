@@ -1,3 +1,129 @@
+###  Публикация: 1213109   (772010) от 16.03.2018
+
+DJ Nikolaevv - Melody Of Leaving Summer (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dream In Trance (Original Mix)  5:20
+02.  Melody Of Leaving Summer (Original Mix)  5:25
+03.  You I Lose (Original Mix)  4:12
+04.  Summer Time. (Original Mix)  4:28(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:27:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FFB40DCF976EED70AF6782EB01B42ABFDD74953
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968853   (772726) от 13.04.2017
+
+Label Pack - Hypercut Records - 38 Releases (2013 - 2017) [MP3|320 кб/с] <Trance , Uplifting Trance>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frozen Tears (Original Mix) (8:07)Жанр: Trance , Uplifting TranceПродолжительность: 00:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA9DC0D0D4C265C10BAB2AF2FD6BDAD24D59847
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988171   (772727) от 13.04.2017
+
+Label Pack - Kearnage Recordings - 77 Releases (2010 - 2017) [MP3|320 кб/с] <Trance, Tech Trance>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Futura (Original Mix) (6:44)Жанр: Trance, Tech TranceПродолжительность: 00:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD5A51EE81614E69C4539E88947A9F078D60181C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015758   (772832) от 12.05.2016
+
+Alon Mor & Clockvice - The Fifth Collaje (Single) (2016) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Dubstep, Experimental, Modern Classical>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fifth Collaje (10:00)Жанр: Dark Ambient, Dubstep, Experimental, Modern ClassicalПродолжительность: 00:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:584D2782B5B381EB044EB8651DD3A3D85C78F198
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391559   (772966) от 21.06.2020
+
+VA - The Top 100 Of Fitness Music June 2020 Get Things Started [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772966.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kahekili Wordz - Hybrid (Original Mix) 4:11
+002. Kacper Kirtz - Launch (Original Mix) 4:11
+003. Josh Takka - Phony (Original Mix) 4:11
+004. Joscha Rickert - Spitfust (Original Mix) 4:11(   Читать дальше...   )Жанр: House, DanceПродолжительность: 06:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C3E0E80DE8D6C410F0C1B6B9BBDE8C786658542
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278273   (773012) от 24.01.2019
 
 VA - Formation 2 (2019) [MP3|320 Kbps] <Techno, Ambient>
@@ -559,141 +685,6 @@ VA - Best Of Cafe De Anatolia (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDF60D804F7ABEE4BFE6905916957019D2201B7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277972   (774236) от 23.01.2019
-
-Hybrid Leisureland - Discography 9 Releases (2007-2016) Ultimae Records, Double Life Records [FLAC|Lossless|tracks+.cue, tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Distance And Will (07:54)
- 02. Pale Reflection (06:00)
- 03. Mirage Of Memories (07:19)
- 04. Signal (06:29)(   Читать дальше...   )Тип издания: CD, Web •Жанр: AmbientПродолжительность: 01:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21764FB873D6766276B673C6BEEE19B90CD102BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278151   (774241) от 23.01.2019
-
-Lowering - Brooklyn (2018) [FLAC|Lossless|Web-DL|tracks] <Experimental, Dark Ambient, Dark Jazz>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonight I Am Throwing My Dreams Away (7:44)
-02. Of The Time We Were Happy (3:24)
-03. Our Last Kisses (7:02)
-04. We're Dancing... (4:24)(   Читать дальше...   )Жанр: Experimental, Ambient, Dark Jazz, Doom Jazz, Post-RockПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A05E0392AF741A52647F33A193639F739415CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015327   (774280) от 11.05.2016
-
-VA - We Love House Music Vol. 1 (40 Sexy Tunes) (2016) [MP3|320 кб/с] <Dance, House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Promo Star - Inside The Club
-02. Raynold Boss - Look At The Time (Nik Caldera's Club Mix)
-03. Philippe Laroche - Everyone At The Party
-04. Subsystem - The Streets Of Rhythm(   Читать дальше...   )Жанр: Dance, House, Electro HouseПродолжительность: 02:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE8CF3353801B2BB25A976C85106DFF51042CD59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277953   (774311) от 23.01.2019
-
-VA - Ibiza Winter Island 2019 (2018) The Deep-House Edition [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Progression-Rome (5th Avenue Mix)
-02. Ernst Bentley-Get It Now (Original Mix)
-03. Club Elite-Fujinami (Red Motel Deep Mix)
-04. One Light Project-Fashion Show (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D414E6E94A7DCCFD4DA4F4AF8BDD43CF60EE2075
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277987   (774312) от 23.01.2019
-
-VA - Vocal Dance Vol. 5 (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Betsie Larkin - Unite (Omnia Extended Remix)
-02. Christina Novelli - Carousel (Ruslan Radriges Extended Remix)
-03. FEEL feat. Diana Leah - One Last Time (Vadim Bonkrashkov Remix)
-04. Gamma - Every Goodbye (NoMosk Extended Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C32EC58DB1E6E21D696F68E8B3D011E9A73400C9
 ```
 
 

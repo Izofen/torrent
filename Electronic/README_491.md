@@ -1,3 +1,138 @@
+###  Публикация: 1355159   (984981) от 25.01.2020
+
+VA - Black Hole House Music 01-20 (2020) [MP3|320 Kbps] <House, Progressive House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anton Ishutin - Nostalgia (Extended Mix) 7:01
+02. Orkidea - One Man's Dream (Pure Progressive Mix) 8:23
+03. John Grand - Deep Fake (Club Mix) 6:28
+04. Martin Graff - Red Sand (Extended Mix) 6:09(   Читать дальше...   )Жанр: House, Progressive House, Deep HouseПродолжительность: 01:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6292B4E2112BC06075724D6F44FAFD3A90A299FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355039   (985656) от 24.01.2020
+
+Morcheeba - Part Of The Process (The Collection) (2020) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Trip-Hop, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Looking In (4:07)
+02. Blindfold (4:38)
+03. Shoulder Holster (4:04)
+04. Otherwise (3:44)(   Читать дальше...   )Жанр: Electronic, Trip-Hop, Downtempo |Продолжительность: 01:02:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600EAB030CC545E6A9603AAFBE2A3995A44CD3AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 740903   (985891) от 01.01.2014
+
+Depeche Mode - Happiest Boys (1999) [#BRONS 376, Unofficial Remix Compilation] [FLAC|Lossless]<Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World in my Eyes (Dub '99) (8:15)
+ 02. It's no Good (Shuffle Mix) (6:33)
+ 03. Walking in my Shoes (Moonlight Mix) (6:45)
+ 04. Happiest Girl (Pump Up The Beat Mix) (8:34)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0425DA166925F8FB9B83425CCBCD1A21C4D06692
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971578   (985946) от 03.01.2016
+
+Cravagoide - Empty Frame (2015) [FLAC|Lossless|WEB-DL] <Ambient, Downtempo, IDM>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vmap (5:16)
+02. Try (4:26)
+03. Forma Fluens (5:31)
+04. Lost Cable (4:34)(   Читать дальше...   )Жанр: Ambient, Downtempo, IDMПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EE48B6A0E064C8AE6F1C486336EF37C6530FC7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355017   (985967) от 24.01.2020
+
+Boris Brejcha - Space Diver (2020) Ultra Records [FLAC|Lossless|tracks] <Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravity (9:24)
+ 02. Happinezz (7:52)
+ 03. Never Look Back (8:02)
+ 04. Lieblingsmensch (8:44)(   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 01:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4473F591E6F0251592E1E0ECE1CC926A36EF3AEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 611714   (985994) от 02.02.2013
 
 VA - Mega House Top 100 (2013) [MP3|320 кб/с]<house, dance, club>
@@ -596,150 +731,6 @@ VA - Zirkus Zirkus Vol.1: Elektronische Tanzmusik (2013) [MP3|320 кб/с]<House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE8926424D5D1911E00F08D4C03AA97233B9B5CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610746   (990578) от 29.01.2013
-
-VA - Wave of Trance Vol.1 (2013) [MP3|320 кб/с]<Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sergey Romashkin - The Neighbors - Vadim Miner Intro Remix
-02. Vasiliy GooDKov - Feel - Original Mix
-03. 3rd Planet - UFO Here - Original Mix
-04. S.Y.N.E.R.G.Y. - Invisible Flight - Original Mix
-05. Mixail - Mysterious Window - Original Mix
-06. John Dubs - Why We Hurry - 1Touch Remix
-07. Eugene Diveev - Sometimes Music Stops - Original Mix
-08. Fashion Beat - Time So Slow - JMV Club Mix
-09. Teana and Tiida - Coral Reef - Original Mix
-10. Eximinds featuring Aelyn - Fairy Tale - Chance Jumpers pres. nu Okkerville Remix(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 03:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E52BF0AAB996B902B979920D22697D156131D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202427   (990661) от 19.01.2020
-
-James Holden - Discography 24 Releases (2000-2019) [FLAC|Lossless|tracks+.cue, tracks] <Techno, IDM, Minimal, Experimental, Ambient, Progressive House>
-
->>Electronic
->>Trance, House, Techno (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piano Magic - Wintersport / Cross-Country (02:57)
- 02. Grackle - Disco (Musiccargo Remix) (02:49)
- 03. Mordant Music - Olde Wobbly (02:40)
- 04. Maserati - No More Sages (01:23)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Progressive House/Illbient/Tech House/Experimental/Progressive TranceПродолжительность: 18:13:18 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E02ED3A3952FE06FEF3C91607B73EAC26543957
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353815   (990742) от 19.01.2020
-
-VA - Ultimate Deep House Selection (The Grand Rhythms) (2020) [MP3|320 Kbps] <Dance, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990742.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Urban Life - Gegalo (Style Mix) (4:15)
-2.Frankye Paradise - Rabbit (Night Mix) (3:44)
-3.South Soul - Lifesaver (Deephology Mix) (3:15)
-4.Samoa Beach - Ego Lei (Area's Royce Mix) (4:12)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 01:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D066F3E61F390C299DF8D76C99F2C589A7DE10C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609958   (991146) от 28.01.2013
-
-Mario Basanov - Journey (2012) [FLAC|Lossless]<House, Deep House, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caribbean Girl (9:12)
-02. Lonely Days (7:06)
-03. Just Think About (7:06)
-04. Do You Remember (7:33)
-05. We Are Child Of Love (5:49)
-06. Sheiker (6:12)Жанр: House, Deep House, DiscoПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609985   (991274) от 28.01.2013
-
-Jody Wisternoff - 4 Singles (2012) [FLAC|Lossless]<Progressive House, House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just One More (Extended Mix) (8:21)
-02. Just One More (Dub Mix) (5:53)
-03. Just One More (MANIK Remix) (6:07)
-04. Just One More (Martin Roth Remix) (5:57)
-05. Just One More (Radio Edit) (3:45)Жанр: Progressive House, House, Deep HouseПродолжительность: 00:30:04
-
-## Скачать торент
-```bash
-нет
 ```
 
 

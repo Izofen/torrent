@@ -1,3 +1,30 @@
+###  Публикация: 1377653   (851499) от 22.04.2020
+
+Megadeth - 100% Megadeth (2020) [MP3|320 Kbps] <Rock, Trash Metal, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holy Wars...The Punishment Due (Remastered 2004)
+02. Hangar 18 (Remastered 2004)
+03. A Tout Le Monde (Remastered 2004)
+04. Dystopia(   Читать дальше...   )Жанр: Rock, Trash Metal, MetalПродолжительность: 02:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE74251BDFD02FC785F015A742BE6D8F1DA2818A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377608   (851500) от 22.04.2020
 
 VA - Circle of Life (Native American Music) (2020) 2CD [MP3|320 Kbps] <Native American, New age, World music>
@@ -663,33 +690,6 @@ VA - Dange TV 1 (2016) [MP3|320 кб/с] <Dance, Club, Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22BDB6CDEA47D6AD792D557D67E9A67BFDFAC96B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001714   (852294) от 29.03.2016
-
-Серж Мэй - Память (2012) [MP3|160 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На централе
-02. Уходит на волю браток
-03. Это память моя
-04. Цвет вишни(   Читать дальше...   )Жанр: ShansonПродолжительность: 01:15:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E05FAD6B09CCA0ED812B2E216DEFEF1D227626D
 ```
 
 

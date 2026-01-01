@@ -1,3 +1,30 @@
+###  Публикация: 993658   (895534) от 05.03.2016
+
+VA - Smooth and Sexy - Premium Jazz Grooves (2016) [MP3|320 кб/с] <Jazz, Chill Out, Lounge>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De el Mar a la Luna (Jazz Loungebar Mix) - Vladi Strecker
+02. It's a Good Life (Sax Mix) - Bar Blue
+03. Honeytrap (Keys and Trumpet Mix) - Noise Boyz
+04. Blown Away (Acoustic Mix) - Orange Music(   Читать дальше...   )Жанр: Jazz, Chill Out, LoungeПродолжительность: 05:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FCCBBB993EFB88A7D32159B51856C1842B1F6F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993465   (895536) от 05.03.2016
 
 VA - Зажигательный музыкальный отрыв (2016) [MP3|320 кб/с] <Pop, Dance, House>
@@ -667,33 +694,6 @@ magnet:?xt=urn:btih:45A54777F19EE79114E48A1D8EB25DFDFC503894
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E0FF58597676804597B2FA1B38D4EEE279F90FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993043   (897647) от 04.03.2016
-
-Va - Top Eurodance Tunes (2016) MP3 (2016) [MP3|320 кб/с] <Pop, Dance, Eurodance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Garden - And She Said (Eurotrance Remix)
-02. Basement Three - Catch Your Wave
-03. Housecream - Still Not Sorry (Remix)
-04. Asya - Like a Dream(   Читать дальше...   )Жанр: Pop, Dance, Eurodance, HouseПродолжительность: 01:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A0F2EC528F3E14FE1190386E5540DCEBC25578
 ```
 
 

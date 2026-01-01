@@ -1,3 +1,57 @@
+###  Публикация: 1032321   (645853) от 07.07.2016
+
+Алиса Мон - «Потанцуй со мной» (2001) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Орхидея (4:30)
+02. Мало ли, что (3:55)
+03. Стань моим (4:11)
+04. Тет-а-тет (3:49)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27A2756ECB53D9F82F35413630D348E35FAC06C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142014   (646326) от 12.06.2017
+
+Chromatics - Cherry (2016) [MP3|320 Kbps] <Electronic, Alternative Pop, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cherry
+02. Candy
+03. Headlight's Glare
+04. Ceremony(   Читать дальше...   )Жанр: Electronic, Alternative Pop, SynthpopПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:002CFD4E2097D02E4FA2DD1769D068F63EFBEDB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141986   (646510) от 12.06.2017
 
 Chromatics - Just Like You (2016) Vinyl, EP [MP3|320 Kbps] <Electronic, Alternative Pop, Synthpop>
@@ -652,60 +706,6 @@ N/AЖанр: DiscoПродолжительность: 01:19:29
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:500B33858116CBFC52B41373FBDDE98327014D55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032111   (647524) от 06.07.2016
-
-Фристайл - И новое и лучшее (1994) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Измученное сердце 4:20
-02. Соседка 4:01
-03. Обидно мне до слёз 3:49
-04. Последняя ночь 4:15(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74724DA49B66E5DF42C8BDFC4D08A142B9CA207
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032171   (647526) от 06.07.2016
-
-Guru Groove Foundation - Over You (2016) EP [MP3|320 Kbps] <Dancepop, Funk, Neo Soul>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bomb
-02. Over You
-03. As Much As You Say
-04. When HeЖанр: Dancepop, Funk, Neo SoulПродолжительность: 00:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423727F6458B7D8B3CEA82BF18836B14461E94CB
 ```
 
 

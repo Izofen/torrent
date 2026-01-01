@@ -1,3 +1,138 @@
+###  Публикация: 1100063   (901596) от 03.02.2017
+
+VA - Best of Uplifting Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Quest - C Sharp (Allen & Envy Remix)  6:00
+02.  Suncatcher - Sweet Submission (Original Mix)  8:07
+03.  Paul Denton - Same Stars (Original Mix)  7:09
+04.  The Thrillseekers - Halcyon 2016 (Original Mix)  3:48(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 03:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56C5BACB59C0E7121C053B37F809E97637A3C6A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100095   (901717) от 03.02.2017
+
+VA - Hypnotic Room (Best of 2016) (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic, Progressive, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paranoia106 - Misty (Original Mix) [07:57]
+02. Satoshi Fumi - Tunnel Vision (Original Mix) [06:57]
+03. Oleg Mass - Planetary (Original Mix) [07:40]
+04. Samuel Wallner - Clay (Original Mix) [06:12](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 03:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4210FBC7B9049BEE056D84FB2C5BB95871C357B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465279   (901828) от 01.03.2016
+
+Armin van Buuren - A State of Trance 551 - 750 (2012-2016) [MP3|128 ~ 320 кб/с]<Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunlounger feat. Zara Taylor – Try To Be Love (Roger Shah Naughty Love Mix)
+02. Rank 1 & Jochen Miller feat. Sarah Bettens – Wild And Perfect Day (Cosmic Gate Remix)
+03. Tune Of The Week: Alexander Popov – When The Sun (Eximinds Remix)
+04. Eximinds – August (Original Mix)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 677:39:50 (по 2 часа -/+ 5 мин.)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB478D486F45B63AD9F42B3D28637BE877EA95DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100221   (901870) от 03.02.2017
+
+Clarke : Hartnoll  (Vince Clarke & Paul Hartnoll) - 2Square (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Leftfield, House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Have A Drink To Think (04:16)
+ 02. Zombie Blip (04:18)
+ 03. The Echoes (05:29)
+ 04. Do-A Bong (03:29)(   Читать дальше...   )Жанр: Techno, Leftfield, House, ElectroПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5989D226003834BEC1648A24F8ACA7F3DC1D39D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369736   (901986) от 24.03.2020
+
+Kim & Buran (Ким и Буран) - Best Melodies (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, Easy Listening>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My First Cosmic Love (3:23)
+02. Adventure After School (3:41)
+03. The Garland (3:09)
+04. You Are the Sunshine (2:59)(   Читать дальше...   )Жанр: Lounge, Downtempo, Easy ListeningПродолжительность: 01:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15037093327A4801EAA7F5606B425CB9665856F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369721   (902010) от 24.03.2020
 
 VA - Nothing But... Soulful House Vibes, Vol. 07 (2020) [MP3|320 Kbps] <House>
@@ -560,138 +695,6 @@ VA - Klubb House 2006 (2006) [FLAC|Lossless|tracks + .cue] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72871E309313454A596EC5CA6E56A15924FA0028
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099301   (904891) от 01.02.2017
-
-VA - Cafe Chillout Lounge del Mar (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Soda Lounge - The Love We Share (Beatless Chillout Mix)  4:40
-02.  Mykel Mars - Good Time (Chillout Deluxe Mix)  5:40
-03.  Eddy Chrome - In Love (Lounge Remix)  6:10
-04.  Cats Love Dogs - Sunpearls (Paradise Lounge)  5:43(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 03:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C705B657D2C821249731245D0CC2CC99BCFFB978
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227091   (904911) от 22.03.2020
-
-Scann-Tec | Broadcast Of Variants | Rotozey - 7 Releases (2010-2019) Celestial Dragon, Monokanal, Ultimae Records [FLAC|Lossless|tracks+.cue, tracks] <Psybient, Downtempo, Psy-Transe, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kurolesov (08:00)Тип издания: CD, WebЖанр: TechnoПродолжительность: 07:57:19 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36D501C2ADEE9783974BA464BF3B22D306FBC130
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186894   (904918) от 22.03.2020
-
-Kettel - Discography 27 Releases (2001-2020) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Abstract, Leftfield, Downtempo, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lawless Place (02:50)
- 02. Chasing Whalers (02:44)
- 03. Long Lang (03:50)
- 04. Water-Bound Chaingang (02:27)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Ambient/ExperimentalПродолжительность: 21:41:47 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7D2ED721AC7D921F4732C7BC46DF3BB58E4D4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099320   (905002) от 01.02.2017
-
-VA - Lovers Lounge: Chillout Your Mind (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lazy Grooves - Secrets  4:22
-02.  Ingo Herrmann - Whole Body  4:57
-03.  Marga Sol - Esta Noche (Leo De La Rosa Sensual Remix)  5:50
-04.  Velvet Dreamer - Sky Is Falling (Mo'jardo Remix)  5:00(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE3A1E0FF0673FE5AA5FB9495CB22B4207EFD01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 760006   (905003) от 23.02.2014
-
-Schiller - Die Einlassmusik 10 (2013) [FLAC|Lossless]<Ambient, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teil I
-02. Teil II
-03. Teil III
-04. Teil IV(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CC4A084746FDA6EB56EC0D8E59800C95DC12897
 ```
 
 

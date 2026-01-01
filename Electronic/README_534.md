@@ -1,3 +1,138 @@
+###  Публикация: 1606157   (1044450) от 22.01.2023
+
+VA - Armada Chill - Winter 2023 [MP3|320 Kbps] <Progressive House, Organic House, Melodic House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autograf & Blonde Maze - Revolves Around You (Extended Mix) (4:47)
+02. Ben Hemsley - Erase Me (Creamfields Sunset Mix) (4:42)
+03. Pablo Nouvelle - Vulnerability (Original Mix) (3:45)
+04. Lufthaus & Robbie Williams - Soul Seekers (Club Mix) (6:06)(   Читать дальше...   )Жанр: Progressive House, Organic House, Melodic HouseПродолжительность: 03:20:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BEEAD838877FC353AB42037641D93AF52BEDD20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605934   (1044729) от 19.01.2023
+
+VA - A Quiet Healing: Body & Mind Relaxing Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - River Flows in You (04:37)
+02. Chillaxing Jazz Kollektion - Evening Sun (05:24)
+03. Konstantin Klashtorni - Humble and Kind (04:06)
+04. Chillaxonic - Aurora (05:13)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Chill OutПродолжительность: 02:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD50B0FBABDCB00CA7D0C01C1D37B9E6CC74EB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605262   (1044730) от 19.01.2023
+
+Obscurity - The Enigma TNG (2023) [FLAC|Lossless|WEB-DL|tracks] <Cyberpunk, Industrial, Dubstep>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Capricorn [00:03:21]
+02 Light of Deception [00:05:37]
+03 Baphomet [00:03:58]
+04 Black Infinity [00:04:24](   Читать дальше...   )Жанр: Cyberpunk, Industrial, DubstepПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:815958C1789F3F2EE34E778B6D41B0ED928A4E78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605247   (1044746) от 19.01.2023
+
+Violet Fears - Thrillogy (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrival (Prelude) [00:01:58]
+02. Look at Me [00:04:30]
+03. Blackwood (Interlude) [00:01:04]
+04. Memoria [00:03:40](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C28C2838D8EE56E2A4C65FBB1BC546BE7AA1D2BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605543   (1044854) от 18.01.2023
+
+Boundless - 100Sec to Midnight (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Electro House, Tech House, Bassline>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subliminal Villages (Original mix) (8:08)
+ 02. Contrast (ft. Synesthetic) (Original mix) (7:03)
+ 03. Butterfly  (ft. Luis M) (Original mix) (7:21)
+ 04. Modern Miracles (Original mix) (8:26)(   Читать дальше...   )Жанр: Progressive House, Electro House, Tech House, BasslineПродолжительность: 01:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C6394930EFE1FA6FD13A38112EAE41141838B39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605088   (1045079) от 16.01.2023
 
 Danilo Ercole - Profundo Collected Vol.2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Electro House, Tech House>
@@ -559,141 +694,6 @@ VA - Lounge & Chill Out Moods, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Chil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09685FE77F9996A586AEF0590F586AC8875B0AC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602810   (1045916) от 07.01.2023
-
-VA - 2022 [FLAC|Lossless|WEB-DL|tracks] <Ambient, Lounge>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AstroPilot & Astronaut Ape - Ad Astra (Unusual Cosmic Process ambient rework) (03:13)
-02. Dreaming Cooper & Unusual Cosmic Process - Apollo 8 Code (07:38)
-03. Unusual Cosmic Process - Atlantis (07:02)
-04. Zero Cult & Unusual Cosmic Process - Pathway To Eternity (07:45)(   Читать дальше...   )Жанр: Ambient, LoungeПродолжительность: 02:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36D07DA7FB4DCCDC0C488B47DC65B676615E072F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602879   (1045919) от 07.01.2023
-
-VA - Chill Out Vocal Trance 2023 [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sarah Russell - Borrowed Time (Moonnight Remix) (4:00)
-02. Aurosonic - Weather The Storm (Chill Out Remix) (6:14)
-03. Cathy Burton - Reach Out To Me (Sadege Chill Out Remix) (4:00)
-04. Bass Sky - Take Me Back (3:04)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B04742F123E221AA1E9228D03CDBF0DDFD7CA12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602868   (1045925) от 07.01.2023
-
-VA - Musica Pilates 2023 [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ethereal Moments - You Leave (3:52)
-02. Nils Hahn - I Hear You Calling (Ethereal Moments Remix) (2:49)
-03. Peter Orbit - Night Rhythms (3:24)
-04. Unique Chill - Dancing with My Best Friend (3:00)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08919FFBC7B15A601451F9710ED27EC77A94D84D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602948   (1045934) от 07.01.2023
-
-Solar Fake - Enjoy Dystopia (2021) 2xCD, Deluxe Edition [FLAC|Lossless|image + .cue] <Synth-pop, Electro>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045934.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. At Least We'll Forget
-02. I Despise You
-03. This Pretty Life(   Читать дальше...   )Жанр: Synth-pop, ElectroПродолжительность: 01:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F70DC130D42E9455C56E68E7F01C31B36D1A83A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602904   (1045943) от 07.01.2023
-
-VA - Best Of Winter (2022) [MP3|320 Kbps] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. dub.format - Keep
-02. Ohmz - Golden Temple
-03. Missfeat - Friends Lovely Friends
-04. Tebra - Endless(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 02:22:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCDC08A859BDF3D64D54D6A6A698BA05303820A2
 ```
 
 

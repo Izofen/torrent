@@ -1,3 +1,57 @@
+###  Публикация: 1462163   (1021324) от 13.04.2021
+
+гр. Тяни-толкай - 3000 шагов. Баллады (2005) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3000 шагов
+02. Океан тайги ( дуэт с Алексеем Хлестовым )
+03. Снег
+04. Даль-чужбинушка(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9064968B7069AC3FC1EA45E7A2BCEEDA80F89CFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459561   (1023124) от 02.04.2021
+
+VA - Acoustic Hits 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine Dragons - Demons (Live London Sessions / 2013) (03:07)
+02. Justin Bieber - Holy (Acoustic) (03:25)
+03. Shawn Mendes - Wonder (Acoustic) (02:53)
+04. Topic - Breaking Me (Acoustic Version) (02:47)(   Читать дальше...   )Жанр: PopПродолжительность: 02:05:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CD84DAB67A50A6DAFC2684AF3BDAC742979336D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457948   (1023762) от 29.03.2021
 
 Thomas Anders - Cosmic (2021) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Pop, Eurodisco>
@@ -638,60 +692,6 @@ Lana Del Rey - Chemtrails Over The Country Club (2021) [FLAC|Lossless|tracks] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62AA95887E026D359C3FF6FC254F67AFAB884F45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452703   (1027569) от 07.03.2021
-
-Celeste - Not Your Muse (2021) 2CD Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Ideal Woman
-02. Strange (Edit)
-03. Tonight Tonight(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2B8FDB3BBD879738400DF5376681D3A1666B12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452394   (1027694) от 06.03.2021
-
-Ricchi e Poveri - Reunion (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. L'ultimo amore
-02. La prima cosa bella
-03. Che sarà (feat. José Feliciano)(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F926041B7CE9B568A9098B07319678E127F32F8
 ```
 
 

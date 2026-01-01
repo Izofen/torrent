@@ -1,3 +1,57 @@
+###  Публикация: 1032132   (645955) от 07.07.2016
+
+VA - Wake up Tunes (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocketpunk - The Warning Wheel
+02. Dr. Ruth - Piano Sonata (Benny Knox Remix)
+03. Circuito Zeta - En Directo
+04. Mario Sacco DJ - Frenesia(   Читать дальше...   )Жанр: HouseПродолжительность: 02:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:271601A87336B820570F192F58C01C90AE16C81E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032473   (646062) от 07.07.2016
+
+VA - Levitated Vol. 1 (Mixed by Manuel Rocca) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allen Belg - Hammamet (Original Mix) (6:31)
+02. Alex Wright - Galactica (Original Mix) (7:06)
+03. Cyre & DJ T.H. - Ibiza Calling (Mhammed El Alami & Manuel Rocca Remix) (6:17)
+04. Blue5even - Island Paradise (Original Mix) (6:22)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61BCF50F2C22967F266027ECE728EBF29F4577FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032227   (646164) от 07.07.2016
 
 VA - Ibiza 2016 - Hot Tunes Vol.1 (2016) [MP3|320 Kbps] <House>
@@ -639,60 +693,6 @@ VA - Trancespotting Vol.8 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF2A5583C0393F55B6DDE969147656B615E5A66B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541348   (646942) от 02.04.2022
-
-Lane 8 - Spring 2022 Mixtape (2022-03-30) [MP3|320 Kbps] <Progressive House, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le Youth & OCULA ft. Nathan Nicholson - If Only (You Could Be Here)
-02. Lexer - Paris Rain
-03. Fred again.. & Romy & HAAi - Lights Out
-04. Spada - Take Me There(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 02:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E07C9433AB3B38B9339CE5349A233F0A322CED96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905710   (647678) от 07.06.2015
-
-VA - Ambient Lounge Ibiza (2015) [MP3|320 кб/с]<Lounge, Ambient, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bansan - Bird Beyond Fear (03:08)
-02. Lenny Ibizarre - Smooth Temptation (04:12)
-03. Greg Knight - Circle of Clowns (05:22)
-04. The K2 Project - Medicine Man (04:23)(   Читать дальше...   )Производство: Cherry Lounge RecordingsЖанр: Lounge, Ambient, Chill OutПродолжительность: 01:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86A1561D7AED689E463A42B2C26D4D68515C67A
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1466325   (1018611) от 29.04.2021
+
+Deya Dova - Collection (1999-2017) 4 альбома [MP3|320 Kbps] <Downtempo, Glitch Hop, Tribal>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Myth of the Cave
+02. Return of the Bird Tribes
+03. Rite of the Hunt
+04. The Winged One(   Читать дальше...   )Жанр: Downtempo, Glitch Hop, TribalПродолжительность: 02:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F54601B890CE0FA202C6A6C63907470DC8BC0B38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466432   (1018636) от 29.04.2021
+
+VA - Jazz Mood Cocktail (2017) [FLAC|Lossless|Web-DL|tracks] <Downtempo, Lounge, Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mo'jardo – Let's Party (3:46)
+02. Van – Street Cafe (5:33)
+03. Marc Hartman – Crushing Waves (3:57)
+04. Velvet Dreamer – Oasis (5:45)(   Читать дальше...   )Производство: Anim RecordsЖанр: Downtempo, Lounge, JazzПродолжительность: 02:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42BD642B78CFFFB162A5F5190EE3C9FDD0FE7461
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466320   (1018653) от 29.04.2021
+
+Skua Atlantic - Silfra Diving (2021) Fantasy Enhancing [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reykjavik Dublin First Transmission (08:17)
+ 02. Arcade Decay (09:08)
+ 03. Silfra Diving (11:25)
+ 04. Where Cities Once Stood (09:46)(   Читать дальше...   )Жанр: Electro, IDM, AmbientПродолжительность: 01:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C8AFFB4D8C34779EB1BE93FCDCF8984775E8A25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465975   (1018791) от 28.04.2021
+
+VA - Trip to Anatolia: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Е - Asavari (05:21)
+02. Vellua - Navin (04:54)
+03. SoulAvenue - Padmasundari (05:56)
+04. Sami Sivananda - Samadhi Vibes (03:15)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E341B7E8F06510CF89A9A6C4C6B889A42854FB81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465825   (1018816) от 28.04.2021
+
+Michael E - With Open Arms (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. With Open Arms (7:12)
+02. The Voices in My Head (4:08)
+03. Sentimental (5:44)
+04. Same Time, Same Place (6:44)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:58:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7BAA1D3C106B23D45360CBEB533820F53FB79B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465854   (1018959) от 27.04.2021
 
 Michael E - Lost in Thought (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -553,141 +688,6 @@ VA - Synthwave Dreams, Vol. 14 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB9E4B5233EC0057DF904378F114F8A3E0EE7178
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462708   (1020656) от 17.04.2021
-
-Front Line Assembly - Mechanical Soul (2021) [FLAC|Lossless|image + .cue] <Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purge 05:23
-02. Glass and Leather 06:03
-03. Unknown 05:06
-04. New World 05:07(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D58813C911A0DB0256DAD0EFB62ACB58F54CA88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463088   (1020657) от 17.04.2021
-
-VA - Synthwave Dreams, Vol. 13 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ionov - Spacewave (TELEGIMNASTIKA Remix) (5:13)
-02. #Mali - Okinawa (4:05)
-03. Born In '82 - Shadow Boxing (3:43)
-04. Microsha 89 - Soviet Union (TELEGIMNASTIKA Remix) (3:54)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC6003D57B5A603FD76AF5714B72E6057A3320A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463085   (1020678) от 17.04.2021
-
-Nickolay Fedorenko - Dance Planet (2014) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Dance, Trance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance Planet (3:03)
-02. Interstellar Flight (3:37)
-03. Dynamic Motion (3:47)
-04. Winter Dance (3:26)(   Читать дальше...   )Жанр: Spacesynth, Dance, TranceПродолжительность: 00:30:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1133E9BD79D1037D77DCEBFF791D561077AE8E7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062932   (1020737) от 16.04.2021
-
-Raul Jordan (Lab's Cloud, Psycho Abstract) - Discography 13 Releases (2010-2021) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Psy-Trance, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serenity 5am (06:21)
- 02. Clear Up (06:36)
- 03. Rising (08:15)
- 04. Beyond A Secret (06:21)(   Читать дальше...   )Тип издания: WEBЖанр: Psybient, Downtempo, Ambient, Psy-Trance, Progressive Trance •Продолжительность: 11:05:29 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D65F41697B4B2CF5DACAD312B4FE45DCD83AB7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 735169   (1020741) от 16.04.2021
-
-Woob | Journeyman | Max & Harvey | w00b - Discography 51 Releases (1994-2021) Bigamoebasounds, em:t, Time Limited [FLAC|Lossless|tracks+.cue, tracks]<Ambient, Downtempo, Dub, Modern Classica ...
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Therapy (Hollywood Therapy Mix) (09:08)
- 02. Space Therapy (Ambient Disaster Movie Mix) (16:10)
- 03. Space Therapy (The To Be Continued Emporium Edit) (03:20)
- 04. Space Therapy (Original Mix) (06:12)Тип издания: CD, Vinyl, WebЖанр: Ambient, Downtempo, Dub, Modern Classical •Продолжительность: 40:52:46 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D485784B79152AB6C9641E1255A83E2A3DA2D76
 ```
 
 

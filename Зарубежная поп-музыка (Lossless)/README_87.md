@@ -1,3 +1,57 @@
+###  Публикация: 1367101   (918763) от 14.03.2020
+
+VA - 80's Gold (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tina Turner - Steamy Windows
+02. a-ha - Take On Me
+03. Duran Duran - Hungry Like the Wolf
+04. Stevie Nicks - Rooms On Fire(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 03:28:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C917E68F529BBF5AA7C929B85BC74D24E6AD7B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367077   (918969) от 14.03.2020
+
+VA - 90s Guitar Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918969.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. All Saints - Under the Bridge
+2. Jannik - The Power of Love
+3. a-ha - Move to Memphis
+4. Tori Amos - God(   Читать дальше...   )Жанр: PopПродолжительность: 02:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C841E7E5505FFB12D1BA4E6B35455E50214814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 631940   (919386) от 20.03.2013
 
 VA - MTV Top the Hits 2013 3CD (2013) [FLAC|Lossless]<Pop, Dance, Rock, R&B, Trance, Other>
@@ -655,62 +709,6 @@ Whitney - The Greatest Hits (2000) 2CD [FLAC|Lossless|tracks + .cue] <Soul, Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D97A02BA4BFEC2F6500DA81C3E3A170BF0CE3B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629864   (931274) от 13.03.2013
-
-Justin Timberlake - The 20/20 Experience (Deluxe Edition) (2013) [FLAC (tracks+cue)|Lossless]<Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, R&BПродолжительность: 01:19:26
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 754452   (932008) от 08.02.2014
-
-I Break Horses - Chiaroscuro (2014) [FLAC|Lossless]<Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. You Burn (4:59)
-02. Faith (3:49)
-03. Ascension (4:57)
-04. Denial (3:40)
-05. Berceuse (4:41)
-06. Medicine Brush (7:03)
-07. Disclosure (4:47)
-08. Weigh True Words (4:07)
-09. Heart To Know (7:41)Жанр: Electronic, PopПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8A180A5C9602188C8426D2E0FB998337D9274F
 ```
 
 

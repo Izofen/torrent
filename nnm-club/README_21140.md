@@ -1,674 +1,673 @@
-###  Публикация: 1494335   (860981) от 24.09.2021
+###  Публикация: 1000763   (857426) от 26.03.2016
 
-Свободное падение / L'aine des Ferchaux (2001) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богатого и влиятельного бизнесмена Поля Фершо накануне заключения крупного контракта подставляет кто-то из его ближайшего окружения. В результате сделка срывается, его младший брат и партнер по бизнесу попадает в тюрьму, а сам Фершо вынужден спасаться бегством за границу.
-Оставшись без друзей и средств к существованию и поселившись в глухом местечке в Северной Африке, (   Читать дальше...   )Производство: Франция /  G.M.T. ProductionsЖанр: ДрамаРежиссер: Бернар СтораАктеры: Жан-Поль Бельмондо, Сэми Насери, Жюли Депардье, Сильвия Мунт, Брижит Роюан, Филипп Хорсан, Пьер Вернье, Эмиль Абоссоло Мбо, Бернар Алан, Винсент ОберПеревод: Дублированный (телекомпанией "ТВЦ")Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 03:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7025D721659F4490E0DE095C0E7CF770AF8079B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498008   (860982) от 24.09.2021
-
-Шаблоны - Сборник шаблонов #5 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник шаблонов для блогов и сайтов.Формат: PSDРазрешение файлов: 2999x2999-6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833234F3B579BE1CAA7367F2AECBCD8CE4D932DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497902   (860983) от 24.09.2021
-
-Скворец / The Starling (2021) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860983.jpg" />
-</div>
-
-
-###  Подробнее
-
-В жизни супругов Мэйнард случилась трагедия. Пока муж отправляется на встречу для переживших утрату, жена устраивает на заднем дворе цветочный сад. Её покой нарушает гигантский скворец, свивший гнездо неподалёку. Она обращается за помощью к ветеринару, который в итоге помогает ей найти силы жить дальше.Производство: США / Boies / Schiller Film Group, Culmination Productions, Entertainment OneЖанр: Драма, комедияРежиссер: Тед МелфиАктеры: Мелисса Маккарти, Крис О’Дауд, Кевин Клайн, Тимоти Олифант, Давид Диггс, Лора Хэрриер, Розалинд Чао, Кимберли Куинн, Лоретта Дивайн, Джесси ГарсиаПеревод: Дублированный (Netflix)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), украинские (Full), английские (Forced, SDH)Продолжительность: 01:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7C0EF52441687AE1C8172EFF62C73F579F521E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498019   (860984) от 24.09.2021
-
-Шаблоны - Creative Market - Board Book Mockup Set - 6425964 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон книги - многослойные редактируемые файлы .psd, подготовленные для демонстрации вашего индивидуального дизайна путем редактирования смарт-объектов и цветовых слоев.Формат: PSDРазрешение файлов: 3000x2000-6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707632D41B89CB069628A49536C5C80307F69629
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109057   (860985) от 26.02.2017
-
-Pola & Bryson - Find Your Way (2017) EP [MP3|320 Kbps] <Drum & Bass>
+XMedia Recode 3.3.0.6 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860985.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857426.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Find Your Way (feat. Charlotte Haining)
- 02. Moment's Notice
- 03. Phantom
- 04. MonumentЖанр: Drum & BassПродолжительность: 00:22:03
+XMedia Recode - бесплатный, удобный, функциональный видеоконвертер, обладающий также функциями редактора. Программа способна производить изменение размеров кадра видео, обрезку по времени, а также выполнять многие другие необходимые пользователю операции. XMedia Recode позволяет производить конвертирования практически любых аудиофайлов и видеофайлов в форматы, которые (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5493976E20485729536ECFBEDDEC1E56D203C513
+magnet:?xt=urn:btih:E47D7F460745C1E9E8A8982D5351CEDD02C9CA79
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102057   (860986) от 26.02.2017
+###  Публикация: 1000605   (857427) от 26.03.2016
 
-JustBroadcaster YTEd 1.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860986.jpg" />
-</div>
-
-
-###  Подробнее
-
-JustBroadcaster YTEd - создай трансляцию на YouTube в считанные минуты
-Начало трансляции на YouTube менее чем за 2 минуты.
-Видео-микшер и прямые трансляции на YouTube.
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24 февраля 2017Разработчик: Mihail GaraninПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ED1469C9D2336CDB27285ADDFDDF09348CFEF44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108773   (860987) от 26.02.2017
-
-Журнал | Цветники в саду №7 (июль 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красочный и очень полезный журнал для тех, кто действительно любит жизнь, для всех ценителей красоты и любителей цветов, будь то садоводы-любители или профессионалы, владельцы небольших участков или современных коттеджей. Журнал станет незаменимым помощником при проектировании и разработке цветников, поможет вам правильно подобрать цветы и растения для оформления (   Читать дальше...   )Жанр: ЦветоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658A99BC01108159FDC9443AB0FDAC0D31B4ED42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109062   (860988) от 26.02.2017
-
-Газета | Сад, огород – кормилец и лекарь №4 (288) (Февраль 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сад, огород – кормилец и лекарь — журнал, который поможет вырастить богатый урожай, обустроить дачный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B6FB4AC069EF58B19C000747C143A44D3FBDFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108836   (860989) от 26.02.2017
-
-BlogTouch for Blogger 2.1.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860989.jpg" />
-</div>
-
-
-###  Подробнее
-
-# 1 редактор Blogger для вашего Mac, iPhone и IPad!
-BlogTouch является самым мощным Blogger / Blogspot десктоптным редактором.
-Он оснащен всем необходимым, чтобы управлять своими блогами: писать, публиковать, обновлять или обмениваться сообщениями и комментариями.
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 февраля 2017Разработчик: Denk AlexandruПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAFB117D6DC2CA6A7076C07C6B643E950E0391CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109106   (860990) от 26.02.2017
-
-Футбол. Лига Европы УЕФА 2016/2017. 1/16 финала. 2-й матч. Зенит (Россия) – Андерлехт (Бельгия) (23.02.2017) WEB-DL [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860990.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 февраля 2017, четверг. 21:00 МСК
-Лига Европы УЕФА 2016/2017. Плей-офф
-1/16 финала. 2-й матч
-(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B27489692EA7C31391CD339A73A7CD5860B166D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109202   (860991) от 26.02.2017
-
-Trickster - Back To Zero (1979) 2006, Strange Days Records [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tomorrow Belongs To Me
-02. Back To Zero
-03. You Make Me Want To Stay
-04. Road To Nowhere(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8742840E0383C777BDC444B31BDEAB56546A3C66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109204   (860992) от 26.02.2017
-
-Лучше всех (2017.02.26) SATRip (сезон 2, выпуск 3)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое детское телевизионное шоу талантов, куда приглашаются юные участники от трех до 12 лет. Если ваш ребенок проявляет экстраординарные способности, то его ждут в нашем шоу!Телекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 01:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:805B999A8E5975E98AC95CDE5E6735B3039A87E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109008   (860993) от 26.02.2017
-
-Ben Poole - Time Has Come (2016) [FLAC|Lossless|image + .cue] <Classik rock, Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lying To Me (4:11)
-02. I Think I Love You Too Much (6:40)
-03. Longing For A Woman (3:49)
-04. If You Want To Play With My Heart (3:39)(   Читать дальше...   )Жанр: Classik rock,  Blues-RockПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AB29606D246D98C5B9828F1E8B4156C4414514B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109007   (860994) от 26.02.2017
-
-The Like - Release Me (2010) [MP3|~190 Kbps (V2)] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wishing He Was Dead (02:53)
-02. He's Not A Boy (02:35)
-03. Release Me (03:03)
-04. Walk Of Shame (02:15)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E84F5D36C1B2AAF9D284D94E47F0D2680528EE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109023   (860995) от 26.02.2017
-
-The Hollerin Sluggers - The Promised Land (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock, Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come On Over (4:03)
-02. String Of Pearls (6:18)
-03. Devil At The Liquor Store Blues (3:32)
-04. Reap What You Sow (4:46)(   Читать дальше...   )Жанр: Hard Rock, Blues-RockПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:927EE493E73C61F73F89FDC74B0B3CDF49820B60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109167   (860996) от 26.02.2017
-
-Trickster - Find The Lady (1977) 2006, Strange Days Records [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Listen To My Music
-02. Rich Man
-03. Louise
-04. Miles And Miles Away(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079090DC17453F596BC07BB96681F7559E56A6AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108958   (860997) от 26.02.2017
-
-Sharon Lewis & Texas Fire - Grown Ass Woman (2016) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Do It Like We Do (4:20)
-02. Hell Yeah! (3:29)
-03. Chicago Woman (4:34)
-04. They're Lying (5:08)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC4EA1E3F7C48C18919A085B5933DB619875C5C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108506   (860998) от 26.02.2017
-
-VA - Don't Let Daddy Know - Amsterdam (The Official 2017 Compilation) (2017) [MP3|320 Kbps] <House, Electro House, Big Room>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dimitri Vegas & Like Mike vs Ummet Ozcan - The Hum (Original Mx)  3:31
-02.  Tiesto & Mike Williams - I Want You (Original Mx)  2:49
-03.  Martin Garrix & Third Party - Lions In The Wild (Original Mx)  3:32
-04.  Major Lazer & Showtek - Believer (Original Mx)  3:44(   Читать дальше...   )Жанр: House, Electro House, Big RoomПродолжительность: 01:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ED48DB3D792B4C96EE6F5FFF9927A27AC47C00D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108944   (860999) от 26.02.2017
-
-VA - Music For Everyone - Deep House & Nu Disco Vol.5 (2017) [MP3|320 Kbps] <Deep House, Nu Disco>
+VA - Новая Жажда Скорости Без Тормозов vol.3 (2016) [MP3|320 кб/с] <Hardstyle>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860999.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857427.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Overlay - Sunshine (Original Mix)
-2. Lenno - Good Thing (Re-Edit)
-3. Marco Cavax & Cue feat. Snoop Dogg & Leiner - All The Love You Got (Original Mix)
-4. Me & My Toothbrush - Air Miles (Original Mix)(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 01:19:09
+01. Zario - Eyes On You (Original Mix)
+02. Blasco Feat. Szen - Hurt (Extended Mix)
+03. Norlak - Hurt You (Darklight Remix)
+04. Dr Rude - Apocalypse (Extended Mix)(   Читать дальше...   )Жанр: HardstyleПродолжительность: 01:19:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8747B65432161A09D626713C568E7A23985CE1BE
+magnet:?xt=urn:btih:CC1921B0880E53162664DF9991C46D55C8286E78
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109012   (861000) от 26.02.2017
+###  Публикация: 1000544   (857428) от 26.03.2016
 
-The TIP - The TIP (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock, Rock'n'Roll>
+Stand Up (2016.03.06) WEB-DL [H.264/720p-LQ] (сезон 4, выпуск 2)
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Юмор (ТВ)
+>>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861000.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857428.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Welcome To The Night (4:08)
-02. All I Need (3:33)
-03. Outta Control (3:51)
-04. Love Me E'ry Woman (5:16)(   Читать дальше...   )Жанр: Hard Rock, Rock'n'RollПродолжительность: 00:43:12
+Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:48:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCA4EDC031C0A223405CC70B4E14BF83B7940BEA
+magnet:?xt=urn:btih:76893354B3D4BEFFAB15DC7874759F8E931D0740
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108471   (861001) от 26.02.2017
+###  Публикация: 1000635   (857429) от 26.03.2016
 
-VA - Easy Sun Lounger, Born to Be Cool Chillin, Vol.3 (Finest Chill Out Lounge & Ambient Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Cher - The Millennium Collection: The Best of Cher (2000) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gypsies, Tramps And Thieves [02:37]
+02. The Way Of Love [02:31]
+03. Take Me Home [06:47]
+04. Dark Lady [03:26](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC8CE360DA6E0621302D14BFD5CD7B616778EED0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000613   (857430) от 26.03.2016
+
+Научное расследование Сергея Малозёмова. Еда живая и мертвая (2016.03.26) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857430.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Еда живая и мертвая» – новый научно-популярный цикл Сергея Малозёмова, репортера с медицинским образованием, автора и ведущего программы «Чудо техники» и научных расследований о климате, технологиях, бессмертии и экологии.Производство: НТВЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E518F66CE3B35944ACBBFDF7C27A4485C5E8C54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000306   (857431) от 26.03.2016
+
+VA - Retro Chic 100 (2014) [MP3|320 кб/с] <Balearic, Downtempo, Lounge>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861001.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857431.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  York & Nathan Red feat. Kim Sanders - How Did I Fall In Love  8:01
-02.  351 Lake Shore Drive - Time  5:09
-03.  Bob Zopp - California Sun  5:11
-04.  Roberto Bronco - Diving Deeper  5:22(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:26:19
+001. Never Gonna Give You Up - Karen Souza
+002. Space Cowboy - Eve St. Jones
+003. Wicked Game - Groovy Waters
+004. Somebody That I Used to Know - Freedom Dub(   Читать дальше...   )Жанр: Balearic, Downtempo, LoungeПродолжительность: 06:00:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C48385FC78ABF0A339CDFDB947B1D8C0DBC113F2
+magnet:?xt=urn:btih:2C8B5B37DAE0998C1F5AB4DD4EC5D7075FA5445A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108965   (861002) от 26.02.2017
+###  Публикация: 1000582   (857432) от 26.03.2016
 
-Gerry Mulligan & Ben Webster - Gerry Mulligan meets Ben Webster (1959) 1998, Verve [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+Vampire Legends 3: The Count of New Orleans (2016) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы всегда хотели посетить Нью-Орлеан, и теперь вы, наконец, сделали это! Прогуливаясь по французскому кварталу, вы фотографировали дом, который принадлежал печально известным братьям Картерам, которые недавно были казнены за череду убийств. Но фото показывает больше, чем вы полагали – призрачные силуэты двух мужчин. Когда вы начнете расследовать историю этих кровавых (   Читать дальше...   )Тип издания: UnofficialРазработчик: Organic 2 DigitalЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BF2724CA005DAF8BEC0EA6AB90EC2185400D6C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109790   (857433) от 28.02.2017
+
+File Cabinet Pro 3.9.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857433.jpg" />
+</div>
+
+
+###  Подробнее
+
+File Cabinet Pro  - менеджер документов из строки меню
+Вы можете открыть множество типов файлов в программе File Cabinet Pro или открыть файлы запустив другие приложения. File Cabinet Pro является универсальным и очень простым в использовании приложением.
+
+Приложение File Cabinet Pro поставляется со встроенным текстовым редактором, вьювером изображений и PDF файлов, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 февраля 2017Разработчик: Writes for All Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:536D3FDBDFDEEDB4B7E52D5FBED5FE61346A7D2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000801   (857434) от 26.03.2016
+
+Janet Baker, Geoffray Parsons - Baker (2002) "BBC Legends" Series [FLAC|Lossless|tracks] <Classical, Vocal music.>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christoph Willibald Gluck - Paride ed Elena, opera in 5 acts, Wq. 39 - O del mio dolce ardor  4:13
+02. Jean-Baptiste Lully - Amadis, opera, LWV 63 - Bois epais  2:48
+03. Benedetto Marcello - Amadis, opera, LWV 63 - Il mio bel foco (Quella Fiamma che m'accende), for cantata for soprano, 2 violins, 2 oboes & continuo, SF. 142 (spurious)  3:33
+04. Lennox Berkeley (   Читать дальше...   )Жанр: Classical, Vocal music.Продолжительность: 01:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9ACACB187197B08105949FA4D75D2BDCF3BD02E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109558   (857435) от 28.02.2017
+
+Downie 2.7.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик. Поддерживает более 800 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие. Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.
+
+Список поддерживаемых сервисов: YouTube, Vimeo, trailers.apple.com, CNBC, NHL, LiveLeak, Insanee, Daily Haha, BlipTV, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27 февраля 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D3A105229B9DCD340EED1B1DED27582FDC6FC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999680   (857436) от 26.03.2016
+
+Mick Jagger - Mick Jagger and Friends (2006) Live bootleg [FLAC|Lossless|tracks + .cue] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Another Night
+02. Honk Tonk Woman
+03. Miss You
+04. Ruby Tuesday(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D86996633272329A82D7FE994D20A61256F6979
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109654   (857437) от 28.02.2017
+
+Nox Vorago - Al Chem (2017) [MP3|320 Kbps] <Progressive Metal, Sympho Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elenu Tiamatu
+02. Nuremberg 1561
+03. Devourer of Dreams
+04. The Hissing Sound of Ouroboros(   Читать дальше...   )Жанр: Progressive Metal, Sympho Death MetalПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A74A1EC5BCD1C9E8E80933F1DFBB45EA716DFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000740   (857438) от 26.03.2016
+
+Пути и путы / Rails & Ties (2007) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картина рассказывает о Томе Старке, машинисте поезда, столкнувшегося с оказавшейся на путях машиной. В результате инцидента женщина, сидевшая за рулем автомобиля, погибает, а ее уцелевший сын Дэйви во всем случившемся винит только машиниста. Том и его жена Меган решают усыновить сироту...Производство: СШАЖанр: ДрамаРежиссер: Элисон ИствудАктеры: Кевин Бэйкон, Марша Гей Харден, Майлс Хейзер, Марин Хинкль, Юджин Бирд, Бонни Рут, Стив Истен, Лаура Серон, Марго Мартиндейл, Кэтрин ЖустинПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1B9D71FF398BD080FA1F5E78B033797B5BD81EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109847   (857439) от 28.02.2017
+
+Count Basie - The Real... Count Basie (2015) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861002.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857439.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Chelsea Bridge [07:23]
- 02.The Cat Walk [05:47]
- 03.Sunday [07:26]
- 04.Who's Got Rhythm [07:42](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:16:49
+Disc 1
+1. Twelfth Street Rag
+2. Between the Devil and the Deep Blue Sea
+3. Easy Does It(   Читать дальше...   )Жанр: JazzПродолжительность: 02:19:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:207A96EEDC24A20AF4DB013EB982FA6F12019C50
+magnet:?xt=urn:btih:AEF035420934D008413B810112CDB6D378AE5545
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108850   (861003) от 26.02.2017
+###  Публикация: 1000782   (857440) от 26.03.2016
 
-Knight Area - Heaven and Beyond (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Neo Progressive>
+Дмитрий Воронин | Круговерть (2016) [MP3]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861003.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Unbroken (7:06)
-02. Dreamworld (5:14)
-03. The Reaper (7:11)
-04. Box Of Toys (3:47)(   Читать дальше...   )Жанр: Neo ProgressiveПродолжительность: 01:02:10
+Планета была прекрасной и, что замечательно, свободной - намного лучше, чем все, что когда-либо попадалось им, и поэтому все люди, составлявшие экипаж корабля Земной федерации "Искатель", были счастливы, что именно им повезло встретить такое чудо… Зеленые холмы, чистейшие реки… Моря, наполненные жизнью - и жизнь эта, в отличие от биосферы большинства иных (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 00:26:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B1BD56D45B9181F23667ECF358963053DE66C74B
+magnet:?xt=urn:btih:64A57A98B608961F9BA1BCF4E403439627936F07
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108857   (861004) от 26.02.2017
+###  Публикация: 1109590   (857441) от 28.02.2017
 
-O.R.k. - Inflamed Rides (2015) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+VA - Trance In Space Vol.3 (2017) [MP3|320 Kbps] <Trance>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861004.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857441.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jellyfish (3:55)
-02. Breakdown (4:36)
-03. Pyre (4:43)
-04. Funfair (4:21)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:50:47
+01.  Sun Liquide - Celebrate The Light (Rene Ablaze Radio Edit)  3:57
+02.  Tranc Eye Presents Skull Crusher - Acidland (Radio Cut)  3:02
+03.  Opt-In - Zura (Radio Cut)  4:00
+04.  Maximal - Subject Lost (Radio Cut)  3:20(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A831F9225D56FBF91A3FFC60B4ECA63F2A3FFFE7
+magnet:?xt=urn:btih:EAF5684BEE6A24634A12EE25AB5EB94FFCC66689
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 874770   (861005) от 04.03.2015
+###  Публикация: 1000710   (857442) от 26.03.2016
 
-Журнал | Linux Format №2 (193) (февраль 2015) [PDF]
+Журнал | Похудей №4 (Апрель 2016) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857442.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Пoхyдeй!» — это издание для женщин, стремящихся быть в отличной физической форме, нравиться себе и окружающим, заботящихся о своей внешности, здоровье и душевной гармонии.
+Журнал состоит из трех основных разделов – фитнес, здоровье и диета.Жанр: Популярный журнал, диетика, здоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC894A5C6532FA54252447D79B8B5B41B1D0730
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109550   (857443) от 28.02.2017
+
+SpamSieve 2.9.28 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861005.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857443.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Linux Format - первый в России ежемесячный журнал на русском языке, целиком посвященный операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках и обучающих программах, новости и интервью.Жанр: Компьютерный журналФормат: PDF
+СSpamSieve - мощный спам-фильтр для вашей почты
+Без преувеличения можно сказать, что SpamSieve - лучший спам-фильтр для Mail.app и многих других почтовых клиентов для Mac OS X. Если ваши почтовые фильтры уже не справляются с непрекращающимся потоком спама, то это плагин несомнно вам поможет.
+ 
+Хотя SpamSieve имеет свою огромную базу спам-слов и серверов, все же какое-то (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 февраля 2017Разработчик: C-Command SoftwareПоддерживаемая ОС: OS X 10.6.8 +Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0FF2850356D2CF8F46358AFEC10A57421D0246D
+magnet:?xt=urn:btih:C1CDE31E732434AAAF8BD0E8D83A13A03BBBD45A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 189635   (861057) от 06.04.2010
+###  Публикация: 1000679   (857444) от 26.03.2016
 
-Microsoft Office 2007 MSDN (English) [01/04/2010]
+Cosmic Gal - Keep On Moving (1979) LP [MP3|320 кб/с] <Electronic, Pop, Disco>
 
->>След.
->>Архив Программ
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861057.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857444.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Microsoft Office предоставляет удобные и простые средства для увеличения продуктивности работы отдельно взятой персоны, а также упрощения командной работы, оптимизации бизнес-процессов и документооборота, а также проведения бизнес-анализа. Полностью пересмотрены существующие принципы организации пользовательского интерфейса для того, чтобы облегчить конечным пользователям (   Читать дальше...   )Язык интерфейса: Английский
+01. Keep On Moving   03:50
+02. Sindbad   03:42
+03. You're So Good   03:24
+04. Sergeant Pepper   04:33(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:36:24
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:C12E6AB646E88BACE703F291730299D14782D077
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109502   (857445) от 28.02.2017
+
+VA - New York Deep Vibes: 2017 Deep House Selection (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857445.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. J-Key - Octopus 4:09
+002. Tabula Rasa - Hashtag Stop - Code Remix 5:19
+003. Minimal Duo - Low Profile 5:00
+004. Tabula Rasa - Cocktail Party 4:55(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:504A12372CC1D0ED7AC1AA3BAF840CFC5C52ED57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000760   (857446) от 26.03.2016
+
+Spirits of Mystery 6: Family Lies (2016) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Королевство захвачено неизвестным врагом и это зловредные растения. Принцесса попадает в заключение и ей предстоит освободиться самой, спасти свою семью, узнать правду и обезвредить придворного мага Ису с его помощницей пантерой. Хватит ли на все это сил у принцессы и выиграть бой с колючими лианами?Тип издания: UnofficialРазработчик: ERS Game StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB2108DCC074014406553C3B2A65C27645FA3CAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109645   (857447) от 28.02.2017
+
+VA - Chillout Ladies Vol 5 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Elements - Young Rebel (Sunrise Mix) [00:03:33]
+02. Soul Frequency - On The Job (Vocal Mix) [00:03:33]
+03. Gt 55 - Red Color (Gray Clouds Mix) [00:03:12]
+04. Moon System - Make The Pitch [00:03:01](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56DB225075DF7DDA6CDCBD3E3320CFC13FE3EEF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000564   (857448) от 26.03.2016
+
+VA - Давай, наливай. Сборник радио Шансон 4 (2016) [MP3|256 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Виктор Барабанщиков - Сравнение
+02. Александр Дюмин - Братушка
+03. Виталий Волк - Русалочка
+04. Валерий Курас - Есть Еще Порох(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04B39C8A9321EEEF4BA396ED9791112C7A442DF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109554   (857449) от 28.02.2017
+
+VA - Deep House Warm Up (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857449.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mighty Real - Little by Little 5:59
+002. Performative Mode - Pixelated 6:46
+003. Circuito Zeta - Step Down 7:18
+004. Self Explanatory - Game Changer 6:54(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8115033D5EC49D6EAAB8BB3C58C2636E06467F0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109587   (857451) от 28.02.2017
+
+VA - Moments Of Freedom Vol.2 (Selection Of Finest Chill Out & Ambient Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Florito - Shirabyoshi Love  4:22
+02.  Dembora - Sunderland  3:01
+03.  Chin Chiller - Moussique Au Chocolat (feat. Conny)  4:27
+04.  Roberto Sol - My Soul  4:52(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72356B48A8AA50F73F6B423431780DDE0C062584
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000616   (857452) от 26.03.2016
+
+Журнал | Идеальный дом №3 (Март 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеальный дом - журнал для влюблённых в свой дом. Журнал посвящен вопросам недвижимости, архитектуры, дизайна интерьеров, а также затрагивающий темы, касающиеся защиты прав домовладельцев и землепользователей, модернизации жилого пространства в соответствии с новыми технологиями, стилями и канонами. Издание, предлагающее креативные идеи и пути их осуществления...Жанр: Интерьер, дизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D7BF7EED8F249E5FAE199E84EDE0DD43F85A5B1
 ```
 
 

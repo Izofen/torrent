@@ -1,3 +1,30 @@
+###  Публикация: 1032154   (647898) от 06.07.2016
+
+Stonerider - Hologram (2016) [MP3|320 Kbps] <Classic Rock, Psychedelic Rock, Timeless Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleepwalking Awake
+02. Hologram
+03. Dayrunner
+04. War, Traffic, and Blind Faith(   Читать дальше...   )Жанр: Classic Rock, Psychedelic Rock, Timeless RockПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F769438B73CDD6876394FA139A77F839A8E09CAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141699   (648382) от 11.06.2017
 
 VA - More Animals at the Gates of Reason - A Tribute to Pink Floyd (2013) 2CD [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
@@ -673,33 +700,6 @@ Jimmy LaFave - The Night Tribe (2015) [MP3|320 кб/с]<Rock, Folk, Americana>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFF818641818E4D59E587841702A6869CB9B7690
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904846   (653559) от 04.06.2015
-
-MacIntyre - Live At The Moontower (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bb Shoe-Flay (Live) (4:51)
-02. Leave Me Alone (Live) (4:39)
-03. Deranged (Live) (4:25)
-04. Waitin' Achin' (Live) (4:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B895DBA65DCFC6D806F520A574405B4FD25BAE9
 ```
 
 

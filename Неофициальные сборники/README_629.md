@@ -1,3 +1,30 @@
+###  Публикация: 982025   (950120) от 02.02.2016
+
+Freak Lounge Crazy Lounge and Downbeat Soundz (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thermodynamics - A Strange Planet (Drunken Loops Cut)
+02. Sofa Sweeper - Broken Romance (Beachtrip Mix)
+03. Noise Boyz - Green Eyes (Spacejazz Mix)
+04. Sky Sergeant - Virtual Nonstop Flight (2050 Mix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590051AD440AEA30D908F940D90EB20EC0335DD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981953   (950171) от 02.02.2016
 
 VA - Sunday Privilege, Vol. 5 (25 Luxury Lounge Anthems) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -669,33 +696,6 @@ VA - Fun Disco House: Gross Funk Party (2017) [MP3|320 Kbps] <Nu Disco, Funky Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:314EA4B6E6DDFE7DBB86622EF015603A550BBB8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089369   (951928) от 03.01.2017
-
-VA - Empire Records - Chill Out 6 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mick Thammer - First - Chill Mix
-02. Eli Escobar - Can't Stop Dancing (feat. Nomi Ruiz)
-03. Danny O - Destiny (feat. Mira)
-04. Bernd Filz - Sungarden(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31DAAC3FFEBF00BBD9E1D68D333E544379F599CE
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1024201   (720315) от 07.06.2016
+
+VA - Love Therapy: Romantic Piano and Instrumental (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toni Verde - Heroes of Galaxy - Main Theme
+02. LifeBlood - Essence
+03. Toni Verde - Piano Moods
+04. Josh Freeman - A Cup of Tea(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:970BFB6077868C91A98931D42DE89EBCF31BB7B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 327139   (720370) от 24.04.2011
 
 VA - Drum & Bass Collection 22 (17.04.2011) [MP3|320 kbps]<Drum & Bass>
@@ -671,33 +698,6 @@ Gary B.B. Coleman - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Chicago Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBFB4552620987D7CDE8309B2EDFC927839EFE6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023694   (722167) от 06.06.2016
-
-VA - Acoustic Bossanova Relaxation (2016) [MP3|320 кб/с] <Jazz, Bossa Nova>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nandy Xavier - Joaninha
-02. Raquel Silva Joly - Cancao do Sal
-03. Flor De Lis - La Barca
-04. Vander Lee - Quando Chover(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8B84585C8F9030841F24E77988F14147189A5DC
 ```
 
 

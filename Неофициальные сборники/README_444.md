@@ -1,3 +1,31 @@
+###  Публикация: 894531   (707306) от 02.05.2015
+
+VA - Extra Lounge (episode 8) (2015) [MP3|320 кб/с]<Lounge, Chill Out>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707306.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2illusions - The Feeling Dance (05:01)
+002. Gold Lounge - On the Sea (05:38)
+003. CJ RcM - My Love (Original Mix) (05:10)
+004. Sine - Wolke 7 (04:17)
+005. Fowler & Branca - Turning Leaves (04:18)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A005A5FA03ECFEF082A20B9C76B4D92A4245BC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286990   (707336) от 05.03.2019
 
 VA - Divine Lotys: Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic, Goa Trance>
@@ -668,33 +696,6 @@ VA - Громче чем Бомба. Жаркий Уикенд. (Sound Clinic - 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:003D35897CC4BA5673BEAB8A90A3C00E39523E52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131245   (708784) от 05.05.2017
-
-VA - Synthetic (2017) [MP3|320 Kbps] <Synth Pop, Dark Electro, EBM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Junksista - Life Is Unfair (And Love Is A Bitch) (Psy'Aviah Remix) (04:47)
-02. Ari Mason - Military Fashion Show (04:21)
-03. Nordika - Heaven (Slaves of the Sin) (03:56)
-04. Ladytron - Evil (Ewan Pearson Single Remix) (04:10)(   Читать дальше...   )Жанр: Synth Pop, Dark Electro, EBMПродолжительность: 01:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F5E8BAB39A0380809A66F7774454BD0EC747524
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1029530   (681955) от 26.06.2016
+
+VA - Hits of My Soul Vol. 02 (2016) [MP3|320 кб/с]<House, Electronic, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond Feat. Zoe Johnston - We're All We Need (Album Mix) (04:23)
+02. Russell G & Shadow Of Two - Neon (Original Mix) (05:45)
+03. Worakls - When The Birds Go In The Wrong Way (06:55)
+04. Bryan Milton ft. Ana Criado - Afterglow (Original Mix) (06:04)(   Читать дальше...   )Жанр: House, Electronic, DanceПродолжительность: 03:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F6B2B8F94AB5AE12060593406A254728A3D47E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290098   (681972) от 18.03.2019
 
 VA - Empire Records - Strip (2018) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -674,39 +701,6 @@ VA - В Машину! Лето Русский (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E06D494FEF39B0EFA8C2CB51BCC7885800C62334
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506778   (683445) от 08.06.2012
-
-VA - СупердискотЭка Радио Рекорд 80-х 50/50 (2012) [MP3|256 kbps]<Disco|Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683445.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 East 17 - Let It Rain
-002 Ленинград - Www
-003 Apache Indian - Boom Shack-A-Lak
-004 С. Ротару - Хуторянка
-005 Modern Talking - Just We Two (Mona Lisa)
-006 Отпетые Мошенники - Девушки
-007 R.e.m. - Losing My Religion
-008 Иванушки Int. - Реви
-009 Mazzy Star - Flowers In December
-010 Ласковый Май - Белые Розы(   Читать дальше...   )2012Жанр: Disco|DanceПродолжительность: 08:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2CCC08BDFBB9CBA7AEA488F73AF7627E6B3137B
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1133917   (691407) от 14.05.2017
+
+VA - Hotline Reggaeton: Master DJ Mix (2017) [MP3|320 Kbps] <Reggaeton, Latino Hip>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691407.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Unic - Rikiti (Feat. El Chacal, El Micha, Los Desiguales, Chocolate, Insurrecto) (Remix 2016) 8:06
+002. Jacob Forever - Hasta Que Se Seque El Malecon 3:07
+003. Alex Sensation - Bailame (Feat. Yandel & Shaggy) 3:56
+004. El Chacal - Song Love (Feat. Divan)Жанр: Reggaeton, Latino HipПродолжительность: 05:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:662F991D9E47B67353C7C5EB60B3CD34A1A055D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133591   (691414) от 14.05.2017
 
 VA - 100 Euro Dance Mix May (2017) [MP3|320 Kbps] <Club, Dance, House>
@@ -672,33 +699,6 @@ Corr Sharon - Дискография (2010-2013) [MP3|320 кб/с] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5343DC7C4AC40DB1D46DDC64F4FE0F60FDA055E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028040   (692975) от 21.06.2016
-
-VA - Chilling with Endless Nights (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solanos - Night Fishermen [5:36]
-02. Sixty4 - Subraum [5:20]
-03. Kaxamalka - Sirocco [5:43]
-04. Don Gorda Project & Boring Sax - Hand in Hand [6:08](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86AF8EE77138F89E792808B4E40CA3EDC7ECE543
 ```
 
 

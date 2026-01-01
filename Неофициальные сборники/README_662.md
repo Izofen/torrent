@@ -1,3 +1,30 @@
+###  Публикация: 1472723   (1014162) от 26.05.2021
+
+VA - Simply 90s: Greatest Hits of the 90ies (2021) [MP3|320 Kbps] <Electronic, Pop, Dance, Hip Hop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eiffel 65 - Blue (Da Ba Dee) (Dj Ponte Ice Pop Radio)
+02. Tom Jones - Sex Bomb (Album Version)
+03. Whigfield - Saturday Night
+04. Salt-N-Pepa - Push It(   Читать дальше...   )Жанр: Electronic, Pop, Dance, Hip HopПродолжительность: 02:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D78C4ECEB007281FED9AD4CB35D14D876CD9D9C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472644   (1014189) от 26.05.2021
 
 VA - NRJ Good Vibes Only 2021 (3CD) [MP3|320 Kbps] <Dance, R&B, Hip Hop, Pop>
@@ -668,33 +695,6 @@ VA - Discohustle (2CD) (2021) [MP3|320 Kbps] <Disco House, Funky House, Nu Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23DEF2831B1F7F973C90ABED0F0480A406EF79E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470897   (1015318) от 19.05.2021
-
-VA - Watercolor Sound: Relax Chillout Music (2021) [MP3|320 Kbps] <Ambient, Downtempo, Chillout, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мелодичная музыка, которая способна проникнуть и запасть в душу, слушая которую, мы невольно начинаем задумываемся о вечности, гармонии, любви. Релакс музыка способна передавать эмоции и даже мысли между людьми без каких-либо диалогов, она раскрепощает и человек может совершить такие поступки, на которые раньше не решался. Такая музыка отлично подходит для проведения (   Читать дальше...   )001. Quantic - Hotline Bling
-002. Jaded Satire - Funk The Police
-003. A Winged Victory - Despair Dialogue
-004. Fatima Yamaha - Daio Alternate History(   Читать дальше...   )Жанр: Ambient, Downtempo, Chillout, RelaxПродолжительность: 08:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0584370CF25D3E736A7EC5D72E9133988BAB8DA
 ```
 
 

@@ -1,656 +1,680 @@
-###  Публикация: 1281342   (753475) от 07.02.2019
+###  Публикация: 889462   (749978) от 17.04.2015
 
-Comodo Dragon 72.0.3626.81 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрый браузер на базе технологии Chromium с дополнительными функциями, повышающими безопасность. Обеспечивает повышенную конфиденциальность, имеет технологию проверки доменов, которая идентифицирует и выделяет превосходящие сертификаты SSL из низших, останавливает куки и другие веб-шпионы, а также предотвращает все прослеживания загрузки браузера.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F42AF5D4EB9D7616C7031F6E10E9E3CA7068F567
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281292   (753476) от 07.02.2019
-
-Allavsoft Video Downloader Converter 3.16.9.6974 RePack (& Portable) by elchupacabra [Multi]
+Vivaldi 1.0.156.2 Technical Preview [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753476.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749978.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Allavsoft Video Downloader Converter - профессиональный инструмент для скачивания фильмов, музыкальных клипов, плейлистов, лекций, видео с видеохостингов, таких как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft может скачивать и конвертировать скачанное видео в популярные видеоформаты: AVI, (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto. Внешний вид браузера Vivaldi также напоминает Opera 12.Язык интерфейса: Русский, Английский, др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCDB5BA75F83E50D9ED1078D1B41BE3A24D3124A
+magnet:?xt=urn:btih:B33E73BB7535986F0450732011ADA2869480AA66
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281330   (753477) от 07.02.2019
+###  Публикация: 1523668   (749989) от 12.01.2022
 
-Джордж Сандисон (сост.) | 2084 [сборник] (2018) [FB2]
+TinkerTool System 7 v7.8 [Multi]
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753477.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Что день грядущий нам готовит? Как отличить звон колокольчиков от первых звуков колокола, что "звонит по тебе"? Как отличить полет фантазии от предсказания? Антиутопия – жанр, получивший в последнее время невероятную популярность. И, вероятно, не в последнюю очередь благодаря тому, что самые мрачные предсказания фантастов имеют обыкновение исполняться. (   Читать дальше...   )Жанр: Боевая фантастика, Научная фантастика, Социальная фантастикаФормат: FB2
+TinkerTool System - утилита для управления скрытыми настройками операционной системы Mac OS X. Приложение позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации системной производительности по окончании инсталляции приложений, удалять содержимое кэша популярных веб-браузеров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.01.2022Разработчик: © 2022 Marcel BresinkПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:24F2323023DFCD5FF89767AD45C3EA74C46B1296
+magnet:?xt=urn:btih:CDAAEB9BB7DA160487F5225D492A096753361255
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280908   (753479) от 07.02.2019
+###  Публикация: 1523527   (749990) от 12.01.2022
 
-The Veer Union - Decade II: Rock & Acoustic (2018) [MP3|320 Kbps] <Rock>
+Michel Le Fleur - Isla Del Mar (Ibiza Sunset) (2022) [AAC|~342 Kbps] <Lo-Fi, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For love (4:46)
+02. Isla Del Mar (6:33)
+03. So Good (4:39)
+04. Red Moon (3:29)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, Chill OutПродолжительность: 01:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88C7528CF379401766AA8F270AA059ABC9100DD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523634   (749991) от 12.01.2022
+
+Charlie Ventura - East Of Suez (1945, 1947) 2000, Savoy [FLAC|Lossless|tracks + .cue] <Swing, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Synthesis [2:52]
+02. Blue Champagne [3:02]
+03. Stop 'n' Go [2:44]
+04. Soothe Me [3:03](   Читать дальше...   )Жанр: Swing, BopПродолжительность: 00:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA4239E0A9D1719CF69668CBD30352C40E6D21D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523647   (749992) от 12.01.2022
+
+Dropshare 5.19 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749992.jpg" />
+</div>
+
+
+###  Подробнее
+
+DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
+Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2021Разработчик: DropshareПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E0853A765485B10AA71DF6130806D061CDA73A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523560   (749993) от 12.01.2022
+
+Xenos - The Dawn Of Ares (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753479.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749993.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Living Not Alive
-02. Save Yourself
-03. Embrace the Day
-04. City of the Sun(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:55
+1. I Am the Machine
+2. All Shall Fall
+3. The Dawn Of Ares
+4. Circle of Lies(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:122C28B6614D49B7A627690BF3057E7F92046884
+magnet:?xt=urn:btih:29EE7BB9AEF34DF93549FEFCCEA8FC8F76196AAE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281268   (753480) от 07.02.2019
+###  Публикация: 1523529   (749994) от 12.01.2022
 
-Tyrant Eyes - The Darkest Hour (2003) [MP3|320 Kbps] <Power Metal>
+VA - Travel & Living Lounge, Vol. 1 (2014) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Project Blue Sun - All I Need (Original Mix) (5:24)
+02. Eriq Johnson & AVO - Mistical Desire (3:09)
+03. Triangle Sun - Secret Letter (Original Mix) (4:55)
+04. Wav-E - Invisible Oasis (4:19)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E43C0B990B187D72149E94522C60103DCACC5F30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523583   (749995) от 12.01.2022
+
+System Toolkit 5.2.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749995.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 11.01.2022Разработчик: © 2017-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E0193463858A94D2D383BE486D2D0A193EC0061
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523565   (749996) от 12.01.2022
+
+VA - Winter Lofi Chill (2022) [AAC|~305 Kbps] <Lo-Fi, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hybro, Chillmob, Christoph Israel, Swonderful Orchestra, Catherine Larsen-Maguire - Have Yourself A Merry Little Christmas (Lofi Edit) (2:21)
+02. Pueblo Vista - The Beginning Of The End (2:06)
+03. Sam Cross, Pueblo Vista - Dream In Motion (1:45)
+04. Lamar Azul, Pueblo Vista - Slowheal (2:08)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, Chill OutПродолжительность: 02:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A662ADDE33B53FA702ED202B26E58B86A76492C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523537   (749997) от 12.01.2022
+
+VA - Travel & Living Lounge, Vol. 6 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beamy - Twisted Soul (M-Sol Project Laidback Mix) (4:51)
+02. Digby Jones, Funkdust - Ah Negresco (3:27)
+03. Living Room - Brasil Sunset (2:34)
+04. Ibiza Chilled - Naked Nova (Original Mix) (6:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:11:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4E74115E15323562EDAFA8192D5AE2AFB6C5842
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523535   (749998) от 12.01.2022
+
+VA - Travel & Living Lounge, Vol. 4 (2019) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eskadet - Un Songe (Original Mix) (6:30)
+02. DMTunes - Ser Mio (Original MIx) (4:42)
+03. Gary B - All I Long For (Original Mix) (4:00)
+04. Weathertunes - Long Beach (Original Mix) (5:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:24:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E201C201D94641DD7956BDF5D5A4D4756CC45DF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523574   (749999) от 12.01.2022
+
+GarageSale 8 v8.4.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управлять своими аукционами на всемирно известной торговой площадке EBay теперь проще простого. Приложение GarageSale для Mac OS открывает пользователю доступ ко всем необходимым функциям этого популярного сайта. Теперь не нужно проходить через все утомительные процедуры на сайте, чтобы начать аукцион. Все, что вам нужно – это приобрести новую версию приложения и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.01.2022Разработчик: © 2022 iwascoding GmbHПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Английский, Немецкий, Французский и Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE7685A33D7197E4AAA040982B98EED36F20834
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523536   (750000) от 12.01.2022
+
+VA - Travel & Living Lounge, Vol. 5 (2020) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - I've Been Waiting (Original Mix) (5:53)
+02. Triangle Sun - Summer of Our Love (Original Mix) (4:16)
+03. The Soul Crusaders - Share My Song (4:39)
+04. Schwarz & Funk - Ease (Original Mix) (5:47)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBC5E508A02DC8931FB1719C243E18C9C2D9D600
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523530   (750002) от 12.01.2022
+
+VA - Travel & Living Lounge, Vol. 2 (2016) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander Muratovsky - External World (3:53)
+02. Cj Rcm - Serenity (5:46)
+03. Philip Aniskin - Rainy Fairy Tale (5:16)
+04. Alex Field, Natune - Wake Me (Bryan Milton Remix) (5:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDB416B58304466145BB2D6BF27EB160D9C8B2CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523533   (750003) от 12.01.2022
+
+VA - Travel & Living Lounge, Vol. 3 (2018) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prana Tones - Lost in Japan (Original Mix) (4:51)
+02. Sami Sivananda - Kundalini (Original Mix) (2:45)
+03. Airstream - Electra (Religion Cut) (6:12)
+04. Island Sun - Loosing Again (Boombastic Cut) (5:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F645E2D0A46E67FE41DAB70B09CDBD0401238F02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523581   (750004) от 12.01.2022
+
+Smooze Pro 2.0.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smooze одушевляет ваш скролл и добавляет функциональность к вашей не оригинальной Apple мыши (прокрутки колеса мыши).Тип издания: macOS SoftwareРелиз состоялся: 12.01.2022Разработчик: © 2017 Segev SherryПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFC5F164638DB8D2E9649DCCE0240CA911BEDE47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523562   (750005) от 12.01.2022
+
+VA - Melodica 2021 (2021) [AAC|~324 Kbps] <Chill Out, Downtempo, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Holt - Marrakech Dreaming (Stephane Salerno Remix) (7:40)
+02. Marga Sol - Sacred Passage (Jack Essek Remix) (7:31)
+03. Jose Solano - Jangal (8:02)
+04. Stefan Alexander Thomas - Ozone (Majed Salih Remix) (7:34)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 02:24:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A44C2AE236F933F405E121704D2C6A023AE4405
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523559   (750006) от 12.01.2022
+
+VA - Wunderwerk 1 Connected Souls (2021) [AAC|~336 Kbps] <Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nadja Lind - Limbus (Hernan Cattaneo & Soundexile Remix 1) (7:29)
+02. Helmut Ebritsch - Das Ermoeglichen (8:00)
+03. Klartraum, Nadja Lind, Helmut Ebritsch - Manifestation (Dapayk Solo Remix) (6:34)
+04. Klartraum, Nadja Lind, Giuliano Rodrigues - I Can't Believe (Klartraum Remix) (8:02)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC8E4EB48F27D61291A4B9A37F3A219A3963B7CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281729   (750007) от 09.02.2019
+
+VA - Direct Ministry Tracks Dance 2019 (2019) [MP3|320 Kbps] <Dance, Hands Up>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ynkkx Feat. Cammie Robinson - Happy Ending (Original Mix)
+02. Will G. Feat. A. Voltage - Celebrate (Radio Mix)
+03. Yuhniversia - Dark (Flemming Dalum Remix)
+04. Zhr And Batl - Rain (Original Mix)(   Читать дальше...   )Жанр: Dance, Hands UpПродолжительность: 05:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BADD8CC6FF193D6DEC43E1148956B4C5E5A4E83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998287   (750008) от 09.02.2019
+
+Solar Bears - Discography 8 Releases (2010-2016) Planet Mu, Sunday Best [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Electro, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Separate From The Arc (Andrew Weatherall Mix 1) (04:45)
+ 02. Separate From The Arc (Andrew Weatherall Mix 2) (05:42)
+ 03. Separate From The Arc (04:41)Тип издания: CD, WEBЖанр: IDMПродолжительность: 00:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACEC855C5B0CACCC107DA17437F2E7D7B639E85D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281751   (750009) от 09.02.2019
+
+John Diva & The Rockets Of Love - Mama Said Rock Is Dead (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753480.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Night of the Defender
-02. Delight in Dying
-03. Magic Touch
-04. The Dawn(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:55:57
+[3:31] 1 - Whiplash
+[3:48] 2 - Lolita
+[4:02] 3 - Rock'n'roll Heaven
+[3:58] 4 - Wild Life(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EFA76C75CA7D3EFB2416B8910A016AF9EB620F89
+magnet:?xt=urn:btih:ED3150175A0BCDE53AF141FA67FFA88288363E30
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281369   (753481) от 07.02.2019
+###  Публикация: 1281522   (750010) от 09.02.2019
 
-Registry Life 4.21 [Ru/En]
+Ernesto Cortazar - Concertos Vol. I (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
 
->>Архив торрентов
->>Архив Программ
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753481.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750010.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатное приложение, которое позволяет выполнять автоматическую чистку системного реестра и производить его оптимизацию. Утилита поможет исправить ошибки в реестре, а также оптимизировать его для повышения быстродействия и стабильности системы Windows. Registry Life является простым в использовании решением для обслуживания реестра системы.Язык интерфейса: Русский, Английский
+01. Sol'itude (Concerto) (11:01)
+ 02. Leaves In The Wind (Concerto) (9:30)
+ 03. Beethoven's Silence (Concerto) (9:54)
+ 04. Nights Of Silk And Tears (Concerto) (10:10)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:55:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1553E933E2DE22374075610A9BE9B82BD20569E8
+magnet:?xt=urn:btih:ED7ECC697C43058CAA94B02BD778348B7F50A7CD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281202   (753482) от 07.02.2019
+###  Публикация: 1281654   (750011) от 09.02.2019
 
-The Beloved - Where It Is (1988) Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock, New Wave, 80s>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Hundred Words (3:43)
- 02. Slow Drowning (4:29)
- 03. In Trouble and Shame (7:07)
- 04. This Means War (radio mix) (3:28)(   Читать дальше...   )Жанр: Pop Rock, New Wave, 80sПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3081A86161D24E0B7E325CC9B930992373D77AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280376   (753483) от 07.02.2019
-
-Василий Шукшин | За Быстрянским лесом (1971) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753483.jpg" />
-</div>
-
-
-###  Подробнее
-
-О том, как в 1922 году в одной из сибирских деревень была раскрыта и обезврежена банда, главарь которой Емельян Любавин жил в этой деревне и совершал преступления вместе со своими сыновьями.Жанр: ДрамаПродолжительность: 02:11:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9C1F6AFC9B6F69BD6C04CC92F56F73A9A2B470
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281025   (753484) от 07.02.2019
-
-Газета | Сезон у дачи №2(279) (Январь 2019) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E111CACA64FAD6C589C45A7A13A5CD18B9599B69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281023   (753485) от 07.02.2019
-
-Газета | Сезон у дачи №1(278) (Январь 2019) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F0C9CEB2AB73E66A7EEFB69A4F623F380483E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281384   (753486) от 07.02.2019
-
-Instaradio 8.0.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Instaradio - слушайте любимые радиостанции или открывайте новые. Instaradio может быть радио-проигрывателем, которого вы так долго ждали. Попробуйте приложение, которым пользуются тысячи людей, слушающих радио!
-
-Доступны плейлисты для Австралии, Австрии, Бельгии, Канады, Чехии, Дании, Франции, Германии, Италии, Нидерландов, Норвегии, Польши, России, Словении, Испании, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.02.2019Разработчик: Markus JahnsrudПоддерживаемая ОС: macOS 10.14 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62F1BFD356ED588B080C118523B4E1F02EE0F142
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281329   (753487) от 07.02.2019
-
-Money Pro 2.0.7 [Multi/Ru]
+Morph Age 4.3.1 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753487.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750011.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Money Pro сократит расходы и покажет полную картину Ваших финансов. Money Pro - это единая программа для ведения бюджета, отслеживания операций по счетам и напоминания о предстоящих платежах. Money Pro отлично подходит для ведения домашнего бюджета, а также для финансового планирования малого бизнеса.
-
-Удобная синхронизация (iPhone, iPad, Mac). Money Pro является (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.02.2019Разработчик: iBear LLCПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+Morph Age Pro мощный инструмент для высококачественного морфинга и варпинга(деформации) цифровых изображений и видеофрагментов для Mac OS X.
+Результаты работы с программой могут быть сохранены в виде видеоролика. Программа позволяет плавно регулировать изменения изображения с помощью направляющих кривых. Версия PRO может работать с видео, в то время как стандартная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.02.2019Разработчик: Creaceed SPRLПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:434F4FDA109C9ADB422AC38CFEA95E1148F54740
+magnet:?xt=urn:btih:EAD53621A598515624CCF072341908E9324073D8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281320   (753488) от 07.02.2019
+###  Публикация: 1281486   (750012) от 09.02.2019
 
-Wondershare Recoverit 7.4.4 [En]
+Tobias Sammet's Avantasia - More Moonglow - The Rock Hard EP (2019) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753488.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750012.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комплексный набор для восстановления данных (был Wondershare Data Recovery).
-Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 30.01.2019Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
+[3:56] 01 - Moonglow
+[11:12] 02 - The Raven Child
+[11:32] 03 - The Scarecrow (Live At Wacken 2014)
+[7:12] 04 - Babylon Vampyres (Demo Version 2015)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:45:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C43EE689F8FA44CF8F2861830BA815DF63C910DE
+magnet:?xt=urn:btih:BAFF40DED694C9D6C63BBC3E9B3E776E3A425421
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281346   (753489) от 07.02.2019
+###  Публикация: 1281511   (750014) от 09.02.2019
 
-GraphicConverter 10 v10.6.9 [Multi/Ru]
+Tyler Kamen - Transformation (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Psychedelic>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753489.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750014.jpg" />
 </div>
 
 
 ###  Подробнее
 
-GraphicConverter 10 — полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов. Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, изменение размеров и разрешения, несложные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.02.2019Разработчик: Lemke Software GmbHПоддерживаемая ОС: macOS 10.9.0 +Язык интерфейса: Русский, Английский, Испанский, Французский и др.
+01. The Main Attraction [00:04:48]
+02. All The Leaves They Shake [00:04:19]
+03. Inside Out [00:03:09]
+04. Better Man [00:03:42](   Читать дальше...   )Жанр: Progressive Rock, PsychedelicПродолжительность: 00:39:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A7187A4424C8A426A2407D18ED08EFFAC97CAFD
+magnet:?xt=urn:btih:4A791E833ECA19DE31D7060538BC7F633B289340
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281019   (753490) от 07.02.2019
+###  Публикация: 1281831   (750015) от 09.02.2019
 
-Биатлон с Дмитрием Губерниевым. Сезон 2018-2019. Выпуск 8 (2019) WEB-DL [H.264/720p-LQ]
+Хоккей с мячом. Чемпионат Мира  2019. Вёнерсборг (Швеция). Группа A. 1-й тур. Швеция — Россия (2019) WEB-DL [H.264/720p-LQ]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753490.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750015.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эфир от: 27.01.2019
-Для биатлонистов зима - это время мобилизации сил и полной концентрации. Для зрителей - начало интереснейших соревнований и сильных переживаний за сборную. В программе все, о чем хотят знать болельщики: новости и комментарии, интервью с лидерами соревнований и рассказы о спортсменах и командах.Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:28:03
+26 января 2019 года, суббота. 18:15 МСК
+39-й Чемпионат мира по хоккею с мячом 2019. Вёнерсборг (Швеция).
+Группа A. 1-й тур.
+Швеция — Россия(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D1D1F4C38ADF9D186409140B6B5632DFC298499
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281414   (753491) от 07.02.2019
-
-Dirk Serries - Epitaph (2018) Consouling Sounds [FLAC|Lossless|tracks+.cue] <Ambient, Drone, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Formations Of Grace (12:36)
- 02. The Nebulous Chords (08:32)
- 03. Brittle Air Elegy (12:34)
- 04. And All The Murmur Fell (07:46)Жанр: Ambient, Drone, Experimental •Продолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71934AF2B9EE25664DD945BABD0B33A70526B035
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281339   (753492) от 07.02.2019
-
-Tension (GER) - Currents (2019) Be Sure [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abandon (04:03)
- 02. Parsec (06:19)
- 03. Currents (06:16)
- 04. Can Do (06:40)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF69D1F8A2D489385CFE189B78EB3B82A3BB1C44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281416   (753493) от 07.02.2019
-
-TaskPaper 3.8.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753493.jpg" />
-</div>
-
-
-###  Подробнее
-
-TaskPaper - простое приложение для создания и ведения списков дел, которое на первый взгляд напоминает обычный редактор текста, но в умелых руках превращается в серьезный инструмент продуктивности.
-
-Сразу после запуска открывается главное окно утилиты, в котором изложены практически все основные моменты работы с ней. Список задач и проектов — на самом деле является (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2019Разработчик: Hog Bay SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830FC45F719CE26D64BC841B1E4B552DED15E272
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523048   (753514) от 10.01.2022
-
-PDF Squeezer – PDF Toolbox 6.2.4 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753514.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Squeezer - PDF Toolbox предназначен для работы с файлами PDF и содержит почти все операции, которые вы можете себе представить, такие, как: сжатие, объединение, разделение, извлечение, вставка, извлечение изображения, преобразование изображения, извлечение текста, последовательность, шифрование и т. д.Тип издания: macOS SoftwareРелиз состоялся: 02.01.2022Разработчик: © 2022 qing qing yuПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010B7B364BAF2634EEB461140F273F9404A3F30C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523230   (753515) от 10.01.2022
-
-Сердце скряги / The Miser's Heart (1911) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мать Кэти заболевает и просит девочку пойти погулять, чтобы та не мешала ее сну. Девочка гуляет по дому и прокрадывается в квартиру пожилого мужчины, который слывет скрягой. В это же время воры, прослышавшие о деньгах, лежащих у скряги в сейфе, влезают его квартиру, связывают хозяина квартиры и требуют назвать код от сейфа под угрозой смерти. Скряга, по-видимому, (   Читать дальше...   )Производство: США, Biograph CompanyЖанр: Драма, короткометражный, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Линда Арвидсон, Лайонел Бэрримор, Уильям Дж. Батлер, Дональд Крисп, Adele DeGarde, Эдвард Диллон, Фрэнк Эванс, Эдит Хелдеман, Роберт Херрон, Адольф ЛестинаПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3F0270327AFF2CB2689EE507F17588E55640454
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523052   (753517) от 10.01.2022
-
-Project Office Pro 9.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познакомьтесь с вашим личным экспертом по диаграммам Ганта. Project Office - это полнофункциональное приложение для управления проектами, которое поможет вам управлять как простыми, так и сложными проектами на устройствах macOS.Тип издания: macOS SoftwareРелиз состоялся: 31.12.2021Разработчик: © 2021 DK ConsultingПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75B70831EFB57DE68403DF2BF8B6FCF4B876858C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523090   (753518) от 10.01.2022
-
-VA - Chilling Inside (2022) [AAC|~290 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Crispy Galaxy - Cream Soda (6:09)
-02. Eulenspiegel - An Unspoken Thing (5:41)
-03. Hints of soul - Ebb and Flow (6:00)
-04. Ritscher - Sweet Whispers (6:04)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:193ED25793CA73A8DD7C67E17A056785D781B82C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523072   (753519) от 10.01.2022
-
-VA - Christmas Jazz Night 2019 (Best Christmas Jazz Songs) (2018) [AAC|~317 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brazil Beat - Englishman in New York (Original Mix) (3:52)
-02. Flor De Lis - Killing Me Softly (Original Mix) (4:12)
-03. Francesca Gramegna - What Is Love (Original Mix) (3:38)
-04. Brazil Beat - O Barquinho (Original Mix) (2:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE42317D4588CB9FD19FC3129ED1265B6E142839
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523057   (753520) от 10.01.2022
-
-PhotoMill X 2.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753520.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoMill X – групповая обработка фотографий
-PhotoMill X (aka Reformator) помогает Вам преобразовать большую часть изображений в самые популярные форматы изображения, дать Вашим файлам значащие имена, сделать watermark с текстом и изображением, изменить цвет фотографии (яркость/насыщенность/и т.д.)., изменить параметры геометрии (масштаб/кадрирование/и т.д.).
-Удалите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.01.2022Разработчик: © 2022 Overmacs TeamПоддерживаемая ОС: macOS 10.12.2+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC1B9CF23908EF2AE1F3EBFF81452F5EFF4B9ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523071   (753521) от 10.01.2022
-
-VA - Christmas Jazz Night (Best Christmas Jazz Classics) (2017) [AAC|~315 Kbps] <Lounge, Chill Out, Smooth Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St Project - Stars (Original Mix) (3:44)
-02. St Project - Never Lies in Love (Original Mix) (3:46)
-03. Gabrielle Chiararo - La Mer (Original Mix) (3:54)
-04. Gabrielle Chiararo - Cheek to Cheek (Original Mix) (2:55)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64FA97DA6C055FCD54A6F667BDB24792AB37D8C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523096   (753522) от 10.01.2022
-
-WebScraper 4.15.3 fix [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753522.jpg" />
-</div>
-
-
-###  Подробнее
-
-WebScraper использует механизм Integrity v8 для быстрого сканирования веб-сайта и может выводить извлеченные данные (в настоящее время) в виде CSV или JSON. Плюс загружайте изображения в папку.Тип издания: macOS SoftwareРелиз состоялся: 12.10.2021Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:294C355D4A69EE0ACF14B58453237BF4D8149381
+magnet:?xt=urn:btih:45F47DB4EF23B6349B16ECD0E61B25C2B649364C
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1197016   (819051) от 05.01.2018
+
+Betsy - BETSY (2017) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little White Lies (03:25)
+02. Lost & Found (02:57)
+03. Fair (03:33)
+04. Last Time We Danced (03:08)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F530667DD8B06645B5DF45C8447084A510851DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117510   (819100) от 22.03.2017
+
+Vera Lynn - Vera Lynn 100 (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| We'll Meet Again  (03:28) 
+02| Sailing  (03:05) 
+03| (There'll Be Bluebirds Over) The White Cliffs Of Dover  (03:19) 
+04| Wish Me Luck As You Wave Me Goodbye  (03:29) (   Читать дальше...   )Жанр: VocalПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3A5C0637C2F5DDC44FFA4D7703D6C7D5000DB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503564   (819487) от 19.10.2021
 
 Kylie Minogue - DISCO (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Dance-pop, Disco>
@@ -637,60 +691,6 @@ VA - NOW That's What I Call Music! 73 (2020) USA version[FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35D15955FCB7FE75CBAD1724A5FEBF44FEE80D42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380531   (831451) от 04.05.2020
-
-VA - NOW Love Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UB40 - (I Can't Help) Falling In Love With You (3:24)
-02. Bryan Ferry - Slave To Love (4:18)
-03. Cat Stevens - Wild World (3:20)
-04. Carpenters - We've Only Just Begun (3:04)(   Читать дальше...   )Жанр: Pop, Rock, BalladПродолжительность: 02:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881E026BE3B2BD874CF17E14F5EE8E01F38B9258
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380697   (831666) от 04.05.2020
-
-Monkey See - Monkey Do - Album No. 1 (1988) [FLAC|Lossless|image + .cue] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Crash My Car [0:03:53.70]
-02. Rich People [0:04:32.20]
-03. Empty Rooms [0:04:23.55]
-04. Eyes Of Africa [0:04:44.50](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE003B9FEFA4880DE95866970869273E540F6AE7
 ```
 
 

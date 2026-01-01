@@ -1,3 +1,192 @@
+###  Публикация: 988055   (922637) от 19.02.2016
+
+Nick Ingman & Prague Philarmonia - Classic Love At The Movies (1999) S&V #10/2000 [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Heart Will Go On (Titanic) (3:28)
+02. I Will Always Love You (The Bodyguard) (3:26)
+03. Love Theme (Romeo & Juliet) (3:20)
+04. We Have All TheTime InThe World (On Her Majesty's Secret Service) (3:21)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72ACE64C3A297EF60A8B093AAF98DEE651F986A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987845   (922733) от 19.02.2016
+
+Mars Lasar - Jazz from Mars (2016) [MP3|320 кб/с] <New Age, Ambient, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uptown (03:58)
+02. Clouds of Linen (03:57)
+03. Panorama (04:18)
+04. Peyote (04:34)(   Читать дальше...   )Жанр: New Age, Ambient, ElectronicПродолжительность: 01:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:640E117891F9AE17A709BEA750120CEFABF78BCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987488   (922789) от 19.02.2016
+
+African Head Charge - Songs Of Praise (1990) [MP3|320 кб/с] <Reggae, Dub>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free chant (Churchical chant of the Iyabinghi)  03:34
+02. Orderliness, godliness, discipline and dignity  03:20
+03. Hymn  05:43
+04. Dervish chant  07:45(   Читать дальше...   )Жанр: Reggae, DubПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4641D8E68F7D1ACD785CBEFBB2937F9DAE2F1B8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366290   (923562) от 11.03.2020
+
+Head Splitter - Cyberpunk 2077 Fanmade Soundtrack (2019) [MP3|320 кб/с] <Soundtrack, Electronic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923562.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:12| 01. Neon Drive
+|04:13| 02. Prototype
+|03:17| 03. Netrunner
+|03:46| 04. KyotoЖанр: Soundtrack, Electronic •Продолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B23881A7F868FC8FD80B78F8F637034DA6160EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366291   (923564) от 11.03.2020
+
+Head Splitter - Cyberpunk 2077 Fanmade Soundtrack (2019) [FLAC|Lossless|tracks] <Soundtrack, Electronic>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923564.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:12| 01. Neon Drive
+|04:13| 02. Prototype
+|03:17| 03. Netrunner
+|03:46| 04. KyotoЖанр: Soundtrack, Electronic •Продолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2B9195F1948D59401D85FA74E48B08AD312119
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489722   (923894) от 17.08.2021
+
+Various Artists - Mulheres Apaixonadas, Vol. 1 (2003) [FLAC|Lossless|tracks + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tribalistas - Velha Infancia
+02. Methania, Barque - Sem Fantasia
+03. Marcia - Eu E a Brisa
+04. Luiza Possi - Eu Sou Assim(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A27A2552653821179B500A3858E68827AA027AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366394   (924012) от 11.03.2020
+
+Metal Fortress (Mike Morasky) - Team Fortress 2 Final Remix (2020) [MP3|320 кб/с]<Soundtrack, Metal, Electronic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924012.jpg" />
+</div>
+
+
+###  Подробнее
+
+|04:10| 01. Main Theme (Team Fortress 2)
+|04:25| 02. Playing With Danger
+|03:52| 03. Rocket Jump Waltz
+|04:04| 04. The Art of War(   Читать дальше...   )Жанр: Soundtrack, Metal, ElectronicПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79EE645FFE5B452A654BE4799FBB2B48E7EB873A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987930   (924325) от 18.02.2016
 
 VA - Star Wars Headspace (2016) [MP3|320 кб/с] <Electronic, Soundtrack>
@@ -566,202 +755,6 @@ Janis Joplin - Janis Little Girl Blue (Original Motion Picture Soundtrack) (2016
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C994BB86B1E2C0DA6EFCF8BF631B1076BA07D4F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 230102   (928913) от 25.01.2011
-
-VA - OST Скотт Пилигрим против всех (2010) [MP3|192-320 kbps]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Nigel Godrich - Universal Theme
-02. Hillcrest Park
-03. Fight!
-04. Slick (Patel's Song) - by Dan the Automator
-05. Love Me Some Walking
-06. Talk To The Fist
-07. Rumble
-08. Feel The Wrath
-09. The Grind
-10. Hello Envy(   Читать дальше...)Жанр: OSTПродолжительность: 01:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EBE806C92A88DE35F91C57F7A97E8B4191EE2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365305   (929006) от 08.03.2020
-
-Max Arnald - Piano Covers 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Queen (4:07)
- 02. Hello (4:09)
- 03. Stitches (4:04)
- 04. A Kind of Magic (4:04)(   Читать дальше...   )Жанр: New Age, Modern Classical, Piano, RelaxationПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B0D0C92BA3AC382309B1038C48F4F6CAD7B716F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094237   (929052) от 18.01.2017
-
-Aenigmatica - Enigmatic (2016) [MP3|320 Kbps] <New Age, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enigmatic [5:43]
-02. Occulta Mysteria [5:23]
-03. Hypnosis [6:04]
-04. Lakota Myths [5:23](   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009398BCB51C39B0BA364C2404DD8EE21DBF2869
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 287039   (929060) от 25.01.2011
-
-Jan Holland - 20 Accordion Hits (1989) [MP3|320 kbps]<Instrumental | Accordion>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Young And Beautiful 	  (02:41)
-02. Silver Threads Among The Gold (03:09)
-03. Love's A Pleasure 		  (03:15)
-04. Officer Of The Day 		  (02:20)
-05. Melody In F 		  (02:27)
-06. Home On The Range 		  (02:12)
-07. American Patrol 		  (02:28)
-08. Roses In Spring 		  (02:37)
-09. Oh, My Darlin'Clementine 	  (01:59)
-10. Carnival Of Venice 		  (02:31)(   Читать дальше...   )Жанр: Instrumental | AccordionПродолжительность: 00:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629AE1ABF0BC31DA7DF262B45EDC8C155D076E70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986657   (929076) от 15.02.2016
-
-Amrit Kirtan - Sacred Circle (2006) 2007 [FLAC|Lossless|image + .cue] <New Age, Meditative, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aas Guray Nameh (Mangalacharan Mantra)  07:55
-02. Gobindah, Gobindah, Gobindah, Haray, Haray  11:06
-03. Waah Yantee  11:04
-04. Guru Ram Das Miracle Mantra  11:06(   Читать дальше...   )Жанр: New Age, Meditative, WorldПродолжительность: 01:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB998291D9398C0CEF65D3A2B3B1FA73FCB90167
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 177764   (929221) от 22.02.2010
-
-VA - Релаксация - Антистресс (2008) [MP3|256 kbps]<Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RelaxПродолжительность: 04:20:38
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 177467   (929226) от 22.02.2010
-
-Ecuador Artists - 2 альбома (2003, 2004) [MP3|320 kbps]<Folk, Native american, Instrumental>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Это трио покорило многие города. Хосе, Руми и Луис – индейцы из Южной Америки. Их мелодии завораживают, заставляя забыть о планах, встречах и делах. Они играют вживую, вкладывая душу в музыку, и никого не оставляют безразличными. Их диски люди покупают с удовольствием, желая продлить общение с божественными звуками пан-флейты…2003 - Melodies Of The Heart
-2004 - Melodies Of The Heart (with Pan Flute)Жанр: Folk, Native american, InstrumentalПродолжительность: 02:16:06
-
-## Скачать торент
-```bash
-нет
 ```
 
 

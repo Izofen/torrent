@@ -1,3 +1,30 @@
+###  Публикация: 1221101   (698711) от 22.04.2018
+
+VA - EUROMANIA: Rave Hits vol. 1-4 (2015) [MP3|320 Kbps] <Eurodance, Rave, Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intermission - Planet Love (3:57)
+02. Marusha - Deep (5:45)
+03. Scooter - Move Your Ass! (5:51)
+04. Awex - Wicked Plasticman (3:37)(   Читать дальше...   )Жанр: Eurodance, Rave, Techno, ElectronicПродолжительность: 06:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E96792346A3035F56C78895DE15FA348B727144D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132673   (698787) от 10.05.2017
 
 VA - Cosmical Odissey: Synthetic Musical Mix (2017) [MP3|192-320 Kbps] <Spacesynth, Synthwave, Electronic>
@@ -665,33 +692,6 @@ VA - German Top 100 Single Charts 14.08.2020 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38BF430A7345E93C5DC15908A127EA19DF4B199F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402546   (699831) от 15.08.2020
-
-VA - The Official UK Top 40 Singles Chart 14.08.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joel Corry - Head & Heart (feat. MNEK)
-02. Jawsh 685 - Savage Love (Laxed - Siren Beat)
-03. Nathan Dawe - Lighter (feat. KSI)
-04. Cardi B - WAP (feat. Megan Thee Stallion) (New Entry)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707011803C1E8C8484F46FF8269DFCDDA54889D0
 ```
 
 

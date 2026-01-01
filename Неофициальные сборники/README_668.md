@@ -1,3 +1,30 @@
+###  Публикация: 1461019   (1021940) от 09.04.2021
+
+VA - Romantic Feelings: Top Love Songs (2021) [MP3|320 Kbps] <Pop, Lyric>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый из нас, без разницы какую роль играет в этом мире, верит в любовь. Кто-то уже нашёл своё счастье и боится его потерять, а кто-то в поисках своей второй половинки верит и ждёт чуда! И оно непременно найдет каждого из Вас. Цените каждый момент, проведенный с любимыми! Говорят нам исполнители песен сборника "Romantic Feelings: Top Love Songs".001. Headlow - Movin On
+002. Marc Benjamin - Losing Focus
+003. Pyn - Spring Fever
+004. Sick Individuals - Dear Love(   Читать дальше...   )Жанр: Pop, LyricПродолжительность: 05:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF3EDA75B4A956EDFBB6934AF8A66E5DA2E1DFB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461341   (1021949) от 09.04.2021
 
 VA - Night Rider 2 (2021) [MP3|320 Kbps] <House>
@@ -668,33 +695,6 @@ The Beatles - Sgt. Pepper's Lonely Hearts Club Band (SMRP Stereo from Mono Origi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:092C6E016B545DE556E932ED0B7F31A817236CFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460133   (1022771) от 04.04.2021
-
-VA - Top 100 DJs (2021) [MP3|320 Kbps] <EDM, Dance, Electro, Pop, Trance, House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022771.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jason Derulo, Adam Levine - Lifestyle (David Guetta Slap House Mix)
-002. Dimitri Vegas & Like Mike, DVBBS, Roy Woods - Too Much
-003. Martin Garrix, Tove Lo - Pressure (feat. Tove Lo)
-004. Armin van Buuren - Turn The World Into A Dancefloor (ASOT 1000 Anthem)(   Читать дальше...   )Жанр: EDM, Dance, Electro, Pop, Trance, House, Tech HouseПродолжительность: 05:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA6D05EEA7894DE8596AABA44F6B858721522B3
 ```
 
 

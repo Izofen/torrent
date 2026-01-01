@@ -1,3 +1,30 @@
+###  Публикация: 1465899   (1018802) от 28.04.2021
+
+VA - The Alternative History: Rock Indie Music (2021) [MP3|320 Kbps] <Indie Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рок — это путь. Это такая тропинка. Через тьму, через страх, через твои собственные ночные кошмары. Если у тебя в груди живет боль, и ты поешь, ты играешь эту музыку — ты выводишь ее в мир и выводишь себя к свету!001. Daka - Just Friends
+002. Champagne Colored Cars - Cache Memory
+003. Chris Garneau - Old Code
+004. Accidents - Cuando El Dia Llegue(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 08:22:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CBB9E6FFB77DFC8316F6D808BA057C44ED0B633
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465879   (1018807) от 28.04.2021
 
 VA - Chillout Zone: Ambient Electronic Sounds (2021) [MP3|320 Kbps] <Ambient, Chillout, Downtempo, Relax>
@@ -668,33 +695,6 @@ VA - Зайцев.нет Лучшие новинки Апреля (2021) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:185FC6561545028AC1C9AE239C089FBB1ECC1944
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463480   (1020482) от 18.04.2021
-
-VA - Record Super Chart 17.04.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ваня Дмитриенко - Венера-Юпитер (D. Anuchin Radio Edit) (2:54)
-02. Eneli, Monoir - 3 to 1 (3:39)
-03. Tiesto - The Business (2:44)
-04. Phao KAIZ Remix - 2 Phut hon (3:03)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A8489E88BBB1FEC435D0B8ED3FAD2753FAA0D7
 ```
 
 

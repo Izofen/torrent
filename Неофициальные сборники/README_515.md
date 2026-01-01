@@ -1,3 +1,30 @@
+###  Публикация: 1511122   (789248) от 20.11.2021
+
+VA - Soft Chill House (2021) [MP3|320 Kbps] <Chill, Deep House, Relax Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789248.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jay Haze & Blu.A - Chango
+002. Monodeluxe - All I Need
+003. Lezcano - Blood Is In The Air
+004. Karemba - Sublime Epiphany(   Читать дальше...   )Жанр: Chill, Deep House, Relax ElectroПродолжительность: 10:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60AEFD5114EDAAA262B97847A365B539F05FFC98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511126   (789250) от 20.11.2021
 
 VA - Weekend Play List (2021) [MP3|320 Kbps] <Pop, Dance>
@@ -662,33 +689,6 @@ VA - Tropical Vibes vol. 1 (2017-2018) [MP3|320 Kbps] <Tropical House, Deep Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E49A9D8264C85D12D7E4EAE1AE5CC4F6F16B7F5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275653   (789801) от 12.01.2019
-
-VA - Rock Select Mix (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789801.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wheatus - Teenage Dirtbag
-002. Lynch Mob - Main Offender
-003. Baddiel, Skinner - Three Lions '98
-004. Cherri Rokkett - Do You Want Me(   Читать дальше...   )Жанр: RockПродолжительность: 08:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00E4BAE5CC9EF3D36149DE48D5A081964F9E876
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 508762   (678289) от 10.06.2012
+
+The Prodigy - Their Law (2005) The Singles 1990-2005 [FLAC|Lossless]<Breakbeat, Hardcore, Big Beat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_678289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Firestarter :: 04:40
+02. Their Law :: 05:35
+03. Breathe :: 05:34
+04. Out of Space :: 05:00(   Читать дальше...   )Жанр: Breakbeat, Hardcore, Big BeatФормат: CD, CompilationПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029843   (678317) от 28.06.2016
+
+VA - Balkan Connection Summer 2016 (2016) [MP3|320 Kbps] <Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subconscious Tales - Helligkeit [07:51]
+02. Praveen Achary, Vlada D'Shake - Public Secret (Praveen Achary Remix) [06:48]
+03. Matter, Jorgio Kioris - Pushin' (Matter's Pushin Too Hard Remix) [08:37]
+04. Rick Pier O'Neil, Dio S, Desaturate - Nonchalance (Rick Pier O'Neil & Desaturate Remix) [07:23](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 06:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE67F30AC0A7F5A94C1EDB8D435BD2372476FFD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290544   (678351) от 20.03.2019
+
+VA - Vocal Anthems Miami (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel & Rimsky feat. Diana Leah - One Last Time (Adip Kiyoi Extended Remix)
+02. Roman Messer & DJ Xquizit feat. OSITO - Empire Of Our Own (Alexander Popov Extended Remix)
+03. Ruslan Radriges & Neurofunq feat. Tiff Lacey - Wonderfull (Extended Mix)
+04. Adip Kiyoi feat. Christina Novelli - Carousel (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7744B01AD428A095A38B4099D4BA55677BFDCED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290552   (678368) от 20.03.2019
+
+VA - Anjunabeats In Miami (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond feat. Marty Longstaff - Flying By Candlelight (Above & Beyond Extended Club Mix)
+02. Above & Beyond x Spencer Brown feat. RBBTS - Long Way From Home (Extended Mix)
+03. Andrew Bayer feat. Alison May - In My Last Life (In My Next Life Extended Mix)
+04. Gabriel & Dresden feat. Jan Burton - You (Myon & Elevven Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673C1625E626457BFA8AC703253964B939860DFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029663   (678465) от 28.06.2016
+
+VA - Energizing Workout Hits (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Newell And Jess Glynne And Dj Cassidy - Kill The Lights (Audien Remix)
+02. Andy Vayel - Pleasant Pain (Original Mix)
+03. Anthony Vince - Want To Dance (Radio Mix)
+04. Antoine Clamaran Feat. Lulu Hughes - Hallelujah (Extended Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 08:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC429F0B588EDC5978087045F327BF3F0867B23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029997   (678469) от 28.06.2016
 
 VA - Outburst presents Prism Volume 1 (Mixed by Mark Sherry & Alex Di Stefano) (2016) [MP3|320 Kbps] <Trance, Progressive House, Techno>
@@ -569,153 +704,6 @@ Christopher Willits - Horizon (2017) [MP3|320 Kbps] <Ambient, Drone>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BD32508DA48D1C270842929E9BD4BFCDEAC3AC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135307   (681295) от 19.05.2017
-
-VA - Intimacy, Vol. 04 (2017) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M&D Substance - Organist (Camilo Remix) 07:13
-02. David Svedra - Love You 06:24
-03. Sasha Lyod - Knock Out (Aurora Solovey Drive Remix) 06:51
-04. Mike Denitz - Come Back 06:26(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D8E2689F8177B35DA8424998EB46F13FC324888
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135554   (681303) от 19.05.2017
-
-VA - Can You Feel The Stretching? (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Topmodel - Within 02:56
-02. Tempodata - Gems 02:56
-03. Tabish Green - Patch 03:03
-04. Tad Beef - Disclosed 03:03(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:21:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F56D6BA46FFBE3902238407C6CC19C3021A54E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135461   (681305) от 19.05.2017
-
-VA - Redux Presents The Uplifting Selection Vol.2 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riialto & F.G. Noise - Zika (original mix) (07:39)
-02. Six Senses - Return (original mix) (07:08)
-03. Eddie Lung - Sirius (The Enlightment remix) (07:25)
-04. Frank Dueffel - Entropy (original mix) (07:49)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D68E2FA44ADD1170CF3E59E715747DBCD41D9F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508079   (681535) от 09.06.2012
-
-VA - Ibiza Miami 2012 (Very Best Of) (08.06.2012) (2012) [MP3|320 кб/с]<Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dancing Machine - Mazo - Djos's Davis & Cyber Seb Radio Edit (3:27)
-02. Alex Oshean - Jump - Djs from Mars Radio Edit (3:28)
-03. Matt Myer - Rock On - DJ Sign Remix (6:33)
-04. Joshua Grey - Naked in the Rain - King Richard, Etienne Ozborne Mix (6:50)
-05. Vybrate - Getting High - Radio Edit (3:07)
-06. Agent Greg - Body & Soul (7:36)
-07. The Chris Montana Project - Deep Down (6:55)
-08. Felix Wellcom - Talk to Me - Radio Edit (3:12)
-09. Jim X Prods - Renegade Master (5:47)
-10. South Men - The Cell - Radio Edit (3:59)(   Читать дальше...   )2012Жанр: Club HouseПродолжительность: 02:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE43BD7E8BE0121CC9A2825DF6D8B2EDD74850C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508081   (681536) от 09.06.2012
-
-VA - Ibiza Summer Vibes: The Sound of The Party Island (2012) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii - Sweet Dreams - Avicii Swede Dreams Mix (5:53)
-02. Chris Montana - Music - Original Ibiza Mix (6:22)
-03. Jolly - Knock On Your Heart - Vocal Mix (6:27)
-04. Syke'N'Sugarstarr - I Believe - Idriss Chebak Rework (5:37)
-05. Alesso - Loose It - Ibiza Mix (6:37)
-06. Martin Wright - Can You Feel It - Original Mix (5:52)
-07. Voltaxx - Hold Me Close - Original Mix (5:30)
-08. Jason Chance - Ain't Nobody - Vocal Mix (7:31)
-09. Jochen Pash - Rootz - Original Mix (6:52)
-10. Tim Royko - Everlasting Now - Club Mix (6:44)(   Читать дальше...   )2012Жанр: HouseПродолжительность: 02:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE51A09D4AE954B5A91FEA7B4D7A0FDA68A99488
 ```
 
 

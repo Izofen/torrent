@@ -1,3 +1,108 @@
+###  Публикация: 1140913   (654018) от 08.06.2017
+
+VA - Recoverworld Trance Sessions 17.03 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emad Ebeat - Goddess In The Rain (08:00)
+02. Soul Entity - Inside The Mountains (06:29)
+03. Ciro Visone - Someone Save Me (06:29)
+04. Madwave - Mayhem (07:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:757867BBF349015233CC7C6B0BFA7388C69C08C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140890   (654020) от 08.06.2017
+
+VA - Heavenly Tears (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Sura Quintet - I Won't Forget You  5:01
+02.  York - Burning Flame  6:46
+03.  Physical Dreams - Return To Innocence  5:13
+04.  VLVTG - Somebody  2:21(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:653D396065D18593DC586C3568ACB02B119B2285
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 342978   (654306) от 31.05.2011
+
+DJ Silence - From Heaven (2010-2011) Anthology [FLAC|Lossless] <Ambient, Psy Chill>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_654306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ambient, Psy Chill, Dub, RelaxПродолжительность: 61:25:04
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904455   (654316) от 03.06.2015
+
+Late Night Alumni - Eclipse (2015) [MP3|320 кб/с]<Deep, House, Chillout>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654316.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Another Word for Love (03:59)
+2. Joan of Arc (03:47)
+3. Runaway  (03:41)
+4. Drummer (04:28)(   Читать дальше...   )Жанр: Deep, House, ChilloutПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1306A7979A0F515CB7B86CA003577E7AB607798F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904443   (654331) от 03.06.2015
 
 Tiefschwarz - Left (2015) [FLAC|Lossless|WEB-DL]<Tech House, Deep House, Mnml>
@@ -349,6 +454,39 @@ magnet:?xt=urn:btih:CA359721784F8F4BDDD36287176FDC402C6079ED
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515821   (655268) от 26.06.2012
+
+Marina And The Diamonds - Electra Heart (2012) Deluxe Edition [FLAC|Lossless]<Pop, House, Synth-Pop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_655268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марина Ламбрини Диамандис (англ. Marina Lambrini Diamandis; 10 октября 1985 года), больше известная под псевдонимом Марина и бриллианты (Marina and the Diamonds) - Уэльская певица и композитор греческого происхождения. Марина обладает мощным голосом и невероятной энергетикой, которую она демонстрирует на своих живых выступлениях. Танцевальный сингл из этого альбома "Primadonna" буквально ворвался во все хит-парады мира и не собирается сдавать свои позиции еще очень долго.01. Bubblegum Bitch :: 02:32
+02. Primadonna :: 03:40
+03. Lies :: 03:46
+04. Homewrecker :: 03:22
+05. Starring Role :: 03:26
+06. The State of Dreaming :: 03:36
+07. Power & Control :: 03:47
+08. Living Dead :: 04:02
+09. Teen Idle :: 04:14
+10. Valley of the Dolls :: 04:13(   Читать дальше...   )Жанр: Pop, House, Synth-PopФормат: CD, Album, Deluxe EditionПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904233   (655386) от 02.06.2015
 
 VA - Future Sound Of Egypt Vol. 3 (Mixed By Aly & Fila) (2015) [FLAC|Lossless]<Trance>
@@ -560,141 +698,6 @@ VA - Tree Of Life Vol.1 (Selection Of Wonderful Calm Music) (2017) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13EA3CF14B0A912CA2F7ED0A8BF4F3664D7ACAB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140342   (655896) от 06.06.2017
-
-VA - Boutique Lounge Vol.3 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alpha Centaury - Secret - Original Mix
-02. Mathieu & Florzinho - Primavera - Dub Mix 2010
-03. Twentyeight - Butterflies - Original Mix
-04. Charly McLion - This Is Not America - Original Mix(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547AF486095189203855A46BD4BBBC131092675C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226334   (655945) от 20.05.2018
-
-Halftribe - For The Summer, Or Forever (2018) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacred (02:27)
- 02. For The Summer, Or Forever (04:02)
- 03. Balm (03:40)
- 04. Swimming Off That Sombre Shore (04:34)(   Читать дальше...   )Жанр: Ambient, Drone, ExperimentalПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C5CBBA713EC254B5C13AE1153F34EEB1DF8193
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140448   (655971) от 06.06.2017
-
-VA - Iconic Deep Deephouse Rhythms (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonido De Casa — Insomnias — Sonido De Casa Mix
-02. Skyline — You'll Be There — Fly Mix
-03. Mister Eex — Fifth Avenue — Shopping Mix
-04. Modern City — I Feel so Blue — Ultra Deep Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:218BC529C9E3535539A256B3493F6373B2F71F9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140364   (655979) от 06.06.2017
-
-Narel - Losing Adequacy (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655979.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pulse Garden  8:20
-2. The Void Which Binds  7:43
-3. Circle Sky  10:09
-4. Return Of The Northerlies  7:35(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:21:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAA7D8AE6F5AB0D57D46BED31BB89982696E0E26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226369   (656026) от 20.05.2018
-
-Floe - Attributes (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Floe & Edvarvhile – Introspection 2018 (Album Mix)
-02. Denis Sender & Floe – Charisma (Album Mix)
-03. Floe – Constitution (Album Mix)
-04. DJ T.H., Floe & Angel Falls – Only Time (Album Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E18A19A68230D3623E7F7E26F09ED696173F7F
 ```
 
 

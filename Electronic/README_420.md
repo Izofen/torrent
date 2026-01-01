@@ -1,3 +1,138 @@
+###  Публикация: 1508182   (797970) от 07.11.2021
+
+Olive - CD Коллекция (4 CD, 2 Albums) (1997-2000) [FLAC|Lossless|tracks + .cue] <Electronic, Downtempo, Synth-pop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британский электронный проект "Olive" известен большинству меломанов благодаря синглу "You're Not Alone", возглавлявшему верхние строчки мировых хит-парадов.
+Группа была основана в 1994 году бывшим клавишником "Simply Red" Тимом Келлетом и бывшим участником "Nightmare On Wax" Робином Тайлором-Фиртом, к которым вскоре присоединилась (   Читать дальше...   )1997 - Extra Virgin (Japan)
+1997 - Singles (exclusive limited edition)
+2000 - Trickle (Japan)Жанр: Electronic, Downtempo, Synth-popПродолжительность: 04:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5908EF77DF2D6BB336DD5701C274CF547A8F6707
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507879   (797971) от 07.11.2021
+
+VA - Gagarin Selection 2021 (2021) [MP3|320 Kbps] <Spacesynth, Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TELEGIMNASTIKA - MIR (5:34)
+02. Soulstring - Gagarin (5:50)
+03. Ionov - Spacewave (3:16)
+04. Efektvol - Bajkonur (5:24)(   Читать дальше...   )Жанр: Spacesynth, Synthpop, SynthwaveПродолжительность: 01:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153F7C9F18ED6C609F6F8F75A1191259B9E57A36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508227   (797978) от 07.11.2021
+
+VA - Gagarin Selection 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TELEGIMNASTIKA - MIR (5:34)
+02. Soulstring - Gagarin (5:50)
+03. Ionov - Spacewave (3:16)
+04. Efektvol - Bajkonur (5:24)(   Читать дальше...   )Жанр: Spacesynth, Synthpop, SynthwaveПродолжительность: 01:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8D92C76CF29ABE02001E331C50CEAF26856EF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507881   (797980) от 07.11.2021
+
+Johan Tronestam - Space Collection (2017) [MP3|320 Kbps] <Berlin-School, Space Music>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Redshift (8:28)
+02. Distance (8:15)
+03. Next Steps (7:31)
+04. A Ninth Member (7:21)(   Читать дальше...   )Жанр: Berlin-School, Space MusicПродолжительность: 01:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F567C28A382A5B451EAD839B75A1D1292EED5CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508230   (797985) от 07.11.2021
+
+Johan Tronestam - Space Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Berlin-School, Space Music>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Redshift (8:28)
+02. Distance (8:15)
+03. Next Steps (7:31)
+04. A Ninth Member (7:21)(   Читать дальше...   )Жанр: Berlin-School, Space MusicПродолжительность: 01:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B036BE763BACA1659E784EFA5723E6624A61C0BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507539   (798098) от 06.11.2021
 
 Jean-Michel Jarre - Welcome To The Other Side - Live in Notre Dame VR (2021) [FLAC|Lossless|image + .cue] <Electro, Ambient>
@@ -558,138 +693,6 @@ VA - Quiet Zone Just Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92BB40D0B092766D8EE0AA9FBC2C8819C576332D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122269   (798886) от 05.04.2017
-
-VA - Spring Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sombra Modos - Botavara (Original Mix)  5:34
-02.  Arrojas - Venas Silenciosas (Original Mix)  5:55
-03.  Sweetadelic - Aguas Claras (Original Mix)  5:36
-04.  Lamar Ensemble - Inspirational Shortcut (Original Mix)  5:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F5F829E0879663228BA54339A84FE612C75356
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230757   (798934) от 02.11.2021
-
-Mehdi Saleh aka: Alphaxone, Inner Place, Monolith Cycle, Spuntic - Discography 50 Releases (2010-2021) [MP3|320 Kbps] <Dark Ambient, Soundscape, Drone>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alphaxone:
-Inner Place:
-Monolith Cycle:
-Spuntic:(   Читать дальше...   )Жанр: Dark Ambient, Soundscape, Ambient, Visual Space Music, DroneПродолжительность: 41:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6C1F91AEA17951BFF07964684D7F7D20CFBB80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024375   (798945) от 02.11.2021
-
-Foretaste - 8 Albums (2005-2021) [MP3|320 кб/с] <Electronic, Synthpop, Electro>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Foretaste (Предвкушение) - французская синти-поп группа, малоизвестная в России, по всей видимости из-за лимитированных изданий альбомов, но весьма впечатляющая.Список альбомов:
-01. 2005 - Beautiful Creatures
-02. 2008 - Terrorist TV
-03. 2011 - Love On Demand(   Читать дальше...   )Жанр: Electronic, Synthpop, ElectroПродолжительность: 06:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100A0ED1D62740A2A44994CB4E7A2BA9AD8E0F7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506946   (799049) от 02.11.2021
-
-Ummet Ozcan - Tomorrowland Friendship Mix (2021-10-28) [MP3|320 Kbps] <Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baas - Alter Ego
-02. Gaga & Mateo! - Galvanize
-04. Shouse - Love Tonight (ID Remix)
-04. Chapter & Verse - Lights Go Out (ID Remix)(   Читать дальше...   )Жанр: Big RoomПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B83331A3A6B472C19FE2E6B379DCB161286A82F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506469   (799087) от 02.11.2021
-
-Fatboy Slim - Everybody Loves A Mixtape Podcast (2021) [MP3|192 Kbps] <house, tech house, disco house, electronic, funky house, edm>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: house, tech house, disco house, electronic, funky house, edmПродолжительность: 11:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3E8713E6CECBA582438613E46F4629BD76052C
 ```
 
 

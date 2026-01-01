@@ -1,3 +1,140 @@
+###  Публикация: 1402854   (695680) от 17.08.2020
+
+VA - Be One (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695680.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ranji; Pondora - Keleno (6:46)
+2. Naturalize - Knocked Out (5:34)
+3. Symphonix; Nok - 7am (Cloud7 Remix) (6:17)
+4. Zyrus 7 - I'm Not Afraid (Extended Mix) (6:38)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6232FB0D85ED0715AD203FBEF8FFCFF8BE34347C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 895407   (695695) от 08.05.2015
+
+VA - Selected Beach Grooves Volume Ibiza (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695695.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tom & Jerry - Touch Me (Laut & Leise Sunrise Mix) (06:24)
+002. 8barz - Look in Your Eyes (Guiddo Remix) (04:49)
+003. Eddie Thoneick - Perfect Moment (Ibizarre Ovation Mix) (07:39)
+004. Steen Thottrup - Sunset People (04:40)
+005. Tmgk - Life (Davia Mix) (03:41)(   Читать дальше...   )Производство: Silent BreezeЖанр: Downtempo, Lounge, Chill OutПродолжительность: 01:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE503DC630FB19A65C9A77988E740DCA2C6E1D9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 833729   (695705) от 08.05.2015
+
+Venture - 6 Releases (2012-2015) [MP3|320 кб/с]<Downtempo, Ambient, IDM, Chillstep, Glitch>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As My World Falls Apart (04:03)
+02. Eternia (04:02)
+03. Method 5 (05:05)
+04. Fragments (05:30)
+05. New Beginnings (03:57)(   Читать дальше...   )Жанр: Downtempo, Ambient, IDM, Chillstep, Glitch |Продолжительность: 00:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C240B38A2FF8491ED2C6B32F5C7167418C3B4045
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288522   (695808) от 11.03.2019
+
+New Jackson - From Night to Night (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Dark House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghost Stomp (4:37)
+ 02. From Night To Night (6:07)
+ 03. Blaze All Day (6:55)
+ 04. Put The Love In It (4:32)(   Читать дальше...   )Жанр: Deep House, Dark House, DowntempoПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C8FD642EBB5B02936588B600994F77E23D6194F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288530   (695815) от 11.03.2019
+
+VA - Nothing But... Total Trance Selections Vol.08 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anoikis & Jerom - Never Forget (Original Mix)
+02. Miroslav Vrlik - Illusion (Original Mix)
+03. Gil Zambrano - Siempre (Original Mix)
+04. Slast - Arp (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C3502974F1217933F660378012FA3A8C5539EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288518   (695817) от 11.03.2019
 
 VA - Suanda Music Radio Top 20: March (2019) [MP3|320 Kbps] <Trance>
@@ -560,141 +697,6 @@ StereOMantra - Present (2020) OM Mantra Records [FLAC 2.0|44.1/24|tracks|WEB-DL]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6177F08863C0F4C8F42926139FD45F0DEFEE1D05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287811   (697762) от 10.03.2019
-
-VA - ASOT 900 After-Party @ Poema RAW, Utrecht (2019-02-24) [MP3|320 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697762.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Sixth Sense Live @ ASOT900 After Party, Poema RAW 24/02/19:
-01. Ace Da Brain - Time
-02. Chakra - Home (Above & Beyond Remix)
-03. Blank & Jones - Nightclubbing (Wippenberg remix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 04:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:040D8136EE01A8D864DF91AEA09EDE46375FB31C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287990   (697764) от 10.03.2019
-
-U96 - Out Of Wilhelmsburg (2007) Centaurus [FLAC|Lossless|tracks + .cue] <Electronic, Trance, Euro House, Synthpop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. DJ Put On The Red Light (Feat. Das Bo) (Single Mix) (3:41)
- 02. Underwater (3:38)
- 03. Ist Das Mein Leben (3:58)
- 04. Light Up My Life (3:49)(   Читать дальше...   )Жанр: Electronic, Trance, Euro House, SynthpopПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D5DF22039FA3E778746CA51C10E1CB3443E88B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287748   (697769) от 10.03.2019
-
-VA - ASOT 900 Pre Party @ Poema RAW, Utrecht (2019-02-23) [MP3|256-320 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697769.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. JD Love B2B Will Renville @ Elevation Audio Pres. ASOT 900 Pre-Party, Club Poema Utrecht, Netherlands 2019-02-23 (00:47:30):
-
-01. Sasha - Xpander (Intro)
-02. Terk Dawn - Barent Blue (Mongoto Remix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 05:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5F9BBB340D84B09A5015CA2D83FCD046FBB811A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288243   (697777) от 10.03.2019
-
-VA - Aerobic Dance Latino 2019 [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various Artists - Aerobic Dance Latino 2019 - 1 Hour Non Stop Music Mix For Aerobics, Step & Workout - (One Hour Continuous Mix)
-02. Luka J Master;Carlo M - Vem (feat. Regina Saraiva) (Sanny J Mix)
-03. Sapienza;Ruly Rodriguez - Asere K Bola (Andry J Remix)
-04. Luigi Pilo;Miky Vibes - Ando (Extended Mix)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE381CD243EFE194BBD93041AB808CC32BE31DF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288357   (697779) от 10.03.2019
-
-Moss Covered Technology - Southern Points (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697779.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	A Shared Sudden Sun 	4:45
-2 	West Of Seatown 	6:54
-3 	Coastal Light 	6:16
-4 	To Protect You 	5:08(   Читать дальше...   )Жанр: Electronic, Ambient, DroneПродолжительность: 00:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD829C29D014B0CC1D88FA4B50FEA4CEA668F332
 ```
 
 

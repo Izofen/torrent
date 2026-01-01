@@ -1,3 +1,30 @@
+###  Публикация: 1437298   (1042292) от 04.01.2021
+
+VA - Beat Glam House (2021) [MP3|320 Kbps] <Club House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем отличного настроения! Очередная пятница на исходе, приближаются выходные. Кто-то мечтает сходить в модный клуб и хорошенько "встряхнуться", а кто-то за отдых на природе с романтикой, шашлычками и прочими радостями. Не важно, как ты проводишь время, главное с пользой для себя, а ещё под отличную танцевальную музыку. И раз ты здесь, раз ты смотришь эту (   Читать дальше...   )001. Sassydee - Say So (Original Mix)
+002. Paul Weekend - Carnatic
+003. Lita Brown - 2Am
+004. Max Clarke - Come Around(   Читать дальше...   )Жанр: Club House, ElectroПродолжительность: 08:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F9D0C1E6C6AB7F950999B1A6D6DB64AC53703C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437235   (1042293) от 04.01.2021
 
 VA - Beatport Techno Electronic: Sound Pack #217 (2020) [MP3|320 Kbps] <Techno, Minimal, Electro>
@@ -668,33 +695,6 @@ VA - The Rock Meeting Vol.02 (2023) [MP3|320 Kbps] <Rock, Punk, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06A5A58AABE5123E7B231AA533E2498BD7DBA2C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609758   (1043141) от 04.02.2023
-
-VA - From Nightmares: Metal Hard Compilation (2023) [MP3|320 Kbps] <Metal, Hard Rock, Core>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043141.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kvasir - Authenticity
-002. Sleeping Romance - Smoke And Mirrors
-003. Goatwhore - Born Of Satan's Flesh
-004. Infection Code - Daily Slavery System(   Читать дальше...   )Жанр: Metal, Hard Rock, CoreПродолжительность: 11:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCCF82B99F7D5F2B6FA6CD6310ADEBA0718F6140
 ```
 
 

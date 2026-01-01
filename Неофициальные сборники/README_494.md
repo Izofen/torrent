@@ -1,3 +1,30 @@
+###  Публикация: 1015992   (772813) от 12.05.2016
+
+VA - 80s Heart Soul Hits (2016) [MP3|320 кб/с] <Euro Disco, New Wave, Synthpop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scotch - Disco Band (Remix) 08:49
+02. Lian Ross - Say You'll Never 06:36
+03. Bad Boys Blue - I Wanna Hear Your Heartbeat (Sunday Girl) 06:29
+04. Mike Mareen - Don't Talk To The Snake 08:01(   Читать дальше...   )Жанр: Euro Disco, New Wave, SynthpopПродолжительность: 03:36:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279CC95CC3AA33A46ABF21D265FC1663306DE7C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278146   (772816) от 24.01.2019
 
 VA - Не за горами весна (2019) [MP3|320 Kbps] <Шансон>
@@ -667,33 +694,6 @@ magnet:?xt=urn:btih:5F58E0393C2947C2FC1AD48C891C1A360436AF1B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:659E72EBF58349715D9A63CD6D78650BDA6542C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015483   (773984) от 11.05.2016
-
-VA - Popular Britpop May (2016) [MP3|210-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773984.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shawn Mendes - Stitches
-002. Lukas Graham - 7 Years
-003. Dua Lipa - Be The One
-004. Alan Walker - Faded(   Читать дальше...   )Жанр: PopПродолжительность: 05:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB2A07AB4CC57AE45F57130562ED9D80214F40B
 ```
 
 

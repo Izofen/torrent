@@ -1,3 +1,162 @@
+###  Публикация: 1360352   (960742) от 15.02.2020
+
+Ирина Дубцова - О любви... (2008) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1593F71E7A8FBD38C50DA13F1CB6FC046CA6AF22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360354   (960930) от 15.02.2020
+
+Аурика Ротару - Счастье-свободная птица (2006) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Счастье - свободная птица 3:20
+02. Двi голубки 3:25
+03. Сентименте 4:48
+04. Сопiлка 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1833FA687110A25F32C60DC4BCEAF4D2A85AC546
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978922   (961062) от 25.01.2016
+
+Philippe Chatel - Renaissance (2016) [FLAC|Lossless|tracks] <Chanson, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 heures du matin (2:49)
+02. L'absence (4:07)
+03. La fille dans la bouteille (3:03)
+04. Chanson du pere (2:26)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A294C66639F90FC291A969CC5DC782CF71B044B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979091   (961122) от 25.01.2016
+
+Carrie Underwood - Storyteller (2015) [FLAC|Lossless|tracks] <Pop, Pop Rock, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Renegade Runaway 3:40
+02 Dirty Laundry 3:25
+03 Church Bells 3:15
+04 Heartbeat 3:31(   Читать дальше...   )Жанр: Pop, Pop Rock, CountryПродолжительность: 00:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F335BA23B70E3386F345554634CC418537FD068
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 621506   (961492) от 21.02.2013
+
+Забытый Разговор - Возвращение (1997) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Арабское золото
+02. Нежная бэйби
+03. Если хочешь
+04. Раз в 1000 лет(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A2CBFBF3A456F3B21601B27C2F2079CB47CE5D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360256   (961781) от 14.02.2020
+
+Donna Summer - 19 Albums, 3 Compilations (1974-2013) Collection [MP3|320 Kbps] <Electronic, Funk Soul, Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Донна Саммер – «Королева диско». Американская певица стала иконой диско и поп-сцены, пять раз была номинирована на премию «Грэмми», за 34 года своей работы выпустила предлагаемые альбомы, множество синглов и компиляций. Было продано более 130 миллионов записей, а хиты в ее исполнении звучат до сих пор.Список альбомов:
+1974 - Lady Of The Night
+1975 - Love To Love You Baby
+1976 - A Love Trilogy(   Читать дальше...   )Жанр: Electronic, Funk Soul, Disco, PopПродолжительность: 19:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0338CE4176BACFAA8D9678634442F6826FEA9540
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360009   (961786) от 14.02.2020
 
 Артур Пирожков - Всё о любви (2020) [MP3|320 Kbps] <Pop>
@@ -533,168 +692,6 @@ VA - I Grandi Successi Degli Anni 90 Vol.2 (2005) [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59B74C2E2FCC9B90B4C09F63589572B8AAAE11FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359376   (964297) от 12.02.2020
-
-VA - Valentine's Day Mix (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bryan Adams - Heaven 4:05
-02. Ronan Keating - When You Say Nothing At All 4:06
-03. Calum Scott & Leona Lewis - You Are The Reason (Duet Version) 3:11
-04. Lady Antebellum - Need You Now 3:55(   Читать дальше...   )Жанр: PopПродолжительность: 02:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD783440275C72B0F23E310DDACF54A37F0E693
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359631   (964304) от 12.02.2020
-
-Hydro Featuring Lorna - Hydro (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop Your Teasing (9:34)
-02. I'll Make Your Day Tonight (6:16)
-03. I'll Be Good To You (7:40)
-04. My Favorite Disco (5:19)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA2D86AE18402BCA7AAB4B2F54726DF3502F06C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977992   (964475) от 22.01.2016
-
-Pandora - This Could Be Heaven (1997) [APE|Lossless|image+.cue] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Single Life	3:36
-02	Everybody's Livin' It Up	4:10
-03	Shout It Out	3:16
-04	Show Me What You Got	3:22(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01FC1CC713408ED8CAA6F35A64DD376E93AD6F51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977956   (964535) от 22.01.2016
-
-VA - I Grandi Successi Degli Anni 80 Vol.1 (2005) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gianni Morandi, Enrico Ruggeri - Si Puo Dare Di Pu (4:28)
-02. Raf - Inevitabile Follia (4:32)
-03. Fiorella Mannoia - Caffe Nero Bollente (4:26)
-04. Francesco Baccini - Le Donne Di Modena (5:05)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4C26F7377FA67CD9FE294E487C31A696CBD926
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977982   (964556) от 22.01.2016
-
-VA - I Grandi Successi Degli Anni 80 Vol.2 (2005) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mango - Nella Mia Città (7:02)
-02. Patty Pravo - Per Una Bambola (3:21)
-03. Luca Barbarossa - Roma Spogliata (3:47)
-04. Massimo Ranieri - Perdere L'amore (4:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE83D9F6D4C8C0FBAE9D0B9F8C0FF5298A62A255
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977983   (964660) от 22.01.2016
-
-Tomas N'Evergreen - Since You've Been Gone (2003) [APE|Lossless|image+.cue] <Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Since You've Been Gone
-02	Don't Give Up
-03	Your All I Ever Wanted
-04	Living On a Desert Island(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C295B18BFEDA1C878E46BA46B9A1F8FF05DB52
 ```
 
 

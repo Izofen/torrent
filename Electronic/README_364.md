@@ -1,3 +1,138 @@
+###  Публикация: 1022936   (726615) от 04.06.2016
+
+VA - Armada Chill (2016) [MP3|320 кб/с] <Chillout, Lounge, Deep>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Schulz & J.U.D.G.E. - Show Me Love (Acoustic Version) (4:15)
+02. Boom Jinx & Ashley Tomberlin - Secrets (3:56)
+03. CHINAH - Colder (3:25)
+04. Aly & Fila - Rosaires (Chill Out Mix) (3:54)(   Читать дальше...   )Производство: Armada Music B.V.Жанр: Chillout, Lounge, DeepПродолжительность: 02:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20BD646FF09B8B6D9B449DB11144B5D75A71493A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023266   (726617) от 04.06.2016
+
+VA - We Like Running Vol 1 (House & Deep-House Tunes For The Perfect Drill) (2016) [MP3|320 кб/с] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Variety Surf - Aragon (House Theory Mix) (3:08)
+02. Progressive Color - Silky Day (Sonik Mix) (2:58)
+03. Platinum Squirrel - Monday Happy Hour (M. H. J. Mix) (3:05)
+04. Pong Developers - Old Erectus (Jeff Collins Mix) (3:25)(   Читать дальше...   )Производство: Run & FitЖанр: House, Deep HouseПродолжительность: 01:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3B77B3F570BE86D72FCFCD69196C9881AD4599
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128852   (726633) от 26.04.2017
+
+Aly & Fila - Future Sound Of Egypt 493 (Live from Open To Close, Panama Amsterdam, Netherlands) (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Thrillseekers - ID
+02. M.I.K.E Push - ID
+03. Sean Tyas - ID
+04. Stoneface & Terminal - lD(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE7438A4199A97215D3610AB91EE501DBE9510A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128732   (726634) от 26.04.2017
+
+Saint Of Sin - Skychild (2016) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skychild-Intro & Amadeus
+02. Divination
+03. Aftermath Of Joy
+04. Skychilds Call(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24B6992BBB7155928904294E39AE9233AD6EB5E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128484   (726635) от 26.04.2017
+
+VA - Dark Uplifting Vol.1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Solis & Sean Truby presents S&ST - Roots (Original Mix)  3:24
+02.  Photographer - Infinity (Radio Edit)  3:46
+03.  Farhad Mahdavi & Kiran M Sajeev - Higher (Radio Edit)  3:50
+04.  CubeTonic - So Strong (feat. Dilara Gadel) (Saad Ayub Radio Edit)  3:40(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D045E839C9A4DA400686D5A8A66ACFA501AC9823
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128676   (726637) от 26.04.2017
 
 VA - Beach Club Miami (2017) [MP3|320 Kbps] <Deep House>
@@ -555,141 +690,6 @@ VA - Winter Collection 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E6D084778708E957A989D6B9C3C75F92AA001F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284771   (727831) от 22.02.2019
-
-VA - Anjunadeep 10 (Mixed by Jody Wisternoff & James Grant) (2019) [FLAC|Lossless|Web-DL|tracks] <Deep House, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiatus – Relic (4:19)
-02. Lycoriscoris – Belong (4:16)
-03. OCULA – Immunity (4:43)
-04. BAILE – Soft Light (3:33)(   Читать дальше...   )Производство: Anjunadeep - ANJCD067DЖанр: Deep House, HouseПродолжительность: 05:16:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036B64C80552055A95C31FA0CDCA12E8FA81BA68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284742   (727836) от 22.02.2019
-
-VA - Chill House: Something For Your Mind Your Body & Your Soul (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bernd Loorbach - Cafe del Mar (Patricio AMC Chill Mix)
-02. Damon Paul feat. Simone Mangiapane - Rhythm Is a Dancer (Matyas Glut Chill Mix)
-03. Bass Boom Deejays feat. Chris Burke - Don't Be so Shy (Patricio Amc Remix)
-04. G-Lati and Mellons feat. Damian Pipes - Hero (Manu M. Guitar Chill Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C4CFB176635B266A06572698A4504AB926C1499
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284673   (727844) от 22.02.2019
-
-VA - Ibiza Overload '19 (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Drake - Treasure (Original Mix)
-02. Nadia A Lee - Feeling Fine (Original Mix)
-03. Gustavo Mendez - Acid Jack (Original Mix)
-04. Frank Delgado - Ibiza Vibe (Original Mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F055AFFB0410623F05434E6ECE592AE5FC379B03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284527   (727847) от 22.02.2019
-
-VA - Melodic House Sessions, Vol.12 (2019) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gregor - The Winter Carnival (Original Mix) 8:24
-02. Koffee & AmFlow - Raw Uncut (UnCut HardCore Instrumental) 5:15
-03. Alex Lem - Siren (Original Mix) 3:48
-04. Polyakk - Boom (Original Mix) 2:24(   Читать дальше...   )Жанр: HouseПродолжительность: 02:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61DA5D0FCA00EBA46C8D59F50DE971C2A68F40ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022679   (727854) от 03.06.2016
-
-VA - The Annual Festival Sessions (2016) [MP3|320 кб/с] <Club House, Electro House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phorsicht - Phreude (3:36)
-02. Prash - Bring That Bass (Extended Mix) (4:48)
-03. Sebastien Nox - O_B_O (4:46)
-04. Jamie My Angel - Runaway with Me (Radio Version) (3:35)(   Читать дальше...   )Жанр: Club House, Electro House, ProgressiveПродолжительность: 04:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A3084B39C0F7F8EC73B2A265D19D503186698E2
 ```
 
 

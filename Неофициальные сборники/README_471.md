@@ -1,3 +1,30 @@
+###  Публикация: 1217485   (742261) от 05.04.2018
+
+VA - De Top 100 Aller Tijden 1986 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Synth-pop, Disco, World>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742261.jpg" />
+</div>
+
+
+###  Подробнее
+
+"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Billy Ocean - When The Going Gets Tough The Tough Get Going (7:33)
+002. Europe - The Final Countdown (5:10)
+003. George Michael - A Different Corner (4:05)
+004. UB40 - Sing Our Own Song (4:02)(   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, Disco, WorldПродолжительность: 07:22:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0DD72BA9E99D4A3F9FCD9F4A263050CE19A3CFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217540   (742264) от 05.04.2018
 
 VA - Trance 100 World Fashion (2018) [MP3|320 Kbps] <Harmonic, Emotional, Tuneful>
@@ -670,33 +697,6 @@ VA - Отдыхай на любимой волне (2016) [MP3|256-320 кб/с] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A6390ACDDE7405FAC5D227370D3282392049849
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282597   (743604) от 13.02.2019
-
-VA - Drum Star Bass (2019) [MP3|320 Kbps] <DnB, Dubstep, Bass Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743604.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Danger - Unknown Object
-002. Maverick Soul - Stranded
-003. Aweminus - Pants Floor
-004. Fourward - Make Some(   Читать дальше...   )Жанр: DnB, Dubstep, Bass ElectronicПродолжительность: 10:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A5C3B80157CBFE10664123496E01026CCFC93E
 ```
 
 

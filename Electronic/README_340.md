@@ -1,3 +1,138 @@
+###  Публикация: 1136855   (671149) от 24.05.2017
+
+VA - Space Love (2017) [MP3|320 Kbps] <Balearic, Downtempo, Psychill>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Convergent Evolution - Crescent (Unusual Cosmic Process Ambient Remix) 08:07
+02. Astronaut Ape - First Meeting 08:00
+03. Aedem - Numb 07:03
+04. Youginia - Life 03:48(   Читать дальше...   )Жанр: Balearic, Downtempo, PsychillПродолжительность: 01:15:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82246D789BA012A8D31342CDD4812FFDD67548C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223639   (671419) от 06.05.2018
+
+VA - Best Of Uplifting Trance (2018) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Allen feat. Sue McLaren - Old Flame (Extended Mix) 6:43
+02. Hazem Beltagui feat. Sarah Russell - When Our Story Has To End (Stargazers Extended Mix) 6:23
+03. Alan Morris & Enzo feat. Jess Morgan - Tapestry Of Us (Extended Mix) 6:30
+04. F.G. Noise & Patrick Dreama - Kepler (Extended Mix) 7:34(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C38C39ED9F7ED2D7AFDEF8EA5361E70C8762C795
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223685   (671651) от 06.05.2018
+
+Martin Schulte - Depth Of Soul (2008) Lantern [FLAC|Lossless|tracks+.cue] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big City Street (06:21)
+ 02. Countryside (07:20)
+ 03. Glitchtech (05:37)
+ 04. Forest (06:00)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:00:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9ABF9BF9891819B142711BA4461B6FD54C45AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291157   (672141) от 23.03.2019
+
+VA - Deep Conception Vol.17 (2019) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eating Snow - Gravel And Trees (Einmusik Remix) 7:17
+02. Tube & Berger feat. Alegant - CURE (Original Mix) 5:38
+03. Manuel Moreno feat. Natasha Waters - Ghost (Definition Remix) 8:25
+04. Outstrip & Dub Makers feat. Maria Chirkova - Rainbow (Original Mix) 7:38(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1AEF8D8B7B4AF27E1B713E8263A75038C7039F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283619   (672233) от 23.03.2019
+
+VA - Live @ Trancemission Heartbeat, A2 Arena Saint Petersburg, Russia 2019-02-16[MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID - ID
+02. FEEL - Prince Of Persia
+03. ID - ID
+04. Above & Beyond - Distorted Truth(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 07:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:190CA1322F87F0F8DF6359003C1701AEBBE0CDC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030627   (672290) от 01.07.2016
 
 Night Sky (aka Afternova) - Visions (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout>
@@ -558,141 +693,6 @@ Autumn - Synthesize (2011) LP, Compilation [MP3|320 Kbps] <Electro, Synth-pop, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF56BB7EA10E31462AB7F8DB6A7960E06B0AB331
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030092   (674268) от 30.06.2016
-
-All4tonic - Laika Messages (2016) [MP3|160 Kbps] <Electronic, Ambient, Dub>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Insomnia
-02. Laika Messages
-03. Megamedicine
-04. Red Button(   Читать дальше...   )Жанр: Electronic, Ambient, Dub, EDMПродолжительность: 00:20:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25E08ABA9D4BA37D31EFC9D5B1312B2C0B8687C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290849   (674330) от 22.03.2019
-
-VA - Relax Time (2019) [MP3|320 Kbps] <Downtempo, Meditation, Electronica>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music Is A Film - Back To The Start (Original Mix)
-02. Yoga & Meditacion - Rising Star (Yoga & Zen Meditation Version)
-03. Ressonnimo - Sol Naciente (Yoga & Meditation Version)
-04. Cinematic Meditation - Enough For Happiness (Original Mix)(   Читать дальше...   )Жанр: Downtempo, Meditation, ElectronicaПродолжительность: 01:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A590473AE6EAF8C5ADBAEB203ED31F42971324
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290762   (674335) от 22.03.2019
-
-VA - Trance Nation (2019) [MP3|320 Kbps] <Trance, Electronic, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alt & J - Emotion
-02. LekSin - Angels & Demons
-03. Simon Moon pres. JP Project - Madness (Arrakeen Arraknophobic Remix)
-04. Tecnomind - Non Stop Dreaming (Radio Edit)(   Читать дальше...   )Жанр: Trance, Electronic, ProgressiveПродолжительность: 04:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEBD82EC6D67E63A1F4EEB7B678C63C25A5EC00A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290888   (674341) от 22.03.2019
-
-VA - The Sweetest Taboo Vol.1 (Sexy Deep-House Candies) (2019) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antton - Soul Soup (Original Mix) 7:49
-02. The Boogeyman - Deep Forest (Original Mix) 5:06
-03. Skylab - For The Ones Gone (Original Mix) 5:44
-04. Jommes Tatze - Zirkus (C-Ro Remix) 7:23(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A57871B608F1B6C1BD45A39596F15582370684C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290850   (674344) от 22.03.2019
-
-VA - Markus Schulz - Global DJ Broadcast Top 20 March (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz feat. Christina Novelli - Symphony Of Stars (Solis & Sean Truby Extended Remix)
-02. Above & Beyond - Distorted Truth (Extended Mix)
-03. Cosmic Gate & Foret - Need To Feel Loved (Extended Mix)
-04. DT8 Project - The Edge (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2405033D703F692908DB289E3C03B9DC9D24F991
 ```
 
 

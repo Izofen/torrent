@@ -1,3 +1,71 @@
+###  Публикация: 752873   (938354) от 04.02.2014
+
+Toto Cutugno - Insieme (2004) 2CD [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Serenata (3:50)
+02. Solo Noi (4:05)
+03. Insieme 1992 (4:28)
+04. Voici Les Cles (French Version Of-Nel Cuore E Nei Sensi) (4:10)
+05. Because (I Love You) (English Version) (4:09)
+06. Anna (3:53)
+07. C'est Venice (4:27)
+08. En Chantand (French Version Of-Cantando) (4:28)
+09. Et Si Tu N'Existais Pas (Oasis) (4:23)
+10. Mademoiselle Ca Va (4:16)(   Читать дальше...   )Жанр: PopПродолжительность: 02:15:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA9B465F9E7A9A069EEA153B9B854B17E6C94CB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 283542   (938415) от 18.01.2011
+
+Engelbert Humperdinck - Greatest Hits And More (2CD) (2007) [APE|Lossless]<Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+В СССР Энгельберт Хампердинк пользовался большой популярностью в 1970-е гг., в первую очередь, благодаря официально выпущенным пластинкам фирмы <Мелодия> (два миньона и один альбом-сборник).
+Первый приезд с гастролями в Россию состоялся в 2003 году, когда в Кремлевском дворце в Москве прошли два концерта Энгельберта.
+Через семь лет, 3 апреля 2010 года, Энгельберт вновь дал концерт в Москве (Крокус-сити-холл). В том же 2010 году на международном конкурсе молодых исполнителей "Новая волна" Энгельберт Хампердинк выступил перед многочисленными (в том числе из России) гостями фестиваля в Юрмале (Латвия).01. What A Wonderful World
+02. Ten Guitars
+03. Funny Familiar Forgotten Feelings
+04. My World (Il Mondo)
+05. Can't You See
+06. There's A Kind Of Hush
+07. My Marie
+08. Sweetheart
+09. Dance The Night Away
+10. Sometimes When We Touch(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:19:55
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 753098   (938585) от 04.02.2014
 
 Dum Dum Girls - Too True (2014) [FLAC|Lossless]<Indie-Pop>
@@ -660,60 +728,6 @@ Poppy - I Disagree (2020) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F8F8B0138A398D010B1E192459A6DAD578B77F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362420   (949590) от 23.02.2020
-
-Selena Gomez - Rare (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rare (3:41)
-02. Dance Again (2:50)
-03. Look At Her Now (2:43)
-04. Lose You To Love Me (3:26)(   Читать дальше...   )Производство: Interscope Records – B003154102Жанр: PopПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57480E3AA00F3E83B72CF47CAD11CB8A8C74581
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361729   (949598) от 23.02.2020
-
-Justin Bieber - Changes (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Around Me (02:16)
-02. Habitual (02:48)
-03. Come Around Me (03:20)
-04. Intentions (feat. Quavo) (03:32)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70CD9690111269209668D630902EB17CFD5CF55
 ```
 
 

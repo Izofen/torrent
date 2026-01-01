@@ -1,3 +1,167 @@
+###  Публикация: 1609367   (1043226) от 03.02.2023
+
+Shania Twain - Queen Of Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giddy Up!
+02. Brand New
+03. Waking Up Dreaming
+04. Best Friend(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1AFF50B5B8958B1031FCE9994CEBE603ED91966
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609421   (1043239) от 03.02.2023
+
+Illona Staller (Cicciolina) - Illona Staller (1979) Reissue CD, 2000, Sequel Records [MP3|320 Kbps] <Europop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Was Made For Dancin' (6:14)
+02. Pane Marmellata E Me (3:59)
+03. Labbra (4:08)
+04. Benihana (4:23)(   Читать дальше...   )Жанр: Europop, DiscoПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A4B640E14028FFAFE5F1145754188C918829C72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609182   (1043314) от 02.02.2023
+
+Sarah McCoy - High Priestess (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sarah McCoy провела большую часть своей жизни, играя на пианино и исполняя глубокие, лиричные, надрывные песни в барах Нового Орлеана. Внутренний хаос этих забегаловок соответствовал той жизни, которую Сара вела с двадцатилетнего возраста.
+В 33 года её заприметил известный канадский пианист Чили Гонзалес и жизнь Сары кардинально изменилась.
+Сейчас ей аплодируют элитные (   Читать дальше...   )01. Weaponize Me
+02. Go Blind
+03. Sometimes You Lose
+04. Take It All(   Читать дальше...   )Жанр: Alternative Pop, BluesПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C648377C9FE1ED6DCDA179A2758C6A380D08EE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608974   (1043428) от 01.02.2023
+
+Майя Кристалинская - Звёзды советской эстрады Хиты 60-70х (2009) [MP3|320 Kbps] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты не печалься
+02. Нежность
+03. Садовое кольцо
+04. Ненаглядный мой(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C8E642515A93D51E08B1C746A220BEDBC640A00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608977   (1043448) от 01.02.2023
+
+Тамара Миансарова - Золотой век русской эстрады (2003) [MP3|320 Kbps] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Память
+02. Берёза
+03. Мой смешной Гаргантюа
+04. Бабушка, научи меня танцевать(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CDDCC4A29E28DB2C3D1F8D58133D061168D6997
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608736   (1043497) от 31.01.2023
+
+A-Teens - The ABBA Generation (Remix) (2001) Reissue, 2021, Universal Music AB [FLAC|Lossless|WEB-DL|tracks] <Euro-House, Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Queen (Pierre J's Main Radio Mix) (3:28)
+ 02. Mamma Mia (The Bold & The Beautiful Glamourmix Edit) (3:46)
+ 03. Super Trouper (W.I.P Remix) (6:11)
+ 04. Mamma Mia (Guiseppe Remix) (5:37)(   Читать дальше...   )Жанр: Euro-House, EurodanceПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC44CDF3AC93EF871E88C25DBADB8B5D51B55F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608727   (1043511) от 31.01.2023
 
 МакSим - 6 Альбомов (2006-2018) [MP3|320 Kbps] <Рор>
@@ -533,168 +697,6 @@ Sting - Brand New Day (1999) [OGG Vorbis|450 Kbps] <Rock, Pop, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3082EB96DAF6C863FC9F84CD55567D459C645DFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606340   (1044238) от 24.01.2023
-
-Seal - Seal (1991) 4CD, Deluxe Edition, Remastered, 2022, Rhino - Warner Records [MP3|320 Kbps] <RnB, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Water (7:56)
-02. The Beginning (5:38)
-03. Future Love Paradise (5:08)
-04. Violet (4:56)(   Читать дальше...   )Жанр: RnB, SoulПродолжительность: 04:22:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB0BA4FC5F9A68490C7A0F53FA3162A2CB87374
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606774   (1044316) от 23.01.2023
-
-Shania Twain - Up! (2002) [OGG Vorbis|480 Kbps] <Rock, Country Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Up!
-02. I'm Gonna Getcha Good!
-03. She's Not Just A Pretty Face
-04. Juanita(   Читать дальше...   )Жанр: Rock, Country Rock, Pop RockПродолжительность: 01:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:157D5B4056AEA9653F64E086865F7F510107F5D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606400   (1044389) от 22.01.2023
-
-VA - Disco Nights (The Collection) (2009) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Musique - In the Bush (3:32)
-02. Shalamar - The Second Time Around (3:41)
-03. Sharon Redd - In the Name of Love (4:10)
-04. Bumblebee Unlimited - Love Bug (3:36)(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 07:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36F570793C961B4A363FEB08A8D85DE31CB0159
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606297   (1044461) от 21.01.2023
-
-VA — Танцуют все! / Оригинальные записи 1962-1988 / (2005) [MP3|320 Kbps] <Советская эстрада>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ай-лю-ли - Людмила Лядова
-02. Я люблю танцевать - Анна Герман
-03. Шутка - Эдуард Хиль, Людмила Сенчина
-04. Веселая кадриль - Лев Барашков(   Читать дальше...   )Жанр: Советская эстрадаПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C1734272C6D9464397D1B007F476C60C3F65222
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606166   (1044527) от 21.01.2023
-
-RSF - Metropol Nights (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Italodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Night In Brazil (with Andy Bell & Boy George) (4:56)
-02. Crazy Wold Of Love (with Scarlet Fantastic) (4:04)
-03. The River (with Rago & Farina) (5:43)
-04. Far From Here (4:28)(   Читать дальше...   )Жанр: Italo-Disco, ItalodanceПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E7DB99D6F6BC5339C05C32FC0BDE61A30B5539C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606361   (1044541) от 21.01.2023
-
-Re-Tide - Adventures With The Right Groove (2023) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Night A Dj Saved My Life (Album Mix) [00:02:36]
-02. Losing Control Now (Just For Tonight) (Album Mix) [00:03:58]
-03. Chic Cheer (Album Mix) [00:03:58]
-04. Good For Me (Album Mix) [00:03:56](   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32BB43F82D5C238468BA9E247A0D671E82F86CDC
 ```
 
 

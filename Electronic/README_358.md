@@ -1,3 +1,138 @@
+###  Публикация: 1130621   (714341) от 02.05.2017
+
+Hatikwa - The Second Narration (2017) [MP3|320 Kbps] <Goa Trance, Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Path Of Uncertainty (Experimental version) (14:07)
+02. Keen Insight (08:53)
+03. Atacama - Critical Fusion (Hatikwa remix) (08:03)
+04. Southern Sunset (Refreshed edit) (09:29)(   Читать дальше...   )Жанр: Goa Trance, Psy-TranceПродолжительность: 01:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE883746CC69A049066DE5A3EAA52E0D5B8781C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130658   (714413) от 02.05.2017
+
+VA - Running Magic 90s Comeback Hits (2017) [MP3|320 Kbps] <Funky, Club House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unlimited Friends – 90s Never End (Project X Remix) (4:02)
+02. B.g. The Prince of Rap – No Limits (Real Thing Euro Remix) (3:30)
+03. Lane McCray vs. DJane Monique – Sweet Dreams (Remundo Remix) (4:26)
+04. Linda Rocco vs. Andy Stead – You Make Me Feel Good (Dolls Mix) (4:28)(   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 03:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60CDA2D19464DA9F0BF9E1280BF7785D04343226
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130678   (714415) от 02.05.2017
+
+VA - Piano del Mar: Easy Listening Chill Lounge Moods (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Thomas Lemmer - Above The Clouds  4:27
+02.  Soleil Fisher - Daydreaming (Chill Mix)  5:55
+03.  Laura Goulding - Shine (Piano Mix)  4:51
+04.  Lemon Sol - Beautiful Morning (Piano Cafe Chillout To Ibiza Del Mar)  3:59(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2C07ABC73F54048A1C3A52DAF6EEF6E165F809
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130596   (714416) от 02.05.2017
+
+Saint Of Sin, Thunderbrain - 45 Minutes Epic Fantasy Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saint Of Sin – The Power of Now (00:04:33)
+ 02. Thunderbrain – Cyclone (00:03:43)
+ 03. Saint Of Sin – Bridge of Shining (00:04:14)
+ 04. Thunderbrain – Day of Resurrection (00:07:03)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:056B89B10138C17A4B071319ABD327205D2F3FC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130660   (714425) от 02.05.2017
+
+Aly & Fila - Future Sound Of Egypt 494 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TrancEye & Tuomas J - Immortal (Extended Mix)
+02. Manuel Rocca & Illitheas - Enchanted (Original Mix)
+03. TranzLift vs. Airy - 1989 (AirLab7 Remix)
+04. Susana - Only Summer Knows (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DADEB3A709ABB22C1AD4A304CD99502BCAAEC3FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130578   (714426) от 02.05.2017
 
 VA - In The Mood For Love Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -557,140 +692,6 @@ Markus Schulz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5DC380DD3EA3AA4CD14B3882F1F46F7F1A5C73F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219157   (715856) от 13.04.2018
-
-Simon Cummings - 間 (2018) Crónica [FLAC|Lossless|WEB-DL|tracks] <Abstract, Experimental, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. mightily forgetting all which will forget him (emptying our soul of emptiness) priming at every pore a deathless life with magic until peace outthunders silence (06:36)
- 02. }rest{ (05:10)
- 03. i see thee then ponder the tinsel part they let thee play (01:45)
- 04. from Silence; of Nothing (16:00)(   Читать дальше...   )Жанр: Abstract, Experimental, AmbientПродолжительность: 00:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C351D82482FEC52D01B894D74B130DE8AC90511
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219171   (715857) от 13.04.2018
-
-VA - Markus Schulz - Global DJ Broadcast: Top 20 April (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patrick White - Reason (Extended Mix)
-02. Arkham Knights - Existence (Extended Mix)
-03. Elevation - Meridian (Extended Mix)
-04. Dark Matter - Future Sight (Extended Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:22:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1690848766C9A76776ABEF20B59D540D23ADE141
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219281   (715858) от 13.04.2018
-
-Quirke - Whities 015 (2018) Whities [FLAC|Lossless|WEB-DL|tracks] <Techno, Illbient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vatied City (04:06)
- 02. ttransport craving (03:58)
- 03. Hydraulic Deer (05:28)Жанр: Techno, IllbientПродолжительность: 00:13:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B3B9268B72F9E25B23E22341CA1B801C5C96850
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130393   (716247) от 01.05.2017
-
-VA - Buddha-Bar - Clubbing (In Deep Session With DJ Ravin) (2017) [FLAC|Lossless|image + .cue] <House, Deep House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armen Miran - Precious Story
-02. Pochill - Francesca Road (DJ Pippi & Kenneth Bager Remix)
-03. Danny Darko - My Favourite (Ansen Remix)
-04. Calavera & Manya Feat. Maja Aleksic - Seta (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, DowntempoПродолжительность: 01:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC8FFBB068C9450DCB17FBC0D40FB403BB14243
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991083   (716360) от 28.02.2019
-
-CHVRCHES - 4 Альбома, 3 EP, 3 Сингла (2013-2018) [MP3|320 kbps]<Synthpop, Indietronica>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716360.jpg" />
-</div>
-
-
-###  Подробнее
-
-2013 - EP (Japanese Edition)
-2013 - The Bones Of What You Believe (EU Limited Edition)
-2015 - Tether (Eric Prydz vs. CHVRCHES, Single)
-2015 - Every Open Eye (EU Limited Deluxe Edition)(   Читать дальше...   )Жанр: Synthpop, IndietronicaПродолжительность: 05:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60FC1C408E0914952676EB0F684B51305A64F53D
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1444158   (1034672) от 01.02.2021
+
+VA - New Italo Disco Music Vol. 6 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Estimado - I Bridge New Life (7:07)
+02. Kristian Conde - Don't Give It Up (Maxi Version) (4:45)
+03. The Crosslines - Starlight (Maxi Version) (5:17)
+04. Nation In Blue - I Want U (Extended Version) (6:17)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E3C43FC3D96F4818B62DE17A87167F2808CA6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444164   (1034674) от 01.02.2021
+
+VA - New Italo Disco Music Vol. 8 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Estimado - This My Lady Like the Night (Extended Version) (8:56)
+02. Birizdo I Am - Dont Go (Extended Version) (6:11)
+03. Diamond Rain - Mystic Night (Extended Version) (6:11)
+04. Nikita Fomin - I Dont Wanna Lose You (Extended Version) (6:28)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:16:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B715BF61A3616A72D6086E3172CC50A7267516FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444417   (1034678) от 01.02.2021
+
+VA - Valentine's Day 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Police - Every Breath You Take - Remastered 2003 (4:14)
+02. Lady A - Need You Now (3:56)
+03. James Morrison - You Give Me Something (3:32)
+04. Shania Twain - You're Still The One (3:14)(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F1B36534C3AC8CE5596FCD0F0D3D0AF61964E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444145   (1034680) от 01.02.2021
+
+VA - New Italo Disco Music Vol. 2 (Selected by Lajos Birizdo) (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fancy - Slice Me Nice (Split Mirrors Remix) (5:49)
+02. Digitalo - Beautiful Day (Extended Mix) (9:18)
+03. Maxthor - Hunters (Extended Mix) (4:50)
+04. Loreana C. - Dangerous Love (Extended Mix) (6:17)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Euro-Disco, SynthpopПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7A2EC69FE4B7183D508DE78C125CDA782F2E121
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444057   (1034681) от 01.02.2021
+
+VA - Valentines Day 2021 [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cardigans - Lovefool (03:18)
+02. Keane - Somewhere Only We Know (03:56)
+03. Jackson 5 - I'll Be There (03:57)
+04. Marvin Gaye - Ain't No Mountain High Enough (02:27)(   Читать дальше...   )Жанр: PopПродолжительность: 04:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEF24092E5CCE985F70531ED47A245629FA873F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444411   (1034684) от 01.02.2021
+
+Dave Dee, Dozy, Beaky, Mick & Tich - Zabadak (1995) [FLAC|Lossless|image + .cue] <Beat, Pop Rock, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Legend of Xanadu (3:38)
+02. Bend It (2:33)
+03. Save Me (3:01)
+04. Mr. President (3:16)(   Читать дальше...   )Жанр: Beat, Pop Rock, OldiesПродолжительность: 00:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:335AFDF5A539D186FC217A65596995DAE0995198
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444148   (1034691) от 01.02.2021
 
 VA - New Italo Disco Music Vol. 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Euro-Disco, Synthpop>
@@ -532,168 +694,6 @@ VA - Italo Disco New Revival Volume 5 (2015) [FLAC|Lossless|WEB-DL|tracks] <Ital
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61CB5832B3D180C637C8E2883ADD903EA0FDFEE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442831   (1036347) от 26.01.2021
-
-VA - sad shower (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lewis Capaldi - Someone You Loved (03:02)
-02. Calum Scott - You Are The Reason (03:24)
-03. Dean Lewis - Be Alright (03:16)
-04. Alessia Cara - Scars To Your Beautiful (03:50)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E62CA0F5F58F11C515F1C8F91B3FE94A6569561
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616425   (1036390) от 02.03.2023
-
-Ottawan - Hunds UP (1989) Compilation, Karussell [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hands Up
-02. Shalala Song
-03. Siesta For Two
-04. Shubidube Love(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923D986822D731C339A10E777DDFCBF720EED715
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442463   (1036552) от 25.01.2021
-
-VA - 80s Love Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Police - Every Breath You Take (Remastered 2003) (04:13)
-02. Bryan Adams - Heaven (04:04)
-03. Chris De Burgh - The Lady In Red (04:16)
-04. Richard Marx - Right Here Waiting (04:23)(   Читать дальше...   )Жанр: PopПродолжительность: 02:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75926DCD3D97DF812B4C6B2435B6FC182B763747
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442468   (1036573) от 25.01.2021
-
-VA - 90s Love Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bryan Adams - (Everything I Do) I Do It For You (06:34)
-02. Extreme - More Than Words (05:35)
-03. Shania Twain - You're Still The One (03:32)
-04. Bon Jovi - Bed Of Roses (06:34)(   Читать дальше...   )Жанр: PopПродолжительность: 02:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E13C9D5F3FAE16255470C14435961D4758C7023
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442483   (1036582) от 25.01.2021
-
-VA - 2000s Love Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lewis Capaldi - Someone You Loved (03:02)
-02. Selena Gomez - Lose You To Love Me (03:26)
-03. Calum Scott - Dancing On My Own (04:20)
-04. Justin Bieber - Love Yourself (03:52)(   Читать дальше...   )Жанр: PopПродолжительность: 02:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1430CC5C17601ACFEE6DE11230328791CEF27318
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616226   (1036674) от 01.03.2023
-
-Группа Ветер времени - 20 золотых русских мелодий (2000) [MP3|320 Kbps] <Folk, Instrumental>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Уральская рябинушка
-02. Виновата ли я
-03. Казачок
-04. Ямщик, не гони лошадей(   Читать дальше...   )Жанр: Folk, InstrumentalПродолжительность: 01:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51349C0ECAC103039C58CFF79ED05C2629798932
 ```
 
 

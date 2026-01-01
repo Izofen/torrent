@@ -1,3 +1,30 @@
+###  Публикация: 1449128   (1029992) от 21.02.2021
+
+VA - Music News vol.74 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029992.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marcus Santoro & Isabelle Stern - It's Not About You (03:25)
+ 002. Adam Hambrick - Broken Ladder (03:10)
+ 003. Adelen - Jaded (02:30)
+ 004. Adil Karaca - Xos G?ldin (03:13)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61C6DB252304827AD2B0D699E38691680682D8B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449186   (1030012) от 21.02.2021
 
 VA - German Top 100 Single Charts 19.02.2021[MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - Healing Rhythms (2021) [MP3|320 Kbps] <Downtempo, Relax, Meditation>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB0F47F5DE68DA5CC2EAA7D0FA433B8182B11862
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447138   (1032088) от 12.02.2021
-
-VA - Dream Dance Party (2021) [MP3|320 Kbps] <Techno, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032088.jpg" />
-</div>
-
-
-###  Подробнее
-
-С музыкальной подборкой "Dream Dance Party" Вы легко сможете подобрать для себя самые любимые треки, а также отсортировать, что и когда слушать: под хорошее настроение, жаркую погоду, веселую вечеринку дома, для пробежек или за рулём своего автомобиля.001. Netzer Battle - Xeno Rhinos
-002. Akis Ziak - Oscillation
-003. Pwcca - Hydrolysis
-004. Daniel Curley - You Liking(   Читать дальше...   )Жанр: Techno, EDMПродолжительность: 12:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4570F0FDF49F65B3C1E7C8E03001293B029FCEF7
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1280298   (762123) от 02.02.2019
+
+VA - Deep House Hits (Armada) (2019) [MP3|320 Kbps] <House, Deep House, Vocal House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Frequencies feat. The NGHBRS - Like I Love You (Remy Cooper Remix) 2:55
+02. Thomas Gold feat. Graham Candy - Real Love 2:55
+03. Felon - Pictures 3:11
+04. Sultan + Shepard & Andreas Moss - Where Are You 2:46(   Читать дальше...   )Жанр: House, Deep House, Vocal House, ProgressiveПродолжительность: 02:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7803B7AC925BAD17ACAE97505C3F086C5782D736
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209730   (762128) от 02.02.2019
+
+Nordlight - A Deep Dive (2009) Spintwist Records [FLAC|Lossless|tracks+.cue] <Downtempo, Psychill, Dub, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vibrasphere - Tierra Azul (Nordlight Remix) (07:13)
+ 02. Silk And Roses (07:38)
+ 03. Feel Yourself (06:44)
+ 04. A Deep Dive (07:08)(   Читать дальше...   )Жанр: Downtempo, Psychill, Dub, AmbientПродолжительность: 01:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CACA075214EB371E58022E99B569E06227FD969C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394623   (762202) от 06.07.2020
+
+VA - 50 Top Hits Remixed Vol.1 (2020) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voonix - Gonna Make You Sweat (Everybody Dance Now) (Dance Party Radio Mix) 3:37
+02. Midiflip - Days Go By (Kosca Radio Mix) 3:24
+03. DJ Xris2 - Dancing Queen (Sebastian Spencer Radio Mix) 3:04
+04. Mike 'Thunder' Pennino - Insomnia (Radio Mix) 2:43(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8D28DBA5AD86BE8A534E08E01485FB51B07AA02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280291   (762222) от 02.02.2019
+
+VA - Winter 2019: Best Of Inception (2019) [MP3|320 Kbps] <Progressive House, Deep House, Trance, Indie Dance, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5udo - Halcyon (Original Mix)
+02. Adnane Touzani - As You Wish (Original Mix)
+03. Moonwatch3r - Rainy Summer Days (Original Mix)
+04. Sunziv - Existence (Original Mix)(   Читать дальше...   )Жанр: Progressive House, Deep House, Trance, Indie Dance, Nu DiscoПродолжительность: 03:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD35BB8F7B85657C8EF4B8084DE0027BAF286B64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017235   (762641) от 16.05.2016
+
+Waveshaper - Station Nova (2016) [MP3|320 кб/с] <Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless Journey (02:32)
+02. Future Vision (03:14)
+03. The Engineer Part II (03:26)
+04. Vector Dream (04:57)(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 00:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E29DDD006EF53D033C4E165FFA2A369F85F8E86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 780238   (762895) от 24.04.2014
 
 Dieter Meier (Yello) - Out Of Chaos (2014) [FLAC|Lossless]<Electronic, New Wave>
@@ -560,139 +695,6 @@ VA - Coastal Selections 006 (2018) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77082C4FA3CD821B93B6EA84830870A5B2320D8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214653   (764065) от 22.03.2018
-
-VA - Spring Progressive House Vol.1 (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  1touch  -  Surfing Swans (Original Mix)  6:11
-02.  In5um  -  Window (Denis Neve Remix)  7:17
-03.  Tom Clave & Julian Wess feat. Seven Note  -  Just with You (Breame Remix)  5:31
-04.  Lunarbeam  -  Autumn (Jon Medina Remix)  9:54(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:23:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCC24DC266A2A90CEC5C1825931D1E309E263E0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214482   (764067) от 22.03.2018
-
-VA - Freakin Miami (Mixed by House Of Virus) (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  House Of Virus & LoVance  -  Freak (Vibe Killers Remix)  4:56
-02.  Skapes  -  Supersonic (Kyle Watson Remix)  4:15
-03.  2MINDSTogether  -  Keep Dancing (Original Mix)  3:37
-04.  Sleezy D  -  I've Lost Control (Flashmob Remix)  4:47(   Читать дальше...   )Жанр: HouseПродолжительность: 03:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17975C204D8AE60510B8D71B5F84011D3880617
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214633   (764070) от 22.03.2018
-
-VA - Sunset Inspirational Grooves (2018) [MP3|320 Kbps] <Downtempo, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lo Greco Bros & Flow Bop  -  Midnight In Paris (Original Mix)  5:23
-02.  Public Invasion Project  -  Our Trip (Original Mix)  4:08
-03.  Lo Greco Bros feat. Doctor Feelx  -  You & Us (Deep Mix)  6:42
-04.  John Type  -  Sunflower Lola (Original Mix)  4:59(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 01:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894E63B5F7508E9F2E814EB2DC7A0D2D1EC7AEA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214666   (764074) от 22.03.2018
-
-VA - FG Top 10: March (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Max Freegrant & Slow Fish  -  Sweet Lies (Extended Mix)  7:13
-02.  Tony Hammer & Josa  -  Carpe Noctem (Original Mix)  6:23
-03.  Orphyd  -  Little Dreamer (Extended Mix)  6:19
-04.  Jon Bourne  -  Ameera (Original Mix)  5:31(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:440186DED56364262F8E18F2F177E602622697F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214528   (764140) от 22.03.2018
-
-G.R.I.T. - KALMADS E.P. (2018) Exalt Records [FLAC|Lossless|Vinyl|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midway Across the Bridge (04:01)
- 02. This Journey of Ours (04:15)Жанр: Dub Techno, AmbientПродолжительность: 00:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58BABD869E302DA773F841BF2B95D540FB278FCB
 ```
 
 

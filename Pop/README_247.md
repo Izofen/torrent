@@ -1,3 +1,164 @@
+###  Публикация: 1289263   (688367) от 15.03.2019
+
+Patrick Norman - Sweet Sweet Lady (1978) LP [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Sweet Lady (4:59)
+02. Bring Back The Love (5:19)
+03. Paradise (6:08)
+04. Loving You (6:26)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:33:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E797FE3C3C02B032CC14578BDA574B4B58FF456
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221973   (689043) от 27.04.2018
+
+VA - Союз 62 (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HammAli & Navai - Ноты
+02. Зомб - #Делаемфлекс
+03. Юлия Беретта - Дикая
+04. Smash - Моя любовь 18(   Читать дальше...   )Жанр: PopПродолжительность: 02:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDBF331880B639C79BA7863510061C9F395D970B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221986   (689180) от 27.04.2018
+
+Dschinghis Khan - Moskau: Das Neue Best Of Album (2018) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dschinghis Khan
+02. Moskau
+03. Mexico
+04. Madagaskar(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40DD4A4782E90FBF3AF3BECE6B2C099D0C1686BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134545   (689221) от 15.05.2017
+
+Various - Mixage (1983) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pink Project - Hypnotized (3:23)
+02. Sandy Joung - Flashdance... What A Feeling (2:36)
+03. Gazebo - Lunatic (3:06)
+04. The Twins - Ballet Dancer (1:51)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22265EA2064DA36DD9F83000835DB3D2FDF55B1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221846   (689309) от 27.04.2018
+
+ЕVгеника - ДиДюЛя+ ЕVгеника (2016) Макси-сингл [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мигалки (3:23)
+02. Ладно тебе! (2:49)
+03. Рубль не потонет (2:57)Жанр: PopПродолжительность: 00:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E96BF17146767FF7BDB1496BAB94DD23866A45C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221943   (689314) от 27.04.2018
+
+VA - Joe - Celebrate the 80's (4CD) (2018) [MP3|320 Kbps] <Pop, Disco, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689314.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Queen - I Want To Break Free
+02. The Cure - A Forest
+03. Simple Minds - Don't You (Forget About Me) (Remastered)(   Читать дальше...   )Жанр: Pop, Disco, RockПродолжительность: 05:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9273540DBFAFAE4FB08ED3AE810C1D834811A855
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 505670   (689471) от 05.06.2012
 
 Kylie Minogue - The Best Of Kylie Minogue (2012) [FLAC|Lossless]<Pop>
@@ -537,167 +698,6 @@ VA - Venti Compilation 5 (2018) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:122A9D06FAD82069581046229E754D029FCB3F7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288953   (692098) от 13.03.2019
-
-Наталия Власова - Знай (2004) Reissue, 2018 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692098.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Алеет лето
-2. Где тебя найти
-3. Зимняя
-4. Знай(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:333B15EFCDE06A1D3C3A79D344907319ABC24545
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288952   (692221) от 13.03.2019
-
-Angel-Ho - Death Becomes Her (2019) [MP3|320 Kbps] <Pop, Electronic, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Business (03:24)
-02. Drama (03:28)
-03. Like a Girl (feat. K Rizz) (03:10)
-04. Jacomina (03:26)(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D607FF3FA6C2AAC530D184BFBF5F377B4DFF1EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534701   (692386) от 03.03.2022
-
-Avril Lavigne - Love Sux (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cannonball (02:18)
-02. Bois Lie (feat. Machine Gun Kelly) (02:43)
-03. Bite Me (02:39)
-04. Love It When You Hate Me (feat. blackbear) (02:25)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC87882711A754EF21EBAAACBA6A3448DBB2DA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027983   (692565) от 21.06.2016
-
-Giorgio Moroder - 3 Albums Original Soundtrack (1978-1982) [MP3|320 кб/с] <Electronic, Disco, Soundtrack>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вокально - музыкальное сопровождение трех известных кинофильмов от Giorgio Moroder.Список альбомов:
-01. 1978 - Music From 'Battlestar Galactica' And Other Original Compositions
-02. 1980 - American Gigolo (Original Soundtrack Recording)
-03. 1982 - Cat People (Original Soundtrack )(   Читать дальше...   )Жанр: Electronic, Disco, SoundtrackПродолжительность: 01:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5898C087EB6AB74097AFC86656F55B5A084D0A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 212006   (692609) от 21.06.2010
-
-Чернильное небо - Дискография  (2001-2010) [MP3|320 kbps]<POP>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вокал: Екатерина Лазарева, Сергей Дядюн
-Слова, музыка и аранжировка: Сергей Дядюн
-В настоящее время работа над проектом закрыта.Жанр: POPПродолжительность: 09:57:06
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028193   (692756) от 21.06.2016
-
-VA - La Dolce Vita! Italian Cool…From Rome To The Amalfi Coast (2015) [FLAC|Lossless|tracks] <Pop, Jazz, Soundtrack, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nino Rota - La dolce vita
-02. Adriano Celentano - Piccola
-03. Sophia Loren - Zoo be zoo be zoo
-04. Domenico Modugno - Volare (Nel blu, dipinto di blu)(   Читать дальше...   )Жанр: Pop, Jazz, Soundtrack, InstrumentalПродолжительность: 01:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E214A384F893AE8D58C3E416BBE07BA41757E8D
 ```
 
 

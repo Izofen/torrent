@@ -1,3 +1,57 @@
+###  Публикация: 1283323   (731953) от 18.02.2019
+
+Julien Marchal - INSIGHT IV (2019) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Piano, Minimal>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insight XXXIV (3:31)
+ 02. Insight XXXV (3:20)
+ 03. Insight XXXVI (2:04)
+ 04. Insight XXXVII (3:27)(   Читать дальше...   )Жанр: Neoclassical, Piano, MinimalПродолжительность: 00:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA87ABC711FA207FC5FF62BBD9EF2BFA6FF5A32A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283310   (732052) от 18.02.2019
+
+Julien Marchal - INSIGHT III (2017) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Piano, Minimal>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. INSIGHT XXIV (2:41)
+ 02. INSIGHT XXV (6:04)
+ 03. INSIGHT XXVI (3:59)
+ 04. INSIGHT XXVII (2:48)(   Читать дальше...   )Жанр: Neoclassical, Piano, MinimalПродолжительность: 00:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06A834B17E46412206AB31F41C3F35752FCEB1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 125533   (734814) от 01.02.2022
 
 Мария Каллас / Maria Callas - 100 Best Classics (2006) [FLAC|LossLess]<Вокал>
@@ -634,60 +688,6 @@ VA - Celtic Swoon (2017) [MP3|320 Kbps] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79DD6A15A1917832B43AE12E1D6D12BB6C7F9800
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213652   (767335) от 18.03.2018
-
-VA - Piano Cloud Series - Volume One (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, Minimal>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nils Frahm - Nils has a new piano
-02. Library Tapes - Running by the roads, running by the fields (Solo Piano)
-03. Peter Broderick - Eyes Closed And Traveling
-04. Fabrizio Paterlini - Everyone wants to be found(   Читать дальше...   )Жанр: Modern Classical, Piano, MinimalПродолжительность: 01:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E3A3C179D49770FED65763E1197108778C64DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199232   (767395) от 27.01.2019
-
-Д.Д.Шостакович-Симфония №7 'Ленинградская' дирижёр Марис Янсонс (1995) [FLAC|Lossless]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_767395.jpg" />
-</div>
-
-
-###  Подробнее
-
-9 августа 1942 года по планам фашистского командования Ленинград должен был пасть, на этот день был назначен парад немецких войск в городе. Но в этот день в Большом зале Ленинградской филармонии, на стене которой красовалась надпись: "Граждане! Осторожно! При артобстреле эта сторона опасна!" – в городе, где люди каждый день гибли от голода и бомбёжек – (   Читать дальше...   )1. Allegretto (26:03)
-2. Moderato (Poco allegretto) (10:02)
-3. Adagio (16:22)
-4. Allegro non troppo (16:17)Жанр: Classical, симфоническая музыкаПродолжительность: 01:08:44
-
-## Скачать торент
-```bash
-нет
 ```
 
 

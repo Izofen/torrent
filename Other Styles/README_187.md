@@ -1,3 +1,203 @@
+###  Публикация: 611302   (989392) от 30.01.2013
+
+Quincy Jones / Ray Brown Orchestra - Music From The Adventurers /OST/ (1970) [MP3|320 кб/с]<Jazz, Funk, Soul >
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Polo Pony (4:07)
+02. Go Down Dying (4:12)
+03. El Lobo's March (3:47)
+04. Wishful Thinking (2:53)
+05. Gentle Lover (3:12)
+06. Coming And Going (3:26)
+07. Fat Cat Strut (6:07)
+08. Children's Games (4:45)
+09. Love Theme From "The Adventurers" (2:45)Жанр: Jazz, Funk, SoulПродолжительность: 00:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90637152FADAE04E9ECEB52914D3513A06CE23CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 432626   (989619) от 07.01.2012
+
+Deus Ex: Human Revolution (by Michael McCann) (2011) [FLAC|Lossless]<OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Icarus - Main Theme (3:41)
+02. Opening Credits (2:15)
+03. Main Menu (1:50)
+04. First and Last (3:14)
+05. Detroit City Ambient (Part 1) (2:03)
+06. Detroit Marketplace (3:45)
+07. The Mole (2:24)
+08. Barrett Boss Fight (2:49)
+09. Home (2:17)
+10. Jewel Of The Orient (1:04)(   Читать дальше...   )2011 ||Жанр: Score ||Продолжительность: 01:07:22 ||
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353845   (989774) от 20.01.2020
+
+Atom Music Audio - Abyss (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark [02:52]
+02. Meet the Unknown [02:27]
+03. Abyss [02:20]
+04. Aftermath [02:42](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:26:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FC6BC209E176F62D764504DC4A25F1B890DC91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353854   (989829) от 20.01.2020
+
+Atom Music Audio feat. Alexa Ray - From the Ashes (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unstoppable [02:48]
+02. Elysium [03:19]
+03. Died Inside [03:35]
+04. From the Ashes [04:18](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 01:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:298AF03D0AACE722C082D0391B36D75F9AD124CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353853   (989837) от 20.01.2020
+
+Atom Music Audio - Thunderbolt (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alien [02:01]
+02. Cyborg Ranger [01:44]
+03. Time Shift [02:25]
+04. Iron Plague [02:47](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35DDE08BA698ACEF5928ACF6C974F33DAEEB6ED3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353840   (989850) от 20.01.2020
+
+Atom Music Audio - Spirit (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit [06:12]
+02. Sun Dance [04:27]
+03. The Essence of Being [05:06]
+04. Sacred Pipe [03:07](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 01:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19B4365735C0915B9ABEE02C9EFF235E2A960AB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353849   (989883) от 20.01.2020
+
+Atom Music Audio - Sinner: Antihero Themes (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boundless [02:21]
+02. Deceiver [02:30]
+03. Such a Heroine [03:20]
+04. Kill Zone [02:07](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C9E5AC7315AD3EDE5718E1BFC5EE2B0DF27C9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353843   (989888) от 20.01.2020
 
 Atom Music Audio - Wild Planet (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
@@ -579,232 +779,6 @@ Donna de Lory - Sanctuary (2009) [MP3|320 кб/с]<New Age, World, Mantras>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B0F97266A333ABE84CDD6F1956A7115D737229A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608219   (994021) от 24.01.2013
-
-Sleepthief - Labyrinthine Heart (2009) [FLAC|Lossless]<New Age, Ethereal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Here I Confess (feat. Joanna Stevens)
-02. World Gone Crazy (feat. Coury Palermo)
-03. Skimming Stones (feat. Kirsty Hawkshaw)
-04. Labyrinthine Heart (feat. Jody Quine)
-05. A Kind of Magic (feat. Zoe Johnston)
-06. A Cut from the Fight (feat. Kristy Thirsk)
-07. Rainy World (feat. Caroline Lavelle)
-08. Ariadne (The Dividing Sea) (feat. Joanna Stevens)
-09. Reason Why (feat. Zoe Johnston and Coury Palermo)
-10. Fire King (feat. Jody Quine)(   Читать дальше...   )Жанр: New Age, Ethereal  |Продолжительность: 00:49:36
-Enya, Delerium, Conjure One, Amethystium…Имена, которые безусловно многое говорят любителю качественной, красивой музыки в стилях нью-эйдж, энигматик и этериал. Теперь к ним прибавилось еще одно -
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607002   (994473) от 23.01.2013
-
-Ансамбль духовной музыки Кант - Пасха Песнопения пасхальной службы. (2006) [MP3|320 kbps]<Духовная музыка>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Воскресение Евое, Христе Спасе (2:23)
- 2. Ирмосы Пасхи (7:40)
- 3. Воскресение Христово видевше (2:01)
- 4. Стихиры Пасхи (5:13)
- 5. Уст твоих (1:48)
- 6. Часы Пасхи (13:03)
- 7. Слава... Единородный Сыне (2:24)
- 8. Христос Воскресе (1:43)
- 9. Елицы во Христа крестистеся (2:34)
- 10. Сей день, его же сотвори Господь (1:28)(   Читать дальше...   )Жанр: Духовная музыкаПродолжительность: 01:06:23
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607094   (994701) от 22.01.2013
-
-VA - Союз нерушимый... - Песни и танцы народов СCCP (5 CD) (2007) [FLAC|Lossless] <Retro/Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Retro/Folk |Продолжительность: 00:50:14
-
-01. Государственный гимн Советского Союза Оркестр Государственного Академического Большого Театра СССР, Юрий Симонов
-02. Государственный гимн Украинской ССР Хор и оркестр Государственного академического театра оперы и балета имени Т.Шевченко, Стефан Турчак(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606504   (995040) от 21.01.2013
-
-Дмитрий Маликов - Panacea (2012) [FLAC|Lossless]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Задумавшись
-02. О суете
-03. О прошлом
-04. О невыполнимом
-05. С дыханьем музыки
-06. Счастливым
-07. Я становлюсь
-08. Уходит тень
-09. Душа наполнена
-10. Свежо(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:33:41
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604293   (995224) от 21.01.2013
-
-Morning Stars - Only Instrumental (2011) [MP3|320 кб/с]<New age, Native american>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995224.jpg" />
-</div>
-
-
-###  Подробнее
-
-(5:00) 01. Qapaknan
-(5:30) 02. Love Montain
-(6:18) 03. Miracle
-(5:06) 04. Akuchimuy
-(5:55) 05. Sun Priste Dance
-(4:16) 06. The Last Mohican
-(4:49) 07. Brave Hearts
-(5:33) 08. Harmonia
-(4:34) 09. Morning Stars
-(6:06) 10. Sunquyman(   Читать дальше...   )Жанр: New age, Native americanПродолжительность: 01:15:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29102383BDC07169D98827ECB391EFF1DFCB1962
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604547   (996063) от 18.01.2013
-
-Chris Spheeris - Greatest Hits (2CD) (2009) [MP3|320 кб/с]<New Age, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996063.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:01. Andalu
- 02. Quiver
- 03. Field Of Tears
- 04. Eros
- 05. Allura
- 06. From Where They Fall
- 07. Aria
- 08. Laguna
- 09. Bellaire
- 10. Lanotte(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:18:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE6243A7BE4EA1E3D536D029E4B9D15DE2A2202
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604184   (996457) от 17.01.2013
-
-Охотники на гангстеров / Gangster Squad (2013) [MP3|320 кб/с]<soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. His Name Is Mickey Cohen [2:25]
-02. Welcome To Los Angeles [3:13]
-03. He Can't Have You [1:39]
-04. War For the Soul of LA [2:48]
-05. There Goes Our Ride [1:14]
-06. You Can't Shoot Me [3:52]
-07. Always Knew I'd Die In Burbank [2:30]
-08. You're Talking to God [0:51]
-09. The Bug [2:18]
-10. Hot Potato With a Grenade [3:19](   Читать дальше...   )Жанр: soundtrackПродолжительность: 01:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A842014C6474F6CB6C04AF42BC844DB77B92F55
 ```
 
 

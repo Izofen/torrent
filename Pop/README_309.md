@@ -1,3 +1,165 @@
+###  Публикация: 1376148   (862258) от 16.04.2020
+
+Lorraine Johnson - Learning To Dance All Over Again (1978) Reissue CD, 1992, Prelude Records [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Learning To Dance All Over Again (8:12)
+02. Feed The Flame (8:10)
+03. Who Do You Think You're Fooling (4:58)
+04. Nobody's Wrong (5:03)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B94FB6733E017454214BDCCDCB249F7D8B506EDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999814   (862425) от 23.03.2016
+
+Валерий Меладзе - The Best (1999) [FLAC|Lossless|tracks + .cue] <Schlager, Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Красиво (4:44)
+02. Сэра (3:52)
+03. Не тревожь мне душу, скрипка (4:16)
+04. Лимбо (4:02)(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 01:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50C16A147B03BB8133ED1D5025CE56DE138B2F2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999862   (862662) от 23.03.2016
+
+Валерий Сюткин - 004 (2000) [FLAC|Lossless|tracks + .cue] <Rock & Roll, Vocal, Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 001 (3:26)
+02. Бумбо-Мамбо (4:05)
+03. Не спеши (3:22)
+04. 21 век (3:24)(   Читать дальше...   )Жанр: Rock & Roll, Vocal, PopПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:499BC9DEF57764B55406B08C59249DB17449D7EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999846   (862765) от 23.03.2016
+
+Божья Коровка - Встреча с любимой женщиной (1998) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Встреча с любимой женщиной (4:54)
+02. Девушка в платье из ситца (2:57)
+03. Эх, ма, хорошо (2:28)
+04. Деревья (4:32)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A099FA6CF3C045531FB942D3CD32F8D0823FA889
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108403   (862813) от 25.02.2017
+
+Samuel - Il codice della bellezza (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – La risposta
+02 – Vedrai
+03 – Rabbia
+04 – Il treno(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DEC4F2B54DED2190872B2B757BD942468C9CE49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497543   (862970) от 23.09.2021
+
+DJ BoBo - Pirates Of Dance (2004) [FLAC|Lossless|tracks + .cue] <Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pirates Of Dance (3:13)
+02. Amazing Life (3:58)
+03. Pura Pasion (4:22)
+04. Dance Into The Light (4:19)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0887E6A097344DBA26B222762D405BA6D9EB7AE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999789   (863042) от 23.03.2016
 
 Jose Feliciano - La Historia (2006) [MP3|320 кб/с] <Vocal, Latin, Folk-Rock>
@@ -534,168 +696,6 @@ Tonschatz - Qi (2014) [FLAC|Lossless|image + .cue] <Euro-Disco, Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD9DDA974F8A27B381DBF0DD03EFC81CC259A75D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497328   (866573) от 21.09.2021
-
-Игорь Латышко & Life Song - А Ты Не Знала... (2004) [FLAC|Lossless|tracks + .cue] <Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А Ты Не Знала (3:16)
-02. Первая Любовь (4:01)
-03. Осени В Глаза (3:21)
-04. Он Тебя Забыл (3:26)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC52BEAEAFF82A0042AB9091FB20BD4D45D56B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497235   (866575) от 21.09.2021
-
-Eini - Eini & Lady (1981) [MP3|320 Kbps] <Pop, Funk Soul, Disco, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Xanadu (3:22)
-02. Ei Tiennyt Marja-Leena - Marie Magdalena (3:38)
-03. Ota Kii Jos Saat - You're Ok (3:26)
-04. Venalainen Ruletti - Ooh, La La, I'm Falling (3:16)(   Читать дальше...   )Жанр: Pop, Funk Soul, Disco, SchlagerПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A4AFB571906B342395939D9523D6B70BADFB181
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375321   (867119) от 13.04.2020
-
-VA - Dance Your Ass Off (Salsoul Remixes) (2013) Remixes+Continuous Mix [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loleatta Holloway - Love Sensation (WhiteNoize Remix) (6:24)
-02. Inner Life - Ain't No Mountain High Enough (WhiteNoize Remix) (6:56)
-03. Jessie Andrews - I Never Knew (5:16)
-04. Aurra - Forever (J Paul Getto Remix) (5:19)(   Читать дальше...   )Жанр: Dance, Disco, FunkПродолжительность: 02:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9471EAF2981638EC3AE40552C9A3498F0A461F97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375313   (867186) от 13.04.2020
-
-Guy De Lo And His Orchestra - The Pink Panther Discostar (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pink Panther (From Philadelphia) (4:08)
-02. Give Me Some Mo! (6:46)
-03. Simone (4:22)
-04. The Pink Panther (Discostar) (3:00)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:421365476D77162DF64A22B65D04430E223DC388
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375250   (867191) от 13.04.2020
-
-Ольга Орлова - Первый (2001) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я с тобой 4:03
-02. Любовь не летала над нами 4:52
-03. Белый пух 3:37
-04. Ничего не бойся 4:02(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315D87D5D2188ABCB0834F951DB5C1A7EE1A55D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375267   (867195) от 13.04.2020
-
-Yan Tregger - Catchy (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carry On (3:28)
-02. Catchy (4:13)
-03. Gimmicky (3:08)
-04. Sunny Wing (3:08)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:781708687E29F01498F94C2B58860F305482A8C1
 ```
 
 

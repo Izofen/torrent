@@ -1,3 +1,138 @@
+###  Публикация: 1023863   (722029) от 06.06.2016
+
+VA - NRJ Dance Hits 2016 (2016) 2CD [MP3|320 кб/с] <Dance, Electronic, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imany - Don't Be So Shy (Filatov & Karas Remix) (3:10)
+02. Sia - Cheap Thrills (3:31)
+03. Mike Posner - I Took A Pill In Ibiza (Seeb Remix) (3:19)
+04. Zara Larsson - Lush Life (3:22)(   Читать дальше...   )Жанр: Dance, Electronic, House, Pop, Rap, DancehallПродолжительность: 02:26:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B022C0D83697367218E81244A5512FD0E07385
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 790455   (722046) от 27.05.2014
+
+Rameses B - Reborn (2014) [FLAC|Lossless|WEB-DL]<Drum & Bass, Liquid Funk, Chillout, Minimal House>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Years From Now
+02. Ecosystem
+03. Earth Calls
+04. Through The Mist(   Читать дальше...   )Жанр: Drum & Bass, Liquid Funk, Chillout, Minimal HouseПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B3374B1D483190A5731D567A070656EC067A5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129029   (722155) от 28.04.2017
+
+Parov Stelar - The Burning Spider (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Nu Jazz>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Burning Spider (feat. Lightnin' Hopkins) (04:14)
+02. Step Two (feat. Lilja Bloom) (02:54)
+03. Soul Fever Blues (feat. Muddy Waters) (03:04)
+04. Everything Of My Heart (03:07)(   Читать дальше...   )Жанр: Electronic, Nu JazzПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6F37452C2CDABC9BBCCE4365E74AABE5D221D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023950   (722249) от 06.06.2016
+
+Above & Beyond - Acoustic II (2016) [FLAC|Lossless|tracks + .cue] <Electronic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello (02:47)
+02. We're All We Need (05:02)
+03. On My Way To Heaven (05:14)
+04. Save Me (06:11)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEDA5C46ED3500FA031A47BDADD89FFD94CF4474
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023702   (722254) от 06.06.2016
+
+Jeff Pearce - Follow The River Home (2016) [FLAC|Lossless|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Summer Stars [00:04:00]
+02. Downstream I [00:03:49]
+03. Outpost [00:06:13]
+04. Snowfall [00:04:46](   Читать дальше...   )Жанр: AmbientПродолжительность: 00:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94338B0A32ACDE086468198D5A9FC69BFCB81CD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023796   (722376) от 06.06.2016
 
 VA - Walking Home Vol.9 (2016) [MP3|320 кб/с] <House, Club House>
@@ -559,141 +694,6 @@ VA - Tiesto - In Search Of Sunrise 5: Los Angeles (2006) [MP3|320 Kbps] <Trance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:258DF30BDA46BB3CF35BA02708298B0BC7E4EA04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077827   (724459) от 24.02.2019
-
-m² (m2, Squaremeter) - Discography 13 Releases (2000-2010) Ant-Zen, Hands Productions [FLAC|Lossless|tracks+.cue, tracks] <Experimental, IDM, Glitch, Dark Ambient, Industrial>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Priests (09:00)
- 02. Winds & Ruins (05:52)
- 03. Heliogabal I (03:42)
- 04. Relics Of The Undefeated Guard (05:32)(   Читать дальше...   )Тип издания: CD, VinylЖанр: Dark Ambient/IndustrialПродолжительность: 01:06:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AC5C9EF0D47320770DA7DA0B323AD28F422BB9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023561   (724540) от 05.06.2016
-
-VA - Vamos A la Playa: Eivissa (2016) [MP3|320 кб/с] <Deep House, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saalim - Snowfall Tribe Yin (Feelin' Alright) (Acos CoolKAs Remix) (7:50)
-02. Katzbatz - Chateau Brisanz (1983 Version) (6:22)
-03. Erdinc Erdogdu - Enjoy the Silence (5:02)
-04. Deepjack - Don't Look Back (Trav & Volta Remix) (7:48)(   Читать дальше...   )Производство: Eivissa RecordingsЖанр: Deep House, Nu DiscoПродолжительность: 02:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BEC3B37BBA758B8267D0DE6F2DCD6BDC6D62C3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023605   (724542) от 05.06.2016
-
-Zoon Politicon - Black In White (2016) 2CD [MP3|320 кб/с] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724542.jpg" />
-</div>
-
-
-###  Подробнее
-
-После первых двух альбомов 1997 и 1998гг, группа берет перерыв - но они не разлучались и теперь вернулись, выпустив 03.06.2016 этот альбом!CD 1 - Black In White:
-01. Run Forever ( 6:06)
-02. Mercy ( 4:22)
-03. Moments (Album Version) ( 4:21)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D86ED78716B9F58DD33EB16ECC8F80B8E5B1F29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023482   (724556) от 05.06.2016
-
-VA - Trip to the Sea Vol.2: Chill Lounge del Mar (2016) [MP3|320 кб/с] <Downtempo, Lounge, ChillOut, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazzy System - Space Cowboy (Guitar Chillout Mix)
-02. Jean Mare - To the Balearic and Back (Lounge Flight Mix)
-03. Velvet Dreamer - Sunset Chill
-04. Soundset City - Lounge Whispers (Cool Groove Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOut, Easy ListeningПродолжительность: 01:27:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A65401E0A116778D783EC07B9ACF64304C91FCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531123   (724568) от 14.02.2022
-
-VA - Valentine's Day Classics: 30 Greatest Love Songs (2022) [MP3|320 Kbps] <Pop, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fish & Chips - Call Me (4:03)
-02. Lesley Gore - (Your Love Keeps Lifting Me) Higher and Higher (2:58)
-03. Touch Of Class - Love Means Everything (5:15)
-04. Mary Wells - If You Really Love Me (3:07)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 01:49:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43FE81391D21B8BF35D4705998FC2F74177A926A
 ```
 
 

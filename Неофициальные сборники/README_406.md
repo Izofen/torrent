@@ -1,3 +1,30 @@
+###  Публикация: 1226279   (655765) от 20.05.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 18.05.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jax Jones - Breathe (Ina Wroldsen)
+02. Camelphat & Elderbrook - Cola (Robin Schulz Extended Remix)
+03. Justin Timberlake - Say Something (ft. Chris Stapleton)
+04. Dynoro feat. Gigi D'Agostino - In My Mind(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29321FFE87EDC4EFB0EF1EBCA4DDE2E48987AB73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140467   (655781) от 06.06.2017
 
 VA - Music For Your Car Vol.4 (2017) [MP3|320 Kbps] <House, Club, Dance>
@@ -708,33 +735,6 @@ VA - Record Super Chart #489 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7182BA969265B74028321792C51BECE754D20D05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140229   (656753) от 05.06.2017
-
-VA - The Horizont Of Bliss (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge, Relax>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Soty - Sun Touch (Intro Mix) 3:52
-02.  Kool & Klean - The Way You Look Tonight 5:07
-03.  Don Markus - I Don't Won't Illusion 5:10
-04.  Soul Guru - Addicted To Tantric Sex (Sensual Love Mix) 4:56(   Читать дальше...   )Жанр: Downtempo, Chillout, Lounge, RelaxПродолжительность: 07:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82BECB742D3DD77E25B99EDF36D38CFF3DFB80D0
 ```
 
 

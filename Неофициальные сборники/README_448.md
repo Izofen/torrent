@@ -1,3 +1,30 @@
+###  Публикация: 1025040   (712217) от 11.06.2016
+
+VA - FLASHBACK! MIXED BY FERRYS (2014) [MP3|320 кб/с] <Electronic, House, Euro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vanilla Ice, Thomas Gold – Ice Baby
+02. Britney Spears – I Wanna Go
+03. Snoop Dogg, David Guetta – Sweat
+04. Scooter – How Much Is The Fish(   Читать дальше...   )Жанр: Electronic, House, Euro HouseПродолжительность: 01:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B82ACF6F62C6E809C922D434F2D813CD1616237B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025182   (712225) от 11.06.2016
 
 VA - Easter Chill Out: Pure Lounge Music for Easy Listening (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -668,33 +695,6 @@ VA - Expression Vocal House (2020) [MP3|320 Kbps] <Vocal House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F6DD1F0E3C5C55A47EA2341DCC56971DD72A2E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401037   (713359) от 08.08.2020
-
-VA - German Top 100 Single Charts 07.08.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apache 207 - Sie ruft
-02. Apache 207 - Bläulich
-03. Bonez MC - Tilidin Weg
-04. Jawsh 685 & Jason Derulo - Savage Love (Laxed - Siren Beat)(   Читать дальше...   )Жанр: PopПродолжительность: 04:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31F3AE8907CAFFE6D7B520744CB08AD351E7821A
 ```
 
 

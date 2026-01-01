@@ -1,3 +1,165 @@
+###  Публикация: 1453163   (1027186) от 09.03.2021
+
+Lana Del Rey - Chemtrails Over the Country Club (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027186.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. White Dress
+2. Chemtrails Over The Country Club
+3. Tulsa Jesus Freak
+4. Let Me Love You Like A Woman(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3AE5674C7F4D29256A907C9D4713EDAC0AF0BCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453077   (1027209) от 09.03.2021
+
+Lida - Музло из гаражей (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Али Ули (feat. S3RL) [02:58]
+02 - Анапа (feat. DK) [03:45]
+03 - Герда [02:49]
+04 - Евробит (feat. GSPD) [02:45](   Читать дальше...   )Жанр: PopПродолжительность: 00:28:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A68C73B9E4DAD27ED4E6014E6B4A62F12CB1A1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453033   (1027212) от 09.03.2021
+
+Amadeus Liszt - Win the Race (1987) Singles Collection [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Win the Race (4:05)
+02. La Donna (4:49)
+03. The Devil Wins (3:06)
+04. Sprint (2:25)(   Читать дальше...   )Жанр: Italo-Disco, DanceПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987F4D2433E2ABE46109D5F41D1D0DB16D958C18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453035   (1027218) от 09.03.2021
+
+Amadeus Liszt - La Donna (Original Mike Mareen Master Tape Series) (2019) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Donna (Crazy Disco Version) (6:26)
+02. La Donna (4:46)
+03. Only Time (4:08)
+04. La Donna (Playback with Jingles) (4:46)(   Читать дальше...   )Жанр: Italo-Disco, DanceПродолжительность: 00:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91BB36A08ADC84D391BCFE8C91936FD4BFE0850
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453040   (1027220) от 09.03.2021
+
+Aleph - Black Out (1988) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Brother (Extended Mix) (6:39)
+02. Fly to Me (D.J. Version) (7:15)
+03. Check It Up (Re-Edit) (6:54)
+04. Just for Love (12'' Version) (6:12)(   Читать дальше...   )Жанр: Italo-Disco, EurobeatПродолжительность: 02:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B403654C0953B9FA00588E3DC1CD1E5B73B72B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453041   (1027228) от 09.03.2021
+
+Aleph - Little Wonder (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire on the Moon (Under the Moon Version) (5:30)
+02. I'm on Fire (Grand Mix Extended Version) (4:45)
+03. Must Be Love (3:50)
+04. Fly to Me (5:28)(   Читать дальше...   )Жанр: Italo-Disco, EurobeatПродолжительность: 01:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492A85AC1BD4D312049A0C9AD435AC565961660C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452948   (1027388) от 08.03.2021
 
 Disco Loveland Orchestra - Koto Around The World. ABBA Investigation (1979) LP [MP3|320 Kbps] <Disco, Funk Soul, Pop, Instrumental>
@@ -533,166 +695,6 @@ VA - Italo Made In Spain 4 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1B42741A4A931A8A57BC9D6FDDA0E005343BE0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623872   (1029099) от 03.04.2023
-
-DJ Ryloff (Remixed Ru) - Трава у дома (2023) [WavPack|Lossless|image + .cue] <Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 DJ Нил & Гелена - Звездное лето (Refuse Breaks Vocal Remix Intro)
-02 Земляне feat. Дима Билан - Трава у дома (Dj Martinr Remix)
-03 Zivert - Я. Т. Л. (DJ Zhuk Remix)
-04 Лолита & Коста Лакоста - По-другому (Roman Max & Nicky One Extended Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064894DBCE2BAD61750633AE6DD9BD262DB367E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450128   (1029189) от 25.02.2021
-
-Bonnie Tyler - The Best Is yet to Come (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best Is Yet To Come
-02. Dreams Are Not Enough
-03. Hungry Hearts
-04. Stuck To My Guns(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54488F3BC4A9C61F5BEF63A96F907BBEFAB41CFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450279   (1029194) от 25.02.2021
-
-Modern Boots - Garden of Love (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maybe Tonight (5:29)
-02. Angel's Heart (6:33)
-03. Give Me Your Heart Again (5:08)
-04. I Couldn't Love You (5:46)(   Читать дальше...   )Жанр: Italo-Disco, EurobeatПродолжительность: 01:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC341DCF6BBDA4A567B119D57EADB986B6294FC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 161466   (1029209) от 02.04.2023
-
-МакSим - Дискография  (2006-2009) [FLAC|Lossless] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Певица МакSим родилась 10 июня 1984 года в городе Казани.По словам МакSим, все в ее жизни происходило само собой. Сначала было обучение в вокальном кружке города Казани. Параллельно МакSим занималась в спортивном кружке карате дзю-тзютсу. 6 лет стараний и красный пояс в кармане.
-Даже в старших классах МакSим не отличалась прилежным поведением. Но прогулы и опоздания (   Читать дальше...   )Жанр: Pop, Dance, Disco.Продолжительность: 4:09:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26D8169623D717E56F5EA76EAF57D7A4657C34FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450121   (1029334) от 24.02.2021
-
-Bonnie Tyler - The Best Is yet to Come (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best Is Yet To Come
-02. Dreams Are Not Enough
-03. Hungry Hearts
-04. Stuck To My Guns(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:862F4AC879CB311502879E04B64907E3EAA364E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450074   (1029381) от 24.02.2021
-
-Q - Q (1982) LP [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain (6:19)
-02. Disco Damage (4:18)
-03. I Am On Fire (3:43)
-04. Never Felt This Way Before (4:22)(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-pop, DiscoПродолжительность: 00:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:524ECFA332969F28844545078CB76812AEA7FA40
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1394827   (759972) от 07.07.2020
+
+VA - Eclipse - A Journey Of Permanence & Impermanence (1998) Twisted Records [FLAC|Lossless|tracks+.cue] <Psychill, Dub, Tribal, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shpongle - ...And The Day Turned To Night (20:30)
+ 02. Walter Ego - Dubstuff (06:27)
+ 03. Anubis - Invocation (08:19)
+ 04. Subkha - Equinox (06:55)(   Читать дальше...   )Жанр: Psychill, Dub, Tribal, Downtempo, AmbientПродолжительность: 01:18:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8138D8E3CFB140F1E813B1B2185E1B87BDA86447
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215249   (760097) от 25.03.2018
+
+VA - Playa De Oro (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Rostej  -  Hidden Path (Original Mix)  4:27
+02.  Alex Lead  -  Witchcraft (Original Mix)  4:49
+03.  Seven24  -  Snow (Original Mix)  3:40
+04.  Soty  -  Butterflies (Original Mix)  4:17(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E232EA3068B2DABC02E21E4773B62D05BE9F9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394900   (760394) от 07.07.2020
+
+VA - Sagittarius Dreams (Compiled by Prometheya) (2020) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Psychill>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moai System - Winter Tale (06:10)
+ 02. Blue Lunar Monkey - The Music Of The Future (07:01)
+ 03. Sundial Aeon - Mirage Of Travelling Light (Unusual Cosmic Process Remix) (07:45)
+ 04. Jedidiah - Hiumikho (06:45)(   Читать дальше...   )Жанр: Psybient, Downtempo, PsychillПродолжительность: 01:20:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9E1C41550AD56A81ADCF54EC1FF70EFE60C924
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092106   (760432) от 03.02.2019
+
+Auditory Canvas - Discography 11 Releases (2007-2014) Summer Rain Recordings [FLAC|Lossless|WEB|tracks] <IDM, Breakbeat, Downtempo, Glitch, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forgive (04:20)
+ 02. Entwine (06:25)
+ 03. Tides (04:11)
+ 04. Resolution (04:15)(   Читать дальше...   )Тип издания: WEB (16/24Bit)Жанр: IDM, Breakbeat, Downtempo, Glitch, Ambient •Продолжительность: 00:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3660F8C51ACD68A6BB6A7060C3A5527F653B6906
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280394   (760434) от 03.02.2019
+
+Ladytron - Ladytron (2019) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Until the Fire (05:35)
+02. The Island (04:04)
+03. Tower of Glass (03:59)
+04. Far from Home (03:35)(   Читать дальше...   )Жанр: Electropop, SynthpopПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56C56FF2122A13E479F5D3356640182D58E3AC23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394887   (760515) от 07.07.2020
 
 VA - Workout Body Man Extreme (2020) [MP3|320 Kbps] <House, Dance>
@@ -560,141 +695,6 @@ Johan Tronestam - Luther (2017) [FLAC|Lossless|WEB-DL|tracks] <Berlin-School, Sp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:108B2C11D80B8E30314263848A4BA64C13D319C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280298   (762123) от 02.02.2019
-
-VA - Deep House Hits (Armada) (2019) [MP3|320 Kbps] <House, Deep House, Vocal House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Frequencies feat. The NGHBRS - Like I Love You (Remy Cooper Remix) 2:55
-02. Thomas Gold feat. Graham Candy - Real Love 2:55
-03. Felon - Pictures 3:11
-04. Sultan + Shepard & Andreas Moss - Where Are You 2:46(   Читать дальше...   )Жанр: House, Deep House, Vocal House, ProgressiveПродолжительность: 02:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7803B7AC925BAD17ACAE97505C3F086C5782D736
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209730   (762128) от 02.02.2019
-
-Nordlight - A Deep Dive (2009) Spintwist Records [FLAC|Lossless|tracks+.cue] <Downtempo, Psychill, Dub, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vibrasphere - Tierra Azul (Nordlight Remix) (07:13)
- 02. Silk And Roses (07:38)
- 03. Feel Yourself (06:44)
- 04. A Deep Dive (07:08)(   Читать дальше...   )Жанр: Downtempo, Psychill, Dub, AmbientПродолжительность: 01:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CACA075214EB371E58022E99B569E06227FD969C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394623   (762202) от 06.07.2020
-
-VA - 50 Top Hits Remixed Vol.1 (2020) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voonix - Gonna Make You Sweat (Everybody Dance Now) (Dance Party Radio Mix) 3:37
-02. Midiflip - Days Go By (Kosca Radio Mix) 3:24
-03. DJ Xris2 - Dancing Queen (Sebastian Spencer Radio Mix) 3:04
-04. Mike 'Thunder' Pennino - Insomnia (Radio Mix) 2:43(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D28DBA5AD86BE8A534E08E01485FB51B07AA02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280291   (762222) от 02.02.2019
-
-VA - Winter 2019: Best Of Inception (2019) [MP3|320 Kbps] <Progressive House, Deep House, Trance, Indie Dance, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5udo - Halcyon (Original Mix)
-02. Adnane Touzani - As You Wish (Original Mix)
-03. Moonwatch3r - Rainy Summer Days (Original Mix)
-04. Sunziv - Existence (Original Mix)(   Читать дальше...   )Жанр: Progressive House, Deep House, Trance, Indie Dance, Nu DiscoПродолжительность: 03:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD35BB8F7B85657C8EF4B8084DE0027BAF286B64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017235   (762641) от 16.05.2016
-
-Waveshaper - Station Nova (2016) [MP3|320 кб/с] <Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endless Journey (02:32)
-02. Future Vision (03:14)
-03. The Engineer Part II (03:26)
-04. Vector Dream (04:57)(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 00:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E29DDD006EF53D033C4E165FFA2A369F85F8E86
 ```
 
 

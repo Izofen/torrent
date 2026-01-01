@@ -1,3 +1,36 @@
+###  Публикация: 639350   (893183) от 04.04.2013
+
+VA - Absolute Music 72 (2013) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893183.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01.Robin Stjernberg - You 03:02
+02.Passenger - Let Her Go 04:10
+03.Zara Larsson - Uncover 03:32
+04.Rihanna - Diamonds 03:43
+05.Kim Cesarion - Undressed 03:40
+06.Bruno Mars - Locked Out of Heaven 03:52
+07.Yohio - Heartbreak Hotel 03:04
+08.The Lumineers - Ho Hey 02:41
+09.Imagine Dragons - Radioactive 03:06(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5F34B01B6B3D9FA9C6714CD019BBA3EF177495
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370930   (893290) от 29.03.2020
 
 Karunesh - 100% Karunesh (2020) [MP3|320 Kbps] <Enigmatic, New age, Ethnic>
@@ -668,33 +701,6 @@ VA - Best New DnB Hype (2021) [MP3|320 Kbps] <D&B, Bassline, Electro Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:835C803523E8BABE5AE8CDC1F07C438BFB8CE9B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993717   (894126) от 06.03.2016
-
-Spring Party - Hits For Your Car N3 (2016) [MP3| 191-320 кб/с] <Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jerome Feat. Ace Young - Dont Walk Away (Radio Edit)
-02. Matteo Marini - Rush (Original Mix)
-03. Futuristic Polar Bears - Jetlag
-04. Deep Divas & Rehnoir - Phaze (Original Mix)(   Читать дальше...   )Жанр: DanceПродолжительность: 09:21:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB88CE725F88A437FACC987831A00B45409069D8
 ```
 
 

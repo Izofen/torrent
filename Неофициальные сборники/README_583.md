@@ -1,3 +1,30 @@
+###  Публикация: 1104174   (879503) от 15.02.2017
+
+VA - Музыка для вашего Авто (2017) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879503.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Charlie Puth feat. Selena Gomez - We Don't Talk Anymore (Manuel Alvarez Bootleg) 4:46
+002. Rockstroh feat. Tonberg - Weil Ich Das Leben Mag (Club Radio Mix) 2:53
+003. Sam Feldt  Deepend feat. Teemu - Runaways (Jay Hardway Remix Edit) 3:00
+004. Maroon 5 Ft. Kendrick Lamar - Don't Wanna Know (Dark Intensity Remix) 4:28(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 06:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8132414EA5121E877ED445D8701B8B2B220537B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996744   (879517) от 14.03.2016
 
 VA - Massive House Future Running (2016) [MP3|255-320 кб/с] <Bigroom, Club, Progressive, Tropical>
@@ -668,33 +695,6 @@ VA - Зайцев нет. Лучшие новинки марта (2016) [MP3|160
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A6E55360538C5C2B6278B24BAC98BB3B8742B6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495295   (880716) от 12.09.2021
-
-VA - Beatport Techno: Sound Pack #345 (2021) [MP3|320 Kbps] <Techno, Tech House, Minimal, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880716.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Di Saronnojohnick - Instant Coffee
-002. Rondon - Lost In Da Pond Rd
-003. Pvlsx - Drvmvlator
-004. Sir Vee The Great - A Feeling(   Читать дальше...   )Жанр: Techno, Tech House, Minimal, ElectroПродолжительность: 11:23:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3D080E318CF390C124C3F5FC349EFA3A5AB35C6
 ```
 
 

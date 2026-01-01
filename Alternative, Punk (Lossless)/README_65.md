@@ -1,3 +1,90 @@
+###  Публикация: 1371318   (890189) от 31.03.2020
+
+The No Ones - The Great Lost No Ones Album (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_890189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – No One Falls Alone
+02 – Going Back To Stockholm Syndrome
+03 – Clementine
+04 – Straight Into The Bridge(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D94B768293619ABBCC74B89C4FA0014957A1B294
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 762420   (890397) от 03.03.2014
+
+Daughtry - Baptized (2013) Deluxe Edition [FLAC|Lossless]<Alternative Rock, Pop-rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Baptized (3:12)
+02. Waiting For Superman (4:27)
+03. Battleships (3:52)
+04. I'll Fight (3:01)
+05. Wild Heart (3:51)
+06. Long Live Rock & Roll (3:36)
+07. The World We Knew (3:36)
+08. High Above The Ground (3:11)
+09. Broken Arrows (4:09)
+10. Witness (4:11)(   Читать дальше...   )Жанр: Alternative Rock, Pop-rockПродолжительность: 00:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93D20FF0F6BB1CF3F4AA1032A2B0F56A70B20B57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102151   (890565) от 09.02.2017
+
+Nickelback - The Best Of Nickelback (Volume 1) (2013) Compilation [FLAC|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Photograph (4:20)
+ 02. How You Remind Me (3:44)
+ 03. Burn It to the Ground (3:31)
+ 04. Rockstar (4:16)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:13:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A460733F140F2AE117408444B66E9A8CACF71A5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 622458   (890942) от 07.03.2016
 
 Adept - 4 Альбома (2009-2016) [FLAC|Lossless|tracks+.cue]<Post-Hardcore>
@@ -629,87 +716,6 @@ Grouplove - Healer (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:672671B47EE390B599808AA0256434ED66208A4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369626   (902031) от 24.03.2020
-
-Stephen Malkmus - Traditional Techniques (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ACC Kirtan (06:19)
-02. Xian Man (04:06)
-03. The Greatest Own In Legal History (03:47)
-04. Cash Up (04:06)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91D056E4B1493C3B42AECD57EA97506899ADC611
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369640   (902129) от 24.03.2020
-
-DISQ - Collector (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daily Routine (04:24)
-02. Konichiwa Internet (03:11)
-03. I’m Really Trying (02:37)
-04. D19 (03:06)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEEBC00EB0698665AF115C177E8C3B196599F419
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099677   (903582) от 02.02.2017
-
-Penelope Houston - Cut You (1996) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Sign 4:12
-02. Sweetheart 4:20
-03. Scratch 2:43
-04. Locket 3:37(   Читать дальше...   )Жанр: Rock, Alternative Rock, Folk RockПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E355B2054E6C95C3E593786802B248B0E7940E
 ```
 
 

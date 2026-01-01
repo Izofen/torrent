@@ -1,3 +1,69 @@
+###  Публикация: 608220   (992487) от 26.01.2013
+
+VA - 100 Шедевров класики 1 (2013) [MP3|256 кб/с]<Классическая музыка>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Верди - Триумфальный марш (Аида)
+02. Бизе - Сюита (Кармен)
+03. Штраус - Вальс ''Голубой Дунай''
+04. Россини - Увертюра к опере ''Севильский цирюльник''
+05. Чайковский - Концерт N1 для фортепиано с оркестром, часть 1
+06. Шопен - Вальс N2 си-минор (2 вальса, опус 69)
+07. Свиридов - Романс (Метель)
+08. Гендель - Анданте (Сюита ''Музыка воды'' HWV 348)
+09. Чайковский - Танец пастушков (Щелкунчик)
+10. Бетховен - Лунная соната (Соната для фортепиано N14)(   Читать дальше...   )Жанр: Классическая музыкаПродолжительность: 04:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D77542262C560589D71FD0FB491673A276C538
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609305   (992548) от 26.01.2013
+
+Ludovico Einaudi - In a Time Lapse (2013) [MP3|320 кб/с]<Neoclassical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992548.jpg" />
+</div>
+
+
+###  Подробнее
+
+(2:05) 01. Corale
+(5:31) 02. Time Lapse
+(4:22) 03. Life
+(3:27) 04. Walk
+(4:25) 05. Discovery At Night
+(5:32) 06. Run
+(4:51) 07. Brother
+(2:57) 08. Orbits
+(6:25) 09. Two Trees
+(7:52) 10. Newton's Cradle(   Читать дальше...   )Жанр: NeoclassicalПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9657D61294D66813D4331E5049ECCDAE73F8AEFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608810   (992780) от 26.01.2013
 
 Antonio Lucio Vivaldi - 6 cello concertos: The Academy of Ancient Music Christopher Hogwood (1742)/1989, Decca [WavPack (iso.wv)|Lossless]<Chamber>
@@ -720,58 +786,6 @@ Escala - Escala (2009) [FLAC|Lossless]<Instrumental, Classical, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:754768245CD38A970F6776FCB955E1FE58E195E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 90559   (1007060) от 11.07.2021
-
-Maria CALLAS - Callas - The Complete Studio Recordings (1949-1969) [APE|271-649 Kbit/s]<Classics>
-
->>Классика
->>Вокал
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все студийные записи, выполненные EMI с 1949 по 1969 гг.
-BEETHOVEN, BELLINI, BIZET, CHERUBINI, DONIZETTI, LEONCAVALLO, MASCAGNI, MOZART, PONCHIELLI, PUCCINI, ROSSINI, VERDI, WAGNER, WEBERЖанр: ClassicsПродолжительность: 65:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0647E38090F1F306C76A11A75F54BDC293B0D884
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481851   (1008004) от 05.07.2021
-
-Handel - Te Deum de Dettingen (Jean-Francois Paillard) (1989) [FLAC|Lossless|image + .cue] <Baroque>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008004.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 We Praise Thee, O God
-2 All The Earth Does Worship Thee
-3 To Thee All Angels Cry Aloud
-4 To Thee Cherubin And Seraphin Continually Do Cry(   Читать дальше...   )Жанр: BaroqueПродолжительность: 00:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F1CFE705DF8068740E7F8CB33E7F48F0D722115
 ```
 
 

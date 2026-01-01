@@ -1,3 +1,30 @@
+###  Публикация: 1226805   (653483) от 22.05.2018
+
+VA - Дискотека 2018 Dance Club Vol.179 от NNNB (2018) [MP3|320 Kbps] <Club, Deep House, Synth Pop, Dance и другие>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1
+01. DJ Vartan & DJ Shevtsov - Side By Side (3:29)
+02. Soroush Yarahmadi - Big Elephant (Original Mix) (3:54)
+03. ItaloBrothers - Looking Back Someday (3:28)(   Читать дальше...   )Жанр: Club, Deep House, Synth Pop, Dance и другиеПродолжительность: 18:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92033BEEE7A22E5E61C9006BCD98426FD159D3AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140847   (653751) от 08.06.2017
 
 VA - My Favorite Blues: Soul Collection (2017) [MP3|320 Kbps] <Blues, Rock Blues>
@@ -687,39 +714,6 @@ VA - Music Live (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DBFB630F52015E3461A4DAF2D04207871DC4895
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516122   (654734) от 27.06.2012
-
-VA - Союз Клубный. Выпуск 8 (2012) [MP3|256 kbps]<Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654734.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Горячий шоколад - Стены (Andry Makarov Club remix)
-002 Каролина - Летний дискобар (Версия 2012)
-003 Бурановские Бабушки - Party for Everybody (DJ Slon remix )
-004 Алина Гросу - Взрослая
-005 KSELA feat. DJ ALIX - Наше Лето (Summer Hit)
-006 Dj Tarantino & Katrin Moro - Я Буду Помнить (original mix)
-007 Artik & Asti - Облака (DFM mix)
-008 Dan Balan - Не любя
-009 AD Men's - Жара (extended mix)
-010 DJ Andrey Keyton feat. JWELL - Лететь (DJ Vitalik Vitamin remix)(   Читать дальше...   )Жанр: ClubПродолжительность: 07:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B837E6F86D5FDF25ED5A178A242B53F55765D7
 ```
 
 

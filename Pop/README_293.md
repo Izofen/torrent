@@ -1,3 +1,165 @@
+###  Публикация: 1010725   (802160) от 25.04.2016
+
+VA - Eurovision Song Contest Stockholm 2016: Come Together (2016) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Folk Pop, Pop Rock, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eneda Tarifa - Fairytale (Albania) - 3:01
+02. Iveta Mukuchyan - LoveWave (Armenia) - 2:58
+03. Zoë - Loin d'ici (Austria) - 3:01
+04. Dami Im - Sound Of Silence (Australia) - 3:05(   Читать дальше...   )Жанр: Pop, Eurodance, Folk Pop, Pop Rock, Chanson, Ballad, Swing, VocalПродолжительность: 02:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D0DAF73F8CAE49A5AA50988FE01A27C5CFEE56C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010738   (802161) от 25.04.2016
+
+Roxette - It Just Happens (2016) Single [FLAC|Lossless|WEB-DL|track] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Just Happens (03:46)Жанр: Pop RockПродолжительность: 00:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5E3996E369F52F850CB22881B9A22CF917FAA89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 650228   (802279) от 28.10.2021
+
+Непара - Дискография (3 альбома) (2003-2009) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непара - это дуэт, состоящий из композитора и певца Александра Шоуа и красавицы с магнетическими глазами по имени Вика.
+Первая песня группы - «Другая причина» - завоевала аудиторию почти мгновенно.
+Казалось, раньше практически никто не пел о взаимоотношениях людей, которые хотели бы, да не могут в силу разнообразных социальных причин,
+как-то: другая семья, дети, (   Читать дальше...   )01. Домой
+02. Неверная луна
+03. Режиссер моей судьбы
+04. Вокзал на двоих(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC15E992789006E987331B186A914707DFF47223
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384400   (802515) от 20.05.2020
+
+Анжелика Варум - Лучшие песни (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop, Euro House>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сумасшедшая (4:30)
+ 02. Нарисуй любовь (4:35)
+ 03. Зимняя вишня (Новая версия) (5:20)
+ 04. Если ты когда-нибудь меня простишь (4:08)(   Читать дальше...   )Жанр: Pop, Euro HouseПродолжительность: 02:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39D8FD052EDC875035F6D93362073DA16E6BB1BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010741   (802544) от 25.04.2016
+
+Lena Anderssen - Eagle In The Sky (2015) [FLAC|Lossless|tracks] <Pop, Alternative, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Home Sweet Home    03:14
+02. Eagle In The Sky    04:49
+03. Sorry That I Made You Cry    04:05
+04. Oh Brother With The Broken Wing    04:43(   Читать дальше...   )Жанр: Pop, Alternative, FolkПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03410EE691B1B0B95CA58C937C83FA5790FCF606
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199146   (802598) от 14.01.2018
+
+Asha Puthli - 8 Studio Albums (1973-2009) Exclusive [MP3|320 Kbps] <Electronic, Funk-Soul, Disco, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Asha Puthli - певица, продюсер и актриса родилась и выросла в Бомбее, Индия. Получила контракты и признание в Европе и за океаном. Ее записи, которые охватывают стили, такие как: блюз, поп, рок, соул, фанк, диско, и техно были произведены Del Newman  (продюсировал Элтона Джон и Кэт Стивенс) и Тео Macero (который выпустил Майлза Дэвиса и Вернона Рида). Исполнение на (   Читать дальше...   )Список альбомов:
+1973 - Asha Puthli
+1975 - She Loves To Hear The Music
+1976 - The Devil Is Loose(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Disco, Pop RockПродолжительность: 05:22:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16298B8C0E9FE19DDBAC585B6B81DE7BC7344FB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199073   (802807) от 14.01.2018
 
 Алекс Сильванни - Электроорган (1978) LP [MP3|320 Kbps] <Electronic, Pop, Disco, Easy Listening>
@@ -535,168 +697,6 @@ Cerrone - The Classics (Best of Instrumentals) (2021) [FLAC 2.0|44,1/24|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4881F2D1C3C9C5ACCA6A178B173FBDB0B0759D57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384071   (806159) от 18.05.2020
-
-Lara Fabian - Papillon(S) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papillon
-02. Je Suis A Toi
-03. Changer Le Jeu
-04. Par Amour(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF53B2CEDBE90ADDE89D98E5DF648BF245332A3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383946   (806163) от 18.05.2020
-
-Николай Носков - Блажь (1998) [FLAC|Lossless|image + .cue] <Pop, Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я тебя люблю
-02. Я не модный
-03. Дай мне шанс
-04. Сердца крик(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7373F3030373B227E51DAB6D9EFBD625C6F29D9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384094   (806173) от 18.05.2020
-
-VA - Ballads (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foreigner - I Want to Know What Love Is (2013 Remaster)
-02. Spandau Ballet - True (Single Edit)
-03. Dua Lipa - Homesick
-04. Paolo Nutini - Last Request(   Читать дальше...   )Жанр: PopПродолжительность: 03:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F3B217E70A0D39507BA521761328369255A5853
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198631   (806191) от 12.01.2018
-
-Camila Cabello - Camila (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Be The Same (03:46)
-02. All These Years (02:44)
-03. She Loves Control (02:57)
-04. Havana (Feat. Young Thug) (03:37)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E19F0B88897691657E7D67D3939C5DBF9F047FB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198564   (806279) от 12.01.2018
-
-VA - 101 Party Hits (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806279.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Scissor Sisters  -  I Don't Feel Like Dancin'  4:10
-02.  Abba  -  Dancing Queen  3:49
-03.  Blondie  -  Heart Of Glass  4:12(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA5746D429F4913E6D58CED0206AA6FF8A73B10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198646   (806281) от 12.01.2018
-
-Мика Ньютон - Теплая река (2006) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро I
-02. Теплая река
-03. Цунами
-04. Пожарные(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AA56A914272E762EAE52BB4C62768F0C1C00C26
 ```
 
 

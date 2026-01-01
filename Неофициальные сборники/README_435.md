@@ -1,3 +1,30 @@
+###  Публикация: 1027949   (694844) от 20.06.2016
+
+VA - Extra Trance: Bonus [07] (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ayla - Ayla (Omar Sherif 2016 Remix) (6:49)
+02. Solis & Sean Truby - Flashlight (Original Mix) (5:37)
+03. Alex Ender - KSU (Extended Mix) (6:05)
+04. Masters & Nickson feat. Justine Suissa - Out There (Robert Nickson 2016 Extended Remix) (7:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE5DB7488C0FB37893AD3742AA6BB865A46C2C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027951   (694934) от 20.06.2016
 
 VA - Lobby Bar Lounge Vol.4: 20 Midnight Lounge Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -666,33 +693,6 @@ VA - Planet Pop Vol. 04 (2016) [MP3|256-320 кб/с] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CE1984F6DD675257762EF9EE33ACAEEBDE90C1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221253   (696641) от 23.04.2018
-
-VA - Popular Romantic Ballads (2018) [MP3|320 Kbps] <Pop, Rock, Ballads>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный сборник лучших лирических зарубежных баллад из коллекции онлайн радио под названием "Popular Romantic Ballads". Создаст романтическое, приятное настроение. Зажигайте свечи, включайте музыку и наслаждайтесь!001. Gary Barlow - Don't Need A Reason
-002. Michael Buble featuring Chris Botti - Song For You
-003. Whitney Houston - Nobody Loves Me Like You Do
-004. Alice Cooper - How You Gonna See Me Now(   Читать дальше...   )Жанр: Pop, Rock, BalladsПродолжительность: 06:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DEB654FCB72CA687FE6F3F6D3B874A4018D9042
 ```
 
 

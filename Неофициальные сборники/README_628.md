@@ -1,3 +1,30 @@
+###  Публикация: 1090229   (947660) от 06.01.2017
+
+VA - Selected DJ Tracks Impact (2017) [MP3|320 Kbps] <Future House, Funky, Bigroom, Bassline, Jackin, Drum n Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dirty Disco ft Jeanie Tracy - Fabulous (E Thunder & Rob Phillips Fab Mix) 6:08
+02.  Maroon 5 ft Kendrick Lamar - Dont Wanna Know (Mark Anthony vs San Holo Next Episode Bootleg) 3:29
+03.  Evgeny Lebedev - Behind You (Original Mix) 6:08
+04.  Dash Berlin & DBSTF Ft. Jake Reese & Waka Flocka & DJ Whoo Kid - Gold (Club Mix) 2:26(   Читать дальше...   )Жанр: Future House, Funky, Bigroom, Bassline, Jackin, Drum n BassПродолжительность: 07:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93EB1E4984530CBD184F0811CB912330E2647337
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090235   (947692) от 06.01.2017
 
 VA - Progressive Logic House Hits (2016) [MP3|320 Kbps] <House, Progressive, Tribal, Future House, Funky, Electro>
@@ -668,33 +695,6 @@ VA - Новогодняя Дискотека 80-х от Авторадио – 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91E9744D0D90FFF5CC751962C0900FABD2305DDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982025   (950120) от 02.02.2016
-
-Freak Lounge Crazy Lounge and Downbeat Soundz (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thermodynamics - A Strange Planet (Drunken Loops Cut)
-02. Sofa Sweeper - Broken Romance (Beachtrip Mix)
-03. Noise Boyz - Green Eyes (Spacejazz Mix)
-04. Sky Sergeant - Virtual Nonstop Flight (2050 Mix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590051AD440AEA30D908F940D90EB20EC0335DD8
 ```
 
 

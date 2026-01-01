@@ -1,3 +1,192 @@
+###  Публикация: 1360048   (961885) от 14.02.2020
+
+Bear McCreary - Остров фантазий  / Blumhouse's Fantasy Island (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961885.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:38| 01. You Are One of My Guests
+|03:46| 02. Arrival
+|02:26| 03. Regret is a Disease
+|05:47| 04. Your Fantasy Begins Now(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E52BB748314627E9E9259BEE841BDD7B1121803
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359990   (961886) от 14.02.2020
+
+Nathaniel Rateliff - And It’s Still Alright (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk, Indie, Singer-Songwriter>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What A Drag (03:34)
+02. And It's Still Alright (03:55)
+03. All Or Nothing (05:01)
+04. Expecting To Lose (03:54)(   Читать дальше...   )Жанр: Folk, Indie, Singer-SongwriterПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D3219F64F072A793B45AC5851BCA649E9CC80D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360238   (961887) от 14.02.2020
+
+Steve Jablonsky - Bloodshot / Бладшот (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961887.jpg" />
+</div>
+
+
+###  Подробнее
+
+|06:41| 01. Mombasa Mission
+|02:36| 02. Martin Axe
+|02:02| 03. Wake Up
+|02:37| 04. Second Chance(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C0918D3102684527877FAE0559CB626A2BAF27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360043   (961889) от 14.02.2020
+
+Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающая история Харли Квинн (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961889.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:54| 01. Flying High (Birds of Prey)
+|01:32| 02. The Fantabulous Emancipation Explosion
+|03:06| 03. Harley Quinn (Danger Danger)
+|02:16| 04. Birds of Prey(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F40433441F3009E5E9644611739FCDECD7A0A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360049   (961894) от 14.02.2020
+
+Bear McCreary - Остров фантазий  / Blumhouse's Fantasy Island (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961894.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:38| 01. You Are One of My Guests
+|03:46| 02. Arrival
+|02:26| 03. Regret is a Disease
+|05:47| 04. Your Fantasy Begins Now(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C53FF2EE6154993427041E8134605A58E85AD7B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360044   (961895) от 14.02.2020
+
+Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающая история Харли Квинн (Original Motion Picture Score) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961895.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:54| 01. Flying High (Birds of Prey)
+|01:32| 02. The Fantabulous Emancipation Explosion
+|03:06| 03. Harley Quinn (Danger Danger)
+|02:16| 04. Birds of Prey(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3114BB1060CA750666B7FD58ADD43FB0364DAB0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360239   (961921) от 14.02.2020
+
+Steve Jablonsky - Bloodshot / Бладшот (Original Motion Picture Score) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961921.jpg" />
+</div>
+
+
+###  Подробнее
+
+|06:41| 01. Mombasa Mission
+|02:36| 02. Martin Axe
+|02:02| 03. Wake Up
+|02:37| 04. Second Chance(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BFB9A3CBF914AAA24A8713EA855C14A116B0EE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 747149   (961979) от 19.01.2014
 
 The Dali CD - DALI Audio Test CD (2006) [FLAC|Lossless]<Audiofile, Test>
@@ -503,195 +692,6 @@ Jim Brickman - Believe (2014) [MP3|320 кб/с] <New Age, Solo Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3540745F64BD706D78D64BE4359632F535D8B008
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359361   (964992) от 11.02.2020
-
-Грязный Эндрю - Матерные частушки (2019) [MP3|320 Kbps] <Частушки>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964992.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Матерные частушки, часть1
-2. Матерные частушки, часть2
-3. Матерные частушки, часть3
-4. Матерные частушки, часть4(   Читать дальше...   )Жанр: ЧастушкиПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB78E5DF6025CE9068DF8650E16D7228B365E36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977738   (965539) от 21.01.2016
-
-Henry Jackman - The 5th Wave / 5-я Волна  (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (02:00)
-02. Tsunami (02:37)
-03. Aftermath (02:41)
-04. Wright Patterson (01:16)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E1B2DD5BC0045A0CF3EA849B6516CF96FF663E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977539   (965684) от 21.01.2016
-
-VA - Country Hitmix (2000) Mix [FLAC|Lossless|image + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mix 1 - 4:59
-1.1	United Cowboys - Let's Go Nashville
-1.2	Gordon Lange & Kactus - Lone Star State Of Mine
-1.3	Willie Nelson - On The Road Again(   Читать дальше...   )Жанр: CountryПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8607AF4701B92BECEA5104DC238F00A16DFD376A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358717   (965962) от 10.02.2020
-
-VA - Death Stranding (Songs from the Video Game) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965962.jpg" />
-</div>
-
-
-###  Подробнее
-
-|06:13| 01. Low Roar - Don't Be So Serious
-|02:50| 02. Low Roar - Bones
-|04:48| 03. Low Roar - Easy Way Out
-|02:03| 04. Low Roar - Poznan(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:224D1D552E878545B66483111EF879C3CE0FC07A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358947   (966086) от 10.02.2020
-
-VA - 100 Greatest Country The Best Hits from Nashville And Beyond (2020) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966086.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dolly Parton - To Know Him Is to Love Him
-002. Zac Brown Band - Chicken Fried
-003. Willie Nelson - Whiskey River
-004. Blake Shelton - God Gave Me You(   Читать дальше...   )Жанр: CountryПродолжительность: 05:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D63264EAA50E44AD7360D81C4E6E888856BAEF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 620138   (966182) от 17.02.2013
-
-V.A. - We Are The World - USA For Africa (1985) [FLAC (tracks+cue)|Lossless]<Pop, Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. USA For Africa - We Are The World
-02. Steve Perry - If Only For The Moment Girl
-03. The Pointer Sisters - Just A Little Closer
-04. Bruce Springsteen &The E-Street Band - Trapped(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358539   (966195) от 10.02.2020
-
-Jim Brickman - Romance (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are So Beautiful
-02. Right Here Waiting
-03. On The Wings Of Love
-04. The Rose(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FF5ABC8852F1027E7DED07E2B39F6BFBA14CA06
 ```
 
 

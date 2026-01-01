@@ -1,3 +1,192 @@
+###  Публикация: 1018707   (752174) от 22.05.2016
+
+Dixie Chicks - Wide Open Spaces (1998) [MP3|320 кб/с] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dixie Chicks — женское кантри-трио, которое было создано в Далласе, штат Техас, в 1989 году. Участницы группы: Эмили Робисон, Марти Магуайр и Натали Мэнс.01. I Can Love You Better (3:54)
+02. Wide Open Spaces (3:44)
+03. Loving Arms (3:38)
+04. There's Your Trouble (3:13)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F4988722EE86214691DDDCF65FA0897D52212D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018781   (752253) от 22.05.2016
+
+Rosanna Cash - King's Record Shop (1987) [MP3|320 кб/с] <Folk, Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rosie Strike Back (3:33)
+02. The Way We Make a Broken Heart (3:55)
+03. If You Change Your Mind (3:21)
+04. The Real Me (4:26)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7149055528DB274757BB7F9B1B983FB21E786FAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018812   (752259) от 22.05.2016
+
+Kory Caudill - Tree of Life (2015) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beginnings    06:26
+02. Around the World    05:32
+03. Walz of Life    04:37
+04. Time    05:28(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF79874C8CF5CD57F74DCED9F0E6F2E491F029F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395054   (753170) от 11.07.2020
+
+Александр Жихарев (А.И.Жихарев) - Поющие с бронзой (2012) [FLAC|Lossless|tracks + .cue] <Bells, Folk, Ethnic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прогулка (4:46)
+02. Река (7:59)
+03. Соло (6:06)
+04. Фантазия (4:12)(   Читать дальше...   )Жанр: Bells, Folk, EthnicПродолжительность: 01:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8FDB43FDC6C3D88173F01E02DC2423C071EE9A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281043   (753251) от 07.02.2019
+
+Tom Holkenborg (Junkie XL) - Alita: Battle Angel (2019) Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discovery (03:14)
+02. I Don’t Even Know Y Own Name (05:44)
+03. What’s Your Dream? (03:17)
+04. Double Identity (01:54)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C4D15BE6545D09D92BF56B68B68162DEFFC2AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216015   (754590) от 28.03.2018
+
+Baraka - Zarathushtra Mantras (2017) [FLAC|Lossless|WEB-DL|tracks] <Ethno folk, Lounge, Jazz>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashem Vohu
+02. Aem Moi Idâ / Ye Vâxshayâns
+03. Jasa Me Avange Mazdao
+04. Humata(   Читать дальше...   )Жанр: Ethno folk, Lounge, JazzПродолжительность: 01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575824AD045301F2E7D6F3F9AA8D3BB47B062B66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 182244   (754923) от 10.07.2020
+
+Ennio Morricone - The Best Of 50 Years Of Music (2010) [FLAC|Lossless|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ecstasy Of Gold (From The Good The Bad The Ugly) (3:39)
+02. Once Upon A Time In The West (2:57)
+03. Here's To You (From Sacco E Vanzetti) (3:57)
+04. The Master And Margherita (4:58)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7651EF9B044F701476E98B8249115B3CCD7EBE76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 322114   (754925) от 10.07.2020
 
 Ennio Morricone - The Very Best Of (1995) [APE|Lossless|image + .cue] <Instrumental>
@@ -506,195 +695,6 @@ Friska Viljor - Broken (2019) [MP3|320 Kbps] <Indie>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:782B209501200CED3D7ED6F834EC8EA24B88B43C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280475   (760530) от 03.02.2019
-
-Jann Beaudry - Legere (2019) [MP3|320 Kbps] <Ethnic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isi a
-02. Paris perdu
-03. Ce matin
-04. Le second soir(   Читать дальше...   )Жанр: EthnicПродолжительность: 00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D6DBAFC3DCB581B65034651DFB2356C6868AE8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016972   (760784) от 17.05.2016
-
-Jennifer Nettles - Playing with fire (2016) [MP3|320 кб/с] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй сольный альбом исполнителя.01. Playing With Fire (3:03)
-02. Unlove You (3:56)
-03. Hey Heartbreak (3:35)
-04. Drunk In Heels (3:22)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6B63C2606D6FDDC93F64F528AA2616BE88BCFF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017719   (761110) от 17.05.2016
-
-Isis & Cobra - The Goddess Spiral Meditations (2013) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return of the Goddess
-02. Golden Spiral
-03. The Central Sun
-04. Return of the Goddess - Music(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7DFFDE371F8174930AF4679E844603FDE47DC1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214930   (761465) от 24.03.2018
-
-Snatam Kaur - Beloved (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amul - Priceless (07:04)
-02. Gopaal (08:04)
-03. Water of Your Love (04:58)
-04. Har Uplift (08:32)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:11:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E960577997C0C489E246A02191BD2D7CD87C4D2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280247   (761997) от 02.02.2019
-
-Paul Mauriat - Diamond Collections (1996) Unofficial Release [FLAC|Lossless|image + .cue] <Pop, Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Un Home Et Femme
-02. Melodie
-03. Moulins De Mon Coeur
-04. Love Story(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 01:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DEE6AC6697B3585E45E20229FAA37AC4E5275FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280320   (762003) от 02.02.2019
-
-Edward Simoni - Zauber der Panfloete (2012) [MP3|320 Kbps] <Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Condor Pasa
-02. Ave Maria
-03. Amazing Grace
-04. Don't Cry for Me Argentina(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:569753CF4030056F82269635BCE3572E94C957DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017084   (762832) от 16.05.2016
-
-Соня Тимофеева - Цыганские народные песни (1970) LP [MP3|256 кб/с] <Цыганская песня >
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кай ёнэ
-02. Настенька
-03. Нанэ мандэ родо
-04. Гэя Куля(   Читать дальше...   )Жанр: Цыганская песняПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED21EC2460E31BD1FFFC13FF20CE40046720497
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 993731   (893820) от 06.03.2016
+
+Netrebko, Quasthoff, Terfel, Garanca, Pape. - The Mozart Album (2006) [FLAC|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Le nozze di Figaro, K. 492: 'Giunse alfin il momento' - 'Deh vieni non tardar' (3:32)
+02.  Le nozze di Figaro, K. 492: 'Hai gia vinta la causa' - 'Vedro mentr'io sospiro' (4:53)
+03.  La clemenza di Tito, K. 621: 'Parto, ma tu ben mio' (6:42)
+04.  Don Giovanni, ossia Il dissoluto punito, K. 527: 'Madamina, il catalogo e que... (5:59)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3FF29EECCE2FCD7D5825515A6A45A3E76770DA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993984   (893858) от 06.03.2016
+
+Magdalena Kozena & Mahler Chamber Orchestra with Marc Minkowski - French Arias (2003) [APE|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Auber - Le Domino noir: 'Ah! quelle nuit! ... Flamme vengeresse' (6:37)
+02.  Gonoud - Cinq-Mars: 'Nuit resplendissante' (5:34)
+03.  Gonoud - Romeo et Juliette: 'Que fais-tu, blanche tourterelle' (3:52)
+04.  Massenet - Cleopatre: 'J'ai verse le poison' (4:09)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:954455564C93BFF20BBFD8D55D6307AFBAB2DC53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994055   (893904) от 06.03.2016
 
 Tessarini Consort: Joza Caras (conductor), Lisa Rautenberg (violin), Jaroslaw Lis - Carlo Tessarini LA STRAVAGANZA (2004) [FLAC|Lossless|tracks + .cue] <Classical, Baroque>
@@ -645,58 +699,6 @@ Amira Willighagen - Merry Christmas (2015) [MP3|192 кб/с] <Classical, Opera>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C82A4C749C918622B805B1CCD016B0A4DF36F24B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992522   (900571) от 02.03.2016
-
-Прокофьев, Hindemith - Quintet, Overture on Hebrew Themes; Octet (Berlin Soloists, Bashkirova) (2002) [MP3|320 кб/с] <Классическая музыка, Modern, Chamber>
-
->>Классика
->>Концерты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прокофьев - Overture on Hebrew Themes in C minor, op. 34
-01
-Hindemith - Octet
-02 (1) Breit. Massig schnell(   Читать дальше...   )Жанр: Классическая музыка, Modern, ChamberПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35372CC174C6208F1EA4F13847DE107157A64C4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992297   (900587) от 02.03.2016
-
-Я. Хейфец - К. Сен-Санс - Интродукция И Рондо-Каприччиозо / П. Сарасате  - Цыганские Напевы (1960) [FLAC|96/24|Lossless|tracks|Vinyl-Rip] <Classical, Violin>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. К. Сен Санс - Интродукция и рондо-каприччиозо, соч. 28
-02. П. Сарасате - Цыганские напевы, соч. 20Жанр: Classical, violinПродолжительность: 00:16:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89FEF0E2D1559A7B873D5216DF1491AC3318DC4D
 ```
 
 

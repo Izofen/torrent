@@ -1,3 +1,165 @@
+###  Публикация: 1448787   (1030454) от 19.02.2021
+
+Soprano Турецкого - 10 (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030454.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Турецкое рондо
+2. Habanera
+3. Ау
+4. Бублики(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524E25943D48F03FD0DA2F5CA79E01A82CFC912A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448868   (1030476) от 19.02.2021
+
+NK (Настя Каменских) - Eclectica (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Elefante
+02 - A Huevo
+03 - Yea Or Nay
+04 - Película(   Читать дальше...   )Жанр: Pop, Latin Pop, DanceПродолжительность: 00:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17BC318B39FD1BCF0F8BD7ACA314C95FA5B8850
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448586   (1030694) от 18.02.2021
+
+Стас Костюшкин - Лакшери (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030694.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лакшери
+2. Гитара
+3. Ха-ха
+4. Васёк(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A190D4A4421495534BFD6B54C5B8FAAAF8BDEAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621900   (1030763) от 26.03.2023
+
+VA - Mystera VI (2000) [OGG Vorbis|480 Kbps] <Electronic, Classical, Ambient>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen - Who Wants To Live Forever
+02. Enigma - Return To Innocence
+03. Rosenstolz - Amo Vitam
+04. Loreena Mckennitt - The Mummers' Dance(   Читать дальше...   )Жанр: Electronic, Classical, AmbientПродолжительность: 01:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76310787E0051E155EF1537D674F96B5A01C599
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448464   (1030884) от 17.02.2021
+
+VA - VIVA Hit Collection Vol.5 (2000) (2000) [FLAC|Lossless|image + .cue] <Dance-pop, Europop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Five / We Will Rock You [0:02:58.69]
+02. Savage Garden / Affirmation [0:04:58.64]
+03. Christina Aguilera / I turn To you [0:04:37.44]
+04. Backstreet Boys / The one [0:03:50.74](   Читать дальше...   )Жанр: Dance-pop, EuropopПродолжительность: 01:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54BE6D5CF080B1B40E352C88E4FF37774102667B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448467   (1030930) от 17.02.2021
+
+Tindersticks - Distractions (2021) [FLAC|Lossless|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man Alone (Can't Stop the Fadin') (11:07)
+02. I Imagine You (05:36)
+03. A Man Needs a Maid (04:42)
+04. Lady with the Braid (06:59)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28FB19D37FC134F90436BB4A07230A449870691A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448368   (1030934) от 17.02.2021
 
 Helene Segara - Romance (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, French pop>
@@ -533,168 +695,6 @@ Boney M. - Rasputin - Big And Strong: The Greatest Hits of Boney M. (2021) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14A9FE11F5BFD769B12B864FB65D7B44AD99DAD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447196   (1032047) от 12.02.2021
-
-Sia - Music (Songs From And Inspired By The Motion Picture) (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032047.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Together
-2. Hey Boy
-3. Saved My Life
-4. Floating Through Space(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D67ABB8F03657664C740035798FE4BDBDD4C95FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447199   (1032072) от 12.02.2021
-
-Dalida - Saint Valentin (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, French Music>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032072.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pour te dire je t'aimefer (04:20)
-2. Le temps d'aimer (04:14)
-3. Ti Amo (03:30)
-4. Parle-Moi D'Amour Mon Amour (03:14)(   Читать дальше...   )Жанр: Pop, French MusicПродолжительность: 00:21:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB38F08C64608DDC3105EC02683F016D00702845
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447172   (1032081) от 12.02.2021
-
-The Goombay Dance Band - Mega-Hit-Mix (1998) [FLAC|Lossless|image + .cue] <Europop, Euro-Disco, Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medley 1 (23:31)
-1.	Sun Of Jamaica
-2.	Island Of Dreams
-3.	My Bonnie(   Читать дальше...   )Жанр: Europop, Euro-Disco, MedleyПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2343479E4F4F32E13E64BF73C8A45383FEE5C191
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447168   (1032086) от 12.02.2021
-
-VA - Disney's Exclusive Rock & Pop Collection - Golden Sixties (1998) [FLAC|Lossless|image + .cue] <Pop Rock, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beach Boys - Good Vibrations (3:38)
-02. The Flower Pot Men - Let's Go To San Francisco (3:38)
-03. The Yardbirds - For Your Love (2:30)
-04. The Mamas & The Papas - California Dreamin' (2:39)(   Читать дальше...   )Жанр: Pop Rock, OldiesПродолжительность: 01:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B56E71DC29329F61E060C6910929439B1D9DA36A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447006   (1032096) от 12.02.2021
-
-VA - Women's Day 2021 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spice Girls - Wannabe (02:53)
-02. Diana Ross - Upside Down (04:03)
-03. Miley Cyrus - Party In The U.S.A. (03:22)
-04. Demi Lovato - Sorry Not Sorry (03:23)(   Читать дальше...   )Жанр: PopПродолжительность: 02:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7881F632B9B77BC7B1D40BC7FC97877187FDC237
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620561   (1032110) от 20.03.2023
-
-VA - NOW That's What I Call Music! 113 (2022) 2 CD [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lewis Capaldi - Forget Me
-02. Sam Smith & Kim Petras - Unholy
-03. OneRepublic - I Ain't Worried
-04. Stormzy - Hide & Seek(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 02:33:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEF87B54C040F1B443F4DE27CAC8A48DAB202277
 ```
 
 

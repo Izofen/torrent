@@ -1,3 +1,30 @@
+###  Публикация: 1349945   (1003764) от 04.01.2020
+
+VA - Portal Transform: Psy Trance Music (2020) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003764.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dominant Space - Indigo
+002. Agent Kritsek - Transforming
+003. Eric Electric - Dance Remake Unscratched
+004. Ekahal - No Rest For The Wicked(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 11:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43D17187039E6B50E5FD455455149A5D160026D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350018   (1003798) от 04.01.2020
 
 VA - German Top 100 Single Charts 03.01.2020 [MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - Beatport Electro House: Sound Pack #320 (2021) [MP3|320 Kbps] <House, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A0C2871ACBA4B8A02D0A49788C1CE4FDDE52484
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486526   (1004596) от 01.08.2021
-
-VA - Beatport Drum And Bass: Sound Pack #324 (2021) [MP3|320 Kbps] <D&B, Bassline, Electro Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004596.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gьzi & Dreadnaught - All Units
-002. Funktion- Zwei - Time Complex
-003. Eschaton, Foci's Left - Latitudes
-004. Kela - On Head(   Читать дальше...   )Жанр: D&B, Bassline, Electro BassПродолжительность: 08:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:266356C1AB132ED2C367E30B48725EDA41DA7587
 ```
 
 

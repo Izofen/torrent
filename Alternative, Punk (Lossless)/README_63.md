@@ -1,3 +1,96 @@
+###  Публикация: 1498202   (857929) от 26.09.2021
+
+We Butter The Bread With Butter - Das Album (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Das Album Intro [00:01:03]
+02. Dreh auf! [00:03:02]
+03. 20 km/h [00:03:11]
+04. N!CE [00:03:06](   Читать дальше...   )Жанр: Metalcore, ElectronicПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22DAFE4682CEE05E21730B791C5E5E65F4061EFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 646940   (858219) от 22.04.2013
+
+Nico Vega - Nico Vega (2009) [FLAC|Lossless]<Alternative, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Burn Burn 2:30
+2. Million Years 2:42
+3. So So Fresh 3:09
+4. Living Underground 4:21
+5. Wooden Dolls 4:15
+6. Gravity 2:42
+7. Be Giving 3:43
+8. Iron Man 4:08
+9. Family Train 3:33
+10. Blood Machine 2:30(   Читать дальше...   )Жанр: Alternative Rock, IndieПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 304673   (858249) от 06.03.2011
+
+The Pretenders - The Pretenders II (1981) [FLAC|Lossless]<New Wave>
+
+>>След.
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. The Adultress (4:01)
+02. Bad Boys Get Spanked (4:09)
+03. Message Of Love (3:29)
+04. I Go To Sleep (3:00)
+05. Birds Of Paradise (4:20)
+06. Talk Of The Town (2:48)
+07. Pack It Up (3:54)
+08. Waste Not Want Not (3:50)
+09. Day After Day (3:49)
+10. Jealous Dogs (5:45)(   Читать дальше...   )Жанр: New WaveПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 768880   (858721) от 21.03.2014
 
 Shaka Ponk - The White Pixel Ape (Smoking Isolate to Keep in Shape) (2014) [FLAC|Lossless]<Rock, Alternative Rock, Electro-Rock, Pop Punk, Fusion>
@@ -678,99 +771,6 @@ Tommy Lee - TommyLand: The Ride (2005) [FLAC|Lossless|image + .cue] <Alternative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFA8F16AD81842EC06A25CDE91BE2D728B0BB0D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105987   (874997) от 18.02.2017
-
-Electric Guest - Plural (2017) [FLAC|Lossless|tracks + .cue] <Indie, Rock, Synthpop, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zero (3:49)
-02. Glorious Warrior (4:03)
-03. Back & Forth (4:23)
-04. Dear To Me (4:01)(   Читать дальше...   )Жанр: Indie, Rock, Synthpop, ElectronicПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D3BD8389B9F2434AD70E29121FB525C2FECA4AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 642629   (877734) от 12.04.2013
-
-Capture The Crown - 'Til Death (2012) [FLAC|Lossless]<Post-Hardcore | Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-<<<
-------------------------------------------------------------------------
-01. The Arrival
-02. #OIMATEWTF (Feat. Denis Shaforostov)
-03. Fork Tongued
-04. Ladies & Gentlemen… I Give You Hell
-05. LAX
-06. You Call That A Knife? This Is A Knife!
-07. Storm In A Tea Cuo
-08. Help Me To Help You(   Читать дальше...   )Тип издания: АльбомЖанр: Post-Hardcore | ElectronicПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765004   (878308) от 10.03.2014
-
-Anneke van Giersbergen & Danny Cavanagh - In Parallel (2009) [FLAC|Lossless]<Alternative, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Teardrop (5:01)
-02. You Learn About It (3:54)
-03. Temporary Peace (4:26)
-04. Yalin (3:17)
-05. Songbird (3:24)
-06. Big Love (3:08)
-07. The Blower's Daughter (4:36)
-08. One Last Goodbye (5:48)
-09. Are You There? (4:29)
-10. Day After Yesterday (3:56)(   Читать дальше...   )Жанр: Alternative, AcousticПродолжительность: 01:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:112CA0772BEE2D9673843B3D0AB5F0F3076CD6F9
 ```
 
 

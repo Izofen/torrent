@@ -1,3 +1,63 @@
+###  Публикация: 997612   (873894) от 17.03.2016
+
+Two Of Us - Inside Out (1988) [APE|Lossless|image + .cue] <Synth-Pop, Sophist-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Inner Voices
+02. I ll Be Around
+03. Building An Empire
+04. We Got A Break It Out(   Читать дальше...   )Жанр: Synth-Pop, Sophist-PopПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:053B5304FA80BA517FBC327CD100DE8CCB365593
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 300699   (874251) от 25.02.2011
+
+ABBA - Gold - Complete Edition (2008) /Universal Music, Japan/ [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Night City (3:37)
+02. Angeleyes (4:23)
+03. The Day Before You Came (5:51)
+04. Eagle (4:25)
+05. I Do, I Do, I Do, I Do, I Do (3:17)
+06. So Long (3:11)
+07. Honey, Honey (2:58)
+08. The Visitors (5:47)
+09. Our Last Summer (4:21)
+10. On And On And On (3:45)(   Читать дальше...   )Жанр: PopФормат: 2 × CD, Compilation, Remastered, SHM-CDПродолжительность: 02:38:03
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374307   (874581) от 09.04.2020
 
 Jive Bunny And The Mastermixers - ...The Best!! (1994) [FLAC|Lossless|image + .cue] <Rock & Roll, Big Band>
@@ -657,66 +717,6 @@ Modern Talking - The 1st Album (1985) [FLAC|Lossless]<EuroDisco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE2B99AC81E7C3492D0C9014C02E3F1187B49D29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871258   (881216) от 21.02.2015
-
-VA - Pure... Party (2012)  Box Set, 4CD[FLAC|Lossless]<Pop, Dance, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Думаю, что самое время перед предстоящими праздниками устроить маленькое музыкальное Party. Правда оно уж и не такое маленькое. А главное очень даже заводное. P!nk, Ke$ha, Shakira, Lou Bega - от всех этих имен может снести башню. Так что в эти праздничные дни смело врубайте этот бокссет и наслаждайтесь.CD1:
-01. P!nk - Get the Party Started   (3:14)
-02. Ke$ha - TiK ToK  (3:22)
-03. Shakira - She Wolf  (3:10)(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 04:20:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7F20192BCBA585BA14CC7BC206B7C44B27752AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 186346   (881646) от 25.03.2010
-
-Sarah Brightman - Sarah Brightman (2CD) (2009) [FLAC|Lossless]<Рop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. I Will Be With You (With Paul Stanley) [04:30]
-02. What You Never Know [03:25]
-03. Whiter Shade Of Pale [03:39]
-04. Free [03:46]
-05. It's A Beautiful Day [03:58]
-06. Dust In The Wind [03:43]
-07. Scarborough Fair [04:10]
-08. The Second Element [04:42]
-09. Who Wants To Live Forever [03:56]
-10. En Aranjuez Con Tu Amor [03:51](   Читать дальше...   )Жанр: РopПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 

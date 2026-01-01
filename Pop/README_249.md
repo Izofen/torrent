@@ -1,3 +1,165 @@
+###  Публикация: 1027716   (694446) от 20.06.2016
+
+Вячеслав Малежик - Серия «De luxe Collection» (1997) [FLAC|Lossless|image + .cue] <авторская песня-Поп>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Мозаика  "
+02. "Недавно и давно  "
+03. "Липонька  "
+04. "Двести лет  "(   Читать дальше...   )Жанр: авторская песня-ПопПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:382F95AF1AA3DAC5ECC5BCEE799F29D5E78C7635
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027838   (694695) от 20.06.2016
+
+Оксана Білозір - Україночка (1993) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Україночка  (04:41)
+02.  Батьківська пісня (ремікс)  (03:33)
+03.  Я не вірю тобі  (03:10)
+04.  Кленова балада  (04:57)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC3224EB68BB5FBF18CD728194E6D91D324BCB36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027574   (694842) от 20.06.2016
+
+Carrie Rodriguez & The Sacred Hearts - Lola (2016) [MP3|320 кб/с] <Pop, Folk, World>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Perfidia    02:59
+02.  Llano Estacado    03:39
+03.  I Dreamed I Was Lola Beltran    05:23
+04.  La Ultima Vez    04:28(   Читать дальше...   )Жанр: Pop, Folk, WorldПродолжительность: 00:48:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7343608023CB861CFE89BB765F537B49433B860
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133534   (694964) от 12.05.2017
+
+Анжелика Варум - Женщина шла (2016) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Женщина шла
+02. Моя любовь
+03. Голос
+04. Одиночество(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B3246D209B7BE120DD3D0AD9348C5579B24620
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221412   (695102) от 24.04.2018
+
+Who's Who - Who's Who (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Palace, Palace (5:37)
+02. Hypnodance (4:46)
+03. Popeden (4:26)
+04. Roll Jacky Roll (4:42)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:29:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE88E1833A094628E9B7BFA534CB6DDC4E6DDD85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221385   (695110) от 24.04.2018
+
+Overdrive - Electric Overdrive (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugar My Overdrive (5:47)
+02. Glitter (6:11)
+03. Magic Moon (4:46)
+04. Constantinople (4:08)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31BD3F7257EA60B4F4CCF104C3B33E040E1162AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133524   (695129) от 12.05.2017
 
 Sirena - The Dancer (1979) LP [MP3|320 Kbps] <Electronic, Disco>
@@ -531,167 +693,6 @@ Bobby Farrell - The Best of Boney M. (2001) CD [MP3|320 Kbps] <Electronic, Europ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE192E1D0C527249C3DD86E4BA25F49E6E1D8CF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221049   (698602) от 22.04.2018
-
-VA - Italo Disco New Revival Volume 1-10 (2015) [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Synth-Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birizdo I Am - I Love Italo Disco (Extended Version) (6:49)
-02. D. White - All the Story Is History (Extended Version) (7:09)
-03. Romantic Avenue - Disease (feat. Heaven42)Жанр: Italo-Disco, Euro-Disco, Synth-PopПродолжительность: 12:21:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F2A503206C49F93E25B37CFCD3C7DDF554D7B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221000   (698608) от 22.04.2018
-
-Babe - 3 Studio Albums (1980-1983) LP [MP3|320 Kbps] <Electronic, Europop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известное Голландское поп-трио, сформированное  Peter Koelewijn в составе из Monique Hagemeijer, Rita van Rooij и Marga Bult. Первоначальные участники: Gemma van Eck, Monique Hagemeijer и Rita van Rooij. В 1982 году Gemma van Eck покинула группу и была заменена на  Marga Bult.Список альбомов:
-1980 - Babe!
-1981 - Blitzers
-1983 - Shop Around(   Читать дальше...   )Жанр: Electronic, Europop, DiscoПродолжительность: 02:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04AF4C8DF7244542E95ADC98A59E58E5DE6C3419
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221017   (698713) от 22.04.2018
-
-VA - Disco Revival (2018) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discotron - De La Disco (Original Mix) (4:47)
-02. Audio Jacker - Until The Break Of Dawn (Original Mix) (6:41)
-03. Serial Thrilla - Get Up (Original Mix) (6:39)
-04. Weekend Players - Rock The Disco (Original Mix) (7:33)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:13:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32D6A8763074DFD9E6212129F51766C8599FBBB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132759   (698795) от 10.05.2017
-
-Sylvie Vartan - Confidanses (1989) [FLAC|Lossless|tracks + .cue] <Pop , Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C'est Fatal 3:31
-YouTube: Q6SUwv4RmmM
-(Michael Cretu / D.Barbelivien)
-02. Ca va de soi 3:32(   Читать дальше...   )Жанр: Pop , ChansonПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B770936FE8026180B70BED09EC1316C436DBBB7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220982   (698802) от 22.04.2018
-
-Danielle Bradbery (Даниэль Брэдбери) - Danielle Bradbery (2013) Republic Nashville, Deluxe Edition [MP3|320 Kbps] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даниэль Брэдбери - американская кантри-певица, ставшая победительницей четвертого сезона шоу «Голос» и успевшая порадовать слушателей одноименным дебютным альбомом «Danielle Bradbery» в ноябре 2013 года, перепела один из главных хитов Адель, «Set Fire to the Rain» (2011). Дебютным синглом юной исполнительницы после победы в «Голосе» стала композиция «The Heart Of (   Читать дальше...   )01. Young In America 3:43
-02. Wild Boy 3:41
-03. The Heart of Dixie 3:30
-04. I Will Never Forget You 3:47(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9AE201DF72B6BE8D6219745A43B47DC368C74F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220991   (698803) от 22.04.2018
-
-Danielle Bradbery (Даниэль Брэдбери) - The Voice: The Complete Season 4 Collection (2013) Universal Motown Records Group [MP3|256 Kbps] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даниэль Брэдбери - американская кантри-певица, ставшая победительницей четвертого сезона шоу «Голос» и успевшая порадовать слушателей одноименным дебютным альбомом «Danielle Bradbery» в ноябре 2013 года, перепела один из главных хитов Адель, «Set Fire to the Rain» (2011). Дебютным синглом юной исполнительницы после победы в «Голосе» стала композиция «The Heart Of (   Читать дальше...   )01. Mean 3:31
-02. Put Your Records On 3:37
-03. Jesus, Take the Wheel 3:25
-04. Maybe It Was Memphis 3:23(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C772AEF3D6FB51DD0CADCDFF604FA45A363E88F9
 ```
 
 

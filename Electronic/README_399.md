@@ -1,3 +1,138 @@
+###  Публикация: 1205204   (783543) от 10.02.2018
+
+VA - House Goes 80's Vol. 3 (2009) [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Rilod - Thriller (6:20)
+02.Prime Time - Right Round (Ippytraxx Radio Edit) (3:03)
+03.Jay Jay - Let The Music Play (Belmond & Parker Radio Mix) (3:49)
+04.Alan Master T. - People Hold On (Radio Edit) (3:14)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48D30C09DD3CD223F038760F3663380C35AB27F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205517   (783545) от 10.02.2018
+
+VA - Deep House Architects Vol.8 (2018) [MP3|320 Kbps] <Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alexander Koning  -  Uncertainty Principle (Original Mix)  6:18
+02.  Curly Project  -  Ventriloquism (Original Mix)  8:05
+03.  Sacke  -  In Asteptare (Original Mix)  6:26
+04.  Koyser  -  Sun & Moon (Original Mix)  6:14(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13913D7235C823FA0FFAB060A93FBC14F4DA28B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205263   (783546) от 10.02.2018
+
+VA - Tech Trance Essentials Vol.11 (2018) [MP3|320 Kbps] <Trance, Tech Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sulaco  -  Requiem Of Souls (5thDimension Remix)  8:48
+02.  Thomas Kelly  -  Wasted Talent (Original Mix)  5:55
+03.  S5 & ReDrive  -  This Love (Original Mix)  7:22
+04.  Josef Linecker  -  Back (Original Mix)  5:29(   Читать дальше...   )Жанр: Trance, Tech Trance, Uplifting TranceПродолжительность: 02:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E68116322FF2ED8BA8A5F8B0008A95E8B541D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205261   (783547) от 10.02.2018
+
+VA - The Sound Of Trance Vol.08 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cold Stone  -  Skyline (Extended Mix)  6:10
+02.  Lee Coulson  -  Lomachenko (Original Mix)  6:34
+03.  Venetica  -  Force Majeure (Original Mix)  3:37
+04.  Paul Pollux  -  Lights Of Abell (Original Mix)  6:54(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:34:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:619B000DAC769E36512CEFD05A011804328465FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205508   (783549) от 10.02.2018
+
+VA - Beats For Life Vol.1 (20 Big Room Monsters) (2018) [MP3|320 Kbps] <House, Big Room, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Justin Point  -  Weekend Players (Original Mix)  5:32
+02.  Mark Bale & Bobby Rock feat. Roger Horton  -  The Bass (Ferdinands Feld Festival Anthem 2017)  4:03
+03.  Reevo & Point BLVNK  -  Timemachine (Original Mix)  6:16
+04.  The Guru Project & OneZeroOne  -  Ding A Ling (Original Mix)  4:08(   Читать дальше...   )Жанр: House, Big Room, ProgressiveПродолжительность: 01:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F655C0AB8A9FF348DC4275B265754D37504AED98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205056   (783551) от 10.02.2018
 
 VA - Le Son Dancefloor (2009) [FLAC|Lossless|tracks] <House, Electro, Europop>
@@ -560,141 +695,6 @@ VA - Dudes Of House (30 Groovy House Tunes) Vol.1 (2018) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A71A5E08B04D0B55FAF975AD33B24A2999A597A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205282   (783809) от 09.02.2018
-
-VA - We Love House - Winter Edition (2018) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Solardo  -  On The Corner (Original Mix)  7:10
-02.  Mike Mago & Tiggi Hawke  -  Dangerous Behaviour (Extended VIP Mix)  4:18
-03.  CASSIMM & Sam Divine  -  What God Has Chosen (Original Mix)  6:02
-04.  Robosonic & Ferreck Dawn  -  Nine To Phife (Original Mix)  5:14(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 04:10:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222DEFFC5F4BD6603FED7C88C68B37537C3E9D9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205327   (783811) от 09.02.2018
-
-VA - Balearic House Classics Vol.2 (25 All Time House Anthems) (2018) [MP3|320 Kbps] <House, Classic House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Erick Morillo & Eddie Thoneick feat. Shawnee Taylor  -  Live Your Life (Eddie Thoneick Dub)  6:25
-02.  Jerry Ropero & Denis The Menace feat. Jaqueline  -  Coracao (Denis & Jerry's New Bangin Mix)  7:00
-03.  Francesco Diaz & Karl Frierson  -  Say A Little Prayer (Raul Rincon Peaktime Mix)  7:58
-04.  Jonathan Ulysses & Pryce Oliver feat. Futuristic Polar (   Читать дальше...   )Жанр: House, Classic House, DanceПродолжительность: 02:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F83576C9341CA73F44A60EB9AE54003B39FE788
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205374   (783812) от 09.02.2018
-
-VA - Traumfanger Vol.1 Sophisticated Electronica (2018) [MP3|320 Kbps] <Deep House, Downtempo>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Luca Guerrieri  -  Faithful (Original Mix)  6:06
-02.  Boss Axis  -  The Sun (Original Mix)  7:25
-03.  Dave Wincent  -  Family Affairs (Original Mix)  6:18
-04.  Ultravizion  -  Luode (Original Mix)  7:58(   Читать дальше...   )Жанр: Deep House, DowntempoПродолжительность: 02:29:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68C208E6D3B182F27EABF342319AED920D64750
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389514   (783905) от 12.06.2020
-
-VA - Training Hits: Workout Music (2020) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death Team - Kids
-02. Jacob Banks - Move with You
-03. Sam And The Womp - Bom Bom (Radio Edit)
-04. Anitta - Totalmente demais (feat. Flávio Renegado)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CFAF32607411C96DB6D3B894871BD02C023F366
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389701   (783936) от 12.06.2020
-
-VA - CRL Studios Presents: Homeostasis (2020) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Downtempo, IDM, Techno, Glitch, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleepless Droids – Dust (04:08)
-02. :10: – Open Your Eyes (03:53)
-03. Barcoder – Howl For Me (04:25)
-04. HELIOS ヘリオス – Implant (04:44)(   Читать дальше...   )Жанр: Industrial, Downtempo, IDM, Techno, Glitch, ExperimentalПродолжительность: 01:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F43545609C1120F3EA972AAEC19F043FBBB3B3
 ```
 
 

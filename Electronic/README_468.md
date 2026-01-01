@@ -1,3 +1,138 @@
+###  Публикация: 1368436   (911049) от 19.03.2020
+
+Etapp Kyle - Nolove (2020) Ostgut Ton [FLAC|Lossless|WEB-DL|tracks] <Techno, Leftfield>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nolove (04:08)
+ 02. Unseen (04:54)
+ 03. Polar (06:29)
+ 04. Eden (04:25)Жанр: Techno, LeftfieldПродолжительность: 00:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84B223CD5C4795A7637D4318B6B29AAC5271DF3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368337   (911079) от 19.03.2020
+
+VA - Only For DJs - Spring 2020 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Berte' & Daniel Tek feat. Monika Kiss - Better Of Alone (Extended Mix) 5:11
+02. JBGL - Dance Monkey (Extended Mix) 3:36
+03. Skelectro & Allenx feat. Norah B. & Itto - No Time (Spikaa Remix) 4:08
+04. MJX feat. Pat Cole - Free (Radio Mix) 3:32(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAFCC56E8222A748544217B0F4B5A36CD9A2555D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368235   (911087) от 19.03.2020
+
+Aevin - Discography 8 Releases (2014-2020) Raumklang Nusic [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Industrial, Experimental, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Contour Gate (06:53)
+ 02. Dionsoop (01:20)
+ 03. Ehomac (05:58)
+ 04. Freque (00:57)(   Читать дальше...   )Тип издания: WebЖанр: IDM/Experimental/Glitch/AmbientПродолжительность: 05:03:31 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC018A9779820194477DAC2F44F0AA751D916B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097855   (911496) от 28.01.2017
+
+Infected Mushroom - Return to the Sauce (2017) [FLAC|Lossless|WEB|tracks|image] <Psy-Trance, Electro House>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infected Mushroom - Flamingo (8:44)
+02. Infected Mushroom - Manipulator (6:33)
+03. Infected Mushroom - Return to the Sauce (7:46)
+04. Infected Mushroom - Groove Attack (6:48)(   Читать дальше...   )Жанр: Psy-Trance, Electro HouseПродолжительность: 01:59:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A78693352DEFC8315365E1E37CC0260C3725825
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374181   (911806) от 24.08.2021
+
+Hypnus Records - Label-Pack 47 Releases (2014-2021) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, Experimental>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BLNDR - Tomb (05:41)
+ 02. Feral - Radha (06:53)
+ 03. Skymn - Doctrine (08:20)
+ 04. BLNDR - Movement Strobe 3 (06:35)(   Читать дальше...   )Жанр: Techno, Ambient, Experimental •Продолжительность: 27:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:726933B30605F0BE499F2CD42464AF54C4362356
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988667   (911864) от 25.02.2016
 
 VA - Club Charts 2016.1 (2016) [MP3|256 кб/с] <House>
@@ -551,138 +686,6 @@ VA - V.I.P (Chillhouse Edition) (2016) [MP3|320 кб/с] <Deep House, Chill Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C50F40580CE805181FC65932384312E6391B9D45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990168   (913677) от 24.02.2016
-
-Modjo - Modjo (2001) Compilation, 2CD [FLAC|Lossless|tracks + .cue] <House, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady (Hear Me Tonight)Жанр: House, DiscoПродолжительность: 01:27:08 (00:48:27+00:38:41)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D6C38810C2E58B4DCDDA8FBCC67F870BA46799
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491122   (914055) от 23.08.2021
-
-MMYYLO - Venamy (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, Dark Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Venamy (6:28)
-02. Inurhead (6:07)
-03. Emergencies (6:43)
-04. Venamy (Tronik Youth Remix) (5:59)(   Читать дальше...   )Жанр: Techno, Electro, Dark DiscoПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3057932F8B29C4ABD6170333827930C0B273FA94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097650   (914066) от 27.01.2017
-
-VA - Cafe Deluxe Chill Out - Nu Jazz|Lounge Vol 3 (A Fine Selection Of 33 Smooth & Modern Bar Tracks) (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightbar Jazz - Blue Hour (Electric Guitar Mix) 03:27
-02. Velvet Dreamer - Blue Horizon (Feat. Tim Gelo) 04:47
-03. Jean Mare - Thinking About You (Lounge Mix) 04:51
-04. Soundset City - One Night With You (Cool Lounge Cut) 04:08(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C28FD88C806959D7AC0BA5DBF24183CC2B1B227E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367722   (914100) от 17.03.2020
-
-Tropical Bleyage - 4 You (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914100.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ether (8:43)
-2. 4 You (6:54)
-3. Tropical Bleyage; Starac - Nonlinear (9:03)
-4. Oceanica (7:35)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:17:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA93DB19D65B13999B02AB5B640F99FB7539736C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097480   (914379) от 27.01.2017
-
-VA - Cycles 8 (Mixed By Max Graham) (2017) [MP3|320 Kbps] <Progressive House, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diversion & Tania Zygar - On Your Mind (Intro Mix) (7:57)
-02. Christian Monique - Seven (Dimuth K Remix) (8:02)
-03. Max Graham - BCN (Radio Edit) (3:52)
-04. Conjure One - Serac (Eddie Murray Remix) (3:50)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 03:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5BA43D62B015E24CFBAEA69DDAF16311D2626B4
 ```
 
 

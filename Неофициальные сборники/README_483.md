@@ -1,3 +1,30 @@
+###  Публикация: 1522157   (760352) от 06.01.2022
+
+VA - Beatport Tech House: Sound Pack #390 (2021) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такая музыка не "пишется на коленке", чтобы получить приемлемый результат авторам этого направления электроники приходится приложить усилия своего творческого потенциала. Чего только стоит запись вокала, сведение и живой аккомпанемент, без кропотливой работы в студии не обойтись, что однозначно вызывает уважение001. Lilly Noise - The Bike Day
+002. Makloud - King
+003. Murley Rune - Dub Substation
+004. Lappo DJ - Afterhall(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 07:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:784D4A13EF909A35608652FBE7FF6021D79E309E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522077   (760354) от 06.01.2022
 
 Ysa Ferrer - Compilation (2019) [MP3|320 Kbps] <Pop, Pop-rock>
@@ -668,33 +695,6 @@ VA - Sky Радио: SKY Парад Top 20/Март (2018) [MP3|320 Kbps] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B049205458398665C1F694886FAD56BF50D9C150
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214944   (761663) от 24.03.2018
-
-VA - German Top 100 Single Charts 23.03.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761663.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marshmello Anne-Marie - FRIENDS
-002. Olexesh - Magisch (feat. Edin)
-003. Rudimental - These Days (feat. Jess Glynne Macklemore Dan Caplen)
-004. Drake - God's Plan(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:625CCA83D077BBAD8A838262D6E70422257856BC
 ```
 
 

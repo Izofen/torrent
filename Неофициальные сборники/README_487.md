@@ -1,3 +1,30 @@
+###  Публикация: 1279639   (764548) от 31.01.2019
+
+VA - Empire Records - Fake 4 (2019) [MP3|320 Kbps] <Trance, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eryon Stocker - High Speed (Radio Edit)
+02. Tranceye - Kinesis (Radio Cut)
+03. Dk Project - Blue Skies (Radio Cut)
+04. Estivia - Solena (Radio Edit)(   Читать дальше...   )Жанр: Trance, DanceПродолжительность: 02:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20829BCAA06E7149C3E27FB19097CF53F2ED1B0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126933   (764558) от 19.04.2017
 
 VA - Empire Records - Dancenudisco 15 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
@@ -665,33 +692,6 @@ VA - I Love Music! - Gothic Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Gothic M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA455D1583DFC31737EB75AFA46392C33FF99116
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279591   (765394) от 30.01.2019
-
-VA - Paints Of The Soul: Pure Deep House (2019) [MP3|320 Kbps] <Deep, Chill House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765394.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tchilla - Gentleman Drivers
-002. Tantsui - Beautiful Day
-003. Tevo Howard - Make It Right
-004. The 5Th Galaxy Orchestra - A Place Between Us(   Читать дальше...   )Жанр: Deep, Chill House, ElectroПродолжительность: 11:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:437652CFBF9A99895ED5AE5CBAAD14A4BA96D287
 ```
 
 

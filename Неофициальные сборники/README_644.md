@@ -1,3 +1,36 @@
+###  Публикация: 612840   (982501) от 04.02.2013
+
+VA - Лучшие танцевальные шлягеры 50х-60-х, [4 CD] (2003-2004) [MP3|320 kbps]<Retro, pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982501.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Peanuts - Vacation of love (2:42)
+2. Vico Torriani - Domino (2:47)
+3. The Coasters - Charlie Brown (2:25)
+4. Maunie Siren - Maia (2:36)
+5. Marino Marini - Guaglione (3:16)
+6. Los Panchos - Siboney (2:55)
+7. Ray Coniff Orchestra - Hello Dolly (2:50)
+8. Enrico Macias - Sans voir le jour (3:20)
+9. The Platters - Only You (2:34)
+10. Milva - Mamaluk (2:28)(   Читать дальше...   )Жанр: Retro, popПродолжительность: 00:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A389A6C90DFCDFAF293DBDABAC932592897917
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971860   (982901) от 05.01.2016
 
 VA - Итоговый Record Super Chart 2015 (27.12.2015) [MP3|128-320 кб/с] <Dance, Club House, Electro House, Drum & Bass, Trap>
@@ -680,33 +713,6 @@ VA - Top 100 Club Tracks (December 2015) (2015) [MP3|320 кб/с] <Dance, Club, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2D762DCA0147B67C0B9EDFB8173304A83C1C43B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971570   (985684) от 03.01.2016
-
-VA - DFM. Новогодний эфир (2015) [MP3|233-320 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985684.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren, W&W - If It Ain’t Dutch (Radio Edit)
-002. Lucas Nord, Urban Cone, John Dahlback - We Were Gods (Original Mix)
-003. Caminita Feat. Jan Peter - Tonite (Original Mix)
-004. Almyron - Tonight (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C386D432C87E24AD605DD3EFD059A19F75F488B7
 ```
 
 

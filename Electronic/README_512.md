@@ -1,3 +1,138 @@
+###  Публикация: 1454661   (1026133) от 16.03.2021
+
+Synth Elements - Fifth Element (2017) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out of the Maze (6:32)
+02. Visions (6:00)
+03. Blind Cosmos (6:26)
+04. Misterious Book (6:45)(   Читать дальше...   )Жанр: Spacesynth, Italo-DanceПродолжительность: 01:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A81862E18E2D7A006CA7AF6EA08C42674123FAAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454659   (1026137) от 16.03.2021
+
+Synth Elements - The Illusion of Time (Remixes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravity Zero (Extended Mix) (7:16)
+02. New Travel (Bonus Remix) (5:56)
+03. Love Bigger Than Space (Extended Mix) (7:18)
+04. Cosmological (Remix) (6:47)(   Читать дальше...   )Жанр: Spacesynth, Italo-DanceПродолжительность: 01:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3ED5093820F270376CC6F6A3E0A349A22F7B876
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454858   (1026140) от 16.03.2021
+
+VA - Table Of Elements Volume 5​.​0 (2021) M-Tronic [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nearfield - Beauty Of The Sea World (06:01)
+02. DEF - Astiiroid (05:40)
+03. Lith - Kaazar (04:28)
+04. C.H. District - Modular Live From Studio (Excerpt) (14:15)(   Читать дальше...   )Жанр: IDM, Industrial, AmbientПродолжительность: 02:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDBC490F084B835526EEB2D83C3B3B3335A05B30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454658   (1026141) от 16.03.2021
+
+Synth Elements - The Illusion of Time (2015) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravity Zero (6:44)
+02. Journey Between the Stars (6:26)
+03. X Force (6:39)
+04. Summer Holiday (6:31)(   Читать дальше...   )Жанр: Spacesynth, Italo-DanceПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41E4B1A950760860862154AABDBFFDC20A6A08A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454660   (1026142) от 16.03.2021
+
+Synth Elements - View from Outer Galaxy (2016) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Games (6:52)
+02. Giant Robots (7:21)
+03. Man Machine (5:50)
+04. We Are Generation of Space (5:55)(   Читать дальше...   )Жанр: Spacesynth, Italo-DanceПродолжительность: 01:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C266677AF3FA28B74C39A8C8A3E6A7DB8E697C54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454849   (1026151) от 16.03.2021
 
 Multiplex - Discography 10 Releases (1997-2006) Toytronic, U-Cover [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Leftfield, Abstract, Ambient>
@@ -557,141 +692,6 @@ Mark Vera - Singles (2020-2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Retro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BCAD34701D5343CBEC570CFF54020C4960452ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232828   (1027018) от 10.03.2021
-
-Nathan Fake - Discography 29 Releases (2003-2021) Border Community, Ninja Tune [FLAC|Lossless|tracks+.cue, tracks] <Techno, Leftfield, IDM, Ambient, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sanxenxo (07:26)
- 02. Kanyon (09:15)
- 03. Vanavond (09:15)
- 04. Memory Hole (02:03)(   Читать дальше...   )Тип издания: CD, WebЖанр: Leftfield/HouseПродолжительность: 12:12:25 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B95DBC0368ECCEB5398573820DB8A46BB4139CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371766   (1027176) от 09.03.2021
-
-Panama Fleets - Discography 9 Releases (2012-2021) Sparkwood Records [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Short Of A Miracle (01:35)
- 02. The Orange Track (03:44)
- 03. Bets IIIustrated (04:35)
- 04. Mint Models 400 (04:00)(   Читать дальше...   )Тип издания: WebЖанр: IDM, Downtempo, Ambient •Продолжительность: 03:21:55 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B7B36C4507AF5D9D8D60705F5CB06A1B4DCCF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453199   (1027247) от 09.03.2021
-
-VA - Oslated 5th Anniversary Compilation (2021) Oslated [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adhémar - Deep Blue Morning (07:07)
- 02. Javier Marimon & Oslon - T'alch'um 탈춤 (06:30)
- 03. Elle - Where Is Elle (06:25)
- 04. Bumho - Gong (05:59)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 01:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4C57829AA5D01B142C82E77083DB1751202BED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945472   (1027275) от 08.03.2021
-
-Tympanik Audio - Label-Pack 117 Releases (2007-2015) [FLAC|Lossless|CD, WEB|tracks+.cue, tracks]<IDM, Industrial, Experimental, Rhythmic Noise, Breakcore, Ambient>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hydref Part 1 (07:48)
- 02. Hydref Part 2 (04:59)
- 03. Hydref Part 3 (11:01)
- 04. Hydref Part 4 (06:55)(   Читать дальше...   )Жанр: IDM, Industrial, Experimental, Rhythmic Noise, Breakcore, Ambient •Продолжительность: 134:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DAC46E67FEAF9D6ECED44F8613869323FC31A29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452619   (1027553) от 07.03.2021
-
-VA - Kamasutra Tantra Music 2021 [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deepak Rajesh - Travel To Udaipur (05:27)
-02. Dj Shakti - Deepest Ocean (04:02)
-03. Maya Leah - In Search of Light (04:34)
-04. Jagdish Kay - Mystic River (06:31)(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 01:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F4CE56182C463440B6B5F8165D6B63DAEC9E66
 ```
 
 

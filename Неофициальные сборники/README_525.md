@@ -1,3 +1,30 @@
+###  Публикация: 1386040   (795907) от 27.05.2020
+
+VA - Romantic evening (2020) [MP3|320 Kbps] <Rock, Electro, Techno House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795907.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Weeknd - I Feel It Coming (4:29)
+2. Lana Del Rey - Lust For Life (4:24)
+3. Kevin Morby - No Halo (3:06)
+4. Dabeull - Love You so Much (3:37)(   Читать дальше...   )Жанр: Rock, Electro, Techno House, DanceПродолжительность: 06:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F428AA5D7F852CD319235A5BB9708647D05ECBCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385770   (795910) от 27.05.2020
 
 VA - The Road to Punk Rock (2020) [MP3|320 Kbps] <Rock, Rock & Roll, Other>
@@ -668,33 +695,6 @@ VA - Top 40 Hits Music April Work (2016) [MP3|320 кб/с] <Electro, Bigroom, Bo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B8993A78B987ACF83CFCF09DD34763E716DD2D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200481   (796425) от 20.01.2018
-
-VA - The Official UK Top 40 Singles Chart 19.01.2018 [MP3|320 Kbps] <Electropop, Alternative, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eminem - River (Feat. Ed Sheeran) 3:41
-02. Ramz - Barking 3:21
-03. Ed Sheeran - Perfect 4:23
-04. Clean Bandit - I Miss You (Feat. Julia Michaels) 3:26(   Читать дальше...   )Жанр: Electropop, Alternative, OtherПродолжительность: 02:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63B0DCE9FB960A70D5C8C6B9793529E78359478B
 ```
 
 

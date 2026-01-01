@@ -1,3 +1,138 @@
+###  Публикация: 1224024   (669871) от 07.05.2018
+
+VA - Markus Schulz  - Global DJ Broadcast (World Tour London) (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID
+02. Coyu & Bastian Bux - Desire Walk With Me
+03. Snow Ghosts - The Hunted (Arkham Knights Private Remix)
+04. &ME - Woods(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999ADAB199416D9E586133A0059C4B68B56A3AFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223999   (669879) от 07.05.2018
+
+VA - Dark Trance Vol. 4 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Graft - Manipura (Extended Mix)
+02. Attila Syah Pres. Gamma & Cari - Every Goodbye (Extended Mix)
+03. Tom Exo - Hyperspace (Extended Mix)
+04. Adip Kiyoi - Space Roadster (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:273333592F84B03784F03F488122280E06E224E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223850   (669889) от 07.05.2018
+
+VA - Ori Uplift & Phil Langham - Uplifting Only 272 (2018) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. illitheas - Levity (Intro Mix)
+02. Etasonic & Dany G - Flying in a Dream (RAM & Cari Remix)
+03. Fredge - Melusine
+04. Syntouch - Waiting For The Sunrise(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC23966A9B011EA047379D16F5BF177DD3C90B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224034   (669890) от 07.05.2018
+
+VA - Suanda Music Radio Top 15 (May) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer feat. Christina Novelli - Fireflies (Jorn van Deynhoven Remix)
+02. Ruslan Radriges - Revival (Extended Mix)
+03. Tom Exo - Hyperspace (Extended Mix)
+04. LTN - Wind and Cloud (Denis Sender Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3D1FE4F8913AD8B5298C90C925A591BF9C06E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223874   (669892) от 07.05.2018
+
+Dub Taylor - Caves & Cages (2018) Dirt Crew Recordings [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Tech House, Dub, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intra (2:20)
+ 02. King's Cave (10:20)
+ 03. Helix (7:18)
+ 04. In Air (7:17)(   Читать дальше...   )Жанр: Dub Techno, Tech House, Dub, AmbientПродолжительность: 01:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756C57DA6F1BC673060FB0A124412306A0D80DD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224007   (669893) от 07.05.2018
 
 VA - Manuel Le Saux Pres.Extrema Maxima (2018) [MP3|320 Kbps] <Trance>
@@ -559,141 +694,6 @@ Aly & Fila - Future Sound Of Egypt 497 (2017) [MP3|320 Kbps] <Trance,Uplifting T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4CF2B61D68C585639E0C6422275862CAE604C55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136855   (671149) от 24.05.2017
-
-VA - Space Love (2017) [MP3|320 Kbps] <Balearic, Downtempo, Psychill>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Convergent Evolution - Crescent (Unusual Cosmic Process Ambient Remix) 08:07
-02. Astronaut Ape - First Meeting 08:00
-03. Aedem - Numb 07:03
-04. Youginia - Life 03:48(   Читать дальше...   )Жанр: Balearic, Downtempo, PsychillПродолжительность: 01:15:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82246D789BA012A8D31342CDD4812FFDD67548C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223639   (671419) от 06.05.2018
-
-VA - Best Of Uplifting Trance (2018) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Allen feat. Sue McLaren - Old Flame (Extended Mix) 6:43
-02. Hazem Beltagui feat. Sarah Russell - When Our Story Has To End (Stargazers Extended Mix) 6:23
-03. Alan Morris & Enzo feat. Jess Morgan - Tapestry Of Us (Extended Mix) 6:30
-04. F.G. Noise & Patrick Dreama - Kepler (Extended Mix) 7:34(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38C39ED9F7ED2D7AFDEF8EA5361E70C8762C795
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223685   (671651) от 06.05.2018
-
-Martin Schulte - Depth Of Soul (2008) Lantern [FLAC|Lossless|tracks+.cue] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big City Street (06:21)
- 02. Countryside (07:20)
- 03. Glitchtech (05:37)
- 04. Forest (06:00)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:00:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9ABF9BF9891819B142711BA4461B6FD54C45AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291157   (672141) от 23.03.2019
-
-VA - Deep Conception Vol.17 (2019) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eating Snow - Gravel And Trees (Einmusik Remix) 7:17
-02. Tube & Berger feat. Alegant - CURE (Original Mix) 5:38
-03. Manuel Moreno feat. Natasha Waters - Ghost (Definition Remix) 8:25
-04. Outstrip & Dub Makers feat. Maria Chirkova - Rainbow (Original Mix) 7:38(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E1AEF8D8B7B4AF27E1B713E8263A75038C7039F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283619   (672233) от 23.03.2019
-
-VA - Live @ Trancemission Heartbeat, A2 Arena Saint Petersburg, Russia 2019-02-16[MP3|320 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID - ID
-02. FEEL - Prince Of Persia
-03. ID - ID
-04. Above & Beyond - Distorted Truth(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 07:53:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:190CA1322F87F0F8DF6359003C1701AEBBE0CDC3
 ```
 
 

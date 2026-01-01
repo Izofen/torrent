@@ -1,3 +1,64 @@
+###  Публикация: 869092   (892889) от 14.02.2015
+
+Demis Roussos - Live In Brazil (2009) 2CD [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+CD1
+1. End Of The World
+2. Rain And Tears
+3. Forever And Ever
+4. We Shall Dance(   Читать дальше...   )Жанр: PopПродолжительность: 01:27:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FABB9EA47A56A37032984D3B35829254050F096
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 639327   (892905) от 04.04.2013
+
+Tom Jones - The Definitive Tom Jones (4CD) (2003) [APE|Lossless]<Pop, Rock & Roll>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. A Boy From Nowhere
+02. Kiss
+03. Move Closer
+04. Carrying A Torch
+05. Gimme Shelter
+06. If I Only Knew
+07. Something For Your Head
+08. A Girl Like You
+09. Make Me Smile (with Robbie Williams)
+10. Burning Down The House (with The Cardigans)(   Читать дальше...   )Жанр: Pop, Rock & RollПродолжительность: 01:17:24
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370671   (893513) от 29.03.2020
 
 Waxahatchee - Saint Cloud (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
@@ -652,60 +713,6 @@ VA - Discoradio Collection Vol.3 (2004) 2CD Compilation [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE6E4B507FADE3769A951B7627F05A9965C25164
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099151   (906642) от 31.01.2017
-
-Marian Hill - Sway (2015) EP [FLAC|Lossless|tracks] <Alternative Pop, Electronic, Minimalist>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Time
-02. Got It
-03. Lips
-04. Wasted(   Читать дальше...   )Жанр: Alternative Pop, Electronic, Minimalist, R&B, Synthpop, Nu JazzПродолжительность: 00:23:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:746AF6D4FA19065AE847CC95BB6B1835BE9E9DB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099093   (906782) от 31.01.2017
-
-Marian Hill - Act One (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Electronic, Minimalist>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down
-02. Talk to Me
-03. Wild
-04. Bout You(   Читать дальше...   )Жанр: Alternative Pop, Electronic, Minimalist, R&B, Synthpop, Nu JazzПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E243C848BADF6F195A22DCEB347D24D54ABD2926
 ```
 
 

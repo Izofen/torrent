@@ -1,3 +1,30 @@
+###  Публикация: 1011764   (795575) от 29.04.2016
+
+VA - Ibiza 2015. Massive Energy Flux. Vol.1 (2015) [MP3|256-320 кб/с] <Techno-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cari Lekebusch - Forsta Uppdraget (intro)  00:43
+02. Tilliander - Cold As Ice (enter version)  03:25
+03. Catz N Dogz - Keep On (feat. Green Velvet)  03:10
+04. Mr. V - Jus Dance (Dario D’attis remix)  07:51(   Читать дальше...   )Жанр: Techno-House, Techno, HouseПродолжительность: 05:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25A151B94D3C40F99E74B17528FB345CE636C0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200532   (795594) от 21.01.2018
 
 VA - Music For Your Car Vol.6 (2018) [MP3|320 Kbps] <House, Club, Dance>
@@ -668,33 +695,6 @@ VA - Acoustic Chill (2020) [MP3|320 Kbps] <RnB, Pop, Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8809C18DBD474A0A89686AFED034A8859DE60962
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386040   (795907) от 27.05.2020
-
-VA - Romantic evening (2020) [MP3|320 Kbps] <Rock, Electro, Techno House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795907.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Weeknd - I Feel It Coming (4:29)
-2. Lana Del Rey - Lust For Life (4:24)
-3. Kevin Morby - No Halo (3:06)
-4. Dabeull - Love You so Much (3:37)(   Читать дальше...   )Жанр: Rock, Electro, Techno House, DanceПродолжительность: 06:23:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F428AA5D7F852CD319235A5BB9708647D05ECBCD
 ```
 
 

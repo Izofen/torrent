@@ -1,3 +1,30 @@
+###  Публикация: 1377604   (851884) от 22.04.2020
+
+Yurcash (Юркеш) - Каралі Карпаратівав (2019) [MP3|320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Інтро (00:18)
+02. Карпаратівна вечерінка (03:45)
+03. Танець-наливанець (03:48)
+04. Кабак (03:01)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F225881B105432EEB3E95783D596FE63A6E76C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001808   (852190) от 29.03.2016
 
 Bear Ghost - Your Parents Are Only Marginally Disappointed In Your Musical Taste! (2014) EP [MP3|192 кб/с] <Alternative Progressive Rock>
@@ -680,33 +707,6 @@ Ruby the RabbitFoot - New as Dew (2014) [MP3|320 кб/с]<Indie Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F1726151CEF4545125D9ACBFD8443EC6C4CF628
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086744   (868524) от 12.04.2020
-
-Lera Lynn - Discography (2011-2019) [MP3|320 кб/с] <Folk-Rock, Independent Post-Americana>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868524.jpg" />
-</div>
-
-
-###  Подробнее
-
-2011 - Have You Met Lera Lynn?
-2012 - Ring Of Fire (EP)
-2013 - Lying In The Sun (EP)
-2014 - The Avenues(   Читать дальше...   )Жанр: Folk-Rock, Independent Post-AmericanaПродолжительность: 03:24:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C9C5733FDB9B074C926038F5ABD3F15727E5DAE
 ```
 
 

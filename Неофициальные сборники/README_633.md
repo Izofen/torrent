@@ -1,3 +1,30 @@
+###  Публикация: 980345   (956171) от 29.01.2016
+
+VA - Блатная музыка на любимой волне (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белое Золото - Часовые Пояса
+02. Сергеич Арзамасский - До Свидания Лагерь
+03. Жека - Пушинка
+04. Ольга Ильч - Этапом К Северу(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E488FE5425E003179AF0243857539ECD5C3D9607
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980259   (956273) от 29.01.2016
 
 VA - Extra Latin Sensation (2016) [MP3|320 кб/с] <Latin, Dance, Pop, House>
@@ -670,39 +697,6 @@ Robyx Party - Long Single Mix 1990 Mix Part 1-2 (2016) [MP3|320 кб/с] <Italo-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:711A81BEC9494F4133BBD41E107EDB52A4D08206
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 621951   (959942) от 22.02.2013
-
-VA - Romantic Blues Collection Vol.4 (2013) [MP3|320 кб/с]<Pop,Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roy Roberts - What Should 100
- 02. Steve Gannon - Too Through With You
- 03. Koko Taylor - I'd Rather Go Blind
- 04. Jonny Lang - Darker Side
- 05. Eric Clapton - My Father`s Eyes
- 06. Blues Company - Silent Night
- 07. Tim Gonzales - Summer Time
- 08. The Holmes Brothers - And i love her
- 09. S Weebs Chicken Chack- Dont You Worry
- 10. Snowy White - The time has gone(   Читать дальше...   )Жанр: Pop,BluesПродолжительность: 01:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B4D6F7D46D39E63FAFD8E597D0E993953007B6
 ```
 
 

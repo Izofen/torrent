@@ -1,3 +1,30 @@
+###  Публикация: 1122494   (793312) от 06.04.2017
+
+The Stone Foxes - Twelve Spells (2015) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eye For Love (03:16)
+02. I Want To Be You (03:58)
+03. This Town (03:42)
+04. Cold Like a Killer (05:05)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6272156EB0D18A9D0F7C9E3A910D7179FC3111
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386705   (793413) от 30.05.2020
 
 John Fogerty - Fogerty's Factory (2020) [MP3|320 Kbps] <Rock>
@@ -668,33 +695,6 @@ BrainStorm - Год без календаря (2021) [MP3|320 Kbps] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8500486DEF0D56E4F0DC785FD0091B3E943B38DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505946   (801734) от 29.10.2021
-
-The Motors - 3 Albums (1977 - 1980) [MP3|320 Kbps] <Pub Rock, Power Pop, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801734.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Motors - британская группа новой волны, образованная в 1977 году в Лондоне, Англия, бывшими участниками Ducks Deluxe Ником Гарвеем и Энди Макмастером (с гитаристом Брэмом Чайковски и ударником Рики Слотером). The Motors, исполнявшие отмеченный технически точными, размашистыми аранжировками поп-рок с элементами паб- и панк-рока, получили известность благодаря (   Читать дальше...   )Список альбомов:
-1977 - 1
-1978 - Approved By The Motors
-1980 - Tenement Steps(   Читать дальше...   )Жанр: Pub Rock, Power Pop, New WaveПродолжительность: 02:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B4AB89F2C58FA566B0DB008A7BE4B4E014226A
 ```
 
 

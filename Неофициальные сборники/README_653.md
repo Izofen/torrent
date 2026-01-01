@@ -1,3 +1,30 @@
+###  Публикация: 1350500   (1002944) от 07.01.2020
+
+VA - Amaranth: Deep House Electro Mix (2020) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002944.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wandrezo - Feel The Sun
+002. Chris Folkz - Rare
+003. Xort Base - His Toys
+004. Bollen - Venue(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 13:11:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C23E59B030BD03AE0D34419928348D226BC12197
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350765   (1002964) от 07.01.2020
 
 VA - Yoga And Deep House Meditation Music (2020) [MP3|320 Kbps] <Downtempo, New Age, Ambient, Chillout>
@@ -668,33 +695,6 @@ The Kelly Family - We Are The World (2019) Compilation [MP3|320 Kbps] <Pop, Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28FE8058F1A7C61F50743FE5CC4592D77A2C3C54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349945   (1003764) от 04.01.2020
-
-VA - Portal Transform: Psy Trance Music (2020) [MP3|320 Kbps] <Psychedelic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003764.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dominant Space - Indigo
-002. Agent Kritsek - Transforming
-003. Eric Electric - Dance Remake Unscratched
-004. Ekahal - No Rest For The Wicked(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 11:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43D17187039E6B50E5FD455455149A5D160026D0
 ```
 
 

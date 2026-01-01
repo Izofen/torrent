@@ -1,3 +1,36 @@
+###  Публикация: 637168   (898530) от 01.04.2013
+
+VA - Громче музыку! Жаркий хит (2013) [MP3|256-320 кб/с]<Dance, Club, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898530.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. DJ Skazka - Неоновый Свет (3:14)
+2. DJ Smash feat. Вера Брежнева - Любовь на расстоянии (Melloffon Radio Remix) (3:37)
+3. Elvira T - Все Решено (Rodion Gordin Remix Radio) (3:38)
+4. Milk & Sugar - Let the Sun Shine 2012 (Tocadisco Radio Edit) (3:13)
+5. Артур Пирожков - Красивая Песня (Dj Favorite & Dj Kristina Mailana Summer Radio Edit) (3:58)
+6. DJ Цветкoff feat. Демо - В Невесомости (Radio Mix) (3:25)
+7. Юлия Савичева - Привет, любовь моя (3:29)
+8. Driu Mc Feat. Funky & Inlite - Только Тебе (3:34)
+9. Андрей Артемьев - Твой Ангел-Хранитель (Summer Edit) (4:30)
+10. KET - U feat. DJ Space One Project - Индиго (2:53)Жанр: Dance, Club, PopПродолжительность: 06:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE722234B162E073D81139099AC50AE0639ADEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992897   (898733) от 03.03.2016
 
 VA - Rock Hits (Remastered by KronStudioLab) [4CD] (2015) [MP3|320 кб/с] <Rock, Hard Rock, Metal Rock>
@@ -674,33 +707,6 @@ VA - Collection Reggae (2016) [MP3|320 кб/с] <Reggae, Ska, Hip-hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:029D879445419C715FCA04E9C6FF3B9CF17DFA1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490076   (900717) от 31.08.2021
-
-John Lennon & Plastic Ono Band - The Ultimate Collection (2021) 8CD [MP3|320 Kbps] <Rock, Art-Rock, Pop-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mother (Take 91 / Out-take / Raw Studio Mix) [00:03:59]
-02. Hold On (Take 18 / Out-take / Raw Studio Mix) [00:02:07]
-03. I Found Out (Take 7 / Out-take / Raw Studio Mix) [00:07:51]
-04. Working Class Hero (Take 10 / Out-take / Raw Studio Mix) [00:03:43](   Читать дальше...   )Жанр: Rock, Art-Rock, Pop-RockПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BEC893B9EC86833E6FDE284C7A523FA1AA0A6D4
 ```
 
 

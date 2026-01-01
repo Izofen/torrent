@@ -1,3 +1,30 @@
+###  Публикация: 1018543   (755521) от 20.05.2016
+
+VA - Guitar Collection 4 (2016) [MP3|320 кб/с] <Instrumental, Acoustic, Blues-Rock >
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755521.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Daryl Stuermer - Heavy Heart    05:17
+002. Boyce Avenue - Game of Thrones (Main Theme)    02:26
+003. Dizzy Mizz Lizzy - Mindgasm    03:54
+004. Nicolas de Angelis - Moliendo Cafй    02:48(   Читать дальше...   )Жанр: Instrumental, Acoustic, Blues-RockПродолжительность: 07:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87F4C3B2B22C9B3E59D80FAA12F2312E14FA4C00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395167   (755576) от 10.07.2020
 
 VA - Silent Prayer (2020) [MP3|320 Kbps] <Ambient, New Age>
@@ -670,33 +697,6 @@ Gin Wigmore - Compilation (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:532C79A071488C037D183B36FCA43F249CD60716
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280851   (757095) от 05.02.2019
-
-VA - German Top 50 Party Schlager Charts 04.02.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
-02. Kerstin Ott - Regenbogenfarben
-03. Maite Kelly - Die Liebe Siegt Sowieso
-04. Maite Kelly - Heute Nacht für immer(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F693DBEB09E911ED62306A7600A88A3DEF6E672F
 ```
 
 

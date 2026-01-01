@@ -1,3 +1,192 @@
+###  Публикация: 992168   (902692) от 01.03.2016
+
+VA - Impressions Of Native America (2001) [MP3|320 кб/с] <Native american, Ethnic, Folk, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ellis Island - Mother Earth Round Dance (5:45)
+02. Western Voices - The Calling (3:27)
+03. Cyberland - Circle Round The Sun (4:43)
+04. Cyberland - Explora (4:06)(   Читать дальше...   )Жанр: Native american, Ethnic, Folk, New AgeПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95A0D7B76AF46319855F0B92CA8F6099032A9F82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099710   (903264) от 02.02.2017
+
+Paul Sills - Electric Storm (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kinetic (08:34)
+02. Horizons (05:02)
+03. Static Rain (06:06)
+04. Solar (05:45)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F240EC9AEB11C50969CE06C7169F56C0441CB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099714   (903278) от 02.02.2017
+
+Medwyn Goodall - Echoes of Emergence (1987) Reissue 2017 / MG Music Ltd [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Misty Morning Across the Water (05:48)
+02. Drifting (05:09)
+03. Lonely Shore (05:21)
+04. On a Mountain (05:49)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F87D4FAB4AE9BAB849CD701E628E63D143B5C524
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099606   (903376) от 02.02.2017
+
+Ron Allen - The First Flute (Songs Of Courtship) 1998 [FLAC|Lossless|tracks] <New Age, World, Aboriginal>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  She Is Untouchable  (06:37) 
+02|  The Journey  (05:38) 
+03|  Gift from the Spirits  (07:01) 
+04|  Woodpecker Dance  (05:42) (   Читать дальше...   )Жанр: New Age, World, AboriginalПродолжительность: 00:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD0AF4D0AF1DADFF081F2467EE98C6FD1555782E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099659   (903399) от 02.02.2017
+
+Andreas - Music for Pregnant Women (2013) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music for Pregnant Women (16:00)
+02. Touch of Magic (05:46)
+03. Bluebells and Angels (05:11)
+04. Sanctify (06:44)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D713BA18DF55B6B4068E3FAD8F6A2C53AE67BC46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369396   (903401) от 23.03.2020
+
+Nazca & Wayra Rodriguez - Traditional Indian (2010) [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nazca & Wayra Rodriguez - Ancient spirit
+02. Nazca & Wayra Rodriguez - Ceremony
+03. Nazca & Wayra Rodriguez - Vision
+04. Nazca & Wayra Rodriguez - Dream catcher(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:17:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3A3496CBFB8D1486DEAF068DFD64E11CE9AC7D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368661   (903513) от 23.03.2020
+
+Tatanka - Best Of Indian's Song (2005) [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction
+02. May You Walk In Sunshine
+03. Enchantment
+04. A-La-Ke(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36DA4BA965D80B1CE66E3DEFAA77481F1CA36B62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369204   (903547) от 23.03.2020
 
 Guenter Haas - Tales of a Broken Planet (2013) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Chillout, Downtempo>
@@ -529,221 +718,6 @@ Leonard Cohen - The Future (1992) [FLAC|Lossless]<Contemporary folk, Soft rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6281AA7D7C7CC9C8FE2BDE851CEB999416D0E43D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368449   (905644) от 22.03.2020
-
-Henri Seroka & Ralph Benatar - Akhnaton Pharaoh (Myths And Legends) (1997) [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Beyond Infinity (10:06)
-02.Green Planet (10:04)
-03.Milky Way (10:11)
-04.Deep Probe (10:37)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A2AA8688D5B4791A57CF38ECEBBFAC65B05A99B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636237   (905733) от 28.03.2013
-
-Ricky King - The Golden Guitar Hits (3CD) (2008) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Mendocino (Sahm, M. Holm)
-02. Fiesta Mexicana (Ralph Siegel)
-03. Massachusetts (B.R. u. M. Gibb)
-04. Tranen lugen nicht (M.Holm, Zacar)
-05. Words (B.R. u. M. Gibb)
-06. Hale, hey Louise (Dieter Bohlen, E. Styx)
-07. Killing me softly (Gimble,Fox)
-08. Anita (Costa Cordalis)
-09. Holzschuh-Polka (Roland Heck, Gerd Kothe, Hans Lindefelder)
-10. Silberner Stern (Roland Heck, Gerd Kothe, Hans Lindefelder)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B904D7CA0D2ED58B2FC35B9B44F10CFEA88F59F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636276   (905806) от 28.03.2013
-
-VA - Уставные и традиционные колокольные звоны (2010) [MP3|320 кб/с]<Колокольный звон>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Благовест (1:22)
-02. Звон в Ростовской традиции (2:08)
-03. Водосвятный перезвон с трезвоном (3:09)
-04. Звон в традиции Московского Сретенского монастыря (2:28)
-05. Перезвон с трезвоном в Неделю Крестопоклонную (2:04)
-06. Ионафановский звон (2:09)
-07. Погребальный перебор с трезвоном (2:14)
-08. Звон в традиции Московского Новодевичьего монастыря (1:51)
-09. Калязинский звон (1:47)
-10. Перебор с трезвоном на Чин погребения Богородичной Плащаницы (2:15)(   Читать дальше...   )Жанр: Колокольный звонПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:346DB1992A474C153A4F89296341788969021E68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636238   (905935) от 28.03.2013
-
-Wolfsheart - Wolf Moon Rising (2012) [MP3|320 кб/с]<New Age, Flute>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1.  Breath Of My Soul (5:38)
-2.  Wolf Paths In Deep Snow (4:53)
-3.  Wings Of Love And Peace (3:58)
-4.  A Christmas Lullaby (4:56)
-5.  Time Of Change (5:07)
-6.  Under The Spell Of Moonlight (4:23)
-7.  Come To The Fire (5:21)
-8.  Dance Of The Northern Lights (4:24)
-9.  Soyala - The Longest Night (4:15)
-10. A Winter's Tale (3:36)(   Читать дальше...   )Жанр: New Age, FluteПродолжительность: 01:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8833D606C191988A746A580FAEBBEACD5D669FC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636195   (906011) от 28.03.2013
-
-Diane Arkenstone - Union Road (2013) [MP3|320 кб/с]<New Age, Folk, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Little Cup Of Coffee (03:17)
- 02. When I Fall (03:52)
- 03. Crossing The Water (04:42)
- 04. Corner Of Nowhere (05:25)
- 05. Just Kicking Around (05:18)
- 06. Beautiful Bones (03:21)
- 07. Lost In You (03:55)
- 08. Your Mama Is Gone (03:46)
- 09. Union Road (03:44)
- 10. We Can Live Forever (03:29)(   Читать дальше...   )Жанр: New Age, Folk, WorldПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A78EC1B7A4B37CC00C0DDDFCD03552F8B41789
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 865300   (906270) от 06.02.2015
-
-VA - Chillout Tracks (2015) [FLAC|Lossless|WEB-DL] <New Age, Ambient, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Rowland - To Hear The Spring Again (13:37)
-  02. Sangit Om - South (Li) (15:20)
-  03. Guna Sangah - Upward Spiral (15:00)
-  04. Quinn Asher - Xerokambos (02:38)
-  05. Samaya - Oh Mata (02:38)(   Читать дальше...   )Жанр: New Age, Ambient, RelaxПродолжительность: 02:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:111177EACD56A226E9FBF25C7D8119E5056721C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 866955   (906353) от 06.02.2015
-
-Andrew Bird - Echolocations: Canyon (2015) [FLAC|Lossless|WEB-DL]<Instrumental, Folk, Ambient, Indie>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Sweep the Field (7:14)
-02. Groping the Dark (10:43)
-03. Rising Water (5:09)
-04. Antrozous (7:06)
-05. The Return of Yawny (3:47)(   Читать дальше...   )Жанр: Instrumental, Folk, Ambient, IndieПродолжительность: 00:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65F9EF16886B7FEFCBC4E7A28BD746821456F10C
 ```
 
 

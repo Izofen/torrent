@@ -1,3 +1,135 @@
+###  Публикация: 1496506   (871658) от 18.09.2021
+
+Yoshi & Razner - Transmission Live, Spain (2021-08-28) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Quicksilver - Ameno (Yoshi & Razner Remix)
+02. UCast vs. The Killers - Sympton Brightside (Yoshi & Razner Mashup)
+03. Steve Dekay - Sublime
+04. Miikka Leinonen ft. Kim Kiona - Breath Of The Wild (Metta & Glyde Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ACF6C781C56AACAC6DC9FFAF5A460CC332B12C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106559   (871662) от 20.02.2017
+
+VA - 20 Best Of Ambient Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Relaxing Chillout Music Zone nature - Best Of Ambient Chill  3:24
+02.  Sex Music Zone - Sexy Beats (Ambient Soft Music)  3:29
+03.  Beach Party Chillout Music Ensemble - Chill Lounge (Nightlife)  3:11
+04.  Beach Party Chillout Music Ensemble - Ibiza Beach (Wellness Hotel)  3:17(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67395865511EBD89FF110349EBD0F65D99E4847A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106655   (871664) от 20.02.2017
+
+VA - Vocal House Maniacs Vol.1 (2017) [MP3|320 Kbps] <House, Vocal House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Beat Addicts vs. C&C Music Factory - Keep It Comin' (Crystal Juice Remix)  6:24
+02.  Midnight Express - Music (feat. Sabrina Johnston) (Jazz Voice & House Pleasure Remix)  7:08
+03.  DJ Lopez & JC - The Colour Inside (Club Mix)  3:49
+04.  Easy Life - Everybody Join The Vibe (Club Mix)  6:20(   Читать дальше...   )Жанр: House, Vocal HouseПродолжительность: 02:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:624E9232BF7CF953B77DC5CD496E2BECAFC7DF4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106679   (871672) от 20.02.2017
+
+VA - Chill Out Nation Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  D-Chill - Are You Still (feat. Paola Cordoni) (Original Mix)  5:10
+02.  L.O.B. - Godness Of Love (Original Mix)  4:12
+03.  Alex Belmonte - Undersea (Chill & Lounge Mix)  4:53
+04.  Cellar 55 - Funknako (Original Mix)  5:24(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3FD46F0865ACEC5646C90A62E7C65DDEA49BB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 644424   (871773) от 15.04.2013
+
+VA - 80s Lounge Essentials (2013) [MP3|320 кб/с]<Lounge, Chillout, Lo-Fi>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Lounge, Chillout, Lo-FiПродолжительность: 01:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B6094D3DE9F009EFADD27DEA3545755C8F9E1B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106743   (871794) от 20.02.2017
 
 VA - Chillout Pool Lovers (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -560,139 +692,6 @@ Andrea - Ritorno (2020) Ilian Tape [FLAC 2.0|44.1/24|tracks|WEB-DL] <Breakbeat, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AED406E89A68094026FEBF53DB339B2774209DBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371496   (874571) от 09.04.2020
-
-Brainwaltzera - Discography 14 Releases (2016-2020) Analogical Force, Film, Furthur Electronix [FLAC|Lossless|tracks] <IDM, Electro, Techno, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FMsquaredТип издания: WEB, VinylЖанр: IDM/AmbientПродолжительность: 05:54:20 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6707BE2C41A306138017D65982D66255DC150F6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496215   (874633) от 16.09.2021
-
-VA - Erotic Piano Music (2021) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bungle Run - Inverter (Blue Feeling Mix) (03:04)
-02. Bank Of Sound - Relax in the Air (Nocturne Flowers Mix) (03:39)
-03. Atlantic Avenue - Famous Docs (Sunrise Mix) (03:48)
-04. City Cinema - Inside Nowhere (Morris & Morgan's Deep Mix) (04:47)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:09:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0C72653B544B6DC16CBAC6F54A22DDCDF20DB68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374173   (874713) от 09.04.2020
-
-Robert Rich - Echo Of Small Things (2005) Soundscape [FLAC|Lossless|tracks+.cue] <Ambient, Minimal>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pathways (09:36)
- 02. Fences (04:57)
- 03. Circle Unwound (09:00)
- 04. Passing Terrain (06:09)(   Читать дальше...   )Жанр: Ambient, MinimalПродолжительность: 01:01:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46ABF0A9A7E69AAF0C677D4C55F959871EBE95C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106117   (874873) от 18.02.2017
-
-VA - Armin van Buuren: A State Of Trance 800 (2017) [FLAC|Lossless|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Armin van Buuren - I Live For That Energy (ASOT 800 Anthem)  3:22
-02.  Aly & Fila meets Roger Shah & Susana - Unbreakable  3:20
-03.  MaRLo & Chloe - You And Me  3:02
-04.  Orjan Nilsen - Iconic  3:52(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F12C6A77E7977812B0572EC41AB60B9F84334E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105707   (874987) от 18.02.2017
-
-Tears For Fears - The Seeds Of Love (1989) [FLAC|Lossless|image + .cue] <New Wave, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Tears for Fears (Слёзы страха) была образована в 1981 году. Ее создали два друга детства – Роланд Орзабал и Курт Смит, после распада их первой группы Graduate (Выпускник), которую они основали в 1980 году, еще, будучи подростками.
-Курт и Роланд были из неблагополучных семей. Ребята были лучшими друзьями, и на удивление, они были абсолютно разными личностями, (   Читать дальше...   )01. Woman in chains (6:31)
-02. Bad man's song (8:33)
-03. Sowing the seeds of love (6:19)
-04. Advice for the young at heart (4:54)(   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4348B1D22E62D6C9F8E8083A787C02B59D3307CE
 ```
 
 

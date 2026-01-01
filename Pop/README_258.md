@@ -1,3 +1,163 @@
+###  Публикация: 1399985   (721291) от 04.08.2020
+
+VA - The Sound of NYLO 4 (2020) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Kroft - The Sound of NYLO (Disco Mix) [59:32]
+02. Julien Noe - Love (Grisha Gerrus Remix) [05:27]
+03. Tokyo Social Club - Over (Marten Baptiste Remix) [06:18]
+04. Katodik - Rvb Love (Original Mix) [05:40](   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 04:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8161EDADF0F3D87F29A9633F77A1D5AF5FF489A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218514   (721399) от 10.04.2018
+
+Fancy - 30 Years - The New Best Of (2018) [MP3|320 Kbps] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flames of Love (Radio Version) (3:28)
+02. Slice Me Nice (4:06)
+03. Come Back and Break My Heart (Radio Mix) (4:01)
+04. We Can Move a Mountain (Single Version) (3:48)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:14:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D562C87715EA9C2DE62F48ADD9760EFECF1D7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218676   (721736) от 10.04.2018
+
+Brad Paisley (Брэд Пейсли) - Who Needs Pictures (1999) Arista Nashville [MP3|320 Kbps] <Country, Country Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брэд Пейсли (полное имя - Брэд Дуглас Пейсли) - американский кантри-исполнитель и автор песен, один из самых популярных в 2006-2010 годах в своём стиле в «Billboard Top 200». Обладатель трёх премий «Грэмми», четырнадцати «Academy of Country Music Awards», четырнадцати «Country Music Association Awards» и двух «American Music Awards». В 2011 году Пейсли выпустил автобиографическую (   Читать дальше...   )01. Long Sermon 3:19
+02. Me Neither 3:20
+03. Who Needs Pictures 3:46
+04. Don't Breath 2:54(   Читать дальше...   )Жанр: Country, Country RockПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D361916F5F173CFF3E17ECD7E8852F6C32F0843
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023778   (721901) от 06.06.2016
+
+VA - 100 Hits - 80's Dance (5CD) (2009) [FLAC|Lossless|image + .cue] <Disco, Synth-pop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721901.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. The Jacksons - Can You Feel It 03:43
+02. Miami Sound Machine with Gloria Estefan - Dr.Beat 04:16(   Читать дальше...   )Жанр: Disco, Synth-pop, PopПродолжительность: 06:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF4270E0064789496C4403CFAABABDC5899CE508
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 144002   (722007) от 28.04.2017
+
+Е.Моргунов, Ю.Никулин, Г.Вицин  - Веселая троица (2004) [MP3|320 kbps]<Retro, Soundtrack>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_722007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Марш браконьеров
+02. Легкий завтрак
+03. Погоня за собакой
+04. Финальный марш(   Читать дальше...   )Жанр: Retro, SoundtrackПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129315   (722498) от 28.04.2017
+
+VA - Disco Hits (2017) [MP3|320 Kbps] <Pop, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Trammps – Disco Inferno (11:00)
+02. Chic – Everybody Dance (Edit Version)Жанр: Pop, R&B, SoulПродолжительность: 02:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:125201B4C84B47DF375C012DD243B047FFF8A63C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285154   (722766) от 25.02.2019
 
 Kipper - This is Different (2006), Bang & Olufsen [WV|Lossless|image + .cue] <Instrumental Pop>
@@ -529,168 +689,6 @@ Bodies Without Organs - Prototype (2005) [FLAC|Lossless|image + .cue] <Europop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84761A5DA64E33581E95CBE082136D319FB6F951
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399807   (724850) от 02.08.2020
-
-Adriano Celentano - Antologia (Remastered) (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724850.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Stai Lontana Da Me (Remastered) (2:11)
-002. I Want to Know Part II (Remastered) (5:21)
-003. Storia D'Amore (Remastered) (4:53)
-004. Grazie Prego Scusi (Remastered) (2:04)(   Читать дальше...   )Жанр: PopПродолжительность: 05:23:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E23309354231F5948D0A65071F0A8784B249E928
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284976   (724922) от 24.02.2019
-
-Earphones - This Is Pop? (2004) [MP3|320 Kbps] <Eurodance, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Birds In Time (1:32)
-02. Birds (2:53)
-03. Sexcrime (2:52)
-04. Short Happy Life (3:17)(   Читать дальше...   )Жанр: Eurodance, ItalodanceПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89FE4B5B84DCACFC98155F68BC1981FAF16D3846
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399905   (724995) от 02.08.2020
-
-VA - Claw Collection, Vol. 1 (Essential Dance Tunes Only for Dj's) (2013) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Berte - Sin Tu Amor (Extended Mix) (5:04)
-02. Paul - Tonight (Original Extended Mix) (4:37)
-03. Fabio Amoroso - Roadhouse Blues (Stefano Iezzi Original Mix) (4:57)
-04. Joe Berte - The Queen of the Night (Joe Berte Extended Mix) (5:53)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEDCFB4318FA33F05B8A7A69B6BC7D149A071DAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218209   (725028) от 08.04.2018
-
-Fancy - 30 Years - The New Best Of (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Flames of Love (Radio Version)	3:28
-02.	Slice Me Nice	4:06
-03.	Come Back and Break My Heart (Radio Mix)	4:01
-04.	We Can Move a Mountain (Single Version)	3:48(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58D68B39220C5637901C5AD484699E9B2B267D0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399740   (725068) от 02.08.2020
-
-Beyoncé - The Lion King: The Gift (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, RnB>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725068.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beyoncé - Bigger
-2. Beyoncé - Find Your Way Back
-3. Tekno & Lord Afrixana & Mr Eazi & Yemi Alade - Don't Jealous Me
-4. Burna Boy - Ja Ara E(   Читать дальше...   )Жанр: Pop, RnBПродолжительность: 01:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:389F95BF754872AE1A3890B74B3984F759A915A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399911   (725072) от 02.08.2020
-
-Dario Silver (Mirko Hirsch) - Electric Heartbeat (2017) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco, Eurobeat, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back Tonight (Extended Version) (4:37)
-02. Electric Heartbeat (6:36)
-03. Computer Girl (5:34)
-04. Disco Delirio (5:25)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, Eurobeat, Hi-NRGПродолжительность: 01:15:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B756B5044504A829CFECBAA409A97FC57C9B5D30
 ```
 
 

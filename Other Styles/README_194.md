@@ -1,3 +1,189 @@
+###  Публикация: 273614   (1030103) от 20.02.2021
+
+101 Strings Orchestra - 2 альбома (2002, 2009) 3CD [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030103.jpg" />
+</div>
+
+
+###  Подробнее
+
+101 Strings Orchestra был брендом очень успешной организации симфонической музыки, легко слушающей , с дискографией, превышающей 150 альбомов, и творческим сроком службы около 30 лет, начиная с 1957 года. 101 Strings имел фирменное звучание, сосредоточенное на мелодии с непринужденной атмосферой. чаще всего со струнами. Их пластинки были индивидуализированы слоганом (   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96621891A2841174A42362D35F58BB7FB2D64405
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 191215   (1030105) от 20.02.2021
+
+VA - Вдохновение - Оттенки настроения 5 альбомов (2004) [APE|Lossless|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Изумительная благодать
+02. Овцы могут спокойно пастись
+03. Гимн
+04. Адажио(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 05:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC572B437E3DF5278DA0873CF2BA3C54A2109C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 209363   (1030107) от 20.02.2021
+
+Royal Philharmonic Orchestra - Legends (2004) 3CD Compilation [APE|Lossless|image + .cue] <Classical, Symphonic Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Королевский филармонический оркестр (Royal Philharmonic Orchestra) — Британский симфонический оркестр с площадкой в Лондоне. Он широко гастролирует, иногда его называют «Национальным оркестром Великобритании» (англ. Britain's national orchestra).Royal Philharmonic Orchestra - Legends CD-I
+01. Angels (4:39)
+02. Babylon (4:08)
+03. With or Without You (5:14)(   Читать дальше...   )Жанр: Classical, Symphonic RockПродолжительность: 03:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A89A2DAB43FC6C3C8CB9AA511E9D742C564548
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 252875   (1030118) от 20.02.2021
+
+Albert Assayag - Accordion Dances: Tango Waltz Paso (2009) [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tango Des Fleurs	    (03:46)
+ 02.  Tango Star		    (02:25)
+ 03.  Tango Magique	    (02:26)
+ 04.  Valse Blonde	    (02:06)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:22:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D67D23DE380ACEA81ABD742580C493D4A16AD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 314199   (1030129) от 20.02.2021
+
+VA - Midnight Sax (1996) [FLAC|Lossless|tracks + .cue] <Instrumental, Saxophone>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John, Osbourne - Blue Eyes 		(03:28)
+02. Leiber, Stoller, King - Stand by Me (02:55)
+03. Masser, Creed - The Greatest Love of All (04:43)
+04. Bahler - She's Out of My Life 	(03:26)(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE8DA498F3DB3871377FE1FE50411870A4BEDC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447866   (1030211) от 20.02.2021
+
+Go_A - #Ідиназвук (2016) [FLAC|Lossless|WEB-DL|tracks] <Folk, IDM>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Веснянка (04:13)
+02. Вогнi (04:39)
+03. Сонце (05:39)
+04. Намалюй (03:38)(   Читать дальше...   )Жанр: Folk, IDMПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03105757EF06A5966184B0EE85A0C8F6F1E2ACC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622381   (1030267) от 28.03.2023
+
+Dark Diva - 3 Albums (2021-2023) [MP3|320 Kbps] <Trip Hop, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2021 - Отчуждение
+2022 - Плач покинутых детей
+2023 - ЙойкЖанр: Trip Hop, FolkПродолжительность: 3 CD, 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6E2616D33623B4E6163F871D20DE7C08E77069
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622255   (1030276) от 28.03.2023
 
 Teufelstanz - In Omne Tempus (2015) [FLAC|Lossless|image + .cue] <Medieval Folk, Bagpipe>
@@ -506,195 +692,6 @@ VA - Cosmic Chill Lounge Vol.1-4 (2007-2010) [FLAC|Lossless|image + .cue] <Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9092AF1C9FFEC87046D39C28CAAFAEBFD474F521
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 375546   (1030579) от 18.02.2021
-
-VA - Erotica (1977) [FLAC|Lossless] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фонтан эмоций и чувств на фоне прекрасной музыки. Эта подборка выходила под разными названиями, встречаются как минимум три - Les Vibrations, Erotheque, или просто - Erotica. Кстати, в те далекие года, в нашем народе этот сборник называли никак иначе как ...секс музыка.01. Nathalie Et Serge - Je T' Aime...Moi Non Plus 	(05:30)
-02. Nathalie Et Christine Avec Les Vibrations - Kiss 	(05:12)
-03. Les Vibrations - Emmanuelle 			(03:41)
-04. Andrea E Nicole - Sa Prima Volta 			(03:57)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F48589D2A95E0BE1E37403FDD19B7A034BFD5261
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199315   (1030581) от 18.02.2021
-
-VA - La collection Latina Tango (2007) Compilation, Digipak [APE|Lossless|image + .cue] <Neo Tango>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quinteto Real - Canaro en Paris (2:51)
-02. Daniel Melingo - Noche Trasfigurada (1:32)
-03. Gallo Ramiro Quinteto - Al amigo Pablo Rago (4:22)
-04. Carlos Gardel - Anclao En Paris (2:08)(   Читать дальше...   )Жанр: Neo TangoПродолжительность: 01:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC7EED3996B8319A87BE11BB10C7D883FDEFE7C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 295442   (1030584) от 18.02.2021
-
-Оркестр Вермишель - 5 альбомов (1996 - 2010) [FLAC|Lossless|tracks + .cue, image + .cue] <Instrumental, Ethno-Art-Rock>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030584.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Оркестр Вермишель» («Vermicelli Orchestra») — российский инструментальный ансамбль, этно-арт-рок проект. Основатель коллектива и основной автор музыки — Сергей Щураков. Группа образована в 1996 году, состав группы менялся несколько раз и окончательно сформировался к 2000 году. В составе группы играли Илья Порхунов, Виталий Семенов, Наиль Кадыров, Всеволод Гаккель, (   Читать дальше...   )Список альбомов:
-1996 (2001) - Anabasis
-1999 - Византия
-2005 - Марк Аврелий(   Читать дальше...   )Жанр: Instrumental, Ethno-Art-RockПродолжительность: 03:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4ABBE4CD0A8CBE7AA946D345E2223AB9E9FE9F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 354958   (1030589) от 18.02.2021
-
-Валерий Приказчиков - 2 альбома (2004, 2008) [FLAC|Lossless|image + .cue, tracks] <Surf, Beat>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебют квартета «Электрон» состоялся в 1963 году в эфире популярной в то время радиостанции «Юность». Участники «Электрона» в разное время учились в музыкальных школах, В. Приказчиков и Е. Гусев занимались в музыкальном училище при Московской консерватории по классу гитары. Но настоящую школу они получили в художественной самодеятельности, в ансамбле гитаристов, которым (   Читать дальше...   )01. Электрон - Вернись 			  (1965) (02:33)
-02. Электрон - Мелодия из к-ф 'Бум' 	  (1965) (02:37)
-03. Электрон - Солнечные часы 		  (1966) (02:35)
-04. Электрон - Веселые туристы 		  (1966) (02:02)(   Читать дальше...   )Жанр: Surf, BeatПродолжительность: 01:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE961A8C2B3D5037F1CDA677636D71B9BC8C11B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 257665   (1030590) от 18.02.2021
-
-VA - Tango Planet – The Best Of Tango (1998) [FLAC|Lossless|image + .cue] <Tango>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Cumparasita - Julio Cortazon Orchestra 	(03:20)
-02. Adios Muchachos - Julio Cortazon Orchestra 	(01:39)
-03. El Choclo - Alle Gould Orchestra 		(02:18)
-04. Rio De La Plata - Armand Frydman & Deni Hekimian 		(02:20)(   Читать дальше...   )Жанр: TangoПродолжительность: 01:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E323A2A5ADFE709876BF18B6C60D282B3304D13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288570   (1030598) от 18.02.2021
-
-VA - Original Musette (2000) [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le p'tit bal du samedi soir (02:39)
-02. Caroussel Java 		(02:51)
-03. Java Militaire 		(02:19)
-04. La Java Bleue 		(02:46)(   Читать дальше...   )Жанр: Instrumental, AccordionПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE378FF2B6741713BA0298852237A6D79FC21DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 314732   (1030601) от 18.02.2021
-
-Bernd Steidl - Paganiniana (2001) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hrx 		        (00:25)
-02. Made in Germany 	(03:06)
-03. Apocalypse 		(04:51)
-04. Paganiniana 1 	(02:02)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09D78677D48A73194545776A0E48661E5DB5DC34
 ```
 
 

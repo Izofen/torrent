@@ -1,3 +1,30 @@
+###  Публикация: 1091641   (941511) от 10.01.2017
+
+VA - LUXEmusic: Dance Super Chart Vol.101 (2017) [MP3|320 Kbps] <House, Mash Up, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alex Milano & Денис Раско - Двигай (Extended Mix)  3:42
+02.  Fargo - Мой Папа Из ФСБ (DJ Ice Radio Edit)  3:10
+03.  Depeche Mode - Precious (DJ Shevtsov Remix)  6:09
+04.  Burak Yeter feat. Danelle Sandoval - Tuesday (DJ Jurbas & DJ Trops Radio Edit)  2:54(   Читать дальше...   )Жанр: House, Mash Up, Club, DanceПродолжительность: 03:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF605DDC2127EE70D420FCFB3CBFDDC842BB13F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091853   (941527) от 10.01.2017
 
 VA - Empire Records - Club Hit 4 (2017) [MP3|320 Kbps] <Club, Dance>
@@ -674,33 +701,6 @@ VA - Empire Records - New Age (2016) [MP3|320 Kbps] <New Age, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B74AF20A8339CF13D4C61615B39E7EAF95BE2C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091485   (942906) от 09.01.2017
-
-VA - Empire Records - Chill Out 8 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Late Night Alumni - Empty Streets (Dj Villain Remix)
-02. Deeperise - Make Me Alive (Original Mix)
-03. Anton Ishutin feat. Leusin - Waves (Nick Motion Remix)(Accoustic Version)
-04. Alok & Bruno Martini feat. Zeeba - Hear Me Now (Original Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38356B7A852E66AA3B18C46499D7B84707587DE1
 ```
 
 

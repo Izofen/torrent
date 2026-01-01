@@ -1,3 +1,30 @@
+###  Публикация: 1504497   (812210) от 23.10.2021
+
+The Rolling Stones - Tattoo You (1981) 40th Anniversary, Super Deluxe Edition, Remastered, 2021, Promotone B.V. [MP3|320 Kbps] <Hard-Rock, Rock-n-Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under My Thumb [00:03:53]
+02. When The Whip Comes Down [00:04:33]
+03. Let's Spend The Night Together [00:04:22]
+04. Shattered [00:04:41](   Читать дальше...   )Жанр: Hard-Rock, Rock-n-RollПродолжительность: 3CD, 03:27:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C59573B8E3FBF314B53532DD9D58F4A1E58130A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008868   (813677) от 19.04.2016
 
 Eric Clapton & Friends - The Breeze: An Appreciation of JJ Cale (2014) [MP3|320 кб/с] <Classic Rock, Blues Rock>
@@ -659,33 +686,6 @@ Michael Parrett - Influence This (2020) [MP3|320 Kbps] <Garage Rock, Mod, Psyche
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DB7C046A715332CD00B28E9AF0B59BC6B427735
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116605   (822991) от 20.03.2017
-
-Crow - Crow Music (1969) Remastered, 2010, Flawed Gems [MP3|320 Kbps] <Funk, Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822991.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Evil Woman (Don't Play Your Games With Me)
-2. White Eyes
-3. Thoughts
-4. Da Da Song(   Читать дальше...   )Жанр: Funk, Hard Rock, Blues RockПродолжительность: 00:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:824A0143A8C0FE95553FE337EED36D9F5CAD343B
 ```
 
 

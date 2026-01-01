@@ -1,3 +1,30 @@
+###  Публикация: 1372769   (882148) от 05.04.2020
+
+VA - The Official UK Top 40 Singles Chart 03.04.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights
+02. SAINt JHN - Roses (Imanbek Remix)
+03. Dua Lipa - Physical
+04. Dua Lipa - Don't Start Now(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30BE7FB8E6194A6FEA7C2A8BB1B4050B1BF411A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373173   (882181) от 05.04.2020
 
 VA - Spring Day: Chill House Selected (2020) [MP3|320 Kbps] <Chill House, Chillout>
@@ -665,33 +692,6 @@ VA - Музыкальное зимнее настроение. Русский с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1A148B84D2EE3B7944DD346ED30971F08631D0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103842   (883639) от 13.02.2017
-
-VA - Зимняя русская радиоволна (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883639.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Стас Костюшкин - Бабушка 2:58
-002. Lega - Она Мой Diamond 3:31
-003. Ira Smith - Мир В Тебе 3:12
-004. Егор Крид - Мало Так Мало 3:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279EF977EC8DCF075E8C064833DCF558AA8AE49B
 ```
 
 

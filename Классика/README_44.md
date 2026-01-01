@@ -1,3 +1,57 @@
+###  Публикация: 1105215   (876401) от 17.02.2017
+
+Tina Guo - The Journey (2011) [FLAC|Lossless|tracks + .cue] <Classical Contemporary>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lament [04:20]
+02. Introduction and Polonaise Brillante in C Major, For Cello and Piano, Op. 3 [09:06]
+03. Le Grand Tango [11:16]
+04. Winter Star [05:09](   Читать дальше...   )Жанр: Classical ContemporaryПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA7137DCCBA77FF93A0125F607675E5B925D6C4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996965   (876944) от 15.03.2016
+
+VA - Золотое Барокко (2001) S&V #02/2001 [FLAC|Lossless|tracks + .cue] <Baroque>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876944.jpg" />
+</div>
+
+
+###  Подробнее
+
+4
+01. Georg Friedrich Handel - Arrival of the Queen of Sheba (3:02)
+02. Johann Sebastian Bach - Concerto In D, BWV 1043 (7:18)
+03. Georg Philipp Telemann - Violin Concerto No.8 in G (2:08)(   Читать дальше...   )Жанр: BaroqueПродолжительность: 01:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA5644432D56594C82FD75F69C249F781F4D8702
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997045   (877193) от 15.03.2016
 
 VA - Favourite Classics (1999) S&V #12/1999 [FLAC|Lossless|tracks + .cue] <Baroque, Romantic, Classical>
@@ -634,60 +688,6 @@ Piano Concerto No. 19 in F Major, K. 459
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF76403719A7DF393FA052F24A84EF9D673EA720
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995262   (886125) от 10.03.2016
-
-Sviatoslav Richter - Beethoven Piano Sonatas № 8, 23, 8 Bagatelles, Choral Fantasy (Melodiya Edition Vol.2) (2003) [FLAC|Lossless|image + .cue] <Classical, Chamber Music>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соната для фортепиано №8 до минор соч.13 "Патетическая"
-01. Piano Sonata No.8 in C minor, Op.13 - Grave, Allegro di molto e con brio
-02. Piano Sonata No.8 in C minor, Op.13 - Adagio cantabile
-03. Piano Sonata No.8 in C minor, Op.13 - AllegroЖанр: Classical, Chamber MusicПродолжительность: 01:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEF3529563D9C8E6561DC057CF8E93D56C0328FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995214   (886143) от 10.03.2016
-
-Klara Min - Scriabin: Piano Works (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 Pieces, Op. 2 - 3 Pieces, Op. 2: No. 2. Prelude (1:08)
-02. 2 Impromptus, Op. 14 - No. 1 in B Major (3:24)
-03. 2 Impromptus, Op. 14 - No. 2 in F-Sharp Minor (5:01)
-04. 3 Pieces, Op. 45 - No. 1. Feuillet d'Album (1:44)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF9F47DACE6C74D65514BBC6B0F7DB29DCFA720
 ```
 
 

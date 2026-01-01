@@ -1,3 +1,165 @@
+###  Публикация: 1359376   (964297) от 12.02.2020
+
+VA - Valentine's Day Mix (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryan Adams - Heaven 4:05
+02. Ronan Keating - When You Say Nothing At All 4:06
+03. Calum Scott & Leona Lewis - You Are The Reason (Duet Version) 3:11
+04. Lady Antebellum - Need You Now 3:55(   Читать дальше...   )Жанр: PopПродолжительность: 02:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AD783440275C72B0F23E310DDACF54A37F0E693
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359631   (964304) от 12.02.2020
+
+Hydro Featuring Lorna - Hydro (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop Your Teasing (9:34)
+02. I'll Make Your Day Tonight (6:16)
+03. I'll Be Good To You (7:40)
+04. My Favorite Disco (5:19)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA2D86AE18402BCA7AAB4B2F54726DF3502F06C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977992   (964475) от 22.01.2016
+
+Pandora - This Could Be Heaven (1997) [APE|Lossless|image+.cue] <Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Single Life	3:36
+02	Everybody's Livin' It Up	4:10
+03	Shout It Out	3:16
+04	Show Me What You Got	3:22(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01FC1CC713408ED8CAA6F35A64DD376E93AD6F51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977956   (964535) от 22.01.2016
+
+VA - I Grandi Successi Degli Anni 80 Vol.1 (2005) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gianni Morandi, Enrico Ruggeri - Si Puo Dare Di Pu (4:28)
+02. Raf - Inevitabile Follia (4:32)
+03. Fiorella Mannoia - Caffe Nero Bollente (4:26)
+04. Francesco Baccini - Le Donne Di Modena (5:05)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4C26F7377FA67CD9FE294E487C31A696CBD926
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977982   (964556) от 22.01.2016
+
+VA - I Grandi Successi Degli Anni 80 Vol.2 (2005) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mango - Nella Mia Città (7:02)
+02. Patty Pravo - Per Una Bambola (3:21)
+03. Luca Barbarossa - Roma Spogliata (3:47)
+04. Massimo Ranieri - Perdere L'amore (4:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE83D9F6D4C8C0FBAE9D0B9F8C0FF5298A62A255
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977983   (964660) от 22.01.2016
+
+Tomas N'Evergreen - Since You've Been Gone (2003) [APE|Lossless|image+.cue] <Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Since You've Been Gone
+02	Don't Give Up
+03	Your All I Ever Wanted
+04	Living On a Desert Island(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35C295B18BFEDA1C878E46BA46B9A1F8FF05DB52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359282   (965065) от 11.02.2020
 
 Юлия Савичева - CLV (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -531,168 +693,6 @@ Roxette - The Ballad Hits (2002) Limited Edition, 2xCD [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F76A88CEFC93B302AD84E8DED74123B8562A9B53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358505   (968681) от 08.02.2020
-
-VA - 100 Greatest Number Ones (The Best No.1s Ever) (2020) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968681.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lukas Graham - 7 Years 3:57
-002. Dua Lipa - New Rules 3:29
-003. Tones and I - Dance Monkey 3:30
-004. Tinie Tempah feat. Jess Glynne - Not Letting Go (XYconstant Remix) 4:49(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1549949892909DD1091F8C9F8EE8B3E117E1D725
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358497   (968684) от 08.02.2020
-
-Надежда Чепрага - 3 Альбома (1998 - 2004) [FLAC|Lossless|tracks + .cue]<Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мне приснился шум дождя
-02. Амор ( До встречи )
-03. Записная книжка
-04. Нанэ Цоха ( из к/ф Табор уходит в небо )(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 02:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1989DEEE6CB7A116F70465D91775F50F96B6413
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358498   (968751) от 08.02.2020
-
-VA - Композитор Юрий Эрикона-Женщине... (1999) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А. Малинин - Ты такая красивая
-02. Азиза - Заблудилась вдалеке мечта моя
-03. И. Кобзон - Колыбельная
-04. И. Резник - Вдовушка(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA462482A9D9BC7BA0D632EBFB2E49EC628CC8A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358567   (968752) от 08.02.2020
-
-Asgeir - Bury The Moon (2020) Ásgeir [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pictures                                                              [03:58]
-02. Youth                                                                 [03:30]
-03. Breathe                                                               [03:15]
-04. Eventide                                                              [03:48](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B2CE6A62C1F542DC2C000EE036756E833B2524
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358261   (969482) от 07.02.2020
-
-Artik & Asti - 7 (Part 2) (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969482.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Последний поцелуй
-2. Все мимо
-3. Чувства
-4. Девочка, танцуй(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD99CE6F7D626F3A570AB0F103BBAE6182DAD8E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358268   (969489) от 07.02.2020
-
-Savage - Love And Rain (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Second of My Life (Ouverture)
-02. Don't Say You Leave Me
-03. I Love You (Radio Version)
-04. Italodisco(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1707C2FFCC84E3736C53753C7A145CE8E39C4576
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1526977   (737799) от 26.01.2022
+
+VA - My Best Hammond Organ (2022) [MP3|320 Kbps] <Hammond Organ, Jazz, Fashion Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joey DeFrancesco - One Hundred Ways (09:10)
+02. Al Kooper,Steve Stills - Season of the Witch (11:08)
+03. Bob Belden,Billy Drummond,John Hart,Nicholas Peyton,Sam Yahel - Tom Thumb (06:41)
+04. Jimmy Smith - T'ain't No Use (06:09)(   Читать дальше...   )Жанр: Hammond Organ, Jazz, Fashion JazzПродолжительность: 07:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F5DD3A64E29F95F419EC6F7562863E270B49BEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526733   (738089) от 25.01.2022
 
 VA - Зима на Love Radio (2022) [MP3|320 Kbps] <Pop, Dance>
@@ -670,33 +697,6 @@ VA - ЕвроХит Топ 40 Europa Plus 15.02.2019 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:582E6186FA276E94EB44902038A175D6CFA741E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283235   (740262) от 16.02.2019
-
-VA - Progressive Pro V.01 [Compiled by GvertO] (2019) [MP3|320 Kbps] <Deep Progressive, Melodic Progressive, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bolier & NBLM - Follow Me (BLR Remix) [5:16]
-02. Deep Fog - Eagle Nebula (Original Mix) [7:50]
-03. JFR - Rainy Day In Mendoza (Original Mix) [7:58]
-04. Nerutto - Illuminate (Original Mix) [5:33](   Читать дальше...   )Жанр: Deep Progressive, Melodic Progressive, Progressive HouseПродолжительность: 03:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AA200737EE5BF19DBD903FDDC004765EFD4E84F
 ```
 
 

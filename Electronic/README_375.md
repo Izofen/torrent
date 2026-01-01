@@ -1,3 +1,137 @@
+###  Публикация: 1019529   (748640) от 24.05.2016
+
+VA - Summer Chill (2016) [MP3|320 кб/с] <Chill Out, Chill House>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damon Paul - Rhythm Is a Dancer (Patricio Amc Luna Mix) (02:52)
+02. Marc Mounier - There Were Times (B.Infinite Remix) (03:30)
+03. B.Infinite - Summerdream (Radio Mix) (03:59)
+04. Project Blue - Waiting for the Sun (Malibu Beach Mix) (06:34)(   Читать дальше...   )Производство: Sounds UnitedЖанр: Chill Out, Chill HouseПродолжительность: 01:21:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6414615A9C59BD38079A97883A60B97D34BCB81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216608   (749214) от 31.03.2018
+
+Carpenter Brut - Leather Teeth (2018) [MP3|320 Kbps] <80s, Dark Synth, Retrowave, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749214.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Leather Teeth (3:53)
+ 2. Cheerleader Effect (feat. Kristoffer Rygg) (3:38)
+ 3. Sunday Lunch (3:15)
+ 4. Monday Hunt (2:56)(   Читать дальше...   )Жанр: 80s, Dark Synth, Retrowave, SynthwaveПродолжительность: 00:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77DB3FD5966ACF44A290CF2B5805685450438F28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216634   (749330) от 31.03.2018
+
+George FitzGerald - All That Must Be (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George FitzGerald – Two Moons Under (05:01)
+02. George FitzGerald – Frieda (05:30)
+03. George FitzGerald – Burns (04:13)
+04. George FitzGerald & Lil Silva – Roll Back (03:28)(   Читать дальше...   )Жанр: House, Deep House, DowntempoПродолжительность: 00:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B40E10FA66085B85ABD683EDD8EE27EC4428F072
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523699   (749672) от 12.01.2022
+
+MUST DIE! - CRISIS VISION (2021) 2CD Deluxe Edition [FLAC|Lossless|tracks + .cue] <Dubstep, Breakbeat, D'n'B, Hardstyle, Trap>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NIHILISM BEGINS AT HOME (2:42)
+02. LOL OK (4:03)
+03. FUCK UR STYLE (3:24)
+04. LIFE SUCK (4:02)(   Читать дальше...   )Производство: Never Say DieЖанр: Dubstep, Breakbeat, D'n'B, Hardstyle, TrapПродолжительность: 01:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D1C91237ACC669AA4FFF877BBD58FB9793E4505
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998287   (750008) от 09.02.2019
+
+Solar Bears - Discography 8 Releases (2010-2016) Planet Mu, Sunday Best [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Electro, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Separate From The Arc (Andrew Weatherall Mix 1) (04:45)
+ 02. Separate From The Arc (Andrew Weatherall Mix 2) (05:42)
+ 03. Separate From The Arc (04:41)Тип издания: CD, WEBЖанр: IDMПродолжительность: 00:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACEC855C5B0CACCC107DA17437F2E7D7B639E85D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201053   (750017) от 09.02.2019
 
 Starfish Pool - Collection 19 Releases (1995-2001) [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Techno, Minimal, IDM, Ambient, Abstract>
@@ -557,141 +691,6 @@ The Lost Sun - Spectral Voice From Newborn Star (2016) [MP3|320 кб/с] <Space 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D47CEA0493E0F70B702C6A27776F408138C87E64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395830   (752116) от 12.07.2020
-
-VA - Jaytech Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House & Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solarity - Terminal 6 (Extended Mix) (7:30)
-02. Jaytech - Pyramid (Dinka Extended Mix) (6:48)
-03. Jaytech & Boom Jinx - Milano (Extended Mix) (7:00)
-04. Jaytech - Pepe's Garden (Extended Mix) (7:41)(   Читать дальше...   )Жанр: Electronic, Progressive House & TranceПродолжительность: 01:22:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF07E7A831B4BB5198984D564551CD0FD557540
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 739992   (752117) от 12.07.2020
-
-Witchcraft - Scattered Areas Of Invisibility (1999) AD Music [FLAC|Lossless|tracks+.cue]<Electro, Experimental, Downtempo, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Certainty Principle (5:49)
- 02. Angel Dust (4:25)
- 03. First Point Of Aries (6:08)
- 04. Capture The Flag (6:01)(   Читать дальше...   )Жанр: Electro, Experimental, Downtempo, AmbientПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D3AD2CE991DE19A1B477280BE4A36214FDC4B60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 322371   (752317) от 12.04.2011
-
-R.I.O. - Shine On (2008) [FLAC|Lossless]<House / Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine On (Radio Mix) (03:23)
-02. Shine On (Spencer & Hill Radio Edit) (03:02)
-03. Shine On (Soft House Radio Mix) (03:21)
-04. Shine On (Mondo Radio Edit) (03:22)(   Читать дальше...   )Жанр: House / ElectroПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019216   (752329) от 22.05.2016
-
-VA - Five Star Chill Out Vol 1 (Luxury Beach Lounge Resort Relaxation) (2016) [MP3|320 кб/с] <Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chilhouette - The Way You Look At Me (Extended Mix) (05:46)
-02. Polyopia - In My Mind (Beach Bar Instrumental) (04:51)
-03. Soleil Fisher - Midnight Swim (05:37)
-04. Once Upon A Time - Another Way (04:30)(   Читать дальше...   )Производство: RagimusicЖанр: Lounge, Chill OutПродолжительность: 01:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB0F3BE679C9166A4870B7E561A6C1D97D923FFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019362   (752341) от 22.05.2016
-
-VA - Sirup Deep Anthems Ibiza 2016 (2016) [MP3|320 кб/с] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Croatia Squad - The D Machine (Radio Mix) (03:37)
-02. Ben Delay - I Never Felt so Right (Radio Mix) (03:43)
-03. Nora En Pure - Better off That Way (Radio Mix) (03:12)
-04. Milk & Sugar - Heat (Calippo Radio Mix) (03:11)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E955332E196326AA19C548478859DBF27D95882
 ```
 
 

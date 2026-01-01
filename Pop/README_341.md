@@ -1,3 +1,201 @@
+###  Публикация: 596801   (999591) от 05.01.2013
+
+Вячеслав Малежик - Grand Collection (2011) [MP3|320 кб/с]<поп>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мозаика
+02. Двести лет
+03. Провинциалка
+04. Острова
+05. Зима-зима
+06. Любите сказки
+07. Чудо-птица
+08. Гадалка
+09. Всё-таки ты права
+10. Смолоду(   Читать дальше...   )Жанр: попПродолжительность: 01:18:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB98326D62E4F92C195303028A03CBEB5F7491C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597441   (999603) от 05.01.2013
+
+Celine Dion - The Best Of Celine Dion and David Foster (2012) [MP3|~245 кб/с (V0)]<pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Power Of Love
+02. All By Myself
+03. When I Fall In Love (Duet with Clive Griffin)
+04. The Colour Of My Love
+05. What A Wonderful World
+06. Because You Loved Me
+07. The Prayer (Duet with Andrea Bocelli)
+08. To Love You More (feat. Taro Hakase)
+09. Tell Him (Duet with Barbra Streisand)
+10. All The Way (Duet with Frank Sinatra)(   Читать дальше...   )Жанр: popПродолжительность: 01:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE21AF0293E0F244F5B6514B93D1F6F1E1CAA59A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596654   (999620) от 05.01.2013
+
+Dan Balan - All Hits In One Album (2012) [MP3|198-256 kbps] <Dance / Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chica Bomb (Original Mix) (04:33)
+02. Crazy loop (Original) (03:31)
+03. Freedom (Original Mix) (03:51)
+04. Freedom (Edit Radio) (03:35)
+05. Justify Sex (Original) (03:32)
+06. Лишь До Утра (Dubstep RMX) (03:44)
+07. Лишь До Утра (Edit Radio) (03:35)
+08. Люби (Original) (03:50)
+09. Мне Не Жалко (Radio Edit) (03:10)
+10. Не Любя (Radio Edit) (03:20)(   Читать дальше...   )Жанр: Dance / PopПродолжительность: 00:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB49D56B1AA50EA592AA0BB554611A7D55E28B25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597688   (999622) от 05.01.2013
+
+VA - Italo 2000 Rarities (1998-2000) 3*2CD[MP3|320 кб/с]<Electronic , Italo-Disco, Euro House>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Sharada - Dancing All Night [06:18]
+02. Koto - Time (Dance Mix) [06:08]
+03. Eddy Huntington - May Day [04:34]
+04. Vanilla - Bamboleo [06:55]
+05. Atrium - Midnight Dancer [07:46]
+06. Brian Ice - Tokyo [06:49]
+07. Cyber People - Doctor Faustu's [06:59]
+08. Time - Love Is The Reason [06:18]
+09. Bo Boss - Tequila [06:17]
+10. D.F. & Pam - Flash Into My Life [06:27](   Читать дальше...   )Жанр: Electronic , Italo-Disco, Euro HouseПродолжительность: 01:10:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42A8A73554A5096C721815C4A4940B58CB6F95EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597447   (999623) от 05.01.2013
+
+Andy Williams - 16 Biggest Hits (2000) [MP3|320 кб/с]<Vocal Pop, Traditional Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Butterfly
+02. Canadian Sunset
+03. I Like Your Kind Of Love
+04. Are You Sincere
+05. Lonely Street
+06. The Village Of St. Bernadette
+07. Moon River
+08. Can't Get Used To Losing You
+09. Days Of Wine And Roses
+10. Dear Heart(   Читать дальше...   )Жанр: Vocal Pop, Traditional PopПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7AB72EF277C5180D7D3A0AEA3B40FBCC58D48E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597560   (999624) от 05.01.2013
+
+VA - The World Of Rock'n'Roll (2012) [MP3|320 кб/с]<Rock'n'Roll>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999624.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Beatles — Rock-N-Roll Music
+002. Elvis Presley — Blue Suede Shoes
+003. Little Richard — Tutti Frutti
+004. Bill Haley & His Comets — (We're Gonna) Rock Around The Clock
+005. Ray Charles — I've Got A Woman
+006. John Lennon — Ya Ya
+007. Tom Jones — Bad Love
+008. Dire Straits — Walk Of Life
+009. Elton Jhon — Lil Frigerator
+010. Status Quo — Dear John(   Читать дальше...   )Жанр: Rock'n'RollПродолжительность: 04:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1069DA3F698DDEA5EC604B7D11AE6C783C1E4DA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597433   (999678) от 05.01.2013
 
 Dalida - Oh! La La (2012) [MP3|320 кб/с]<pop>
@@ -550,168 +748,6 @@ magnet:?xt=urn:btih:5466A280979A5D8BC12BE23C2938ABD726D12A6D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8387B5F07015642A7BACA41ABE97D38AD4F869B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351360   (1002188) от 10.01.2020
-
-Georgia - Seeking Thrills (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Started Out (03:41)
-02. About Work the Dancefloor (03:28)
-03. Never Let You Go (03:47)
-04. 24 Hours (03:05)(   Читать дальше...   )Жанр: Pop-Rock, PopПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A57316BE7ADB7FDC5C92AD9C7361E135AE8E96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351290   (1002410) от 09.01.2020
-
-Fox The Fox - In The Dark Of The Nite (1984) [FLAC|Lossless|image + .cue] <Italo-Disco, Electro, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002410.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Flirting And Showing 4:42
-2 Stealin' 4:47
-3 In The Dark Of The Nite 4:32
-4 Check It Out 4:59(   Читать дальше...   )Жанр: Italo-Disco, Electro, EuropopПродолжительность: 0:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D99969B35FB30FF701267407569F62C4D240E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351247   (1002425) от 09.01.2020
-
-a-ha - Lifelines (2019) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lifelines (Demo) (5:16)
-02. You Wanted More (Demo) (4:01)
-03. Forever Not Yours (Demo) (4:12)
-04. There's A Reason For It (Demo) (4:14)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, Synthpop |Продолжительность: 01:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD51D4A73CCBDFA44B27A40800C62D9F626F9D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351288   (1002430) от 09.01.2020
-
-Selena Gomez - Rare (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rare
-02. Dance Again
-03. Look At Her Now
-04. Lose You To Love Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767F2FCDFDDDA90944F4E8B0DEE67F0F547CB58B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351269   (1002468) от 09.01.2020
-
-Bazykina Twins - Moscow Nights Ultimate (2017) [FLAC|Lossless|image + .cue] <Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002468.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Moscow Nights 3:46
-2 What Goes On In Your Mind 4:25
-3 Loving Joy Is All I Know 3:25
-4 Female Of The Species 4:14(   Читать дальше...   )Жанр: Disco, Euro-DiscoПродолжительность: 01:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D108755C7AFB7B04B67D75490133D9E27567AD1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488051   (1002493) от 09.08.2021
-
-VA - 100 Hits Number 1's (2018) Box Set, 5 CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002493.jpg" />
-</div>
-
-
-###  Подробнее
-
-У каждого исполнителя есть несколько хитов, которые мы называем номер 1. Это по мнению большинства - вершина достижений каждого из исполнителей. Вот три года назад Demon Music Group решила собрать под обложкой одного бокссета такие высшие достижения некоторых исполнителей и дать возможность слушателям вспомнить и насладиться ещё раз хитами прошлого. Вряд ли Вы для (   Читать дальше...   )CD1:
-01. Britney Spears - …Baby One More Time  (3:31)
-02. Justin Timberlake feat. Timbaland - Sexyback  (4:03)
-03. Shakira feat. Wyclef Jean - Hips Don’t Lie  (3:39)(   Читать дальше...   )Тип издания: Box Set, 5 CDРелиз состоялся: 02 ноября 2018Жанр: Pop, Rock, DanceПродолжительность: 06:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAE4F3E95494B5BF7A7600AADDF4AD4C13C9D75E
 ```
 
 

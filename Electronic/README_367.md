@@ -1,3 +1,138 @@
+###  Публикация: 1127577   (731148) от 22.04.2017
+
+VA - Black Hole House Music 04-17 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tyng & KMRN - Cracks On The Wall (feat. Shadisha)  6:27
+02.  James DX - Maximum Effort (Original Mix)  6:01
+03.  RBYN - Angel (Metrush Remix)  3:15
+04.  Bobina & May-Britt Scheffer - Born Again (Filatov & Karas Extended Remix)  4:14(   Читать дальше...   )Жанр: HouseПродолжительность: 01:25:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A939B9F601617750A4C40F6273D287A53C2BB67D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127889   (731158) от 22.04.2017
+
+WellenVorm - Petrified Forest (2016) [MP3|320 Kbps] <Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731158.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Perm - 6:21
+2. Twilight - 5:11
+3. Thunder - 10:00
+4. Blust Wave - 0:55(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6EF46B787F158B2672CCC386D4FDD62A6A6DE33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127327   (731608) от 21.04.2017
+
+ATB - neXt (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Downtempo, Progressive House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pages (feat. Haliene) (3:42)
+02. Never Without You (feat. Sean Ryan) (5:36)
+03. If It Takes All Night (feat. Cavale) (3:27)
+04. Stay with Me (feat. Mike Schmid) (3:19)(   Читать дальше...   )Жанр: Progressive Trance, Downtempo, Progressive HouseПродолжительность: 01:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6783C5A2AF78C2FF51A3C4337ECBC34B77C2DA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127372   (731728) от 21.04.2017
+
+VA - A State Of Trance 2017 (Mixed by Armin Van Buuren) (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alpha 9 - The Night Is Ours (2:51)
+02. Joonas Hahmo & K-System - Ymana (2:39)
+03. Alexandre Bergheau - Summer's Gone (Yoel Lewis Remix) (2:04)
+04. Fatum - Draco (3:33)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 04:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0126F6D292F642F9F28653936481AC923A35642
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021127   (731759) от 30.05.2016
+
+Maduk - Never Give Up (2016) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maduk – Nothing More (4:06)
+02. Maduk/Veela – Got Me Thinking (3:32)
+03. Maduk – One Way (4:28)
+04. Maduk/Voicians – The End (4:55)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2E9C912617A0047C9D94E95BF05068BA0D46A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127392   (731842) от 21.04.2017
 
 Parov Stelar - The Burning Spider (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Nu Jazz>
@@ -559,141 +694,6 @@ VA - Vocal Trance Hits (2022) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E04DA4FC8CEBF4FD4A2D3DA824793FA062305273
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399522   (733416) от 31.07.2020
-
-VA - Vocal Trance Top 50 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trance Classics & Esmee Bor Stotijn - Till The Sky Falls Down (Original Mix)
-02. 4 Strings & Fenna Day - Enough (Radio Edit)
-03. Julian Vincent feat. Cathy Burton - Here For Me (Mark Otten's Radio Edit)
-04. Aurosonic, Kate Louise Smith & Denis Karpinskiy - They Wait For Us (Radio Edit)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3F43DF4CA9EE6B6CA3AF2D6FF135D343C85CD84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399398   (733431) от 31.07.2020
-
-VA - Relax Culture, Vol. 2 (2020) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kick Bong - Tranquility Vibes (5:08)
-02. Earth Connect - Blues Out (5:38)
-03. Potlatch - Wonder (5:28)
-04. Eguana - Cozy Courtyard (4:34)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 01:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D95CFAFEAE818C699B435AC0706BA4407838D69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399456   (733434) от 31.07.2020
-
-VA - Armin van Buuren - Lost Tapes (2020) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren feat. Sharon Den Adel - In And Out Of Love (ilan Bluestone & Maor Levi Remix)
-02. Armin van Buuren feat. Trevor Guthrie - This Is What It Feels Like (Maddix Remix)
-03. Armin van Buuren x Dimitri Vegas & Like Mike x W&W - Repeat After Me (DRYM Remix)
-04. Armin van Buuren x W&W - If It Ain't Dutch (Zatox Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E985448FE0442387973829DF15F69375348F24E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399486   (733445) от 31.07.2020
-
-VA - Markus Schulz - Global DJ Broadcast Top 20 July (Extended Version) (2020) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz feat. Jared Lee - Together (Rise Together Extended Mix)
-02. Ferry Corsten - Tomorrow (Extended Mix)
-03. Markus Schulz - Sunrise Over The Bay (Daxson Extended Remix)
-04. Kemal Vatansever & AVCI - The Dreamer (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F64D2FFEB655508925C5CCD553FD39EDECFA23F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528639   (733582) от 04.02.2022
-
-VA - For The Users Vol. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elevate the Sky - Forged In Neon (4:20)
-02. DeltaCity - StarKiller (5:16)
-03. Palm Lakes - Nothing To Me (4:04)
-04. Megatronix - Notorious (5:54)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C55B4B6F68448018FFDC6EC26B1E583660F13D6
 ```
 
 

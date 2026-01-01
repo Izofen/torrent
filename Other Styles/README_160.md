@@ -1,3 +1,211 @@
+###  Публикация: 1102522   (890612) от 09.02.2017
+
+Paul Mauriat - Tout Pour la Musique & Roma Dalla Finestra (1982) Compilation, Remastered, 2013, Vocalion [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tout Pour La Musique (1982)
+01. Souvenirs (Memory) (Lloyd Webber; Eliot; Nunn) (3:33)
+02. Tout pour la Musique (Berger) (2:55)
+03. Staccato (Mauriat; Gambus) (2:48)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB60695DD88369EF16A698390B52F063C184DFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 762415   (890664) от 03.03.2014
+
+Martin Nemec - Angel Voices (1994) [FLAC|Lossless]<New ega, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Macrocosmos - 1 (04:48)
+ 02. Inspired Nature (05:20)
+ 03. Nature Godhead (04:26)
+ 04. Song Of The Waves (04:42)
+ 05. Source Of Life (06:05)
+ 06. Nada Brahma (07:41)
+ 07. Magic Of Rain (05:42)
+ 08. Archetypus (03:31)
+ 09. Microcosmos (04:34)
+ 10. Macrocosmos - 2 (04:14)Жанр: New Age, Meditative, RelaxПродолжительность: 00:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13CFA62B37A21DAF7EC83EC4B3E3BB9C5FA1158
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 762546   (890718) от 03.03.2014
+
+Waykey - Waykey (2007) [FLAC|Lossless]<New Age, Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(3:46) 01. Dream Catcher
+(4:11) 02. Spirit voices
+(5:53) 03. Valle del Alto
+(6:26) 04. Wairapa muspuni
+(7:19) 05. Wayraman
+(4:19) 06. Anquayllu
+(4:17) 07. Blue sky
+(6:02) 08. Dance with spirits
+(5:05) 09. Qapaq ñan
+(5:00) 10. Vilkamayu(   Читать дальше...   )Жанр: New Age, Native AmericanПродолжительность: 01:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1E8AEB98A5AFC5CA0262F1F2966BCA06F9AD340
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 639421   (891008) от 05.04.2013
+
+Philip Wesley - Heart to Hands: A Solo Piano Retrospective 2002-2012 (2012) [MP3|320 кб/с]<New age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(5:04) 01. Lamentations of the Heart
+(4:29) 02. Wings to Freedom
+(6:41) 03. Light & Shadow
+(2:40) 04. Comfort & Joy
+(7:10) 05. Dark Night of the Soul
+(3:26) 06. At This Moment
+(4:45) 07. Leaving the Darkness Behind
+(3:19) 08. Love Remembered
+(5:06) 09. The Unknown
+(4:23) 10. Equestrian Dream(   Читать дальше...   )Жанр: New age, Instrumental, PianoПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6B0C1787B439BF75E2A66AB2E09329D6F812907
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 867802   (891361) от 15.02.2015
+
+John Frizzell - Лофт / The Loft (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles (01:56)
+02. Vincent Sees The Body (01:51)
+03. Luke Interrogated (01:15)
+04. Chris & Marty See Sarah Dead (02:15)
+05. Ann Meets Chris (01:45)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C315127AB1BCAC9F03B749A9984431F295FDEE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993555   (891498) от 07.03.2016
+
+OLIGARKH - Анатолий (2016) [MP3|320 кб/с] <Folk, Hip-Hop, Electronic, Break, BeatTrap>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аллилуйя
+02. На речке
+03. Все вместе
+04. Игорь(   Читать дальше...   )Жанр: Folk, Hip-Hop, Electronic, Break, BeatTrapПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617ABB2594A99B43D883AC540E20299711B626E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993009   (891529) от 07.03.2016
+
+Ветер Всем - Выдох (2015) [FLAC|tracks|Lossless]<Folk-Rock, Experimental Folk, Ambient Ethno>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891529.jpg" />
+</div>
+
+
+###  Подробнее
+
+[06:25] 01. Молодка
+[03:57] 02. Дороженька
+[02:42] 03. Калина
+[06:43] 04. По Морю(   Читать дальше...   )Жанр: Folk-Rock, Experimental Folk, Ambient EthnoПродолжительность: 00:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F103713C1019B82535EEBEBECB6758EDA0EB9522
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994376   (891577) от 07.03.2016
 
 Gomer Edwin Evans - Mystical Eastern Beauty (2016) [MP3|320 кб/с] <New Age, Instrumental, Relax>
@@ -571,201 +779,6 @@ Chronotope Project - Passages (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <New-A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBCE8F70C7A64C10AF975E9F18E72FDFED67BB63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101863   (892929) от 08.02.2017
-
-Greg Maroney - Quiet Piano Improvisations, Vol. 2 (2017) [MP3|320 Kbps] <New Age. Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  My Everything [00:04:51]
-02 -  Melting Heart [00:05:02]
-03 -  Meditation [00:07:06]
-04 -  Daydream [00:06:37](   Читать дальше...   )Жанр: New Age. InstrumentalПродолжительность: 01:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E69C6D0BF856CB53F48CA4F29B293DDEE19BDAE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 762090   (892964) от 02.03.2014
-
-Enaid & Einalem - Celtic Nights (1996) [MP3|320 кб/с]<New age, Celtic, Nature sounds>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(5:17) 01. Hills of Myst
-(4:30) 02. Spring Faire
-(5:10) 03. Carry On
-(4:54) 04. Moon Dance
-(5:36) 05. Fields of Rain
-(4:33) 06. Prophecy
-(6:16) 07. Ancient Wisdom
-(5:14) 08. Cryof the Wind
-(5:00) 09. Celtic Nights
-(7:01) 10. Storm Across the Sea(   Читать дальше...   )Жанр: New age, Celtic, Nature soundsПродолжительность: 00:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42520CC498AC40E3A89AB32BE920A5C3DEE580E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370945   (893353) от 29.03.2020
-
-VA - Super Instrumental Vol.1 (2001) Величайшие хиты XX века [FLAC|Lossless|tracks + .cue]<Instrumental, Pop>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. G. Last - The Lonely Shepherd
-02. P. Mauriat - Love Is Blue
-03. F. Pourcel - A Paris
-04. P. Weekers - El Condor Pasa(   Читать дальше...   )Жанр: Instrumental, PopПродолжительность: 01:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AA3881FA977DD2FB1D2AD79E0F3A54520B23BE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370935   (893406) от 29.03.2020
-
-VA - Ethnic Music The Indians' Collection (2013) [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sioux Company - Brandishing the Tomahawk
-02. Nazca - Ly-O-Lay Ale Loya (The Counterclockwise Circle Dance)
-03. Nazca; Wayra Rodriguez - Ancient Spirit
-04. Nazca; Wayra Rodriguez - Ceremony(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 04:20:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A36A54AB0989C9256FE9A754CE3D99DFED47652
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370936   (893415) от 29.03.2020
-
-Richard Clayderman & James Last - Together At Last (1991) [FLAC|Lossless|tracks + .cue]<Instrumental, Piano, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From A Distance
-02. ( Everything I Do ) I Do It For You
-03. Sacrifice
-04. Moonfire(   Читать дальше...   )Жанр: Instrumental, Piano, Easy ListeningПродолжительность: 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC58E2699462652A3241498D32FD2EC4E4E4EAC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370601   (893495) от 29.03.2020
-
-Cris Velasco & Sascha Dikiciyan - The Long Dark Soundtrack (2017) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893495.jpg" />
-</div>
-
-
-###  Подробнее
-
-2017 - SURVIVAL Mode Ambient & Exploration
-2017 - WINTERMUTE, Ambient & Exploration
-2017 - WINTERMUTE, Episode One: "Do Not Go Gentle
-2017 - WINTERMUTE, Episode Two: "Luminance FugueЖанр: SoundtrackПродолжительность: 01:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2F6B62D08BDFC6C5DCB79A5380F80504174240
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993838   (893557) от 06.03.2016
-
-VA - Война (2002) [FLAC|Lossless|image + .cue] <Rock, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Любэ - Давай за
-02. 7Б - Молодые ветра
-03. Танцы Минус - Не меняй меня
-04. Тараканы! - Я смотрю на них(   Читать дальше...   )Жанр: Rock, SoundtrackПродолжительность: 01:17:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:053A0FF2DE26F1493B317278A9D9E73167CCD7D3
 ```
 
 

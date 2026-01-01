@@ -1,3 +1,30 @@
+###  Публикация: 1097755   (912393) от 28.01.2017
+
+VA - Songbird Voices Of Romance (2017) [MP3|320 Kbps] <Jazz, Vocal, Easy Listening>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912393.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nina Landis - Songbird 3:22
+2. Christopher Cross - Arthur's Theme (Best That You Can Do) 4:25
+3. Kathy Troccoli - Dance With Me 4:25
+4. Matt Belsante - Nothing Can Change This Love 3:48(   Читать дальше...   )Жанр: Jazz, Vocal, Easy ListeningПродолжительность: 01:02:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B802BCEF0795BA021F8A85A7A010022A287DD84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096730   (912579) от 28.01.2017
 
 VA - Club Dance Ambience Vol.99 (2017) [MP3|320 Kbps] <Dance, Club, Club House, House>
@@ -688,33 +715,6 @@ VA - Robins Elegant Set (2020) [MP3|320 Kbps] <EDM, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57D1D0EC3BA509C3C5ECF78B6E1F90732D0914F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367704   (914040) от 17.03.2020
-
-VA - не Громкие новинки недели 59 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914040.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.СредиНас - Мёд (5:23)
-2.Say Long feat. Lirity & Lapatin - Вселенная (4:22)
-3.ANIKV feat. Saluki - Меня Не Будет (4:13)
-4.Евгений Путилов - Без Тебя (4:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADEE12FE9A6FE2C9A94ADC6CEAF2C0BD7214ACC2
 ```
 
 

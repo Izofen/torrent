@@ -1,3 +1,138 @@
+###  Публикация: 1207263   (780741) от 17.02.2018
+
+] interstice [ - Descendence (2017) Innovative Sonic Arts [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Experimental, Electro, Ambient, Industrial>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Descendence (07:34)
+02. Megalomania (04:54)
+03. Bottomless Desire (05:34)
+04. Dissolving Boundaries (05:04)(   Читать дальше...   )Жанр: IDM, Experimental, Electro, Ambient, IndustrialПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6952ABD60E1A103525826549F76BB0AC46203193
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207057   (780850) от 17.02.2018
+
+VA - Running Electronica, Vol. 10 (For a Cool Rush of Blood to the Head) (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5K Power-Run-Mix (continuous DJ mix 1) (30:35)
+02. 10K Power-Run-Mix (continuous DJ mix 2) (01:00:00)
+03. Spuri & Andre Bastos - Alika (original mix) (08:07)
+04. Jan Blomqvist - Winter Roads (04:51)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 04:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A30054084E10B8F3930DFBD48866019B7F3A0380
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207301   (780853) от 17.02.2018
+
+VA - Relax At The Fireplace Vol.2 - Warm & Sensitive Lounge Music (2018) [MP3|320 Kbps] <Downtempo, Lounge, Electronica>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Maretimo  -  I Love The Night (Vladi Strecker & Moonlight Flow Mix)  7:48
+02.  Citrus Jam  -  Let Me Arrive (Smooth World Mix)  4:47
+03.  Le Voyage  -  Cool Love (Loveletter Mix)  4:08
+04.  Jazz City  -  Hold It On (In The Garden Mix)  6:15(   Читать дальше...   )Жанр: Downtempo, Lounge, ElectronicaПродолжительность: 05:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F69F5B12AEECEB922EFD34F17D889E1E8CE6F86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207192   (780901) от 17.02.2018
+
+VA - Lullaby Ambient (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K37 – New Born (feat. Yellowbelly)
+ 02. Der Bischof – Nightly Embrace
+ 03. Tolubai – Close Your Eyes
+ 04. AndaWan – Sleepy Baby (feat. Aivy)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3F3AA16698B9B559FA5D4622EAA004C211ADE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391410   (781020) от 20.06.2020
+
+Zetandel & Tiff Lacey - Songs Under Moonlight (2020) RNM Bundles [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_781020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmos (04:45)
+ 02. Escape (Pina Colada Song) (04:56)
+ 03. Lucky Charm (04:06)
+ 04. Waterfall (05:10)(   Читать дальше...   )Жанр: Downtempo, TranceПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E681A36A5083DBF34D549FDF618276FE3B19D66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206954   (781297) от 16.02.2018
 
 Magnetik - Body Language (2018) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive Trance>
@@ -553,141 +688,6 @@ Tângela (Tangela) - Dolphin Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26908E2FAFF17CAF9BF81E6D2FCA4C72CE170AF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206406   (782101) от 14.02.2018
-
-Faithless - Forever Faithless: The Greatest Hits (2005) Limited Edition [FLAC|Lossless|tracks + .cue] <Progressive House, Downtempo, Hip-Hop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/16. Insomnia (8:42)
- 02/16. Mass Destruction (3:33)
- 03/16. God Is A DJ (3:29)
- 04/16. Don't Leave (4:00)(   Читать дальше...   )Жанр: Progressive House, Downtempo, Hip-HopПродолжительность: 01:15:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56BEC52309F620ED980AC561B482C669F8773386
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206589   (782113) от 14.02.2018
-
-VA - The Dream - Best Of Torsten Fenslau (1994) 2CD [MP3|320 Kbps] <Electronic, EBM, Techno, Euro House>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Torsten Fenslau был одним из самых влиятельных продюсеров ранней немецкой танцевальной сцены. Его прорыв произошел в 1993 году с Culture Beat's 'Mr. Vain', которая возглавила все европейские чарты в этом году. Торстен управлял своим собственным лейблом "Abfahrt Records" и являлся резидентом  Dorian Gray во Франкфурте. Он умер слишком рано в автокатастрофе (   Читать дальше...   )01. Out Of The Ordinary - The Dream (7:50)
-02. Abfahrt - Alone It's Me (9:12)
-03. Klangwerk - Klangwerk (6:11)
-04. Out Of The Ordinary - Play It Again (Los Ninos Mix) (6:59)(   Читать дальше...   )Жанр: Electronic, EBM, Techno, Euro HouseПродолжительность: 02:30:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3486826E3BAFF1EC1D3F940AD5C0F5BB6F1EC657
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206638   (782123) от 14.02.2018
-
-VA - Workout Music, Vol. 8 (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dimix - Started A Fire (feat Amy Kirkpatrick - instrumental mix)
-02.  Maxim Ivanchenko - Pure Energy (original mix)
-03.  Ravelic - Battleship (original mix)
-04. Newlex - Hysteria (original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:15:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA33FE771C0F01D60795DF66FBAB7A4ECFF89AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206523   (782147) от 14.02.2018
-
-VA - Chillout Empire Costa Del Sol Selection (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Zero Feedback  -  Rien Ne Va Plus (Don Gorda Project Remix)  7:00
-02.  Enrico Donner  -  Time Stands Still (feat. Theresa Thomason)  4:43
-03.  Don Gorda Project  -  Rise To The Surface (Original Mix)  5:36
-04.  Zero Feedback  -  Deep In The Rain Forest (Original Mix)  6:35(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9BA3CF2B220C0EEB95F3BEE64B37D9C716C8A09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206542   (782149) от 14.02.2018
-
-VA - Dinner In Love (Romantic Lounge Music Playlist) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabrielle Chiararo - Father Mother
-02. Jon Bax - Candy Apple
-03. Giacomo Bondi - Soft Bossa
-04. Bronkelstein Hiram - Tiki Lounge(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF83E8EEE34A8CD1FAA5F5BFB404B28D8D73A95
 ```
 
 

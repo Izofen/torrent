@@ -1,3 +1,30 @@
+###  Публикация: 1507486   (798481) от 04.11.2021
+
+VA - A Synthwave Panorama Vol. 5 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy Malyari - Spaceman (5:52)
+02. StrayLight - Chasing The Light (4:28)
+03. IDEON - The World Might End Tomorrow (Gertrudda Edit) (8:10)
+04. TrialCore - Living In Cybercity (3:56)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8788A90C392D7ABCEAF3CB409D10BC345E4B1E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273836   (798572) от 04.01.2019
 
 VA - Deep House Collection vol.194 (2018) [MP3|320 Kbps] <House, Deep House, Progressive>
@@ -668,33 +695,6 @@ VA - Отдохни от праздников (2019) [MP3|320 Kbps] <Soul, Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A63AC5AEA97CC18075F9A2B6EFC1015A2ED9A047
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273593   (799407) от 03.01.2019
-
-Inkubus Sukkubus - Tales of Witchcraft and Wonders.(Vol. 1-3) (2016-2018)[MP3|320 Kbps] <Pagan, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vol. 1 - Barrow Wake:
-01.The Enchanted Realm (5:53)
-02.Woman to Hare (Daemon Romantica Mix) (5:20)
-03.Lost to the Sea (5:34)(   Читать дальше...   )Жанр: Pagan, RockПродолжительность: 03:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14BE9CB1D27A85E45DE4E8E01297EF3EF0BD8DC9
 ```
 
 

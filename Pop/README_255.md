@@ -1,3 +1,165 @@
+###  Публикация: 1219397   (713771) от 14.04.2018
+
+VA - The Sound Of Summer (2017) Limited Special Edition[FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приближается лето. По всем признакам, в том числе и музыкальным. Из последней командировки предлагаю свой улов.
+Уж не знаю, каким принципом руководствовались составители - скорее всего всем сестрам по серьгам. Уж больно широк спектр исполнителей. Но небольшой и содержательный буклет прикладывается.
+Не знаю как Вам, а у меня в машине уже неделю крутиться... С наступающим (   Читать дальше...   )01. Pharrell Williams - Happy  (3:54)
+02. Marvin Gaye & Kygo - Sexual Healing  (3:07)
+03. Olly Murs feat. Demi Lovato - Up  (3:44)
+04. Mr. Probz - Waves  (3:29)(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0681DDFF01F7A8E836171E2BEF2ECA9D6F069DCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025025   (713835) от 10.06.2016
+
+Willy William - Une Seule Vie (2016) [MP3|320 кб/с] <Dance, Pop, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Te quiero
+02.Жанр: Dance, Pop, ElectroПродолжительность: 00:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41C6EA02D90C53F85D42890C0A8DAA9B1E8CE237
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219459   (713907) от 14.04.2018
+
+The Nolans - 1 Album, 1 Compilation (1978, 1996) [MP3|320 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ирландская поп группа в составе из пяти сестер, которая до 1980 года так и называлась - The Nolan Sisters. Мировую известность получили за хит "I'm In the Mood for Dancing". Выпущенная в декабре 1979 года, песня достигла третьего места в Великобритании в феврале 1980 года и возглавила японские чарты в ноябре 1980 года.01. Something Tells Me (Something's Gonna Happen Tonight) (2:24)
+02. Sailing (4:08)
+03. Don't It Make My Brown Eyes Blue (2:32)
+04. Mull Of Kintyre (4:17)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 02:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:532D022F031F86EBE3D8AE0BA83172AD5129DB69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024908   (713951) от 10.06.2016
+
+Tom Odell - Wrong Crowd (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <Indie-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wrong Crowd (4:27)
+02. Magnetised (3:55)
+03. Concrete (3:50)
+04. Constellations (4:35)(   Читать дальше...   )Жанр: Indie-PopПродолжительность: 01:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC0F0EC4D7F86018AF40476737E5E5BDF0DDBFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024913   (713954) от 10.06.2016
+
+Rick Astley - 50 (2016) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep Singing (3:58)
+02. Angels On My Side (3:36)
+03. Wish Away (3:27)
+04. This Old House (4:31)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC92EDBA7985142F28E6DC235DAF3FCBBE27F0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219515   (714022) от 14.04.2018
+
+VA - Maxi Disco (1979) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. M - Pop Muzik (5:00)
+02. Amii Stewart - Knock On Wood (6:01)
+03. Ganymed - It Takes Me Higher (4:53)
+04. Patrick Juvet - Lady Night (6:46)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F1E15A09CD72D7AA0AC5BB7D6A76E8AA391C28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025014   (714080) от 10.06.2016
 
 Matia Bazar - Brivido Caldo (2000) [FLAC|Lossless|tracks] <Pop, Italo-pop, Disco>
@@ -534,168 +696,6 @@ VA - В русском ресторане. Романсы. (Выпуск 2) (200
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CA06D5B6CB220EC2BAF8CFDFD02837F2C3C184C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130458   (716155) от 01.05.2017
-
-Эмма М - Штрихкоды (2017) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Музыка
-02. Штрихкоды
-03. 3D
-04. Белые ночи(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BFB62816F36E84E4F625096AEF9EBA3700B5C5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532221   (716235) от 18.02.2022
-
-Николай Расторгуев и Любэ - Своё (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716235.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. А заря
-2. Ночь
-3. За тебя
-4. Младшая сестрёнка(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD1BA6FB31DC923ED70ECC80FE9080EFFA28229
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130307   (716246) от 01.05.2017
-
-Клавдия Шульженко - Старинный вальс (2001) [MP3|320 Kbps] <Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716246.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ожидание (2:10)
-2. Не шути (3:19)
-3. Фраскита (2:20)
-4. Старинный вальс (2:41)(   Читать дальше...   )Жанр: РетроПродолжительность: 01:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D066D18A1C12E100BF0A74D555248F8AA79C99D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532204   (716398) от 18.02.2022
-
-VA - The Sun Shines Here (The Roots Of Indie-Pop 1980-1984) (2021) 3xCD, Compilation [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie Rock, Post-Punk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716398.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1-1 Wah Heat!– Better Scream
-1-2 The Teardrop Explodes– Read It In Books
-1-3 Lori & The Chameleons– The Lonely Spy(   Читать дальше...   )Жанр: Indie Pop, Indie Rock, Post-PunkПродолжительность: 03:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8BA4ED749940F2889A3A26DC2FFFAF5762D7FFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532099   (716399) от 18.02.2022
-
-Tina Charles - 5 Albums (1976-1980) LP [MP3|320 Kbps] <Pop, Boogie, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тина Чарльз (урожденная Тина Хоскинс; 10 марта 1954) - английская певица, добившаяся успеха как диско-исполнительница в середине-конце 1970-х годов. Ее самым успешным синглом стал британский хит № 1 "I Love to Love (But My Baby Loves to Dance)" в 1976 годуСписок альбомов:
-1976 - Dance Little Lady
-1976 - I Love To Love
-1977 - Heart 'N' Soul(   Читать дальше...   )Жанр: Pop, Boogie, Funk Soul, DiscoПродолжительность: 03:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D36DC635FBA9AFA1F427417A21819367CE33CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130480   (716514) от 01.05.2017
-
-VA - Planet Italo Disco Vol. 6 (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716514.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Emy Care – Read My Mind (Radio instrumental Disco mix) (04:13)
-2. Robert Hill – Hold Me Again (instrumental Radio Love mix) (04:31)
-3. Boris Zhivago – Russian Fantasy (Short instrumental) (04:10)
-4. Ranger – Time (Radio Smack instrumental mix) (04:20)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F549651ABDEEA508E2D26D860EE117BB5CF07C
 ```
 
 

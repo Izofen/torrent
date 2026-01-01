@@ -1,3 +1,57 @@
+###  Публикация: 1506102   (800830) от 30.10.2021
+
+VA - Best of Classical Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London Philharmonic Choir - Carmina Burana, Fortuna Imperatrix Mundi No. 1, O Fortuna (2:42)
+02. London Philharmonic Orchestra - Orchestral Suite No. 3 in D Major, BWV 1068 II. Air (4:14)
+03. Finghin Collins - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight I. Adagio sostenuto (5:36)
+04. SWR Symphony Orchestra - Symphony No. 41 in C Major, K. 551 (   Читать дальше...   )Жанр: Classical, InstrumentalПродолжительность: 08:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE039306EA458C00B994C0AA3F6865201229F5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506366   (800892) от 30.10.2021
+
+Secret Garden - Sacred Night - The Christmas Album (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Folk>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Million Stars (3:51)
+02. Ave Maria (4:30)
+03. Sacred Night (4:08)
+04. Sagnet om julerosen (3:43)(   Читать дальше...   )Жанр: Classical, FolkПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AF41F5D9431AB4158D8A139996E05BC8BC73A8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010711   (802037) от 25.04.2016
 
 Max Richter - Recomposed By Max Richter: Vivaldi - The Four Seasons (2012) [MP3|320 кб/с] <Modern Classical>
@@ -642,60 +696,6 @@ Gurre-Lieder: Part I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6196C6EB15FF3A72B68145630DE42D361674AF0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196603   (820518) от 04.01.2018
-
-New London Chorale - The Classic Christmas Collection (1998) [MP3|320 Kbps] <Сrossover Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For unto us
-02. Stille Nacht
-03. Winter wonderland
-04. Oh Tannenbaum(   Читать дальше...   )Жанр: Сrossover Classical, TraditionalПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE8BB8DBE8E017327D03BDE6F8E065ECE4B6D7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196646   (820522) от 04.01.2018
-
-New London Chorale - Young Christmas (2001) [MP3|320 Kbps] <Crossover Classical, Traditional>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820522.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	See Amid The Winter’s Snow
-2	O Little Town Of Bethlehem
-3	In The Bleak Mid Winter
-4	The Holly And The Ivy(   Читать дальше...   )Жанр: Crossover Classical, TraditionalПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF8476FAB6F2B5FA8F7BA8331B30B641BB01867
 ```
 
 

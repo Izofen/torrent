@@ -1,3 +1,165 @@
+###  Публикация: 1202163   (790527) от 28.01.2018
+
+Charlotte Gainsbourg - Stage Whisper (2011) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, French Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/11. IRM (2:41)
+02/11. Set Yourself On Fire (3:53)
+03/11. Jamais (4:02)
+04/11. Heaven Can Wait (2:22)(   Читать дальше...   )Жанр: Indie Pop, French Pop-Rock |Продолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B5A822818A4F46654EE576325C96BDB21A889E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202353   (790534) от 28.01.2018
+
+DNCE - DNCE (2016) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DNCE
+02. Body Moves
+03. Cake by the Ocean
+04. Doctor You(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E4584019AA1669DD33A4D9E7ADAF16680B18F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387800   (790673) от 03.06.2020
+
+VA - The Non-Stop Party Album (2000) [FLAC|Lossless|image + .cue] <Disco, Euro House, Cover>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shout - Lulu (2:55)
+02. Back to the 60s Vol. 1- Dancing in the Street- (I Can't Get No) - Tight Fit (3:56)
+03. Stars on 45 Vol. 1-The Beatles Medley- Stars on 45-Venus-Sugar Sugar - Starsound Orchestra (4:30)
+04. You Sexy Thing - Hot Chocolate (3:55)(   Читать дальше...   )Жанр: Disco, Euro House, CoverПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C032BF42FD44A7ECBA5C9A3D9781B9EAB63EA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387805   (790674) от 03.06.2020
+
+Hitmasters - Hey Sexy Lady (2003) [FLAC|Lossless|image + .cue] <Pop, Parody>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Der Steuersong (Lass Kanzlern) (3:10)
+02. Ein Rudi Völler (3:14)
+03. Everytime (3:02)
+04. Can't Get You Out Of My Head (3:50)(   Читать дальше...   )Жанр: Pop, ParodyПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F21D52D343C6BC73017CF9D92222BF6D78F79B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510511   (790756) от 17.11.2021
+
+Top Secret - Top Secret (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What You're Doin' (3:58)
+02. I Like The D.J. (6:28)
+03. Call Me (7:26)
+04. Dancing Into Midnight (7:00)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D6B7436A4A263F294FF25588AB7BDAEFF0D378
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387480   (791109) от 02.06.2020
+
+Michael Jackson - Discography (1967-2009) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майкл Джексон – легендарный американский музыкант, самый успешный исполнитель поп-музыки в мировой истории, танцор, актер, автор песен. В мире был продан 1 миллиард копий записей Джексона, включая альбомы, синглы и сборники. Музыкант 25 раз попадал в «Книгу рекордов Гиннесса» и только премий «Грэмми» он получил 15, а другие музыкальные награды исчисляются сотнями. (   Читать дальше...   )1972 - Ben {Motown 530 163-2}
+1972 - Got To Be There {Motown 530 162-2}
+1973 - Music and Me {Spectrum 550 078-2}
+1975 - Forever, Michael {Motown 530 280-2}(   Читать дальше...   )Жанр: PopПродолжительность: 80:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CAC991AD55E13F2871B332D911653652FD7C932
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387425   (791207) от 02.06.2020
 
 Captain Hollywood Project - Love Is Not Sex (1993) [FLAC|Lossless|tracks + .cue] <Electronic, Euro-House, Technopop, Downtempo>
@@ -533,169 +695,6 @@ Levante - Nel Caos di stanze stupefacenti (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:077680E35C0163DCB200C95E74306F68B3F5969A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387151   (792466) от 31.05.2020
-
-VA - Clubfete 90er: 60 Club & Party Hits Of The 90's Vol.2 (2020) [MP3|320 Kbps] <Club, Euro-House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snap! - The Power (7' Version) 3:47
-02. Music Instructor - Hymn (Single Edit) 3:50
-03. Charly Lownoise & Mental Theo - Stars (Video Mix) 3:37
-04. Scooter - How Much Is The Fish (Radio Edit) 3:46(   Читать дальше...   )Жанр: Club, Euro-House, EurodanceПродолжительность: 03:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC33F8CA51713B7952E7F4E44D5FFC72E811B4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387220   (792520) от 31.05.2020
-
-Icehouse - 9 Studio Albums (1981-1995) Collection [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icehouse - это австралийский рок-проект, который сформирован в 1977. Первоначально назывались Flowers, играли паб-рок, позже перешли на pop rock и synthpop с элементами new wave. Добились успеха на мировом рынке, издали несколько десятков хитов в США и Европе. Основным творческим деятелем считается Ива Дэвис (Iva Davies), часто для записей нанимались сольные исполнители. (   Читать дальше...   )Список альбомов:
-1981 - Icehouse
-1982 - Primitive Man
-1984 - Sidewalk(   Читать дальше...   )Жанр: Electronic, Pop Rock, Synth-popПродолжительность: 10:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8355A2BD36198782C5AE56347AFB7BF4B5668A36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123361   (792527) от 07.04.2017
-
-VA - Айсберг 5. Международный (2001) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Da Mutz - Wassup!
-02. 98 Degress - Gimme just one night (une noche)
-03. Point Break - Do we rock
-04. a-ha - Minor Earth, major sky (ATB club remix)(   Читать дальше...   )Жанр: Pop
-Издание: Iceberg Music - HH-34CD/01Продолжительность: 01:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CBED060A29E9737F1EAA43E94020D811FF90E51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387167   (792628) от 31.05.2020
-
-VA - Summer Hits of the 10s (2020) [MP3|320 Kbps] <Pop, Lyrics>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wynter Gordon - Dirty Talk
-02. Cody Simpson - La Da Dee
-03. Nickelback - When We Stand Together
-04. Guy Sebastian & Lupe Fiasco - Battle Scars(   Читать дальше...   )Жанр: Pop, LyricsПродолжительность: 01:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555EDFFCF4EBFD03DB4768D2D1E004026DD52F58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387139   (792637) от 31.05.2020
-
-VA - DMC - Cool Grooves 61 (2020) [MP3|320 Kbps] < Electronic, Hip Hop, Funk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AJ Tracey feat MoStack - Dinner Guest
-02. Akon & Wizkid - Escape
-03. Barry Upton - Isolated (Radio)
-04. Black Eyed Peas & Ozuna & J.Rey Soul - Mamacita (Clean)(   Читать дальше...   )Жанр: Electronic, Hip Hop, Latin, Funk / Soul, PopПродолжительность: 01:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8769DE3B99DC47B3352D06CC744BC2C539AAE9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387010   (792640) от 31.05.2020
-
-Пара Нормальных - Скандал во время рекламы (2010) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:37:03Трэклист: 01. Не улетай
-02. Поломана
-03. Ты не шаришь
-04. Скандал(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E68FCBD07CCCD1E3189CBFEC8A64437D8C8E731
 ```
 
 

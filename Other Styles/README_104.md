@@ -1,3 +1,94 @@
+###  Публикация: 1033073   (640113) от 10.07.2016
+
+Mike Howe - Lichens (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Acoustic Guitar>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into the Night [00:03:56]
+02. Remember [00:04:09]
+03. Joni [00:03:48]
+04. Plains [00:03:19](   Читать дальше...   )Жанр: New Age, Acoustic GuitarПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D956668F00BB0AE9E701240E309319F8B8FA3F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517590   (641160) от 04.07.2012
+
+VA - Песни бушменов (2012) [MP3|192 кб/с]<Этно>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Kolota
+02 Mambo
+03 Птичка щебечет в кустах
+04 Девичья зрелость
+05 Кустарниковая свинья
+06 Песня следопытов
+07 Песня о дожде
+08 Детская песняЖанр: ЭтноПродолжительность: 01:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B91C48FFFF372FC75F99F99C26B6ED6333E7F4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518759   (641398) от 04.07.2012
+
+VA - The Music of Spain (2004) [FLAC|Lossless]<Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_641398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paco Morena - Concierto De Aranjuez [03:18]
+02. Paco Morena - Hombrecito [02:38]
+03. Festiva! - La Arboleda Anaranjada [01:05]
+04. Max Marino - Espana Cani [03:56]
+05. Festiva! - Alfombras Fangosas [03:59]
+06. Festiva! - Almas delSalido [04:36]
+07. Antonitas D'Havila - Recuerdos D'Havila [02:03]
+08. Max Marino Y - Viva Espana [01:58]
+09. Julio Cortazon - Gardensof Andalucia [02:26]
+10. Festiva! - Poco Burro de la Paja [04:29](   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516960   (641458) от 04.07.2012
 
 VA-African Tribal Music And Dances - African Tribal Music And Dances (2008) [MP3|320 кб/с]<Ethnic, Folk>
@@ -307,6 +398,71 @@ magnet:?xt=urn:btih:EB21847BF950E16EE6EBE34EDF84286E22FB88D5
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518135   (643313) от 03.07.2012
+
+VA - Essential Guitar - 33 Guitar Masterpieces (2002) 2CD [WavPack|Lossless]<Classical Guitar>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_643313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeux Interdits ("Spanish Romance"), for guitar  [01:50]
+   Common Name   Spanish Romance, Jeux Interdits For Guitar
+   Composer   Anonymous
+   Performer   Pepe Romero (Guitar)
+
+ 02. Suite española No. 1, for piano, Op. 47, B. 7: Sevilla (Sevillanas)  [04:37]
+   Common Name   Sevilla Sevillanas, Suite Espanola 1 For Piano
+   Composer   Isaac Albйniz (1860 - 1909)
+   Performer   Eduardo FernandezЖанр: Classical GuitarФормат: 2CDПродолжительность: 01:15:15
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517021   (643320) от 03.07.2012
+
+VA - Адажио для арфы / Harp Adagios (2005) [FLAC|Lossless]<Classical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_643320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Well-Tempered Clavier (24), collection of preludes & fugues, Book I, BWV 846-869 (BC L80-103): P  [03:21]
+   Composer   Johann Sebastian Bach (1685 - 1750)
+
+ 02. Sonata for oboe & continuo in G minor, H. 549, Wq. 135: Adagio  [02:19]
+   Composer   Carl Philipp Emanuel Bach (1714 - 1788)
+   Performer   Rama Jucker (Cello), Ursula Holliger (Harp) & Heinz Holliger (Oboe)
+
+ 03. Prelude for piano No. 15 in D flat major, Op. 28/15, CT. 180  [05:58]
+   Composer   Frйdйric Chopin (1810 - 1849)
+   Performer   Marisa Robles (Harp)(   Читать дальше...   )Жанр: ClassicalФормат: 2CDПродолжительность: 01:08:28
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516625   (643508) от 03.07.2012
 
 Jorgen Ingmann - Guitar Romantic Collection, vol. 3 (1990) [MP3|320 кб/с]<Instrumental>
@@ -416,6 +572,39 @@ Jacob Pavek - Illume (2015) [FLAC|Lossless|tracks] <Modern Classical, Ambient, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6353A7850A8D0EF79773EA10B0FE3276F12FE3E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 215448   (643987) от 08.07.2010
+
+Dan Gibson's Solitudes - Blue sky classics (2008) [MP3|256 kbps]<Релакс, New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_643987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - J.S. Bach - Prelude in C Major from The well tempered clavier
+02 - Beethoven - Adagio from Violin sonata No.5 in F Major, Op.24. Spring
+03 - Haydn - Largo from Symphony No.88 in G major
+04 - Debussy - Preludes, Book 1. No.8. Girl with the flaxen hair
+05 - Chopin - Larghetto from Piano concerto No.2 in F minor, Op.21
+06 - Mozart - Adagio from Violin concerto No.2 in G major
+07 - Schumann - Larghetto from Symphony No.1 in B flat major, Op.38. Spring
+08 - Schubert - Andante from String quartet No.12 in C minor
+09 - Corelli - Adagio from Sonata No.6, Op.1
+10 - Tchaikovsky - Andante cantabile from String quartet No,1 in D major, Op.11Жанр: Релакс, New Age, MeditativeПродолжительность: 01:03:19
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -551,175 +740,6 @@ The Romantic Strings Orchestra - Thanks For The Memory (1995) [FLAC|Lossless|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F4636160286BC03F56C69C8AD8BCF7BE2E4EA83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906214   (645424) от 08.06.2015
-
-VA - Кунг Фьюри / Kung Fury (Original Motion Picture Soundtrack) (2015) [FLAC|WEB-DL|Lossless]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mitch Murder - Kung Fury (03:12)
-02. David Hasselhoff - True Survivor (03:42)
-03. Lost Years - West Side Lane (03:51)
-04. Betamaxx - Redlining 6th (02:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EE7FC5D27AD75F829FFB2D38EBE626AF61FA512
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906230   (645428) от 08.06.2015
-
-VA - Кунг Фьюри / Kung Fury (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mitch Murder - Kung Fury (03:12)
-02. David Hasselhoff - True Survivor (03:42)
-03. Lost Years - West Side Lane (03:51)
-04. Betamaxx - Redlining 6th (02:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:981D12B5B84C58A5030FB1CACC0542F485E15BBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517975   (645454) от 02.07.2012
-
-Henry Mancini - Trail Of The Pink Panther / След Розовой Пантеры (2011) [MP3|320 кб/с]<Score, OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645454.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Main Title (5:03)
- 2. The Easy Life In Paris – Long Version (2:56)
- 3. Salute To Balls (3:17)
- 4. The Bagman (2:19)
- 5. Scotland Yard (0:29)
- 6. In A Mist (2:16)
- 7. The Message (1:34)
- 8. One On One (1:21)
- 9. The Easy Life In Paris No. 1 (1:29)
- 10. Bruno’s Tune (1:19)(   Читать дальше...   )Жанр: Score, OSTПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA18428E0F1D0C97D60BBD46F0B77F3865B9710
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 679761   (645610) от 15.07.2013
-
-Enigma - Enigma 4 - Metamorphosis (2013) Reworked Bootleg [FLAC|Lossless|image + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - IV Chapter (3:43)
-02. - Light Of Your Smile (5:42)
-03. - Metamorphosis (9:28)
-04. - Start-To-End (6:02)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5A6E980DE39110DF61F8422770C4830E7EEF0AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 799218   (646156) от 26.06.2014
-
-The New Paul Mauriat Grand Orchestra - Still Blue (Best Collection Dedicated to Paul Mauriat) (2013) [FLAC|Lossless|image + .cue] <Easy Listening, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как известно, оркестровая музыка до сих пор пользуется завидной популярностью в Японии и странах Азии, а после смерти Поля Мориа в 2006 году интерес поклонников к его творчеству только растет.
-Представляемый альбом французского оркестра, пока не известного широкой публике, дебютный. Однако не удивляйтесь, ведь он называется "Новый оркестр Поля Мориа". Почему (   Читать дальше...   )01. Pegase (3:41)
-02. Minuetto (2:38)
-03. La chanson pour Anna (2:59)
-04. Prelude 59 (3:54)(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:533FC8CE9F1A0F7607FDF743E829EE15F470178B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142022   (646417) от 12.06.2017
-
-The Romantic String Orhcestra - Very Special Songs Of The '70s: The World's Most Beautiful Melodies (1996) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легкость необыкновенная! Это не цитата из "Ревизора", а именно так можно назвать этот диск. Он возвращает нас к истокам той музыки, которая родилась во время бунтарей и романтиков. На волне популярности популярной (уж простите за тавтологию) музыки того времени сейчас стали появляться различные ностальгические музыкальные шоу, но The Romantic String Orhcestra (   Читать дальше...   )01. The Romantic String Orhcestra - You Light Up My Life  (4:04)
-02. The Romantic String Orhcestra - Touc Me in The Morning  (4:03)
-03. The Romantic String Orhcestra - Yesterday Once More  (3:28)
-04. The Romantic String Orhcestra - Killing Me Softly with His Song  (2:36)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6992F07E1D5CC5525E64320DF6BD0ECB81CE5A50
 ```
 
 

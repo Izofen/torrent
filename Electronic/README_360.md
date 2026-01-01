@@ -1,3 +1,138 @@
+###  Публикация: 1400212   (718874) от 05.08.2020
+
+VA - Retro Drive: The Soundtrack (2020) [MP3|320 Kbps] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fantom '87 - Select Start [02:03]
+02. Michael Oakley - Rabbit in the Headlights (Instrumental) [04:13]
+03. Highway Superstar - Formation Laps [01:48]
+04. Sunglasses Kid - Braking Distance [03:15](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0C0F0FF86595E80D526BAC2A252B72BBB1E5B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129667   (718992) от 30.04.2017
+
+VA - Italo Dance Lignano Beach (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darius & Finlay - Can't Sleep (Club Mix) 04:24
+02. Adam Rise - Rocking To The Beat 04:29
+03. Carlos Martins - Lost Ones (Imagin8 & Erik Soto Remix) 02:48
+04. Baby Brown - Per Ty (Ldm Remix) 03:12(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DDDA52B46921A5B76B5A8FD63D94F9F4733E967
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129641   (718998) от 30.04.2017
+
+VA - Trance Maschine Vol.1 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Delta - Back In My Life (DJ Osip Radio Edit)  3:38
+02.  Wearealienss - Polar (Radio Cut)  3:08
+03.  Alizera - Fairy (Radio Edit)  3:30
+04.  Tranc Eye Presents Skull Crusher - Acidland (Radio Cut)  3:02(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3B3D1F02FBF85F4A3B0DD8D061F4D28C07B0444
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129656   (719000) от 30.04.2017
+
+VA - Urban Party Alarm 2 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Crew 7 - Last Night A DJ Saved My Life (Coco Fay Edit)  3:17
+02.  Freaking Beats feat. Robbie G - Shining In The Lights (Radio Edit)  3:28
+03.  Edher Torres - If You Sexy (Radio Edit)  2:44
+04.  Sunloverz - Summer Of Love 2k13 (Sean Finn Edit)  3:23(   Читать дальше...   )Жанр: HouseПродолжительность: 02:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38CF31FEDF4016AD20429D2E23276960F4D591E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400199   (719009) от 05.08.2020
+
+VA - Night Abduction (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neoid - Alone In The Dark [04:15]
+02. Units Beatz - Deformation of Planets [04:39]
+03. Ravenlore - Oh Yes [03:15]
+04. DJ Vantigo - Sexy Girl [04:28](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:772595A57310A2AA00E90FBAFA37210BC01A0698
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400197   (719015) от 05.08.2020
 
 VA - Time Limit (2020) [MP3|320 Kbps] <Drum & Bass>
@@ -557,141 +692,6 @@ VA - ROHS! - Netlabel Collection (2008-2017) (2018) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA605E7F2A7DD3C184F532F25F64AF43125EB0F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218770   (719640) от 11.04.2018
-
-VA - The Ultimate Euphoric Trance Vol. 9 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barry - Behind The Scene (Original Mix)
-02. Dave - Flying (Original Mix)
-03. Trance Arts - Gods Love (Original Mix)
-04. Soni - Soner Ozdemir - Space (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACFE80E0E1C9DFCC08384C62286B69D77C00930C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218771   (719642) от 11.04.2018
-
-VA - Dark Club Vol.4 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Costa Pantazis -Katatome (Roman Messer Remix)
-02. Carl Nicholson -Ak47 (Nicholson's 2018 Remix)
-03. Feel -Firedrops (Wilderness X A-Line Extended Remix)
-04. Steve Dekay -Hade (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:25:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ECFF80F5BD975DC6A2B95159D8587989A473C59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024211   (720174) от 07.06.2016
-
-VA - Armin van Buuren - A State Of Trance Festival (Warm Up Sets) (2016) [FLAC|Lossless|WEB-DL||tracks] <Deep House, Techno, Tech House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silinder - A World Is Watching (Michael A Remix) (7:24)
-02. Nicolas Petracca - Blast From The Past (Mitaric's Division Remix) (8:02)
-03. Ruttenbergs - The Fat Duck (Original Mix) (7:15)
-04. Sebastian Weikum - There She Is (Original Mix) (6:25)(   Читать дальше...   )Жанр: Deep House, Techno, Tech House, Progressive HouseПродолжительность: 07:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA2F470D34AEBBB49D0C165EFAB06EE7775D19AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024148   (720177) от 07.06.2016
-
-VA - Woman Trance Voices Vol. 13 (2015) [FLAC|Lossless|tracks+.cue] <Trance, Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First State feat. Anita Kelsey - Falling (Daniel Skyver Remix) (7:48)
-02. Aimoon & Vlad Varel feat. Eva Kade - One More Night (Matt Chowski Remix) (7:52)
-03. RAM & James Dymond feat. Kim Kiona - End Of Times (Flynn & Denton Remix) (8:00)
-04. Michael Flint & Stephanie Kay - Hide (6:04)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E15CC6495026238FC48DFE06395847B2E203F91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023953   (720308) от 07.06.2016
-
-Hypnotix - Star Gates (2006) 2CD, mCITY Edition 2016 [MP3|320 кб/с] <Electronic, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N.O.M.M.O  (1:00)
-02. Window To The Past  (4:45)
-03. Contact  (0:57)
-04. Star Gates  (4:20)(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 01:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27864D805D34D9E395B13FD29C1792ED47F6D2A9
 ```
 
 

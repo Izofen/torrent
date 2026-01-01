@@ -1,3 +1,201 @@
+###  Публикация: 604561   (996134) от 18.01.2013
+
+Francesco Napoli - Disco Italiano (2010) [MP3|~225 кб/с (V1)]<pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Americano 03:28
+02. Balla... Balla Vol. 1 05:43
+03. Balla... Balla Vol. 2 06:44
+04. Ma Quale Idea 04:28
+05. Lady Lay 03:12
+06. Torner· 03:04
+07. Hay L'amore 03:07
+08. Lady Fantasy 03:09
+09. Marina 02:44
+10. Vamos A La Playa 03:43(   Читать дальше...   )Жанр: popПродолжительность: 01:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:635044622E30383A77728FBB5E9FDF8374265CF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605032   (996213) от 18.01.2013
+
+Night Works - Urban Heat Island (2013) [MP3|320 кб/с]<Indie Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boys Born in Confident Times
+02. Modern European
+03. Lifeline
+04. Nathaniel
+05. Armajaro
+06. I Tried So Hard
+07. The Eveningtime
+08. Share the Weather
+09. Riches (Vocal Dub)
+10. Long Forgotten Boy(   Читать дальше...   )Жанр: Indie Pop, ElectronicПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C9C9CF47E504B8CA0B8634A67D55FF5425A0360
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603201   (996864) от 15.01.2013
+
+Army of Lovers - The Best Of (1999) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hands Up
+02.Let The Sunshine In
+03.Sexual Revolution
+04.I Am
+05.My Army Of Lovers
+06.Israelism
+07.Lit De Parade
+08.Give My Life
+09.La Place De Saint Tropez
+10.Carry My Urn To Ukraine(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1239168E50B54B3E032F85778B10EB8630FC5F24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603212   (996912) от 15.01.2013
+
+Варвара - 4 альбома (2001-2008) [MP3|320 кб/с]<pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996912.jpg" />
+</div>
+
+
+###  Подробнее
+
+2001 - Варвара01. Выше любви
+02. Грёзы
+03. Варвара
+04. Две стороны одной луны
+05. Тихо таял снег
+06. Сердце мое не плачь
+07. Я живая
+08. Два сердца
+09. Бабочка
+10. Прогони(   Читать дальше...   )Жанр: popПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603220   (996926) от 15.01.2013
+
+Eros Ramazzotti - All The Best (2012) [MP3|320 кб/с]<pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996926.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Inevitabile (feat. Giorgia)
+2.Respiro Nel Blu
+3.Andare... In Ogni Senso
+4.Oggi Che Giorno E'
+5.Cantico
+6.Cara Prof
+7.Canzoni Lontane
+8.Amarti E' L'Immenso Per Me
+9.Dolce Barbara
+10.Taxi Story(   Читать дальше...   )Жанр: popПродолжительность: 03:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17942AF06991724855ED6361D11B7194AEB32F7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602902   (997206) от 14.01.2013
+
+Андрей Заблудовский - Шагает парень (2004) [MP3|320 кб/с]<поп, ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Голубые города
+02. Дождь на Неве
+03. Человек из дома вышел
+04. Первые шаги
+05. 9-й класс
+06. Шагает парень
+07. Ребята 70-й широты
+08. Дорожная
+09. Стоят девчонки
+10. Песня о первой любви(   Читать дальше...   )Жанр: поп, ретроПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C8DFA97FD15FDD569A68A936D9474B08C37304
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602210   (997439) от 13.01.2013
 
 Владислав Агафонов и Планета Икс - Дискография (15 альбомов + неизданное ) (1987-2010) [MP3|128-320 кб/с]<pop>
@@ -654,204 +852,6 @@ magnet:?xt=urn:btih:10F056C8C71BAB137032B12975FEAFEF829AD854
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AF71C6C9E9080E02D848D73B6BEAC43BD17C367
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596801   (999591) от 05.01.2013
-
-Вячеслав Малежик - Grand Collection (2011) [MP3|320 кб/с]<поп>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мозаика
-02. Двести лет
-03. Провинциалка
-04. Острова
-05. Зима-зима
-06. Любите сказки
-07. Чудо-птица
-08. Гадалка
-09. Всё-таки ты права
-10. Смолоду(   Читать дальше...   )Жанр: попПродолжительность: 01:18:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB98326D62E4F92C195303028A03CBEB5F7491C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597441   (999603) от 05.01.2013
-
-Celine Dion - The Best Of Celine Dion and David Foster (2012) [MP3|~245 кб/с (V0)]<pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Power Of Love
-02. All By Myself
-03. When I Fall In Love (Duet with Clive Griffin)
-04. The Colour Of My Love
-05. What A Wonderful World
-06. Because You Loved Me
-07. The Prayer (Duet with Andrea Bocelli)
-08. To Love You More (feat. Taro Hakase)
-09. Tell Him (Duet with Barbra Streisand)
-10. All The Way (Duet with Frank Sinatra)(   Читать дальше...   )Жанр: popПродолжительность: 01:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE21AF0293E0F244F5B6514B93D1F6F1E1CAA59A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596654   (999620) от 05.01.2013
-
-Dan Balan - All Hits In One Album (2012) [MP3|198-256 kbps] <Dance / Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chica Bomb (Original Mix) (04:33)
-02. Crazy loop (Original) (03:31)
-03. Freedom (Original Mix) (03:51)
-04. Freedom (Edit Radio) (03:35)
-05. Justify Sex (Original) (03:32)
-06. Лишь До Утра (Dubstep RMX) (03:44)
-07. Лишь До Утра (Edit Radio) (03:35)
-08. Люби (Original) (03:50)
-09. Мне Не Жалко (Radio Edit) (03:10)
-10. Не Любя (Radio Edit) (03:20)(   Читать дальше...   )Жанр: Dance / PopПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB49D56B1AA50EA592AA0BB554611A7D55E28B25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597688   (999622) от 05.01.2013
-
-VA - Italo 2000 Rarities (1998-2000) 3*2CD[MP3|320 кб/с]<Electronic , Italo-Disco, Euro House>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Sharada - Dancing All Night [06:18]
-02. Koto - Time (Dance Mix) [06:08]
-03. Eddy Huntington - May Day [04:34]
-04. Vanilla - Bamboleo [06:55]
-05. Atrium - Midnight Dancer [07:46]
-06. Brian Ice - Tokyo [06:49]
-07. Cyber People - Doctor Faustu's [06:59]
-08. Time - Love Is The Reason [06:18]
-09. Bo Boss - Tequila [06:17]
-10. D.F. & Pam - Flash Into My Life [06:27](   Читать дальше...   )Жанр: Electronic , Italo-Disco, Euro HouseПродолжительность: 01:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42A8A73554A5096C721815C4A4940B58CB6F95EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597447   (999623) от 05.01.2013
-
-Andy Williams - 16 Biggest Hits (2000) [MP3|320 кб/с]<Vocal Pop, Traditional Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Butterfly
-02. Canadian Sunset
-03. I Like Your Kind Of Love
-04. Are You Sincere
-05. Lonely Street
-06. The Village Of St. Bernadette
-07. Moon River
-08. Can't Get Used To Losing You
-09. Days Of Wine And Roses
-10. Dear Heart(   Читать дальше...   )Жанр: Vocal Pop, Traditional PopПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7AB72EF277C5180D7D3A0AEA3B40FBCC58D48E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597560   (999624) от 05.01.2013
-
-VA - The World Of Rock'n'Roll (2012) [MP3|320 кб/с]<Rock'n'Roll>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999624.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Beatles — Rock-N-Roll Music
-002. Elvis Presley — Blue Suede Shoes
-003. Little Richard — Tutti Frutti
-004. Bill Haley & His Comets — (We're Gonna) Rock Around The Clock
-005. Ray Charles — I've Got A Woman
-006. John Lennon — Ya Ya
-007. Tom Jones — Bad Love
-008. Dire Straits — Walk Of Life
-009. Elton Jhon — Lil Frigerator
-010. Status Quo — Dear John(   Читать дальше...   )Жанр: Rock'n'RollПродолжительность: 04:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1069DA3F698DDEA5EC604B7D11AE6C783C1E4DA7
 ```
 
 

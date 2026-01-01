@@ -1,3 +1,165 @@
+###  Публикация: 1603822   (1045552) от 11.01.2023
+
+VA - Winter Club Hits 2023 [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geo Da Silva feat. DJ Combo - Gimme Sunshine (Extended Mix) (4:55)
+02. Danilo Orsini & Ariel El Leon - Vive Tu Vida (Original Mix) (3:04)
+03. DJ Pasi - Verano Forever (Extended Mix) (3:43)
+04. Bbx feat. Kari B - Self Control (Bakun Remix) (3:17)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 03:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02C407763891EFF4385C0909D1515350638019EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603346   (1045635) от 10.01.2023
+
+DJ Bobo - Instrumentals (2020) [MP3|320 Kbps] <Eurodance, Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1000 Dreams (Instrumental) (03:29)
+02. 1000 Miles (Instrumental) (03:46)
+03. A Good Heart (Instrumental) (04:44)
+04. A Moment to Remember (Instrumental) (03:23)(   Читать дальше...   )Жанр: Eurodance, PopПродолжительность: 17:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85047F74ACF0C710E13A09E67971314D98D3A6C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603295   (1045682) от 10.01.2023
+
+Billy Joel - Streetlife Serenade (1974) Reissue, Remastered, 2015, Audio Fidelity [OGG Vorbis|500 Kbps] <Rock, Folk Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Streetlife Serenader
+02. Los Angelenos
+03. The Great Suburban Showdown
+04. Root Beer Rag(   Читать дальше...   )Жанр: Rock, Folk Rock, Pop RockПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50EE7278BF9E753F9DD32E57547FDA90098C73E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603507   (1045716) от 09.01.2023
+
+Shania Twain - Not Just A Girl (The Highlights) (2022) [FLAC|96/24|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Just A Girl
+02. You're Still The One
+03. Man! I Feel Like A Woman!
+04. What Made You Say That (Single Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A83AB2737A4EDDC9B79E81A08FB8BDDFD669FDE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603437   (1045736) от 09.01.2023
+
+VA - Bravo Hits Zima 2023 (2022) [MP3|320 Kbps] <Synthpop, Dance, Disco, Electropop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sanah - Nic dwa razy (W. Szymborska)
+02. twocolors - Heavy Metal Love
+03. Rosa Linn - SNAP
+04. bryska - kraksa(   Читать дальше...   )Жанр: Synthpop, Dance, Disco, ElectropopПродолжительность: 01:54:51 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA385A15686ACCDE3CFED9F828556EDB5D5FFC2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603426   (1045748) от 09.01.2023
+
+VA - Keep It Disco Vol. 07 (2023) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.P.V. - Back To You
+02. Ken@Work - Right Now
+03. Charly Angelz - Funky Fluorescent Trousers
+04. FLIP-DA-FUNK - Should Have Loved Ya(   Читать дальше...   )Жанр: Nu Disco, Funky, Soulful, DiscoПродолжительность: 02:15:51 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:474FAA844531228CD61330F31E4B27BD7704BFEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603452   (1045751) от 09.01.2023
 
 VA - Mastermix Essential Hits (2022) CD, Compilation [MP3|320 Kbps] <Afrobeats, Hip Hop, Disco, Electropop>
@@ -533,168 +695,6 @@ Baccara - Evolution (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE9CF96BF26BBD46ED7B902AB23B1CA16C42CEC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839497   (1046632) от 29.11.2025
-
-Madonna - Bedtime Stories – The Untold Chapter (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Survival (Quiet Storm Demo Remix)
-02 - Secret (Allstar New Single Mix)
-03 - Right On Time (Original Demo Edit)
-04 - Don't Stop (Original Demo Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:093FB05551CF8E5066A01C74D6BFDABE55DAF903
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839404   (1046633) от 29.11.2025
-
-Ed Sheeran - Play (2025) Deluxe, 2025, Atlantic Records UK [FLAC 24/44.1, FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening [00:04:00]
-02. Sapphire [00:02:59]
-03. Azizam [00:02:42]
-04. Old Phone [00:03:41](   Читать дальше...   )Жанр: PopПродолжительность: 01:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD306F6A429944F3D81BFB6BFCBA7B116F16B58C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839710   (1046838) от 30.11.2025
-
-VA - 00s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gorillaz - Feel Good Inc (3:42)
-02. Red Hot Chili Peppers - Snow (Hey Oh) (5:34)
-03. Kylie Minogue - Can’t Get You out of My Head (3:51)
-04. Coldplay - Yellow (4:26)(   Читать дальше...   )Жанр: PopПродолжительность: 05:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2549AF7AE834132595EE5751414823C00CDB6A91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840108   (1046999) от 03.12.2025
-
-VA - 10s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Mars - That’s What I Like (3:25)
-02. Lil Wayne - Sucker for Pain (4:03)
-03. Charlie Puth - We Don’t Talk Anymore (3:37)
-04. Coldplay - A Sky Full of Stars (4:27)(   Читать дальше...   )Жанр: PopПродолжительность: 05:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC3052CB41C475C36C38A0487C18B4E56CACB0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840248   (1047148) от 04.12.2025
-
-VA - 70s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kate Bush - Wuthering Heights (3:25)
-02. Blue Swede - Hooked on a Feeling (2:52)
-03. Christopher Cross - Sailing (4:16)
-04. Rod Stewart - Da Ya Think I’m Sexy (5:31)(   Читать дальше...   )Жанр: PopПродолжительность: 05:22:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC049D878A4157CD9A5B62BFEC1F736BD6C4E9A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840515   (1047414) от 05.12.2025
-
-Kylie Minogue - Kylie Christmas [Fully Wrapped] (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - It's the Most Wonderful Time of the Year
-02 - XMAS (Amazon Music Original)
-03 - Santa Baby
-04 - Hot in December(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB1CFC8407224AA471D31435A6369121682C6E92
 ```
 
 

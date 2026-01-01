@@ -1,3 +1,138 @@
+###  Публикация: 1220877   (700660) от 21.04.2018
+
+VA - Ori Uplift & Ellez Ria - Uplifting Only 271 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FAN FAVORITE 254: AirLab7 & Javii Wind - Last Adventure (DreamLife Remix)
+02. RAM ft. Stine Grove - RAMore (Daniel Skyver Remix)
+03. Eric Senn - Osiris (Extended Mix)
+04. FAN FAVORITE 227: Derek Palmer & Cassandra Grey - Awake (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09D9090F9EB9A760183A61F159B8F490EAE7DE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220869   (700668) от 21.04.2018
+
+VA - Markus Schulz - Global DJ Broadcast - In Bloom (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz & Emma Hewitt - Safe from Harm (Markus Schulz In Bloom Mix)
+02. Protoculture vs. Delacey - In the Air of Manticore (Markus Schulz Mashup)
+03. Dave Neven & Ellie White - Try for Me
+04. Gareth Emery & Standerwick featuring Haliene - Saving Light(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B75310DE77D4D4302C957BB9AAB889DDF70970A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220919   (700672) от 21.04.2018
+
+VA - We Are Trance April (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swen Van Der Endt - Gisborne (Extended Mix)
+02. Cosmic Gate - Ar (Extended Mix)
+03. Remarq - Desiderium (Extended Mix)
+04. Julie Thompson - Only You (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440C3DCA40998E88AC643DD4EEE3766B767E0797
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132432   (701150) от 09.05.2017
+
+VA - Sexy Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kuba - You Left Me At A Henge  5:47
+02.  Peter Pearson - A Walk In The Park  3:39
+03.  Ruhr Chill Factory - Desperado  5:09
+04.  Vitali And His Lounge Orchestra - Chilling Days  6:05(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC81C3038EEDC78D7E72AEBFFCE0E9A245089A74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132532   (701158) от 09.05.2017
+
+VA - Ultimate Chillout Mix (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tobu - My Own Paradise  3:12
+02.  Vexento - Floating With You  3:42
+03.  Dustin Miles - Be Alright  3:10
+04.  Janji - Sunshade (feat. T.R.)  3:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:05:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE3ABDB31B86E65BC7031521DD81CDC7B488068
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287647   (701207) от 08.03.2019
 
 Worakls - Orchestra (2019) [MP3|320 Kbps] <Electro, Techno, House>
@@ -560,141 +695,6 @@ VA - Disco Fever (2016) [MP3|320 кб/с] <House, Disco, Nu-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0548F07CA7F598E0C07C437D352CA5799B7B244C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220513   (704203) от 19.04.2018
-
-VA - Night City Tribute - The Songs of Secret Service (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Italo-Disco, Electropop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Pop & Martin Blix - Let Us Dance Just A Little Bit More (Album Mix) (4:30)
-02. Italoconnection - Night City (12" Radio Edit) (3:42)
-03. Johan Baeckström - Cry Softly (Time Is Mourning) (4:20)
-04. Rational Youth - Flash In The Night (3:43)(   Читать дальше...   )Жанр: Synthpop, Italo-Disco, ElectropopПродолжительность: 01:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1BA993F5CF03902BB079B846521016EF7BC0E1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132025   (704242) от 07.05.2017
-
-VA - Erotic Tantric Kamasutra: Sensual Chill Out Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bilitis - Air (Love 2 Lounge Mix)  5:04
-02.  Soleil Fisher - Beautiful Skies (Roxy Lounge Mix)  4:58
-03.  Soulguru - Addicted To Tantric Sex (Sensual Love Mix)  4:56
-04.  Hamam Mounier - Oriental Wellness (Island Of Harmony Mix)  3:25(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:028C2CB446BE85143BB25D4FA0E6828F7A63BBF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220375   (704320) от 19.04.2018
-
-VA - Night City Tribute - The Songs of Secret Service (2018) [MP3|320 Kbps] <Synthpop, Italo-Disco, Electropop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Pop & Martin Blix - Let Us Dance Just A Little Bit More (Album Mix) (4:30)
-02. Italoconnection - Night City (12" Radio Edit) (3:42)
-03. Johan Baeckstrom - Cry Softly (Time Is Mourning) (4:20)
-04. Rational Youth - Flash In The Night (3:44)(   Читать дальше...   )Жанр: Synthpop, Italo-Disco, ElectropopПродолжительность: 01:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9845C96D8A0C90DB86FC80FAA063A958ABED6E96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220546   (704496) от 19.04.2018
-
-VA - EDM For Running And Workout 2018 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Milani feat. Rhett Fisher - Where The Stars Go (Alex Pizzuti Remix Edit) 03:03
-02. Southree feat. Penny Hannant - Gone (Radio Edit) 03:33
-03. Samma feat. Leonardo Dragusin - Shadow Of Love (Radio Edit) 03:01
-04. Stephan Vegas - Right Now (Radio Edit) 03:12(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D2F38F658081EF8832EAEFAFB08DBC08F7BA923
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220562   (704503) от 19.04.2018
-
-VA - Silk Music Pres. Trance Treasures 10 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vintage & Morelli - While The Earth Sleeps (David Broaders Extended Mix)
-02. Shingo Nakamura - The Four (Yuji Ono Remix)
-03. Ltn,Stendahl, Arielle Maren - Black Hole (Blood Groove & Kikis Extended Vocal Remix)
-04. The Midnight - Wemoveforward (Talamanca Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B86045C422D5F22F947FCB327E10F7D230E6F5
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1196953   (819070) от 05.01.2018
+
+The Octopus Project - Memory Mirror (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prism Riot (01:10)
+02. Brounce (02:14)
+03. Wrong Gong (03:10)
+04. Mendoza (03:21)(   Читать дальше...   )Жанр: Electronic, Indie RockПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21AF1585838E934CA6995B9516F5A33491881941
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117222   (819268) от 22.03.2017
+
+David Byrne - Grown Backwards (2004) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glass, Concrete & Stone (4:13)
+02. The Man Who Loved Beer (2:40)
+03. Au Fond du Temple Saint (4:49)
+04. Empire (4:12)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1313C9477DDEB4EAD0A05BEB79413AD605D27F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503249   (819490) от 19.10.2021
+
+Jazmin Bean - Worldwide Torture (2020), 2021, Aswang Birthday Cake [FLAC|Lossless|WEB-DL|tracks + .cue] <Alternative Rock, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Worldwide Torture
+02. Saccharine
+03. Yandere
+04. Monster Truck (feat. Zheani)(   Читать дальше...   )Жанр: Alternative Rock, IndieПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3D7E1C8E0ECC3EA70D39EFE07DA702873F1B0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381903   (822775) от 09.05.2020
 
 EOB - Earth (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
@@ -614,87 +695,6 @@ Marilyn Manson - Lest We Forget: The Best Of (2004) [FLAC|Lossless|tracks+.cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B21EC414216574C8D361513363A583B2880EE196
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112517   (838407) от 11.03.2017
-
-Regina Spektor - Soviet Kitsch (2004) [FLAC|Lossless|image + .cue] <Art Rock, Alternative Rock, Folk Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ode to Divorce
-02. Poor Little Rich Boy
-03. Carbon Monoxide
-04. Flowers, The(   Читать дальше...   )Жанр: Art Rock, Alternative Rock, Folk Rock, PunkПродолжительность: 00:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A602611D9F07F8ADA8DE9EB61BBBA83F20AECE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113321   (838421) от 11.03.2017
-
-David Fonseca - Bowie 70 (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alt. Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Absolute Beginners (Feat. Tiago Bettencourt) (5:29)
-02. Modern Love (Feat. Manuela Azevedo) (4:41)
-03. Let's Dance (Feat. Afonso Rodrigues) (5:23)
-04. Life On Mars? (Feat. Antonio Zambujo) (4:59)(   Читать дальше...   )Жанр: Alt. RockПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2623B2CE54087CCEC7F18689EADC224552DA7709
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 878915   (838825) от 17.03.2015
-
-Awolnation - Run (2015) [FLAC|Lossless] <Alternative Rock, Indie, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run (04:02)
-  02. Fat Face (03:33)
-  03. Hollow Moon (Bad Wolf) (04:19)
-  04. Jailbreak (04:41)(   Читать дальше...   )Жанр: Alternative Rock, Indie, ElectronicПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CD9FB93F0F0006E8DF196924B1963FFE9485E8
 ```
 
 

@@ -1,3 +1,36 @@
+###  Публикация: 604639   (996163) от 18.01.2013
+
+VA-Зарубежный Свежачок (2013) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luchian Cris feat. Loly - All My Love
+02. The Weeknd - Enemy
+03. Scooter - What Time Is Love
+04. The Weeknd - Twenty Eight
+05. Sergio DN feat. Khristeen - Can You Feel (Radio Edit)
+06. Adam Lambert - Trespassing (Vanity Machine Remix)
+07. Andy M. feat. Ellise - Beautiful Day (Radio Edit)
+08. Anastacia - Dream On
+09. Anna Lesko - Ia-Ma (Radio Edit)
+10. Delerium feat. Jael - Light Your Light(   Читать дальше...   )Жанр: PopПродолжительность: 06:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8CF3D6AD1931154FF04E5511DB6CFCEB08BAE0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604386   (996454) от 17.01.2013
 
 VA - Свежие Клубные Новинки Клубов Москвы (2013) [MP3|256 кб/с]<Club, Dance>
@@ -818,39 +851,6 @@ VA - Экспресс Хиты От Европа Плюс (2013) [MP3|256 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:366E52F85672E7336789B902696FB886282E9F37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601619   (998020) от 11.01.2013
-
-VA - Зимние Хиты На Love Radio (2013) [MP3|256 кб/с]<Рор>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998020.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Тина Кароль - Вьюга-Зима
-002 Far East Movement feat. MNEK - Christmas In Downtown LA
-003 Bass Ace feat. DJ Skazka - Начнем Сначала
-004 Avicii feat. Andreas Moe - Last Dance (Vocal Radio Mix)
-005 А-Студио - Хочу Влюбиться
-006 Mylene Farmer - A L'ombre
-007 Диверсанты и Маня - Замуж За Деда Мороза
-008 Aura Dione - In Love With The World
-009 Лера Кондра - Кошка
-010 Movetown feat. Ray Horton - Here Comes The Sun (Radio Edit)(   Читать дальше...   )Жанр: РорПродолжительность: 06:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DE87AAB54BBA599215BEBAC73D7D0957ABABF37
 ```
 
 

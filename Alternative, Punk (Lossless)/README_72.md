@@ -1,3 +1,83 @@
+###  Публикация: 1350861   (1003009) от 07.01.2020
+
+Thurston Moore - Spirit Counsel (2019) 3CD BoxSet [FLAC|Lossless|tracks + .cue] <Art Rock, Experimental, Avangarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003009.jpg" />
+</div>
+
+
+###  Подробнее
+
+SPIRIT COUNSEL is a collection of three extended compositions recorded between 2018-19. This collection represents a period of reflection on spiritual matters, collective musical friendships, and a time and space universally, without words or languages to distract from meditation.CD1 - Alice Moki Jayne
+CD2 - 8 Spring Street
+CD3 - GalaxiesПроизводство: The Daydream Library Series – DLS 004CDЖанр: Alternative Rock, Art Rock, Experimental, AvangardeПродолжительность: 02:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC21E963ABEBC1603A12DAB650AC173BEE176DCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487593   (1003351) от 06.08.2021
+
+Insolence - Revolution (2001) [FLAC|Lossless|image + .cue] <Hardcore, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death Threat [3:49]
+02. Head 2 Head [3:38]
+03. Poison Well [3:30]
+04. Natural High [3:22](   Читать дальше...   )Жанр: Hardcore, Nu MetalПродолжительность: 00:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF7EBC23CED2B94D63F6CEFEC8583205005786E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349504   (1004269) от 02.01.2020
+
+Bring Me the Horizon - Music to listen to~/.../~GO TO (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Trip-Hop, Ambient, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steal Something. (10:12)
+ 02. Candy Truck / You Expected: LAB Your Result: Green (7:15)
+ 03. A Devastating Liberation (4:40)
+ 04. ¿ (5:13)(   Читать дальше...   )Жанр: Alternative Rock, Trip-Hop, Ambient, MetalcoreПродолжительность: 01:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2E6BC38BE6043D435985600829C4812EF79ADA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1485003   (1005613) от 24.07.2021
 
 Attila - Closure (2021) Attila Music LLC [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore, Rapcore, Deathcore>
@@ -611,87 +691,6 @@ Evanescence ‎ - The Bitter Truth (2021) 2 CD, Deluxe Edition, Limited Edition 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:578620BD3A587EC711264FA42059AD5494BCB12A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463052   (1020643) от 17.04.2021
-
-The Rasmus - Into (2001) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madness [03:12]
-02. Bullet [04:09]
-03. Chill [04:13]
-04. F-F-F-Falling [03:52](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B850AAD2C77EFB15B8B0A2CD4B5A1DE35549AD48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462910   (1020802) от 16.04.2021
-
-The Offspring - Let The Bad Times Roll (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020802.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. This Is Not Utopia
-2. Let The Bad Times Roll
-3. Behind Your Walls
-4. Army Of One(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AFC8661034B0209324975BFF363E89AE1B57707
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462464   (1021034) от 15.04.2021
-
-Guano Apes - Lost (T)Apes (2006) B-Side, Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Song (2:30)
-02. Hanoi (2:08)
-03. Maria (3:11)
-04. Diokhan (2:43)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B81493C35360189B4C692F1F8696EBEE544E780
 ```
 
 

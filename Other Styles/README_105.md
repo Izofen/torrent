@@ -1,3 +1,172 @@
+###  Публикация: 906214   (645424) от 08.06.2015
+
+VA - Кунг Фьюри / Kung Fury (Original Motion Picture Soundtrack) (2015) [FLAC|WEB-DL|Lossless]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mitch Murder - Kung Fury (03:12)
+02. David Hasselhoff - True Survivor (03:42)
+03. Lost Years - West Side Lane (03:51)
+04. Betamaxx - Redlining 6th (02:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE7FC5D27AD75F829FFB2D38EBE626AF61FA512
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906230   (645428) от 08.06.2015
+
+VA - Кунг Фьюри / Kung Fury (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mitch Murder - Kung Fury (03:12)
+02. David Hasselhoff - True Survivor (03:42)
+03. Lost Years - West Side Lane (03:51)
+04. Betamaxx - Redlining 6th (02:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:981D12B5B84C58A5030FB1CACC0542F485E15BBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517975   (645454) от 02.07.2012
+
+Henry Mancini - Trail Of The Pink Panther / След Розовой Пантеры (2011) [MP3|320 кб/с]<Score, OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645454.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Main Title (5:03)
+ 2. The Easy Life In Paris – Long Version (2:56)
+ 3. Salute To Balls (3:17)
+ 4. The Bagman (2:19)
+ 5. Scotland Yard (0:29)
+ 6. In A Mist (2:16)
+ 7. The Message (1:34)
+ 8. One On One (1:21)
+ 9. The Easy Life In Paris No. 1 (1:29)
+ 10. Bruno’s Tune (1:19)(   Читать дальше...   )Жанр: Score, OSTПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA18428E0F1D0C97D60BBD46F0B77F3865B9710
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 679761   (645610) от 15.07.2013
+
+Enigma - Enigma 4 - Metamorphosis (2013) Reworked Bootleg [FLAC|Lossless|image + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - IV Chapter (3:43)
+02. - Light Of Your Smile (5:42)
+03. - Metamorphosis (9:28)
+04. - Start-To-End (6:02)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A6E980DE39110DF61F8422770C4830E7EEF0AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 799218   (646156) от 26.06.2014
+
+The New Paul Mauriat Grand Orchestra - Still Blue (Best Collection Dedicated to Paul Mauriat) (2013) [FLAC|Lossless|image + .cue] <Easy Listening, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как известно, оркестровая музыка до сих пор пользуется завидной популярностью в Японии и странах Азии, а после смерти Поля Мориа в 2006 году интерес поклонников к его творчеству только растет.
+Представляемый альбом французского оркестра, пока не известного широкой публике, дебютный. Однако не удивляйтесь, ведь он называется "Новый оркестр Поля Мориа". Почему (   Читать дальше...   )01. Pegase (3:41)
+02. Minuetto (2:38)
+03. La chanson pour Anna (2:59)
+04. Prelude 59 (3:54)(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:533FC8CE9F1A0F7607FDF743E829EE15F470178B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142022   (646417) от 12.06.2017
+
+The Romantic String Orhcestra - Very Special Songs Of The '70s: The World's Most Beautiful Melodies (1996) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкость необыкновенная! Это не цитата из "Ревизора", а именно так можно назвать этот диск. Он возвращает нас к истокам той музыки, которая родилась во время бунтарей и романтиков. На волне популярности популярной (уж простите за тавтологию) музыки того времени сейчас стали появляться различные ностальгические музыкальные шоу, но The Romantic String Orhcestra (   Читать дальше...   )01. The Romantic String Orhcestra - You Light Up My Life  (4:04)
+02. The Romantic String Orhcestra - Touc Me in The Morning  (4:03)
+03. The Romantic String Orhcestra - Yesterday Once More  (3:28)
+04. The Romantic String Orhcestra - Killing Me Softly with His Song  (2:36)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6992F07E1D5CC5525E64320DF6BD0ECB81CE5A50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227326   (646588) от 26.05.2018
 
 Xavier Rudd - Storm Boy (2018) [MP3|320 Kbps] <Folk, Singer-songwriter>
@@ -542,168 +711,6 @@ Medwyn Goodall - The Dreamworld (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C293709DF7DF2520815B2AF29C246F884E1668DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031978   (649670) от 05.07.2016
-
-Simonopetras - Psaltirion Terpinon - Hymns From The Psalter (1990) [MP3|320 Kbps] <Вокал, Хоровое пение>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Come Let Us Rejoice, Ps 94    04:59
-02.  O Lord, Our Lord, Ps 8    06:34
-03.  The Lord Is My Shephard, Ps 22    05:46
-04.  O Sing To The Lord A New Song, Ps 97    05:43(   Читать дальше...   )Жанр: Вокал, Хоровое пениеПродолжительность: 01:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D872FE75A615DC475E9D0B3134A67950383E707
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031927   (649675) от 05.07.2016
-
-David Clavijo - From the Depths (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From the Depths
-02. When We Were Together
-03. Fly With Me
-04. The Song of Wisdom(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07AF899CDEA15BD7B1A1E9FFF59A5D55A01AF509
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031899   (649677) от 05.07.2016
-
-Terry Oldfield & Soraya - Namaste (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Namaste [00:05:39]
-02. Always Perfect [00:06:02]
-03. Celtic Blessing [00:06:18]
-04. Into Your Hands [00:08:01](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6414683AF6430A962E6C1D1B7EA9335DEC77CF78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031673   (649824) от 05.07.2016
-
-Andre Gagnon - Comme Dans Un Film (1986) [MP3|320 Kbps] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'eternel Retour (Endless Return) [05:24]
-02. Violetta [03:50]
-03. Comme Dans Un Film (Like In A Movie) [04:02]
-04. Chanson Pour Liona (Song For Liona) [03:44](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FC9BF0955A9FD32D73C3545A25752C8AF732FC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031843   (649827) от 05.07.2016
-
-Shastro - Bandole! (1994) [FLAC|Lossless|tracks] <New Age, Ambient, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bandole!    05:41
-02.  Summer Rain    05:23
-03.  Kinana's Lullaby    05:32
-04.  Talkin' Stories    04:06(   Читать дальше...   )Жанр: New Age, Ambient, WorldПродолжительность: 00:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D2AE16F223494509FF51E029F5A7F2A5B7E45F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227222   (650391) от 24.05.2018
-
-Raw Silk - Raw Silk (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Argonaut I
- 02 – Argonaut II
- 03 – Malpresentations
- 04 – Commie Baby(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48B2A6501CA55A2E59D0ECFF0C6E206606AA2B59
 ```
 
 

@@ -1,3 +1,144 @@
+###  Публикация: 1012309   (960403) от 15.02.2020
+
+Omauha - Discography 17 Releases (2011-2020) Morphosis Records [FLAC|Lossless|WEB-DL|tracks] <Breaks, Downtempo, House>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florida (Cullen Remix) (06:34)
+ 02. Antananarivo (Platunoff Breaks Remix) (06:43)
+ 03. The White Nights (Stardesign Remix) (08:39)
+ 04. Victoria (Rick Tedesco Remix) (07:16)(   Читать дальше...   )Тип издания: WEBЖанр: Progressive BreaksПродолжительность: 10:43:56 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0931BEC034EA907208FEAE14074E15B452533E77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360561   (960634) от 15.02.2020
+
+Depeche Mode - 101 (2006) 2CD, Gala Records, RE. [FLAC|Lossless|tracks + .cue] <Electronic, New Wave, Synthpop, Live>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Celebration (4:56)
+02. Shake The Disease (5:11)
+03. Nothing (4:37)
+04. Pleasure, Little Treasure (4:39)(   Читать дальше...   )Жанр: Electronic, New Wave, Synthpop, Live |Продолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D199C8A68FC21090550220EE43287BD322F8F360
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360284   (960738) от 15.02.2020
+
+DJ Aligator Project - The Sound Of Scandinavia (2002) [MP3|320 Kbps] <Trance, Euro House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Aligator Project - Intro (1:31)
+02. DJ Aligator Project - Stomp! (4:05)
+03. DJ Aligator Project - Mosquito (3:50)
+04. DJ Aligator Project - Secrets Of The Space (3:39)(   Читать дальше...   )Жанр: Trance, Euro HouseПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:741E56E46C4E871D8DCEC517C638A3147A959992
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360289   (960933) от 15.02.2020
+
+R-Tem - Voiceless (2004) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R-Tem - Intro (2:15)
+02. R-Tem - Voiceless (Original Mix) (7:32)
+03. R-Tem - Breathe (7:42)
+04. R-Tem - Sunrise (5:18)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2020BC6CCC9BF9ADEFBA6239199C75965BFEFF36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 277498   (961419) от 02.01.2011
+
+VA - Record Super Chart - TOP 100 (2010) [MP3|192-320 kbps]<House, Electro House, Trance, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_961419.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tiesto & Diplo feat. Girlicious - C'Mon Get Hood
+002. Yolanda Be Cool & Dcup - We No Speak Americano
+003. Pendulum - The Island (Part II)
+004. Dan Balan - Justify Sex
+005. Stromae - Alors On Dance (DJ Pomeha Remix)
+006. David Guetta Feat. Kid Cudi - Memories
+007. Swedish House Mafia Ft. Pharrell - One (Your Name)
+008. Lady Gaga - Alejandro (Bimbo Jones Mix)
+009. Duck Sauce - Barbra Streisand
+010. Kaskade feat. Haley - Dynasty (Dada Life Remix)(   Читать дальше...)Жанр: House, Electro House, Trance, DanceПродолжительность: 09:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC115A732B9AAF1DE3619E6DBE072B5CF9B27AA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 171120   (961426) от 29.01.2010
 
 Massive Attack - Heligoland (2010) [MP3|320 kbps]<Trip-Hop>
@@ -557,141 +698,6 @@ VA - The Perfect Valentine's Day (2020) [MP3|320 Kbps] <Balearic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:708B1B87E831C6F02E222BF0172C2DD4C81AD3F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359418   (964354) от 12.02.2020
-
-VA - Uplifto-1: - Первая (2007) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Бойко Presents Sound Shocking - Глубоко (Club Mix) [08:09]
-02. Агент Смит - Я И Ты [05:40]
-03. Брюки - Под Зонтом [05:14]
-04. Пименов - Rockstar (Original Dub) [06:04](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:08:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:013185456265A11E59B2D616F26228AD73EA6A85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978038   (964465) от 22.01.2016
-
-VA - Best Of Vocal Trance 2016 (2016) [FLAC|tracks|WEB-DL]<Trance, Vocal Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964465.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:57] 01. Tenishia & Sue McLaren - Strong (Radio Edit)
-[03:51] 02. Stargazers & Kate Louise Smith - Black Diamond (Radio Edit)
-[02:54] 03. Kaimo K & Sarah Russell - Love Will Never Leave (Radio Edit)
-[03:53] 04. Susana & Hazem Beltagui - Silent For So Long (Maratone Radio Edit)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B55E49AB84837BF6519982131FD4FC7630D5C65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978165   (964584) от 22.01.2016
-
-Dj Sveta - My City (2016) [MP3|320 кб/с] <Progressive House, House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Remcord - Saed (Original Mix)
-Lucas Rossi - No Expectations (Original Mix)
-Advent's Rising - Return (Matter Remix)
-PAX - Fated(   Читать дальше...   )Жанр: Progressive House, HouseПродолжительность: 01:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144C093246B57F71D73141FFCD54BEEC7FBD78B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 619546   (965226) от 18.02.2013
-
-Blutengel - Monument (2013) 2CD / Deluxe Edition [MP3|320 кб/с]<Darkwave, EBM, Goth Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legend Part 1 (0:58)
-02. A Place Called Home (4:52)
-03. Tod_Sunde (4:29)
-04. One Voice (4:23)(   Читать дальше...   )Жанр: Darkwave, Goth Industrial |Продолжительность: 00:31:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97B8D57730CB4795C8BB1B07FA4B2457E2E07733
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977559   (965474) от 21.01.2016
-
-VA - Best Of The 80's Volume 1 (1997) [FLAC|Lossless|tracks + .cue] <House, Synth-pop, Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pet Shop Boys , - West End Girls (5:19)
-02. Toni Basil , - Mickey (3:59)
-03. Bad Manners , - Special Brew (3:20)
-04. Kelly Marie , - Feels Like I'm In Love (3:57)(   Читать дальше...   )Жанр: Synth-pop, Disco, HouseПродолжительность: 01:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76FD68BC8298FC3E590F03DF1262FAAA1CA11E46
 ```
 
 

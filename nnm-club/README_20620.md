@@ -1,640 +1,691 @@
-###  Публикация: 1005076   (834365) от 08.04.2016
+###  Публикация: 1005695   (830916) от 10.04.2016
 
-VA - Nu Jazz Instrumentals (2016) [MP3|320 кб/с] <Nu Jazz, Lounge Jazz, Jazz House>
+Синодальная типография | Русские самородки в жизнеописаниях и изображениях. Выпуск 5 (1910) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятый  выпуск  содержит жизнеописания:  живописцев И.А. Акимова (1754-1814),  И.Н. Крамского  (1837-1887)  и основателя первой художественно-иконописной школы А.В. Ступина (1776-1861).    Всего было издано девять выпусков этой серии. Издание училищного  Совета при Святейшем  Синоде.Жанр: Жизнеописания, биографии и мемуарыФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6084AF93449D4E2BBCD8BF4D0E0018D3BBC3D24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005466   (830917) от 10.04.2016
+
+VA - Happy Hardcore Top 20 (2016) [MP3|320 кб/с] <Hardcore, Rave>
 
 >>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834365.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830917.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Agostino Maria Ticino – If I Had Said to You
-02. Acusmatic Group – Un grosso guaio - Dave Masoch Re-Jazzed
-03. 2 Men 4 Soul – So Fine - Instrumental Bonus Track
-04. Black & Brown – Cool Affair(   Читать дальше...   )Жанр: Nu Jazz, Lounge Jazz, Jazz HouseПродолжительность: 02:18:12
+01. DJ Paul - Rainbow In The Sky (DJ Pauls Forze Mix) 02:51
+02. Party Animals - Have You Ever Been Mellow 03:08
+03. Flamman & Abraxas Ft. MC Rem - Good To Go (Radio Mix) 03:35
+04. DJ Paul Elstak - The Promised Land  (Promised Radio Mix) 03:44(   Читать дальше...   )Жанр: HardcoreПродолжительность: 01:22:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D0CF3BFAF2C80F04FD073B53BC689A36B2C57B9
+magnet:?xt=urn:btih:7C613C235D4D4A701D0A2ABB8741A3853B480DAB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005058   (834366) от 08.04.2016
+###  Публикация: 1005582   (830918) от 10.04.2016
 
-Журнал | Авиаколлекция №10 (2015) [PDF]
+VA - Second Breath - Unknown Bands Vol.8 (2016) [MP3|64 - 320 кб/с] <Alt.Metal, Alt.Rock, Modern Hard Rock>
 
->>Журналы
->>Научно-популярные журналы
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834366.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830918.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение к журналу «Моделист-конструктор». Специализированный журнал для любителей истории авиации и авиамоделистов. Каждый выпуск - это мини-монография об отечественной или иностранной конструкции летательных аппаратах. Каждый выпуск содержит информацию об истории создания самолета или вертолета, его серийном производстве, модификациях, эксплуатации, боевом применении (   Читать дальше...   )Жанр: История авиации и мини-монографииФормат: PDF
+01. Remember My Name - Away From You (ft. Jose Urquiza)
+02. Ashes of Eagles - Break Away
+03. Fulc - Wasting
+04. Sobrio - Verbos(   Читать дальше...   )Жанр: Alt.Metal, Alt.Rock, Modern Hard RockПродолжительность: 02:09:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08BF2DC76D587005BC97EC745896EF4C9F7343EB
+magnet:?xt=urn:btih:7FFA711BAD9A392C756D2EAEDB2D6C890F6D1F24
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005169   (834367) от 08.04.2016
+###  Публикация: 1005814   (830919) от 10.04.2016
 
-URL Extractor 4.5 [En]
+VA - Lounge Balearic Relax Party (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 
->>Архив торрентов
->>Архив 4Apple
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834367.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830919.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Url Extractor - очень полезное и легкое приложение, которое позволяет пользователям извлекать URL из файлов и  может обрабатывать тысячи файлов одновременно.
-
-Url Extractor легко извлекает информацию, такую как FTP- адреса, веб-адрес или адрес электронной почты . Это многопоточность включена и обрабатывает файлы на высокой скорости. Кроме того, URL Extractor может (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 апреля 2016Разработчик: Tension SoftwareПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+001. Deep City - Maybe Rice - Deep Fashion Mix
+002. Vladi Strecker - De la Fuente (Springtime Mix)
+003. Area Code 51 - Teldrassil
+004. Cinematic - Brown Sugar (E-Wave Mix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:16:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B22BF5C0ED0EF106C20504BE07A84BCD37C049A5
+magnet:?xt=urn:btih:419A7EA7D70D879C3B5F7DE0D149D848C01702DC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005043   (834368) от 08.04.2016
+###  Публикация: 1005887   (830920) от 10.04.2016
 
-PicPick 4.1.3 + Portable [Multi/Ru]
+VA - House Nation Volume 8 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
 
->>Архив торрентов
->>Архив Программ
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834368.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830920.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PicPick - приложение, объединяющее в себе возможности простого графического редактора и утилиты для захвата изображений с экрана компьютера. PicPick обладает простым и удобным интерфейсом. Среди особых возможностей стоит выделить возможность захвата целого рабочего экрана (в том числе, и на мультимониторных системах), захват только активного окна, отдельной области, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+01. Krewella - We Go Down (Darren Styles Remix) (05:00)
+02. Nicky Romero - Symphonica (Bare Remix) (03:54)
+03. The Bloody Beetroots & Greta Svabo Bech - Chronicles Of A Fallen Love (05:38)
+04. Alesso and Calvin Harris feat. Hurts - Under Control (04:16)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:25:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA62F595E63F40D0C9E61EB278772004D83A4026
+magnet:?xt=urn:btih:E4FAB4808355927072591B464748B6F99091099C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005150   (834369) от 08.04.2016
+###  Публикация: 1005854   (830921) от 10.04.2016
 
-Sabrina Carpenter - Eyes Wide Open (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
+VA - Automatic Express Promo Focus (Promotion) (2016) [MP3|192-320 кб/с]<Club, Euro, Disco, Electronic, House, Progressive, Pop, Dancehall, Synthpop, New Wave, Tropical>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834369.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eyes Wide Open (3:13)
-02. Can't Blame a Girl for Trying (2:49)
-03. The Middle of Starting Over (3:33)
-04. We'll Be The Stars (3:07)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:40:37
+01. Martin Garrix And Tiesto - The Only Way Is Up (Original Mix) 04:52
+02. John Dahlback - Atlantis (Original Mix) 04:59
+03. Camelphat Feat. A.M.E. - Paradigm (The Cube Guys Remix) 06:14
+04. Jus Jack - Stargazing (Original Mix) 04:38(   Читать дальше...   )Жанр: Club, Euro, Disco, Electronic, House, Progressive, Pop, Dancehall, Synthpop, New Wave, Tropical, Electro-R&B, UK GarageПродолжительность: 12:01:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2A6CFA40982484828D3DEDBFF9C4F1B01DB63D0
+magnet:?xt=urn:btih:0D8426B10B215AFBD17A72D69EA16D3B2689DEA1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005213   (834370) от 08.04.2016
+###  Публикация: 1006027   (830922) от 10.04.2016
 
-BrowsingHistoryView 1.86 Portable [Ru/En]
+Jocelyn & Chris Arndt - Edges (2016) [MP3|320 кб/с] <Blues-Rock>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834370.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830922.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BrowsingHistoryView - бесплатная утилита, которая после запуска способна отображать информацию полученную от браузеров IE, Safari, Chrome, FireFox. Вы сможете просматривать историю посещенных вами сайтов в удобном виде. Вы сможете узнать не только посещенный вами сайт, можно просмотреть его полное название, время захода на него, через какой браузер был совершен заход, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+01. Shame (03:05)
+02. Too Much To Me (03:51)
+03. Where's The Rain (03:45)
+04. More Than I Say I Do (03:50)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:46:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1448ABE09B418CB0EBFFAF28870BFDF12C03F60
+magnet:?xt=urn:btih:88B691A84F4AA474AB6D35EA24F35A94ACE0B4E1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004960   (834371) от 08.04.2016
+###  Публикация: 1005714   (830923) от 10.04.2016
 
-Уши Ван Гога - 13 альбомов (1997-2015) [MP3|~245 кб/с (V0)] <Art-punk>
+Синодальная типография | Русские самородки в жизнеописаниях и изображениях. Выпуск 7 (1910) [DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834371.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830923.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1997 - Odin
-1997 - Уха из сомиков Кандиру
-1998 - Душа Мбе
-2000 - НесуСвет(   Читать дальше...   )Жанр: Art-punkПродолжительность: 09:06:01
+Седьмой выпуск  содержит жизнеописания:  поэта А.В. Кольцова (1809-1841), великого ученого и поэта М.В. Ломоносова (1711-1765)  и  поэта И.З. Сурикова (1841-1880).  Всего было издано девять выпусков этой серии. Издание училищного  Совета при Святейшем  Синоде.Жанр: Жизнеописания, биографии и мемуарыФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2AAF603DA1A60DDC6C412D0EE7548337F072B652
+magnet:?xt=urn:btih:0561014BBA6160D01BEB46E2F7DC186669991ADF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 652464   (834383) от 05.05.2013
+###  Публикация: 1005835   (830924) от 10.04.2016
 
-Медведь (1938) DVDRip
+Чудо техники (2016.04.10) SATRip
 
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834383.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм является экранизацией одноименной пьесы А. П. Чехова и показывает, в частности, как, в зависимости от чувственного настроя главной героини, может страдать и ни в чем неповинное животное Тоби, оставаясь без овса. Помещик Смирнов, волокита и сердцеед, приезжает к соседке-помещице за старым денежным долгом, но получает категорический отказ: молодая вдова заявляет (   Читать дальше...   )Жанр: КомедияРежиссер: Исидор АнненскийАктеры: Ольга Андровская, Михаил Жаров, Иван Пельтцер, Константин СорокинПродолжительность: 00:43:21
+«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:35:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:542FCF74A4F9E3430B6944D5933AABB64ECF833A
+magnet:?xt=urn:btih:8D6DEFF66315D92F7A0425ECED3697E369F12BBB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 563246   (834386) от 05.05.2013
+###  Публикация: 1497412   (830925) от 13.10.2021
 
-Angel Beats! - Heaven's Door / Ангельские ритмы! Врата рая (2010) [20 глав + 2 омаке] [Манга] [русский] (Обновлено 04.05.2013) [incomplete]
+VA - Beautiful Metamorphosis, Vol. 2 (2021) [AAC|~306 Kbps] <Downtempo, Lounge, Chill Out>
 
->>Манга и Арт
->>Манга, Манхва, Маньхуа
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834386.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830925.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В загробном мире ангелы борются за свое будущее и свою судьбу. Юри, лидер "Фронта Загробной Жизни", восстает против бога, по воле которого прожила несчастную жизнь. С другой стороны против членов ФЗЖ борется Тенши, председатель школьного совета. Участники ФЗЖ применяют мощнейшее оружие, чтобы сражаться против ангелов, использующих сверхъестественные способности.Жанр: приключения, комедия, мистика, школа
+01. T2'n - Run In Noise (3:16)
+02. Balinese Meditation Ensemble - Silent Snow (4:49)
+03. Faith Baldwin - The Morning Light (4:48)
+04. Openzone Bar - Caribbean Nights (3:45)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 02:19:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12298FB133533D169D07CB35ED7F534804DEBD2A
+magnet:?xt=urn:btih:81E09FB4FC7B57849D7CA2AE6C1C35F3DA67AA99
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 652428   (834387) от 05.05.2013
+###  Публикация: 1496298   (830926) от 13.10.2021
 
-Синдбад: Легенда семи морей / Sinbad: Legend of the Seven Seas (2003) HDTVRip [UKR]
+VA - Blueberry Café, Vol. 8 (2021) [AAC|~316 Kbps] <Downtempo, House, Jazzy>
 
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834387.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830926.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мультфильм рассказывает об одном из многочисленных приключений известного аравийского моряка Синдбада. Приключение начинается тогда, когда Эрис, богиня Хаоса, крадет Книгу Мира, подставив тем самым Синдбада и сделав из него преступника.
-Намеревающийся доказать свою невиновность, а также спасти жизнь своего лучшего друга Протеуса Шейпершифера, моряк отправляется в (   Читать дальше...   )Жанр: мультфильм, приключения, семейный, фэнтезиРежиссер: Патрик Гилмор, Тим ДжонсонПеревод: Многоголосый закадровый (украинскийПродолжительность: 01:25:06
+01. M-Sol Project, Marga Sol - Another Night (5:36)
+02. Patiotic - Island Dreams (3:26)
+03. Monodeluxe - I Want To (6:42)
+04. Martin Hiska - Copa Copa (Beachhouse Remix) (5:29)(   Читать дальше...   )Жанр: Downtempo, House, JazzyПродолжительность: 01:14:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7F62090CAABEAB97E391565AA6A83A40141DA02
+magnet:?xt=urn:btih:3520385D6811C4DA9D8E8BC4E85E0C935F23FF1D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380371   (834392) от 02.05.2020
+###  Публикация: 1501632   (830927) от 13.10.2021
 
-Каникулы в Африке / Rendez-vous chez les Malawas (2019) WEB-DLRip [MVO] [AD]
+VA - The Lounge Chill Out Chapter, Vol. 1 (2021) [AAC|~315 Kbps] <Chill Out, Lounge, Downtempo>
 
->>
->>
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_834392.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830927.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В рамках шоу «Сафари со звёздами» заносчивый телеведущий, угарный стендап-комик, сериальная актриса с разбитым сердцем и футболист-беспредельщик отправляются в путешествие по Африке. Вдали от цивилизации их ждут не только красоты природы, дикие звери и опасные туземцы, но и встреча с собственными неукротимыми инстинктами.Производство: Франция / Бельгия, Eskwad, Pathé, TF1 Films ProductionЖанр: КомедияРежиссер: Джеймс ЮтАктеры: Кристиан Клавье, Микаэль Юн, Рамзи Бедиа, Сильви Тестю, Паскаль Элбе, Франсуа Леванталь, Басс Дем, Камилла Жапи, Ванесса Долмен, Pierre Léon LuneauПеревод: Многоголосый закадровый, любительский (AlphaProject)Субтитры: ОтсутствуютПродолжительность: 01:30:51Реклама: Присутствует баннер.
+01. Joe Le Blanc - White Dish (4:37)
+02. Aerium, Me3dian - Warmte Nei Kjelt (1:17)
+03. Ignat Shamko - Strange Dream (4:23)
+04. Esona - Twisted Innocence (A Light Twist of Innocence Mix) (6:14)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 01:42:46
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:249B29790D8E2B80DA5FC5FFF426FA517B6D976C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380051   (834393) от 02.05.2020
+###  Публикация: 1496947   (830928) от 13.10.2021
 
-Избранные / The Chosen (2017) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8) NGnews [PR]
+VA - Electronic Lounge Collection, Vol. 2 (2021) [AAC|~314 Kbps] <Electronic, Downtempo, Lounge>
 
->>Зарубежные сериалы
->>
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834393.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830928.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В преддверии католической Пасхи вышел первый мультисезонный сериал о жизни Христа «Избранные» и уже успел собрать многомиллионные просмотры. Избранные – это евангельские персонажи, которые встретились с Учителем в самые темные моменты своей жизни. У каждого из них своя судьба, свой путь, своя роль в истории христианства, но тогда они были потерянными, безнадежными (   Читать дальше...   )Производство: США / VidAngel studios, Out of Order StudiosЖанр: драмаРежиссер: Даллас ДженкинсАктеры: Эрик Авари, Шеер Исаак, Ной Джеймс, Парас Патель, Джонатан Руми, Ник Шейкоауэр, Лиз Табиш, Джиавани Каиро и др.Перевод: Многоголосый любительский (NGnews)Субтитры: русские (hardsab)Продолжительность: ~00:54:00 серия
+01. Dub Mars - Walking on the Street (Original Mix) (3:31)
+02. Florent Campana - Pentimento (Original Mix) (3:00)
+03. CaPa - To Be Thoughtful (Original Mix) (4:39)
+04. Hill Video - Loyal Cruise (Original Mix) (3:34)(   Читать дальше...   )Жанр: Electronic, Downtempo, LoungeПродолжительность: 02:23:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B64D695B70CFC09C56CBECF4BFD4EE703235B05
+magnet:?xt=urn:btih:FE62488073927E2DA482CBFE30DE453561D1CF69
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 995184   (834394) от 02.05.2020
+###  Публикация: 1498524   (830929) от 13.10.2021
 
-Killswitch Engage - 13 Releases (2000-2020) [MP3|320 кб/с] <Metalcore, New Wave Of American Heavy Metal>
+VA - Fireplace Chill, Vol. 7 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834394.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830929.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2000 - Killswitch Engage
-2002 - Alive Or Just Breathing (Reissue 2005)
-2004 - The End Of Heartache (Special Edition)
-2005 - Killswitch Engage (Remastered)(   Читать дальше...   )Жанр: Metalcore, New Wave Of American Heavy MetalПродолжительность: 09:51:28
+01. Feindrehstar - Love & Hoppiness Int. (Original Mix) (2:33)
+02. Slow World - Caravan (Original Mix) (4:58)
+03. Marc Hartman - Into the Stone (Original Mix) (4:16)
+04. Placid Larry - Blossoming (Original Mix) (2:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCEC423A22194E19A0E703741B1C209C7FC49386
+magnet:?xt=urn:btih:0A87279C1D4867A855E2CEDCD498D0B8682F9852
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380226   (834395) от 02.05.2020
+###  Публикация: 1497138   (830930) от 13.10.2021
 
-Алекс Белл | 2084: Счастливый новый мир (2020) [FB2]
+VA - Magic Island of Chill Out, Vol. 2 (2021) [AAC|~322 Kbps] <Lo-Fi, Lounge, Chillout>
 
->>
->>
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_834395.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830930.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2084 – год действия нового романа Алекса Белла, автора «Мирового правительства».
-
-Красочный, полный удивительных технологий мир будущего. Счастливый мир, в котором решено множество проблем человечества, люди отправляются покорять Марс, создан сверхразумный компьютер, а виртуальный мир все больше заменяет собой реальность. Но так ли все хорошо в этой новой жизни?Жанр: Научная фантастика, Социальная фантастикаФормат: FB2
+01. Twins In Mind - Intro (1:24)
+02. 351 Lake Shore Drive, Marlene Johnson - You Don't Know (4:44)
+03. Tom Tom Club - Love to Love You Baby (Vavinchi Remix) (6:34)
+04. Miper - Relax (3:16)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 01:39:05
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E8A961DE343C345AFD62505AC18CC765F496B834
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380245   (834396) от 02.05.2020
+###  Публикация: 1497187   (830931) от 13.10.2021
 
-Последний бык / Der letzte Bulle (2019) WEB-DLRip [MVO] [AD]
+VA - Luxury Lounge Sunset, Vol. 1 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Остальное
->>Фильмы с Рекламой
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834396.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830931.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Михаэль «Мик» Брисгау, матёрый коп, раненный в конце 80-х и надолго впавший в кому. Проснувшись через двадцать лет, свою страну он больше не узнает: теперь у каждого есть свой личный компьютер, собственный мобильный телефон, а молодые парни превратились в настоящих слабаков. Жена Мика нашла себе другого мужчину, а для своей взрослой дочери Изабель он стал кем-то (   Читать дальше...   )Производство: Германия / SevenPictures Film, Donar Film, ITV Studios GermanyЖанр: Комедия, криминалРежиссер: Петер ТорвартАктеры: Флоренс Касумба, Ральф Мёллер, Брелим Дестани, Хельмфрид фон Люттихау, Хеннинг Баум, Кристоф Летковски, Максимилиан Грилл, Роберт Лор, Неля Кипер, Сахин ЭрийльмазПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:40:22Реклама: Присутствует баннер.
+01. Luis Hermandez - Don't Want Your Love (3:06)
+02. Music Of The Earth - The Lofi Jazz Pattern (3:27)
+03. Five Seasons - Caminho De Amor (5:16)
+04. Green Pine River - Skyfall (D-Soriani Bossa Edit) (4:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:13:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79963FFE97E7E496679AB1C54A87F41233D40A82
+magnet:?xt=urn:btih:30A2BA959EB359FF0DCBD4E7F4B31D39259F65DD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380415   (834397) от 02.05.2020
+###  Публикация: 1497226   (830932) от 13.10.2021
 
-3D модели - Unreal Engine - Megascans - Meadow Pack [UASSET, FBX]
+Chillhop Guitar - Spring from the soul (2021) [AAC|~295 Kbps] <Chill Out, Smooth Jazz, Downtempo>
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834397.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830932.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот пакет предоставляет 3 варианта различной плотности для каждого актива, от LOD до высокой детализации, подходящей для Archviz в реальном времени до рекламных щитов, UV-карт освещения и материалов, настроенных на ветер. У вас будет все, что вам нужно для создания плотных и правдоподобных луговых сцен, готовых для разброса с помощью рисовальщика листвы, использовать (   Читать дальше...   )Формат: UASSET, FBX
+01. Montecristo (5:18)
+02. Lounge with my Valentine (7:39)
+03. Vinyl in the Clouds (3:13)
+04. Sunset Walk (4:49)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 01:21:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FCDEDAC1491E63CFF84CDCC29BA737BB09AA533
+magnet:?xt=urn:btih:7A4760D974747AD3D184565CC8603B73D716A172
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380118   (834398) от 02.05.2020
+###  Публикация: 1496271   (830933) от 13.10.2021
 
-Остров фантазий / Fantasy Island (2020) BDRip [H.264/1080p] [PR]
+VA - Blueberry Café, Vol. 1 (2013) [AAC|~333 Kbps] <Downtempo, House, Jazzy>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834398.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830933.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа из пяти человек прилетает на загадочный тропический остров, где некий мистер Рорк исполняет заветные мечты своих гостей. Каждый из новоприбывших хотел бы что-то изменить в своей жизни, и каким-то невероятным образом остров фантазий эти желания воплощает, но вскоре мечты гостей оборачиваются неожиданным кошмаром.Производство: США, Columbia Pictures, Blumhouse ProductionsЖанр: Триллер, фантастика,Режиссер: Джефф УодлоуАктеры: Майкл Пенья, Мэгги Кью, Люси Хейл, Остин Стоуэлл, Портия Даблдэй, Джимми О. Ян, Райан Хансен, Майкл Рукер, Шарлотта МакКинни, Ким Коутс, Париса Фитц-Хенли, Майк ФогельПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:49:24
+01. SoulAvenue - Stuck in a Dream (4:14)
+02. JULIAS MOON - Bay (2:47)
+03. Roberto Sol, Florito, Sandra Muhuri - Impress Me (4:46)
+04. Luis Hermandez - Summer Feeling (3:16)(   Читать дальше...   )Жанр: Downtempo, House, JazzyПродолжительность: 01:26:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC4B403C2BFDA2F20EE9DDEB4A447B60CFBF74C4
+magnet:?xt=urn:btih:D4ABFC5AD24B8C82F35E0C54655697417A17B9B7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379452   (834399) от 02.05.2020
+###  Публикация: 1495594   (830934) от 13.10.2021
 
-Red Hat Enterprise Linux 8.2
+Dark the Suns - Suru Raivosi Sydämeni Pimeydessä (2021) [AAC|~339 Kbps] <Melodic Death, Gothic Metal>
 
->>Linux, Unix и другие ОС
->>ОС Linux
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834399.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830934.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Компания Red Hat опубликовала дистрибутив Red Hat Enterprise Linux 8.2. Установочные сборки подготовлены для архитектур x86_64, s390x (IBM System z), ppc64le и Aarch64, но доступны для загрузки только зарегистрированным пользователям Red Hat Customer Portal. Исходные тексты rpm-пакетов Red Hat Enterprise Linux 8 распространяются через Git-репозиторий CentOS. Ветка (   Читать дальше...   )
+01. Spirit in the Dark (3:57)
+02. Everywhere (5:05)
+03. Suru Raivosi Sydämeni Pimeydessä (4:21)
+04. Hope in Our Hands (4:48)(   Читать дальше...   )Жанр: Melodic Death, Gothic MetalПродолжительность: 00:44:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5758AA2F74FE5E759D512505BDCBC7DB3C1E1888
+magnet:?xt=urn:btih:BE9DAE09C37CE7AEE93B94F8A7445B7D86F4BD01
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380259   (834400) от 02.05.2020
+###  Публикация: 1497392   (830935) от 13.10.2021
 
-Соник в кино / Sonic the Hedgehog (2020) BDRip
+VA - Buddhatronic - the Compilation, Vol. 3 (2018) [AAC|~320 Kbps] <Downtempo, Lounge, Chill Out>
 
->>
->>
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_834400.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830935.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мир ждал героя, и появился ёжик. Способный бегать со сверхзвуковой скоростью, Соник должен спасти Землю и не дать злому доктору Роботнику завладеть мировым господством.Производство: США, Япония, Канада, Paramount Pictures, Sega, Original FilmЖанр: Фантастика, фэнтези, боевик, приключения, комедия, семейныйРежиссер: Джефф ФаулерАктеры: Джеймс Марсден, Бен Шварц, Наташа Ротуэлл, Тика Самптер, Нил МакДонаф, Адам Палли, Джим Керри, Майкл Хоган, Ли Мадждуб, Том Батлер, Фрэнк Ч. ТёрнерПеревод: Дублированный (iTunes)Субтитры: Русские (форсированные) - отдельным файломПродолжительность: 01:38:53
+01. Jean Mare - Here We Go Again (Buddha Chillout Mix) (5:44)
+02. Artenovum - Eehee (Mystic Voices Enigmatic Mix) (4:51)
+03. Book of Dreams - Garden of Secret (Mystic Sphere Mix) (5:38)
+04. Buddhatronic - Granular Dreams (Send Me an Angel Mix) (4:34)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:57:59
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:199BF1785FF355E5370305E6F18979FBA23A0C8E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380289   (834401) от 02.05.2020
+###  Публикация: 1497390   (830936) от 13.10.2021
 
-Пришелец из Сказки / Wtadcy przygod. Stąd do Oblivio (2019) WEB-DLRip [MVO] [AD]
+VA - Buddhatronic - the Compilation, Vol. 2 (2017) [AAC|~307 Kbps] <Downtempo, Lounge, Chill Out>
 
->>
->>
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_834401.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830936.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Одна случайная встреча, попытка похищения, сумасшедший полет на собственноручно построенной машине и побег от Охотников за головами из Обливио — разве это не звучит как обыкновенный день из жизни обыкновенного подростка? Франек и Иза — главные герои фильма — обнаруживают, что не надо быть супергероем, чтобы пережить суперприключение. Запуская таинственный граммофон, (   Читать дальше...   )Производство: Польша / Dogoda Media, New Wave Film, Poznan Film CommissionЖанр: Боевик, комедия, приключенияРежиссер: Томаш ШафраньскиАктеры: Камила Буяльска, Алиция Домбровска, Вероника Качмарчик, Шимон Радзимерски, Мачей Маковски, Януш Анджеевски, Александра Даргевич, Изабела Домбровска, Арлета Годзишевска, Анджей ГрабовскиПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:40:04Реклама: Присутствует баннер.
+01. Artenovum - Blue Sun (Ambient Lounge Mix) (5:34)
+02. Pascheba - Nirvana (3:28)
+03. Buddhatronic - World of Grace (Mystic Voice Mix) (4:54)
+04. Artenovum - Francesca (Mystic Dream Mix) (4:55)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:49:27
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:39CD7D1456E62C3270DEC0321C309B96DD5806BA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 509845   (834402) от 02.05.2020
+###  Публикация: 1498559   (830937) от 13.10.2021
 
-Птицы - Курские Соловьи (2004) [FLAC|Lossless|image + .cue] <Звуки Природы>
+VA - Chillax (Smooth Chill-Out Sounds For Pure Relaxing), Vol. 2 (2021) [AAC|~315 Kbps] <Chill Out, Lounge, Downtempo>
 
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834402.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Курские соловьи (01:19:56)Жанр: Звуки ПриродыПродолжительность: 01:19:56
+01. Music Of The Earth - Afterglow (Longglow Edit) (5:37)
+02. Manyus Joan Eta - Sea Ballad (5:34)
+03. VAN - Others City (6:19)
+04. Ialaz - Interlude 2 (1:50)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 02:19:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA9C53976CFE6CF5979C0454E02EAEE0B8AA5EC4
+magnet:?xt=urn:btih:EF4B47141C76BBB68C816173DA727C91B9FFF18C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380274   (834403) от 02.05.2020
+###  Публикация: 1497891   (830938) от 13.10.2021
 
-Никита Ивановский | Основы 3D графики [ступень 1] (2018) PCRec [H.264]
+Röyksopp - Junior (2009) [AAC|~349 Kbps] <Electronic, Downtempo>
 
->>След.
->>Дизайн, рисование (видеокурсы)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834403.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830938.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На данном курсе студенты овладевают основными навыками 3D моделирования, изучают интерфейс программы 3Ds Max, горячие клавиши, учатся работать с примитивами и модификаторами, а так же пробуют собирать и рендерить интерьерные 3D сцены по готовым библиотекам в Corona Renderer, а так же обрабатывать первые визуализации в Adobe Photoshop.Производство: visschool.ruЖанр: Обучающее видеоПродолжительность: 17:37:17
+01. Happy Up Here (2:44)
+02. The Girl and the Robot (4:29)
+03. Vision One (5:00)
+04. This Must Be It (4:42)(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 00:56:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A205587FA025694208032E308375B74F4361D57D
+magnet:?xt=urn:btih:A71825F8BB7F7E83F30FE77B1A13B448F79E6942
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380065   (834404) от 02.05.2020
+###  Публикация: 1495980   (830939) от 13.10.2021
 
-Соник в кино / Sonic the Hedgehog (2020) BDRip [H.264/1080p]
+VA - Chill out Magnifique, Vol. 1 (2019) [AAC|~318 Kbps] <Lounge, Downtempo, Chillout>
 
->>
->>
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_834404.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830939.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мир ждал героя, и появился ёжик. Способный бегать со сверхзвуковой скоростью, Соник должен спасти Землю и не дать злому доктору Роботнику завладеть мировым господством.Производство: США, Япония, Канада, Paramount Pictures, Sega, Original FilmЖанр: Фантастика, фэнтези, боевик, приключения, комедия, семейныйРежиссер: Джефф ФаулерАктеры: Джеймс Марсден, Бен Шварц, Наташа Ротуэлл, Тика Самптер, Нил МакДонаф, Адам Палли, Джим Керри, Майкл Хоган, Ли Мадждуб, Том Батлер, Фрэнк Ч. ТёрнерПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:38:53
+01. Maximus, Ensemble Ethnique - Mystery of the Seven Chakras (Original Mix) (3:07)
+02. Jasmon - River of My Heart (Original Mix) (5:04)
+03. Jane Maximova - Clouds (Original Mix) (5:49)
+04. Abey Brown - Calma (Original Mix) (6:27)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 02:06:36
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:9B1EAF7595F513A06F835B22F418077348F7BCFB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380302   (834405) от 02.05.2020
+###  Публикация: 1496252   (830940) от 13.10.2021
 
-ФотоШОУ PRO 16.0 RePack (& Portable) by elchupacabra [Ru]
+VA - Global Lounge Masters, Vol. 3 (2021) [AAC|~327 Kbps] <Lounge, Downtempo, Chillout>
 
->>
->>
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_834405.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830940.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ФотоШОУ PRO - открывает возможности для создания потрясающих фильмов из фотографий и музыки. Создавайте незабываемые слайд-шоу на любые темы: рассказы о путешествиях, праздниках, свадебные фотофильмы, Love Story и т.п. Программа включает сотни комбинаций эффектов анимации, позволяющих оживить любую фотографию. Вам точно не будет скучно... Коллекция элегантных переходов (   Читать дальше...   )Язык интерфейса: Русский
+01. 351 Lake Shore Drive, Marlene Johnson - You Don't Know (4:44)
+02. Aquascape - Sunrise (6:43)
+03. Five Seasons - In Your Town (3:55)
+04. T2'n - Charly One (4:35)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 01:39:20
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:CE6A8D6641B04DF56F9E6DB6D025384B6FD42F2E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 565134   (834406) от 02.05.2020
+###  Публикация: 1496251   (830941) от 13.10.2021
 
-Малахов курган (1944) SATRip
+VA - Global Lounge Masters, Vol. 2 (2021) [AAC|~318 Kbps] <Lounge, Downtempo, Chillout>
 
->>
->>
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_834406.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830941.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В основе сюжета — один из эпизодов героической обороны Севастополя во время второй мировой войны. Фильм  рассказывает о судьбе пяти матросов с погибшего миноносца «Грозный», которые сражались на Малаховом кургане, одном из важнейших узлов обороны города.Жанр: Драма, ВоенныйРежиссер: Иосиф Хейфиц, Александр Зархи, Семен ДеревянскийАктеры: Николай Крючков, Борис Андреев, Акакий Хорава, Мария   Пастухова, Федор Ищенко, Николай Горлов, Евгений Перов, Игорь   Ткачук, Зураб Лежава, Николай ДорохинФормат: AVIПродолжительность: 01:17:17
+01. 351 Lake Shore Drive, Genius Jane - Sunrise (5:37)
+02. Velvet Dreamer - Whisper of the Evening Sea (5:20)
+03. Lemongrass - Loving You (4:01)
+04. Soulounge, Florine Dimonye - Waiting in Vain (4:19)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 01:44:54
 
 ## Скачать торент
 ```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380313   (834407) от 02.05.2020
-
-Кисти - 200 Awesome Photoshop Brushes Bundle [ABR]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_834407.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью этих кистей вы можете быстро создать интересный и модный дизайн.
-Вы можете использовать эти кисти, чтобы воплотить ваши самые смелые идеи в дизайне. Применять кисти для творчества и профессиональных целей. Продукт подходит для свадебных приглашений, открыток, косметического брендинга и упаковки, моды и рекламы.Формат: ABR
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:D65FD89D15D4FD01469751630EA8C471FB132A38
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1032923   (642109) от 09.07.2016
+
+Cristina - Contremano (1982) [MP3|320 Kbps] <Electronic, Pop, Italo-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Lettera (3:39)
+02. Treno 5943 (4:25)
+03. Storia Di Periferia (3:58)
+04. Per Noi (3:50)(   Читать дальше...   )Жанр: Electronic, Pop, Italo-popПродолжительность: 00:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88E6C4139C56D9E8BFBA4AB055823C2E05B32490
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142535   (642345) от 14.06.2017
 
 D. White - One Wish (2017) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
@@ -674,33 +701,6 @@ VA – Ваши любимые песни... (2001) [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76B847F7105DA4B426E62183062C5E6FEA6BF57F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142195   (644722) от 13.06.2017
-
-VA - Ulitimate Funky House (2017) [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Groove>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 100% Feat. Jennifer John - Just Can't Wait (Saturday) (Club Mix) 07:53
-02. Lee Cabrera - Voodoo Love (Steve Angello Remix) 06:52
-03. Asle - Golden Sun (Haji & Emmanuel Remix) 06:42
-04. Mync Project Feat. Abigail Bailey - Something On Your Mind (Soul Seekerz Remix) 06:30(   Читать дальше...   )Жанр: Nu Disco, Funky, Soulful, GrooveПродолжительность: 09:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32490BDDC096F21E8B6F12D499830EEB9CA40D2A
 ```
 
 

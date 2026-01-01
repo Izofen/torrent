@@ -52,6 +52,30 @@ magnet:?xt=urn:btih:6C96C0C6BC366801F742D3C77B9E1D0C6F1C0FD9
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 347176   (641557) от 07.06.2011
+
+DJ Silence - Driving Relax (2010) [FLAC|Lossless]<Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_641557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: AmbientПродолжительность: 01:19:52
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906759   (641617) от 10.06.2015
 
 VA - Club Sounds Presents Bodybangers - Bang the House (2015)2CD[FLAC|Lossless|WEB-DL]<House, Progressive House>
@@ -663,33 +687,6 @@ Igorrr - Savage Sinusoid (2017) [FLAC|Lossless|tracks+.cue] <Breakcore, Black Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2AC30A5A60EE90D26139175C11B931DE1AF033C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142142   (644603) от 13.06.2017
-
-Robin Schulz & David Guetta & Cheat Codes - Shed A Light (The Remixes Part 2) (2017) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Shed A Light (MDZN Remix) [03:27]
-02 - Shed A Light (Mosimann Remix) [06:02]
-03 - Shed A Light (Heyder Remix) [03:39]
-04 - Shed A Light (Aligee Remix) [04:12](   Читать дальше...   )Жанр: HouseПродолжительность: 00:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BCF7BDE845A9B7289224BE8898E95EACDE367E4
 ```
 
 

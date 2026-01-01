@@ -1,3 +1,27 @@
+###  Публикация: 288523   (921861) от 29.01.2011
+
+VA - Бомба года  хитов (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 11:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3256B2B3BDF3317542001E5F13469F89F4A34C5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988332   (921897) от 19.02.2016
 
 VA - Музыка В Машину. Лучшие Хиты (2016) [MP3|256 kbps] <Pop>
@@ -663,33 +687,6 @@ VA - Музыкальное потрясение зимы от Русского 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FBC55D8AE583C065051904DF27B5E2ED7439EB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095910   (922827) от 22.01.2017
-
-VA - Ultimate Vocals (2017) [MP3|320 Kbps] <Nu Disco, Funky, Progressive, Club, Soulful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Garrix And Bebe Rexha - In The Name Of Love 03:15
-02. Armin Van Buuren Feat. Kensington - Heading Up High (Swanky Tunes Remix) 03:11
-03. Max Ruby - Meldonium (Radio Edit) 03:09
-04. Greenage - Drift 08:05(   Читать дальше...   )Жанр: Nu Disco, Funky, Progressive, Club, SoulfulПродолжительность: 05:08:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C21104B6E172AC3E41C904372BF46FEE1B861A84
 ```
 
 

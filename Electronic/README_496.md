@@ -1,3 +1,138 @@
+###  Публикация: 1349751   (1004064) от 03.01.2020
+
+VA - Best Vocal Chill Out Remixes for 2019 [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Artak - You Are My Air (Lunars Remix) (Feat. Angel Falls) 4:34
+02. Dj Artak - Tell Me (Bryan Milton Remix) 4:23
+03. Rj Chevalier - Do What You Do (Friendly Tune Remix) (Feat. Tara Minton) 3:32
+04. Dj Artak - I'm Trapped In You (Rayan Myers Remix) (Feat. Angel Falls) 7:48(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F534B92A7E4CC83780CD02066E9A247AA365D6C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349727   (1004066) от 03.01.2020
+
+VA - Trance Dance - Back to the 90s (2019) 2CD [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004066.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Faithless - Insomnia (Radio Edit)
+02. Delerium - Silence (feat. Sarah McLachlan) (DJ Tiësto's In Search of Sunrise Edit)
+03. Energy 52 - Café Del Mar (Three 'n One Radio Edit)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02C7C6F7F5F02F6410E11EC2F00A9B7A7B18ECA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349850   (1004068) от 03.01.2020
+
+V.A. - Cafe Del Mar Essentials (Vol. 1) (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Poets - Moment Scale (Dubmaster X Remix)
+02. A Man Called Adam - Estelle feat. Eddie Parker (Cafe del Mar Mix)
+03. Psychedelic Research Lab - Tarenah (Chill Mix)
+04. The Ballistic Brothers - Uschi's Groove (Original Mix)(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F23CA6695ADC3254EB42523B33C623C258E6D45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349846   (1004109) от 03.01.2020
+
+Disco Deejays - Stayin' Alive / Night Fever (2006) [FLAC|Lossless|image + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004109.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Stayin' Alive (Radio Mix) 3:39
+2 Night Fever (Radio Mix) 3:41
+3 Stayin' Alive (Club Mix) 5:09
+4 Night Fever (Club Mix) 5:22Жанр: HouseПродолжительность: 00:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C93B4ACE109D684B4DBBF698403FFBF5CC4A284
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486929   (1004130) от 03.08.2021
+
+VA - Bonfire on the Beach: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marco Celloni - Bonfire on the White Beach (05:20)
+02. SoulAvenue - Try (05:02)
+03. Marie Therese - Just Try It (05:03)
+04. Chilled Ibiza - Sapphire Saladeta (06:41)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7EDE5A4EA0E687B9D871FABB2A316BD0614A9D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487163   (1004147) от 03.08.2021
 
 Nils Hoffmann - Once in a Blue Moon (Remixes) (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
@@ -556,137 +691,6 @@ Aviv Stern - Half Mind (2021) Point Source Electronic Arts [FLAC 2.0|44.1/24|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EDF249FC2607BE8074308A234A733C589256A76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485820   (1005218) от 27.07.2021
-
-C-Land - Contactee’s Journal (2021) Microcosmos Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Acoustic>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dawn On The Desert Planet (08:09)
- 02. Gone With The Wind (05:53)
- 03. Skyline Of Lunar Oceans (05:00)
- 04. The Way To The Constellation Of Dreams (10:21)(   Читать дальше...   )Жанр: Ambient, AcousticПродолжительность: 01:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D59182006B5EE7B370F0C3A4776BCE02E669C15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485676   (1005223) от 27.07.2021
-
-Oxia - Speicher 34 (2006) [FLAC|Lossless|tracks] <Techno, Minimal Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005223.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Change Works
-2. DominoЖанр: Techno, Minimal TechnoПродолжительность: 00:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C086B7335F7765617382500E9AF3563F12E5818F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485766   (1005224) от 27.07.2021
-
-William Fields - Bokuseki (2021) Evel Records [FLAC|Lossless|WEB-DL|tracks] <Experimental, IDM, Abstract>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N-Asent (08:23)
- 02. Cordanc (05:41)
- 03. Subpsaltria (03:12)
- 04. Rgence.I (03:08)(   Читать дальше...   )Жанр: Experimental, IDM, AbstractПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CCC8F489F8B7CA59FA1CB34C128D90E5A4B9AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485466   (1005289) от 26.07.2021
-
-Anika - Change (2021) [MP3|320 Kbps] <Electronic, Post-Punk, Experimental Pop>
-
->>Electronic
->>Ambient, Experimental, Modern Classical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Finger Pies [00:03:54]
-02 - Critical [00:04:23]
-03 - Change [00:04:32]
-04 - Naysayer [00:03:55](   Читать дальше...   )Жанр: Electronic, Post-Punk, Experimental PopПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3EAD57C2506C1A860BDDB494397BC69F07EBD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484784   (1005349) от 26.07.2021
-
-Pobedia & Nebyla - Good Morning EP (2012) DDR006 [FLAC|Lossless|tracks] <Dub Techno, Deep Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005349.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nebyla - Mountain Yard 05:24
-2. Pobedia - 6 a.m 04:57Жанр: Dub Techno, Deep TechnoПродолжительность: 00:10:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67DD97325675188E0AA6DFBD0211B1117C424BB7
 ```
 
 

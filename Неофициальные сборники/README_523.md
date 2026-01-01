@@ -1,3 +1,30 @@
+###  Публикация: 1012233   (794728) от 30.04.2016
+
+VA - Beatport Top 100 April (2016) [MP3|320 кб/с] <House, Electro, Tech, Nu-Disco, Progressive, Tribal, Future House, Indie Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794728.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tujamo - Drop That Low (When I Dip) (Extended Mix) 04:31
+002. Lee Walker - Freak Like Me (DJ Deeon vs Lee Walker Remix) 05:47
+003. Lucas & Steve - Make It Right (Extended Mix) 04:09
+004. Dennis Cruz - See Line (Wade Remix) 06:16(   Читать дальше...   )Жанр: House, Electro, Tech, Nu-Disco, Progressive, Tribal, Future House, Indie DanceПродолжительность: 10:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1914DA0B31C0AE2F29D5194D26ABF24CC3A606
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012235   (794795) от 30.04.2016
 
 VA - The 90s Sweet Chart (2016) [MP3|320 кб/с] <Dance, Euro, Disco, Pop, Rock>
@@ -668,33 +695,6 @@ VA - Acoustic Sunrise (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumenta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B81BCA50D33CCC6E6476D521944B07B727EE486
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011764   (795575) от 29.04.2016
-
-VA - Ibiza 2015. Massive Energy Flux. Vol.1 (2015) [MP3|256-320 кб/с] <Techno-House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cari Lekebusch - Forsta Uppdraget (intro)  00:43
-02. Tilliander - Cold As Ice (enter version)  03:25
-03. Catz N Dogz - Keep On (feat. Green Velvet)  03:10
-04. Mr. V - Jus Dance (Dario D’attis remix)  07:51(   Читать дальше...   )Жанр: Techno-House, Techno, HouseПродолжительность: 05:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25A151B94D3C40F99E74B17528FB345CE636C0D
 ```
 
 

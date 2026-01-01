@@ -1,3 +1,135 @@
+###  Публикация: 505237   (686268) от 07.06.2012
+
+Ghosting Season - The Very Last Of The Saints (2012) [MP3|320 кб/с]<Deep House, Ambient, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Deep House, Ambient, ElectronicПродолжительность: 01:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A8350D325D953B52E998091A37DA51FDD1F3BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403894   (686321) от 22.08.2020
+
+Erasure - The Neon (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Now (Think I Got A Feeling)
+02. Nerves of Steel
+03. Fallen Angel
+04. No Point in Tripping(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3882F5567546F14CB01E7A86E8DCC53AD2445590
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403875   (686326) от 22.08.2020
+
+VA - Cafe del Mar 40th Anniversary (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beloved - The Sun Rising (Gentle Night) (2:46)
+02. Kinobe - Slip into Something More Comfortable (Stephen Hague 2016 Mix) (4:47)
+03. Ballistic Brothers - Portobello Café (5:48)
+04. 4hero - Morning Child (4:35)(   Читать дальше...   )Жанр: Easy Listening, ChilloutПродолжительность: 02:28:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3872CAD8044CA337CAC189F5B38BFC989910E6CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534634   (686573) от 06.03.2022
+
+Eisfabrik - Life Below Zero (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futurepop, EBM>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirror (4:19)
+02. Saving Shore (4:08)
+03. Eins mit dem Wind (4:37)
+04. Wait for a Sign (4:14)(   Читать дальше...   )Жанр: Synthpop, Futurepop, EBMПродолжительность: 01:23:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72D458C35AF8744E7783153DBCB87701C50247C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289498   (686632) от 16.03.2019
+
+VA - Sensual Nights Elegant Chillout Music for Sexy Time at Home (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stefano Profeta - Smooth fashion
+02. James Braddell - My Angel
+03. Don Taylor - Evening Swim
+04. Don Taylor - Burning Sun(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:22:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8348C570A7FF20717600D42D3D0A77AFDBF91B40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028807   (686647) от 24.06.2016
 
 Roger Shah - Magic Island - Music for Balearic People, Vol. 7 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Trance>
@@ -556,141 +688,6 @@ VA - Workout Vol. 5 (2018) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:336C87A523DD8AF75F095AE1775560AC75042E40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222259   (687490) от 28.04.2018
-
-VA - Toxic Nights Sensual Jazz Tracks (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matteo Curcio – Morbossa (Original Mix)
-02. Randy Phillips – Down To The Bone (Original Mix)
-03. Ingvi Thor Kormaksson – Enduring Love (Original Mix)
-04. Image Sounds – Jazz Lounge Pt.1 (Original Mix}(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:954B1C78DB6D7F92A3D73074FBA2193D3EC28631
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222225   (687494) от 28.04.2018
-
-Dorian Gray - Nostalgia for the Future EP (2018) Illegal Alien Records [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maya (02:52)
- 02. Futuristic Past (05:52)
- 03. It Was Advanced (07:07)
- 04. Nostalgia For The Future (06:10)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE59380E776127277562A0F1CB88C1598721DC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134247   (687558) от 16.05.2017
-
-VA - Papa DJ Presents Cote D'azur Exclusive Party (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Brass - Shadow Of Dream  4:21
-02.  Andrea Cardillo - Leste  3:56
-03.  Marga Sol - Je T'aime  5:14
-04.  Stefano Carpi - She's Looking Me  4:09(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:28:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DAE6035A1F222333269370D4A7C4BEAA7B9C2B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134258   (687569) от 16.05.2017
-
-VA - Time Piano And Relax (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DeepCosmo - Silent  2:22
-02.  Arsen Movsisyan - Remember  4:05
-03.  Tiikk - Broken Piano  4:01
-04.  Nikolay Mikryukov - Happiness Island  6:07(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:09:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F124E631FE39A682ED881D0A199B03CDB31A1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134535   (687582) от 16.05.2017
-
-VA - Total Trance Selections Vol.04 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rodrigo Deem - You Said It All (feat. Karra) (Extended Mix)  7:52
-02.  Fabio XB & Marell - Can't Let Go (feat. Christina Novelli) (Extended Mix)  5:47
-03.  Alexandre Bergheau & Mohamed Ragab - At Night (Original Mix)  3:45
-04.  ReOrder - Spirit Of Ecstasy (Original Mix)  3:50(   Читать дальше...   )Жанр: TranceПродолжительность: 02:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A88E5092368376E9A3138E99F95E031000F4A51
 ```
 
 

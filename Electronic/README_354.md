@@ -1,3 +1,138 @@
+###  Публикация: 1220513   (704203) от 19.04.2018
+
+VA - Night City Tribute - The Songs of Secret Service (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Italo-Disco, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Pop & Martin Blix - Let Us Dance Just A Little Bit More (Album Mix) (4:30)
+02. Italoconnection - Night City (12" Radio Edit) (3:42)
+03. Johan Baeckström - Cry Softly (Time Is Mourning) (4:20)
+04. Rational Youth - Flash In The Night (3:43)(   Читать дальше...   )Жанр: Synthpop, Italo-Disco, ElectropopПродолжительность: 01:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1BA993F5CF03902BB079B846521016EF7BC0E1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132025   (704242) от 07.05.2017
+
+VA - Erotic Tantric Kamasutra: Sensual Chill Out Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bilitis - Air (Love 2 Lounge Mix)  5:04
+02.  Soleil Fisher - Beautiful Skies (Roxy Lounge Mix)  4:58
+03.  Soulguru - Addicted To Tantric Sex (Sensual Love Mix)  4:56
+04.  Hamam Mounier - Oriental Wellness (Island Of Harmony Mix)  3:25(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:16:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:028C2CB446BE85143BB25D4FA0E6828F7A63BBF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220375   (704320) от 19.04.2018
+
+VA - Night City Tribute - The Songs of Secret Service (2018) [MP3|320 Kbps] <Synthpop, Italo-Disco, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Pop & Martin Blix - Let Us Dance Just A Little Bit More (Album Mix) (4:30)
+02. Italoconnection - Night City (12" Radio Edit) (3:42)
+03. Johan Baeckstrom - Cry Softly (Time Is Mourning) (4:20)
+04. Rational Youth - Flash In The Night (3:44)(   Читать дальше...   )Жанр: Synthpop, Italo-Disco, ElectropopПродолжительность: 01:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9845C96D8A0C90DB86FC80FAA063A958ABED6E96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220546   (704496) от 19.04.2018
+
+VA - EDM For Running And Workout 2018 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Milani feat. Rhett Fisher - Where The Stars Go (Alex Pizzuti Remix Edit) 03:03
+02. Southree feat. Penny Hannant - Gone (Radio Edit) 03:33
+03. Samma feat. Leonardo Dragusin - Shadow Of Love (Radio Edit) 03:01
+04. Stephan Vegas - Right Now (Radio Edit) 03:12(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D2F38F658081EF8832EAEFAFB08DBC08F7BA923
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220562   (704503) от 19.04.2018
+
+VA - Silk Music Pres. Trance Treasures 10 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage & Morelli - While The Earth Sleeps (David Broaders Extended Mix)
+02. Shingo Nakamura - The Four (Yuji Ono Remix)
+03. Ltn,Stendahl, Arielle Maren - Black Hole (Blood Groove & Kikis Extended Vocal Remix)
+04. The Midnight - Wemoveforward (Talamanca Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B86045C422D5F22F947FCB327E10F7D230E6F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220538   (704507) от 19.04.2018
 
 VA - Summer Tech House 50 Fantastic Summer Groove Songs (2018) [MP3|320 Kbps] <Minimal, Tech House>
@@ -561,139 +696,6 @@ Forest Swords - Compassion (2017) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Expe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9348361DDB080B37ACFD97ED0547E2051BC7056B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131597   (706616) от 06.05.2017
-
-LCD Soundsystem - Call the Police / American Dream (2017) Single [FLAC|Lossless|tracks] <Electronic, Dance-Punk, Indie Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706616.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Call the police (07:01)
-2. American dream (06:13)Жанр: Electronic, Dance-Punk, Indie RockПродолжительность: 00:13:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD494B9187138070411F4321E4B6D1E4F0E59FC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131305   (706942) от 06.05.2017
-
-VA - Best Of Deephouse 2017 Vol.2 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jean Deep - The Power Of The Pad  5:36
-02.  The Inhabitants - Don't Start Flippin' It  6:05
-03.  Elastique V. - She Makes Me Wanna Dance  6:40
-04.  Miguel Alcobia - The Groove Awakens (Radio Edit)  3:33(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AACC3224CAC4015EFCFCFE99CAC462349D3349A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131550   (707091) от 06.05.2017
-
-Actress - AZD (2017) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Experimental, Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nimbus (00:54)
-02. Untitled 7 (05:13)
-03. Fantasynth (05:02)
-04. Blue Window (03:42)(   Читать дальше...   )Жанр: Experimental, Techno, MinimalПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12102F982807C6A2A3C1E491B0787ECDEEF73218
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131755   (707096) от 06.05.2017
-
-VA - Ori Uplift - Uplifting Only 221 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FAN FAVORITE 219: Ikerya Project & O.B.M. Notion Feat Danny Claire - Goodbye
-02. Susana - Only Summer Knows
-03. Manuel Rocca & Illitheas - Enchanted
-04. Syntouch & Angel Falls - Alone (Plutian Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F9BFAC008EFE0A593747A8C3B821CB218BBBCCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131788   (707128) от 06.05.2017
-
-VA - Paris Rooftop Chill Vol.1: Finest Chill Out Selection (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - Ganja Tribe
-02. Alexander S. Karlov - Spirit Of The Bar
-03. Clelia Felix - High In The Sky
-04. Svendaq - Mediterranean Beat(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 02:25:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD4F0534682941D01E433645F84EB200A87A808E
 ```
 
 

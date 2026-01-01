@@ -1,3 +1,192 @@
+###  Публикация: 1616943   (1034536) от 09.03.2023
+
+VA - Enigma-Forest-Transit 3 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Physical Motion - Ave Maria
+02. Gregoria - The Rhythm
+03. Karunesh - Call of the Tribes
+04. Beautiful World - The Silk Road(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 01:14:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996CDC8270F2E41DB4B988B74ECA92C64E451783
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617225   (1034538) от 09.03.2023
+
+VA - Enigma-Forest-Transit 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. eRa - Sempire d'Amor
+02. Delerium - Silence
+03. Beautiful World - Fearless
+04. Pandana - One Man Woman(   Читать дальше...   )Жанр: Electronic, New Age, DowntempoПродолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:403B15D5D350F670374AC0CD136D50126E6B652F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617498   (1034731) от 08.03.2023
+
+VA - Enigma-Forest-Transit 5 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Wave>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Megabyte - Electric Lover
+02. Interface - Strange Touch
+03. Dancing Fantasy - Voodoo Jammin (The Eros Mix)
+04. Software - Present Voice(   Читать дальше...   )Жанр: Electronic, Ambient, New WaveПродолжительность: 01:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:970CEA88FE6E2CA46FC22CF3BB2325C7938FA93B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617377   (1034797) от 08.03.2023
+
+Relax Time Zone - Bathroom Wellbeing Relax with Calm Piano (2023) [FLAC|Lossless|tracks] <Relax, Chillout, Jazz>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Days (3:20)
+02. Better Future (3:07)
+03. Prepare Great Meal (3:33)
+04. Melancholy Mood (3:02)(   Читать дальше...   )Жанр: Relax, Chillout, JazzПродолжительность: 00:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2686958339FB11848402843BB62C226840CFCB25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443283   (1034891) от 31.01.2021
+
+FolkBeat (FolkBeat RF) - Collection (2 Album, 3 EP, 6 Singles) (2015-2020) [FLAC|Lossless|tracks] <Folk, Electronic, Pop, Dance>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российская музыкальная группа, выступающая на стыке электронной и фолк-музыки. Группа FOLKBEAT была образована студентками музыкального училища Гнесиных Аленой Минулиной, отвечающей за вокал, битбокс, loop station и вокалистками Светланой Шестопаловой, Светланой Ивановой, Марией Зибровой. Музыканты выступают как с собственными произведениями, так и с народными песнями.Коллекция содержит 2 альбома, 3 EP, 6 Синглов
+2015 - In Mixt
+2016 - Светлая встреча
+2015 - Порушка(   Читать дальше...   )Жанр: Folk, Electronic, Pop, DanceПродолжительность: 02:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD53192941B07951A6C3DC18B348C2805FFE05A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444124   (1034913) от 31.01.2021
+
+VA-Enigmatica II / DJ Fact`ry volume 2 (2001) [FLAC|Lossless|tracks + .cue] <Enigmatic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meduzza - Fly Away 5:19
+02. Underground Spirits - Last Exile 4:38
+03. L.C. Puma - Coral Dream 7:27
+04. Lexus - Blind Fantasy 4:39(   Читать дальше...   )Жанр: Enigmatic, New AgeПродолжительность: 00:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996629C1ED1717BE08790CDBAA676ECC6C3A8E48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443332   (1035730) от 28.01.2021
+
+Langhorne Slim - Strawberry Mansion (2021) [FLAC|Lossless|tracks + .cue] <Folk, Indie, Americana>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mighty Soul (01:57)
+02. Dreams (02:19)
+03. No Right Way (02:30)
+04. Lonesome Times (01:53)(   Читать дальше...   )Жанр: Folk, Indie, AmericanaПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030238033B3B5F5870E24D92C89A29250A9D6A20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443024   (1036009) от 27.01.2021
 
 DJ Chill del Mar - Fresh Mix Chillout 2021 [FLAC|Lossless|WEB-DL|tracks] <New age>
@@ -506,195 +695,6 @@ Jim Brickman - The Ultimate Valentine's Day (2021) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57D96D6F0A9E1862418FEBDC0EB11038E501F177
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610792   (1041359) от 11.02.2023
-
-Indian Spirit - Discography (2009 - 2020)  6 Releases [MP3|320 Kbps] <Native American, New Age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circle Of Fire [05:03]
-02. The Counterclockwise Circle Of Dance [05:46]
-03. Return From River Island [06:11]
-04. Dance Of The Warrior [06:01](   Читать дальше...   )Жанр: Native American, New Age, World musicПродолжительность: 05:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D78D540F1B3ED8BCCD8F0FEED70A650A04DE68E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610304   (1041524) от 10.02.2023
-
-Laya Project - Laya Project  (2006)  2CD [FLAC|Lossless|tracks + .cue] <World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041524.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD ONE:
-01. Glorious Sun Remix
-02. Muliya
-03. A New Day(   Читать дальше...   )Жанр: WorldПродолжительность: 45:06 + 50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16382E1975297FA8AC101913413F3F566671ED75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611126   (1041567) от 10.02.2023
-
-Ennio Morricone - Love Songs & Romantic Scores (2023) [FLAC|Lossless|WEB-DL|tracks] <Film Soundtracks>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Califfa (Main Theme) (2:37)
-02. D'amore si vive (3:00)
-03. Love Theme (Version 2) (2:48)
-04. Prima e dopo l'amore (1:57)(   Читать дальше...   )Жанр: Film SoundtracksПродолжительность: 01:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:585ED2BBA3A8DA9AA9A42A4B1D6476386FB352A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611036   (1041646) от 10.02.2023
-
-Oota Dabun - Ani Kuni (2011) [MP3|320 Kbps] <Native American, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ani Kuni (English Radio Mix) (English Radio Mix) [03:47]
-02. Ani Kuni (French Radio Mix) (French Radio Mix) [03:47]
-03. Ani Kuni Traditional (Native Radio Mix) (Native Radio Mix) [04:05]
-04. Ani Kuni (Tribal House Club Mix) (Tribal House Club Mix) [03:54](   Читать дальше...   )Жанр: Native American, New AgeПродолжительность: 00:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D320D5E19582393546B7BE6822808806C32D3E7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608721   (1043501) от 31.01.2023
-
-VA - Шедевры цыганской музыки, 4 Альбома (2000) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Соколовский хор 3:00
-02. Мохнатый шмель 2:40
-03. Что так грустно 2:50
-04. Вино в бокале 4:00(   Читать дальше...   )Жанр: Folk
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B8A5E85C813FC6C251AB95D56E48E52D603B054
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607598   (1043899) от 27.01.2023
-
-Земфира & Дмитрий Емельянов - CACTUS (2023) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043899.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Земфира - Cказка.начало
-2. Земфира - Превращение
-3. Дмитрий Емельянов - Минус
-4. Дмитрий Емельянов - Радио(   Читать дальше...   )Жанр: OSTПродолжительность: 00:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F37EB59B9AD5F7E74541ACC01553196C91C0D01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606893   (1044228) от 24.01.2023
-
-Era - The Very Best Of (2004) [OGG Vorbis|480 Kbps] <Rock, Pop, Classical>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ameno remix
-02. Don't go away
-03. The mass
-04. Mother remix(   Читать дальше...   )Жанр: New Age, Pop, ClassicalПродолжительность: 01:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97B6CFB194865C537A764E426E974E68A23FB07D
 ```
 
 

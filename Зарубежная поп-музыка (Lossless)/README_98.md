@@ -1,3 +1,57 @@
+###  Публикация: 1452703   (1027569) от 07.03.2021
+
+Celeste - Not Your Muse (2021) 2CD Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. Ideal Woman
+02. Strange (Edit)
+03. Tonight Tonight(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:20:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2B8FDB3BBD879738400DF5376681D3A1666B12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452394   (1027694) от 06.03.2021
+
+Ricchi e Poveri - Reunion (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. L'ultimo amore
+02. La prima cosa bella
+03. Che sarà (feat. José Feliciano)(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:12:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F926041B7CE9B568A9098B07319678E127F32F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451577   (1028219) от 03.03.2021
 
 VA - Pop Acoustic Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -643,60 +697,6 @@ Kylie Minogue - The Abbey Road Sessions (2012) [FLAC|Lossless|tracks + .cue] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6954BE1AB9892818BA3771FBC8B2F84D3B49CD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446680   (1032554) от 10.02.2021
-
-Триши - Лунная ночь (2006) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лунная ночь
-02. Я стала звездой
-03. Прощай!
-04. Стоп(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C4F035DD9A160CF529DED2D353F2DC03B4B2D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619860   (1032560) от 18.03.2023
-
-VA - Pop Blockbusters 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BoyWithUke - Toxic
-02. Bastille - Pompeii
-03. Capital Cities - Safe And Sound
-04. Marshmello - Happier(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61457EC99346057DF3FD4CBD0CA751C3391AD21A
 ```
 
 

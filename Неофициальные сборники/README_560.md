@@ -1,3 +1,30 @@
+###  Публикация: 1002986   (843025) от 03.04.2016
+
+VA - Blues Forever vol.45 - vol.48 (2016) [MP3|320 кб/с] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rocky Athas Group - Slow Driver
+02. Buck & Evans - Treat Me Right
+03. Gregg Alliman - Rendezvous With The Blues
+04. Blindside Blues Band - Talkin' Bout My Baby(   Читать дальше...   )Жанр: BluesПродолжительность: 05:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:122E8FE5F4D1C8DBEADC56DBB0BD7EC796904796
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112298   (843103) от 08.03.2017
 
 John Mayall - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -671,33 +698,6 @@ VA - Record Super Chart 633 (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABCA5E1F63A1670E6B88952342483B227558231C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378671   (844804) от 26.04.2020
-
-VA - Hard Fusion: Hardstyle Music For Sport (2020) [MP3|320 Kbps] <Hardstyle, Dance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844804.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Actek - Carsten Stahl
-002. Access One - Equalize
-003. Sneith - Beg
-004. Alphatech - Don't Forget(   Читать дальше...   )Жанр: Hardstyle, Dance, ElectroПродолжительность: 07:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D8A4EBD8A50D459D25641E766A48CE046220B21
 ```
 
 

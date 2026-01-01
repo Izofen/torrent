@@ -1,3 +1,30 @@
+###  Публикация: 1536953   (670590) от 14.03.2022
+
+VA - 90's One Hit Wonders (2022) [MP3|320 Kbps] <Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vanilla Ice - Ice Ice Baby
+02. MC Hammer - U Can't Touch This
+03. Hanson - MMMBop
+04. The Cranberries - Zombie(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 02:24:46 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F5AFD4E3304F05BC44384984051CCE96EC60E47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536950   (670728) от 14.03.2022
 
 VA - 80's One Hit Wonders (2022) [MP3|320 Kbps] <Pop, Dance, Rock>
@@ -690,33 +717,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2905B7C6D2CE8BB1FCC7D0F82C17F0078B76FA84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030781   (672167) от 01.07.2016
-
-VA - 100% Hits 90s (2016) [MP3|320 Kbps] <Dance-rock, Synthpop, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toni Braxton - Unbreak My Heart 04:30
-02. Annie Lennox - No More I Love You 04:49
-03. Joe Cocker - Night Calls 03:26
-04. The Pretenders - I'll Stand By You 03:49(   Читать дальше...   )Жанр: Dance-rock, Synthpop, DiscoПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A6AD9EF7E545B2BA2183F00075368D2E9E84BA4
 ```
 
 

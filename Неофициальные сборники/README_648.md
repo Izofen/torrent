@@ -1,3 +1,36 @@
+###  Публикация: 608780   (992259) от 27.01.2013
+
+VA - Радио Шторм - NeРусский Шторм - 86 (2013) [MP3|128-320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akces - I Feel Lucky (Radio Edit)
+02. Akon - That Na Na
+03. Alex Clare - Too Close (Slider & Magnit Remix)
+04. Alex Gaudino feat. Jrdn - Playing With My Heart (Radio Edit)
+05. Angeliya - Love Is Life
+06. Armin Van Buuren feat. Fiora - Waiting For The Night (Radio Edit)
+07. Arsenie - New Bang Bang
+08. Ask Embla - I Fell In Love
+09. Belinda - En La Obscuridad
+10. Cascada - GloriousЖанр: Pop, DanceПродолжительность: 02:25:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4CEFC4DC744E98C9049A7718BE60EB957AC72D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608740   (992290) от 27.01.2013
 
 VA-Зимний марафон DFM №22 (2013) [MP3|256 кб/с]<Pop>
@@ -759,39 +792,6 @@ VA - Первый свадебный вальс (2011) [MP3|320 кб/с]<Instrum
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCC3105DB9839CA576B16487E7D45D7F8C73F6E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604639   (996163) от 18.01.2013
-
-VA-Зарубежный Свежачок (2013) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luchian Cris feat. Loly - All My Love
-02. The Weeknd - Enemy
-03. Scooter - What Time Is Love
-04. The Weeknd - Twenty Eight
-05. Sergio DN feat. Khristeen - Can You Feel (Radio Edit)
-06. Adam Lambert - Trespassing (Vanity Machine Remix)
-07. Andy M. feat. Ellise - Beautiful Day (Radio Edit)
-08. Anastacia - Dream On
-09. Anna Lesko - Ia-Ma (Radio Edit)
-10. Delerium feat. Jael - Light Your Light(   Читать дальше...   )Жанр: PopПродолжительность: 06:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CF3D6AD1931154FF04E5511DB6CFCEB08BAE0E
 ```
 
 

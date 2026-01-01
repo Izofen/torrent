@@ -1,3 +1,30 @@
+###  Публикация: 994386   (891436) от 07.03.2016
+
+VA - Дискотека на 8 марта (2016) [MP3|256 кб/с-320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891436.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Стас Михайлов- Ты только для меня (radio edit).mp3
+002.  МакSим- Я Буду Жить.mp3
+003.  Марсель feat Artik- Моя любовь.mp3
+004.  Макс Барских- Кровь-вода.mp3(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE47F599498E7D35D2B1309D34E4AFBDAAA05EF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994409   (891460) от 07.03.2016
 
 VA - 8 Марта. Праздничный хит-парад №1 (2016) [MP3|192 кб/с-320 кб/с] <Pop>
@@ -667,33 +694,6 @@ VA - Time For Dreams: Chillout Zone (2020) [MP3|320 Kbps] <Chillout, Lounge, Amb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F09898FB4E81262632DC6B5051771770773FC30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371400   (892038) от 30.03.2020
-
-VA - Beatport Bassline: Electro Sound Pack #41 (2020) [MP3|320 Kbps] <D&B, Bassline>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892038.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Artificial Intelligence - Savour
-002. Atmosis - Did You Know
-003. Black Barrel - Fabric
-004. Drumsound & Bassline Smith - Come With Me(   Читать дальше...   )Жанр: D&B, BasslineПродолжительность: 10:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B6E5DF584A76CE9BE660A40B4FA3D1625E1151
 ```
 
 

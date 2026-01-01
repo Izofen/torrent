@@ -1,3 +1,30 @@
+###  Публикация: 1494623   (887745) от 08.09.2021
+
+VA - HGM: Organic House Deep Downtempo Mix (2021) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887745.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ben Pierre - Shima
+002. Báez - Is It Real
+003. Facundo Borras - Anyone
+004. Raffaele Ciavolino - Do You Love Me(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 09:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8AFA863C948439AA0DDB4706494501BF1EC7B55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494614   (887746) от 08.09.2021
 
 VA - Clubbing Dance House: Energy Playlist (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
@@ -668,33 +695,6 @@ VA - Underwater The Shadow Of Life (2017) [MP3|320 Kbps] <Chillout, Lounge, Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C47C82429D678126AF75DE080E58F255344E44A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102662   (889355) от 10.02.2017
-
-VA - На волне позитива. Русский сборник (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889355.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tiana - Телеграммы 3:33
-002. Герр Антон (Herr Anton) - Так Тому И Быть 3:33
-003. Натали Янковских - Ты Мой 3:34
-004. Sunsay Feat. Тося - Поезд 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B79F89EE8C4E47B99BA828545A1F8999B3AA0267
 ```
 
 

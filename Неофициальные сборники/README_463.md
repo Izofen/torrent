@@ -1,3 +1,30 @@
+###  Публикация: 1530163   (729687) от 10.02.2022
+
+VA - EuroDance Hits (2022) [MP3|320 Kbps] <Dance, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valmont & Sanderson - T'as Le Look Coco (3:22)
+02. Love Collective feat. Robin Cook - Love & Respect (3:15)
+03. 2 Eivissa - I Wanna Be Your Toy (Extended Radio Mix) (3:51)
+04. 2 Unlimited - Wanna Get Up (3:16)(   Читать дальше...   )Жанр: Dance, HouseПродолжительность: 05:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A30595AE01F3C37F4C0482E0E5827F4106C026
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 325226   (729712) от 18.04.2011
 
 VA - Trance Maniacs Party: Melody Of Heartbeat #45 (2011) (18.04.2011) [MP3|320 kbps]<Vocal Trance>
@@ -677,33 +704,6 @@ VA - Blues Collection 8 (2017) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B59C57A0052F3E16BFBA957F72F3B91A29379901
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530101   (730769) от 09.02.2022
-
-Kælan Mikla (Kaelan Mikla) - Gloomy Poetry & Darkwave (2016-2021) (Compilation Album) Неофициальный сборник от Yuridar [MP3|320 Kbps] <Darkwave, Gothic Rock, Post-Punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kalt
-02. Glimmer Og Aska
-03. Lítil Dýr
-04. Næturdætur(   Читать дальше...   )Жанр: Darkwave, Gothic Rock, Post-PunkПродолжительность: 00:57:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADDA606581BC786DDC220419D23D0C7647B34727
 ```
 
 

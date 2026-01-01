@@ -1,3 +1,57 @@
+###  Публикация: 1109728   (857062) от 28.02.2017
+
+Bebe Rexha - All Your Fault: Pt. 1 (2017) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857062.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Atmosphere
+2. I Got You
+3. Small Doses
+4. Fuck Fake Friends (feat. G-Eazy)(   Читать дальше...   )Жанр: PopПродолжительность: 00:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46BDF486B7207B2F0DC7F361896ECF8C48DED33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109789   (857233) от 28.02.2017
+
+Waaktaar & Zoe - World Of Trouble (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгожданный дебютный альбом нового проекта гитариста и основного композитора легендарной норвежской группы a-ha Пола Воктор-Савой (Pål Waaktaar-Savoy).01. Beautiful Burnout (3:55)
+02. Tearful Girl (4:01)
+03. World Of Trouble (3:57)
+04. Laundromat (3:59)(   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68BB0CDF1134AC5642532516449B5ACAA46F864
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000635   (857429) от 26.03.2016
 
 Cher - The Millennium Collection: The Best of Cher (2000) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
@@ -667,61 +721,6 @@ DJ Bobo Greatest Hits Megamix:
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873797   (866533) от 01.03.2015
-
-Kylie Minogue - Kylie (1988) Deluxe Edition, 2CD/2015, PWL Records/ [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-По многочисленным просьбам PWL Records переиздала  классический альбом Kylie, с которым дебютировала безусловная принцесса поп-музыки Kylie Minogue.
-"Kylie" был первоначально выпущен в июле 1988 года и стал рекордных шесть раз платиновым в Великобритании - он стал самым продаваемым дебютным альбомом, изданным когда-либо.
-В представляемой Deluxe Edition была проведена цифровая обработка с оригинальных плёнок студии.
-Кроме того его расширили на два CD и DVD (в раздачу не входит). Второй CD редких треков (   Читать дальше...   )CD1:
-01. I Should Be So Lucky  (3:25)
-02. The Loco-Motion  (3:14)
-03. Je Ne Sais Pas Pourquoi  (4:02)
-04. It's No Secret  (3:58)(   Читать дальше...   )Жанр: PopПродолжительность: 02:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C071474E0BC60FC88D98B12CF5C4E6F9334504C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873584   (866722) от 01.03.2015
-
-VA - PRO FM Super Hits Vol. 1 (2014) [FLAC|Lossless]<Pop, Dancepop, Eurodance, House, Latin Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Top 40, Pop, Electronic, Dancepop, Eurodance, House, Latin DanceПродолжительность: 01:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6DEFC605D9047289B8B198C08048DA81DFB59F
 ```
 
 

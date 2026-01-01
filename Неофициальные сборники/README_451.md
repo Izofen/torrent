@@ -1,3 +1,30 @@
+###  Публикация: 1219200   (715733) от 13.04.2018
+
+VA - Torment Inside (2018) [MP3|320 Kbps] <Heavy, Power, Death Metall>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715733.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Phobia - Torment Inside
+002. Rhapsody Of Fire - Rain Of A Thousand Flames
+003. Burning Witches - Save Me (Acoustic Version) (Bonus Track)
+004. Masterplan - Take Me Home(   Читать дальше...   )Жанр: Heavy, Power, Death MetallПродолжительность: 11:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC35C2A34CFE408B858D947711E1CE474A7FC7E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219257   (715739) от 13.04.2018
 
 VA - Экспресс русских хитов на Hit FM (5) (2018) [MP3|256 Kbps] <Поп>
@@ -672,33 +699,6 @@ VA - Beatport Tech House: Sound Pack #407 (2022) [MP3|320 Kbps] <Techno, Tech Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB812A3C3BCF62B8D8400E9A82962DFDAD7A132B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130088   (716646) от 01.05.2017
-
-VA - Душевный сборник Русского радио выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716646.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Мари Краймбрери - Видишь Какая Я 3:30
-002. Артем Угляров - По Встречной 3:29
-003. Ханчик - Нежная 3:30
-004. Ольга Крымская - Когда Ты Был Очень Мал 3:29(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A36C3C65DF6DEF5D5A372945A42F6C7BAD54B9
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1115032   (827965) от 17.03.2017
+
+De/Vision - 13 (2016) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Am I (5:48)
+ 02. Essence (5:01)
+ 03. Starchild (4:54)
+ 04. Where's The Light? (5:07)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF19EA474733FA77C3740EBCFB24C0F07ECEB1DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115261   (828048) от 17.03.2017
+
+Brooklyn Bounce - Best Of The 90s (2017) [MP3|320 Kbps] <House, Eurohouse, Hard House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_828048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Intro  1:03
+02.  The Theme (Of Progressive Attack) (Trip Mix (Radio Edit))  3:39
+03.  Take A Ride (Radio Mix)  3:40
+04.  The Real Bass (Radio Mix)  3:42(   Читать дальше...   )Жанр: House, Eurohouse, Hard HouseПродолжительность: 02:06:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B63EF4A181BC013958D9559A2945C82A56DB6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502464   (828234) от 14.10.2021
+
+MLO - Oumuamua (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_828234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MLO - Wimborne (9:19)
+02. MLO - Shadows Of Life And Thought (6:31)
+03. MLO - Ebb And Flow (3:24)
+04. MLO - On Dreams (3:19)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:23:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6774869FCDC377DCC3B7EA885A8471CDF1D275D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115187   (828250) от 17.03.2017
+
+VA - Melodic Trance Vol.2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_828250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sunset Present Symsonic & Lucid Blue - Desert Rain (Radio Edit)  4:18
+02.  Roman Messer - True (Temple One Remix)  6:41
+03.  Luke Terry & Paul Gibson - Achelous (Radio Edit)  3:09
+04.  NoMosk - Journey (Original Mix)  6:31(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ADBC2AC7524A0B37A957D9385FE468D42CC965D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115339   (828254) от 17.03.2017
+
+VA - Zen Tunes - Ibiza Sessions Vol 3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_828254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wilton De Grey - Premadhara - The Stream Of Love (Orchestral version) [00:03:44]
+02. Quincy Ortiz - Spanish Vibes [00:06:05]
+03. Guna Nada Das - Jaya Ganesha [00:07:36]
+04. Sunyata Project - Mystic Adventures (Oriental Chill mix) [00:03:11](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:30:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3720D5E7549EE60F328194DAF32B0D773E48AD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115317   (828257) от 17.03.2017
 
 VA - Black Hole House Music 03-17 (2017) [MP3|320 Kbps] <House, Progressive House>
@@ -560,141 +695,6 @@ VA - Best Of Deep House 2017 Vol.02 (2017) [MP3|320 Kbps] <House, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BD91578171B0727CDCFAC0E9CE6DD5B7C086A45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114858   (830066) от 16.03.2017
-
-VA - Soundbar Deluxe Chill Lounge Vol.3 (Best Of Ibiza Chillout, Ambient & Downbeat Tracks) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aqualuna - Fall In Love (Vocal Chill Mix)  6:01
-02.  Richard Bonne - My Tears Of Elements (Artenovum Mystic Chillout Mix)  3:53
-03.  The Dream Project - Anywhere In The World (Sphere Chillout Cut)  5:06
-04.  Jean Mare - Desert Moon (Chillout Deluxe Mix)  5:00(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:32:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2571C96EB1247D6A3642332A1AAC07A8367A49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114919   (830070) от 16.03.2017
-
-VA - Never Miss A Beat (25 Crazy Deep-House Tunes) Vol.2 (2017) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  House Vicious - Summer Leaves (Original Mix)  3:19
-02.  Chada - Through The Bar Line (Original Mix)  3:06
-03.  Julian Smith - Lacetti (Original Mix)  11:41
-04.  Tommy Harmond - Stay Together Forever (Extended Mix)  3:32(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:375D04956B4F0A6737F6DB54AD0F0B0E1FEDBBBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502187   (830107) от 13.10.2021
-
-VA - Chillout Beats 1: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Hiska - Diving Sun (5:22)
-02. Dacosta - Lifetime (5:02)
-03. Beamy - Sunrise (4:58)
-04. Frank Neo - Mindflow (Original Mix) (5:39)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DB7204632443DA541CA6162F1DB5A538DD7C996
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114898   (830156) от 16.03.2017
-
-VA - This Is My Church Vol.6 (The Lounge Edition) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Barney Visser - Speak Low (Groove Is In The Heart Edit)  3:27
-02.  Austen Doyle - Senorita (Original Mix)  3:27
-03.  Paul van der Meer - Hotel St. Tropez (Sunrise Chill Out Mix)  3:52
-04.  Abner Brown - Another Time Together (Original Mix)  4:57(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:527A1FC2A4C50192259EEDE7F308EB204118986F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114997   (830161) от 16.03.2017
-
-VA - Suite Lounge Vol.20 (Relaxing Lounge Tunes) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Van - Carnaval  5:35
-02.  Weathertunes - Vis-A-Vis  4:23
-03.  Lazy Hammock - We Want Peace  4:34
-04.  Van - Sentimentos do Rio de Janeiro  5:21(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C59C14BB8358C097F14948B43ED0E978E13FDA2
 ```
 
 
