@@ -1,3 +1,84 @@
+###  Публикация: 1018013   (757367) от 19.05.2016
+
+Camille Saint-Saens - Samson et Dalila (1990) [APE|Lossless|image + .cue] <Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Act II, Scene 3 - 'Oui!...deja par trois fois - En ces lieux, malgre moi, m'ont ramenee mes pas'
+02. Act II, Scene 3 - 'Mon coeur s'ouvre a ta voix'
+03. Act III, Scene 1 - 'Vois ma misere, helas!'
+04. Act III, Scene 2 - 'L'aube qui blanchit deja les coteaux'(   Читать дальше...   )Жанр: OperaПродолжительность: 02:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:605EE83C5793C5B88FEEC67AFFCFDA4840CCE821
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280673   (760319) от 03.02.2019
+
+Royal Philharmonic Orchestra & James Morgan - Sleep Baby Sleep (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brahms: Lullaby Op. 49 No. 4 (arr. orchestra)
+02. You Are Not Alone
+03. Stay Awake
+04. Fauré: Après un rêve, Op. 7, No. 1 (arr. orchestra)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F88EBA319B6BFC6E223A9B89CA2810E4935F46F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125899   (765273) от 18.04.2017
+
+VA - Celtic Swoon (2017) [MP3|320 Kbps] <Classical>
+
+>>Классика
+>>Камерная
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Genevieve Lacey and James Crabb - Traditional (Mary Scott, The Flower Of Yarrow) (Arr. James Crabb)  4:30
+02.  Jane Sheldon & Paul McMahon & Brendon Lukin & Cantillation & Brett Weymark - MacMillan A New Song  5:29
+03.  Chris Duncan & Catherine Strutt - Rorate  5:41
+04.  Choir Of Trinity College & University Of Melbourne and Michael Leighton (   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79DD6A15A1917832B43AE12E1D6D12BB6C7F9800
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213652   (767335) от 18.03.2018
 
 VA - Piano Cloud Series - Volume One (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, Minimal>
@@ -606,87 +687,6 @@ Mузыкальный коллектив концентрируется на а�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BA83CA9366DE1B06BF86848B136040592D0E92D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208354   (779781) от 23.02.2018
-
-Jacqueline Leung - In Sunshine or In Shadow (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. By the Sleepy Lagoon
-02. Aragon
-03. Irish Tune from County Derry
-04. Duport Variations in D Major, K. 573: Variations 1-9(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F369BF6238CA08B171C98038829A2EADD51F977C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207030   (780515) от 18.02.2018
-
-Akira Kosemura - In The Dark Woods (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Minimal>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dna (5:16)
- 02. Resonance (2:01)
- 03. Between the Trees (3:29)
- 04. Sphere (4:22)(   Читать дальше...   )Жанр: Modern Classical, Ambient, MinimalПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD55593FDC4C506BFE2B29DF5A37616A0B213950
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391493   (781000) от 20.06.2020
-
-Andrew Jasinski - Sea (2014) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Neo-Classical, Instrumental, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sea (3:20)
-02. В лесу родилась ёлочка... (russian christmas song) (2:28)
-03. Mountains of Adygea (3:16)
-04. Your Eyes (1:50)(   Читать дальше...   )Жанр: Modern Classical, Neo-Classical, Instrumental, PianoПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45F1595F7D23EBB3FA5EE2435B579DDB4D6E9A04
 ```
 
 

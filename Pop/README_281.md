@@ -1,3 +1,246 @@
+###  Публикация: 1205201   (784044) от 08.02.2018
+
+Телефон доверия - Прости меня (1994) [MP3|320 Kbps] <Pop, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прости меня
+02. Телефонный звонок
+03. Пора отчалить кораблю
+04. Да и нет(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75274C435FB349068FCF7873DE612E7810E37B0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204920   (784057) от 08.02.2018
+
+Systems In Blue - Out Of The Blue (2008) [FLAC|Lossless|image + .cue] <Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr.No (3:32)
+02. Heaven & Hell (3:37)
+03. Back To Life (3:28)
+04. Gambler (3:57)(   Читать дальше...   )Жанр: Disco, Euro-DiscoПродолжительность: 00:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACCB8A24295C9340FE3963839AEFFB1B24A8CCCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204655   (784062) от 08.02.2018
+
+VA - Stay In The 80s (2018) 2CD [MP3|320 Kbps] <EuroPop, EuroDisco, Italo Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784062.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Kano  -  Another Life (Maxi Version)  7:14
+02.  C.C. Catch  -  Cause You Are Young (12' Version)  4:49
+03.  Sweet Connection  -  Need Your Passion (Remix)  5:58(   Читать дальше...   )Жанр: EuroPop, EuroDisco, Italo DiscoПродолжительность: 02:22:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3414EFBB84B880225BE3CD410A9E1CB2D5403D8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204574   (784075) от 08.02.2018
+
+VA - Smash Hits Love Songs (2018) 3CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784075.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Bonnie Tyler  -  Total Eclipse Of The Heart  5:34
+02.  Cutting Crew  -  Died In Your Arms (I Just)  4:23
+03.  Foreigner  -  I Want to Know What Love Is  4:58(   Читать дальше...   )Жанр: PopПродолжительность: 03:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A291906110739464C9FCC2053B2784BEFBC5752
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204947   (784076) от 08.02.2018
+
+VA - Radio Italia Love (2018) 2CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cesare Cremonini – Poetica [04:51]
+02. J-AX & Fedez – Sconosciuti da una vita [03:01]
+03. Francesca Michielin – Io non abito al mare [03:14]
+04. Negramaro – Fino all’imbrunire [04:14](   Читать дальше...   )Жанр: PopПродолжительность: 01:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:632821B2594692464ADE440C9D218464E0895B57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204923   (784081) от 08.02.2018
+
+Veronica Unlimited - Veronica Sound Shower (1981) LP [MP3|320 Kbps] <Electronic, Disco, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Donna (3:43)
+02. I Wanna Dance With Out (3:38)
+03. What Lousy Party (3:21)
+04. Sun Sun Singing In The Sun (3:14)(   Читать дальше...   )Жанр: Electronic, Disco, PopПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE5B17AE56F20EE09DA051B7DC3DB3F773D9871
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204799   (784086) от 08.02.2018
+
+Catherine Clarnette - Wildcard (2017) [MP3|320 Kbps] <Alternative Pop, Dark Pop, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mistake
+02. A Love so Good
+03. Once I Know You
+04. Impossibly Blue(   Читать дальше...   )Жанр: Alternative Pop, Dark Pop, SynthpopПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960DC7E4105D76DA3F1A89F9BB57425D88803448
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205179   (784103) от 08.02.2018
+
+The Saturdays - Living For The Weekend (2013) Polydor [MP3|320 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784103.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Saturdays - британско-ирландская девичья группа, сформировавшаяся в Лондоне в 2007 году, и состоящая из Фрэнки Сэндфорд, Молли Кинг, Ванессы Уайт, Рошель Вайзмен и Уны Хили. Четыре сингла с дебютного альбома девушек, «Chasing Lights» и оба сингла с их второго альбома - «Wordshaker» вошли в первую десятку британского чарта. Участницы реалити-шоу «The Saturdays: (   Читать дальше...   )01. What About Us (Feat. Sean Paul) 3:41
+02. Disco Love 3:14
+03. Gentleman 3:40
+04. Leave A Light On 3:37(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:02:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB43EA0C346137BDBEB60D29D266C16F1EA4F9B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205185   (784104) от 08.02.2018
+
+The Saturdays Feat. Flo Rida - Higher (2010) Polydor, EP [MP3|320 Kbps] <Electronic, Pop, Dance Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784104.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Saturdays - британско-ирландская девичья группа, сформировавшаяся в Лондоне в 2007 году, и состоящая из Фрэнки Сэндфорд, Молли Кинг, Ванессы Уайт, Рошель Вайзмен и Уны Хили. Четыре сингла с дебютного альбома девушек, «Chasing Lights» и оба сингла с их второго альбома - «Wordshaker» вошли в первую десятку британского чарта. Участницы реалити-шоу «The Saturdays: (   Читать дальше...   )01. Higher 3:19
+02. Higher (7th Heaven Remix Radio Edit) 3:49
+03. Higher (StoneBridge Remix Radio Edit) 3:24
+04. Higher (Fascination Remix Radio Edit) 3:37Жанр: Electronic, Pop, Dance PopПродолжительность: 00:14:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1022FE0F3EF30F5DA817B78DE63A7795E04FBF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205169   (784106) от 08.02.2018
 
 The Saturdays - On Your Radar (2011) Fascination, Polydor [MP3|320 Kbps] <Electronic, Pop>
@@ -450,249 +693,6 @@ Laura Branigan (Лора Брэниган) - Hold Me (1985) Atlantic, 7 81265-2,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC7B37B16D78EB65F768BBE24309C247BBCC39AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204014   (785421) от 04.02.2018
-
-Laura Branigan (Лора Брэниган) - Touch (1987) Atlantic, 81747-1, US [MP3|320 Kbps] <Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Over Love 3:50
-02. Shadow Of Love 5:05
-03. Angels Calling 3:48
-04. Meaning Of The Word 5:42(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9CC91549D2F9FAC604D01910111A9837D0A290
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204000   (785422) от 04.02.2018
-
-Laura Branigan (Лора Брэниган) - Branigan 2 (1983) Atlantic, 78 0066-1, UK & Europe [MP3|320 Kbps] <Ballad, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Solitaire 4:05
-02. Deep In The Dark 3:51
-03. Close Enough 3:42
-04. Lucky 3:57(   Читать дальше...   )Жанр: Ballad, DiscoПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23F59F323D36F758ED4FC31D9E40E463565F8013
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203974   (785424) от 04.02.2018
-
-VA - Pool Party Hits (2018) [MP3|320 Kbps] <Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785424.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Selena Gomez Feat Gucci Mane - Fetish
-02. Demi Lovato - Sorry Not Sorry
-03. Shawn Mendes - There's Nothing Holdin' Me Back(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 02:24:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50606048222B7B9777AA669345AE59F156FB436A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203968   (785427) от 04.02.2018
-
-David Myles - Real Love (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Night & Day
-02 – Real Love
-03 – Night After Night
-04 – Knockout(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B3FEC15C3A9F2BE73DD40DBB860D55F6A509C5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204025   (785429) от 04.02.2018
-
-Laura Branigan (Лора Брэниган) - Laura Branigan (1990) Atlantic, 7567-82086-2, Europe [MP3|320 Kbps] <House, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Moonlight On Water 4:40
-02. Bad Attitude 4:03
-03. Never In A Million Years 4:11
-04. Smoke Screen 4:07(   Читать дальше...   )Жанр: House, Pop Rock, Synth-popПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B3C65F83176000D0EF146E9F8DCCB1737944CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124608   (785564) от 12.04.2017
-
-VA - Через Тернии К Звездам. Песни О Космосе (2009) [FLAC|Lossless|image + .cue] <Pop,  Monolog, Vocal, Field Recording, Spoken Word>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. К.Циолковский - Речь К.Э.Циолковского (0:45)
-02. Е.Кибкало - Всё выше (Марш авиаторов) (3:02)
-03. М.Бернес - А самолёты сами не летают (2:44)
-04. Передача с борта ИСЗ 'Спутник-1' - Позывные первого спутника Земли (0:26)(   Читать дальше...   )Жанр: Pop,  Monolog, Vocal, Field Recording, Spoken WordПродолжительность: 01:11:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F2F9B69DD87BE583658487A505677AF2CD65D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124800   (785634) от 12.04.2017
-
-Lulu - Independence (1993) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Independence
-02. There Has Got To Be A Way
-03. Restless Moods
-04. I’m Back For More (ft. Bobby Womack)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7E3EC0E35434E1CE8814BB9E6A4A18DC4D0DE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124547   (785760) от 11.04.2017
-
-Thomas Anders - Pures Leben (2017) [FLAC|Lossless|tracks + .cue] <Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785760.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Der beste Tag meines Lebens
-2. Sternenregen
-3. Das Lied das Leben heißt
-4. Feuerwerk(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD60941BDC687346DBEB77965CFAD7CB741FFD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124374   (785794) от 11.04.2017
-
-Bosé - Papito (2007) [FLAC|Lossless|image + .cue] <Soft Rock, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morena Mia (Con Julieta Venegas)  (03:45) 
-02. Si Tu No Vuelves (Con Shakira)  (05:13) 
-03. Bambu (Con Ricky Martin)  (04:58) 
-04. Nada Particular (Con Juanes)  (06:21) (   Читать дальше...   )Жанр: Soft Rock, LatinПродолжительность: 01:11:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA351DE8D44B907EF8E7338B0EC4B96E039D7FE3
 ```
 
 

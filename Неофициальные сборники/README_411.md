@@ -1,3 +1,30 @@
+###  Публикация: 1138569   (663171) от 30.05.2017
+
+VA - SpaceSynth & ItaloDisco Hits Vol.25 (ot Vitaly 72) (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ken Martina - Another Melody (Extended Remix) 8:00
+02.  Umberto Tozzi - Tu (Simon LeSaint Remix) 7:03
+03.  Linda Skywalker - Don't Fly Away 6:33
+04.  Modern Boots - Boulevard Of My Dreams (BCR Extended Version) 7:07(   Читать дальше...   )Жанр: Italo Disco, SpacesynthПродолжительность: 04:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC2F82360C6B8FC41746DDFC374D1F56B80FF35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138547   (663237) от 30.05.2017
 
 VA - SpaceSynth & ItaloDisco Hits Vol.24 (ot Vitaly 72) (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth>
@@ -659,33 +686,6 @@ VA - Музыка отличного настроения на Шансоне в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82659650996C7DA331CE996F162E015CB6E1131F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137910   (665246) от 28.05.2017
-
-VA - Зажигай вместе с Европа Плюс выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665246.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Оля Краснова - Мурашки 3:20
-002. Елена Темникова - Голые 3:23
-003. Юран - Пусть Будет Так 3:45
-004. Olisha - Мы Такие Девочки 3:23(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22D34EA046692FEFA4EAF8D2EB9FF780E86E90A6
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1122297   (798863) от 05.04.2017
+
+VA - Deep House April 2017 Top 10 Best of Collections (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CJ RcM - My Love
+02. Macrolev - Deeper
+03. Anton Ishutin - Sunrise
+04. Muxxo - The Calm of the Time(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD1CEBE83034D07958844625FE35C0D412012FB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122302   (798871) от 05.04.2017
+
+Michael E - Autumn (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Are We There Yet
+ 02. Bossa Nova Baby
+ 03. Bitter Sweet
+ 04. That Feeling(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:19:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9EA84D255ABCAB84C85CE9758094E32874EEA65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122354   (798873) от 05.04.2017
+
+VA - Summer Chillout, The Best of Buddha Ambient Experience and Chill Zone (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Total Chillout Music Club — Summer Chillout
+02. Summer Time Chillout Music Ensemble — Buddha Ambient Lounge
+03. Chillout Music Zone — Party Time
+04. Hawaii Chillout Music — Electronic Music(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2390C5950C3819606A949A1680B0FCCEF671602
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122523   (798875) от 05.04.2017
+
+Third Party - Hope (2017) [MP3|320 Kbps] <Big Room, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798875.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Without You
+2. Live Forever
+3. Veins
+4. Guiding Light ft. Fran Garcia(   Читать дальше...   )Жанр: Big Room, Electro HouseПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6464FF597223832B60A8A9345044F813E7363D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122555   (798881) от 05.04.2017
+
+VA - Spring Times Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Following Light – Azure (Aluria remix) (09:20)
+02. Aluria – Basilica Philosophica (original mix) (07:41)
+03. Christian Monique – Planetarium (original mix) (06:01)
+04. Findike – The Peaceful (original mix) (08:54)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:27:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3422618202BD75A55D0F786FDF57D5E89295C3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122285   (798885) от 05.04.2017
+
+VA - Quiet Zone Just Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sombra Modos - Botavara  5:34
+02.  Arrojas - Lazy Sunday  5:48
+03.  Lamar Ensemble - Stay Sharp  5:36
+04.  Chillelektro - Vitt  6:07(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92BB40D0B092766D8EE0AA9FBC2C8819C576332D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122269   (798886) от 05.04.2017
 
 VA - Spring Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -530,168 +692,6 @@ VA - Relaxing Beach Chillout Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30045D7CE016CEC65EA44AD087B53AF8E2CC599D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273663   (799346) от 03.01.2019
-
-VA - Psychedelic Goa Trance 2019: Best of Top 40 Electronic Dance Acid Techno Hard House Rave (2018) [MP3|320 Kbps] <Psy-Trance, Psychedelic, GOA>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rigel - Singularity
-02. Skoocha - Last Exit To Brooklyn (Earworm Remix)
-03. Pulsar - Uplifting Minds (01-N Remix)
-04. Orion - Dig It (Predators Remix)(   Читать дальше...   )Жанр: Psy-Trance, Psychedelic, GOAПродолжительность: 05:20:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D04BE4ACC22D471830E95DC5ED1F19C23DE71641
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273182   (799404) от 03.01.2019
-
-VA - The Best Of Suanda Base 2018: Mixed by Michael Milov (2018) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Milov - Inner Voice (Extended Mix)
-02. Bigtopo - Gallow (Extended Mix)
-03. Simon Lee & Alvin - Raksasa (Extended Mix)
-04. Kiran M Sajeev - Higher (HamzeH Extended Remix)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E14001A00FC07032093EC944E56F2B0CACC9FABF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273804   (799409) от 03.01.2019
-
-Cholosus - Way Of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lord Will Make It Happen (06:06)
- 02. Aeris (12:48)
- 03. Winter (09:26)
- 04. Loner (12:08)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:24:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFBA6840B586DDA5EF6094ACD5C4AFA9C47D283C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273684   (799447) от 03.01.2019
-
-VA - Goodbye 2018 - The Selection Of The Year (2018) [MP3|320 Kbps] <Deep House,Tech House, Progressive House, Deep Tech>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fake Mood Ft. Jinadu - Don't Miss (Armen Miran Remix) (08:13)
-02. Hollson - Saintonge (11:50)
-03. Wally Lopez & Yamil - Coconut (Timid Boy 'Love & Coco' Remix) (07:09)
-04. Mancerow - Keep Running (Timid Boy & Acumen Remix) (07:32)(   Читать дальше...   )Жанр: Deep House,Tech House, Progressive House, Deep TechПродолжительность: 01:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A634A81E467A902E0DAE137444151AFA35696BC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121583   (799654) от 03.04.2017
-
-VA - Spring Workout Music 40 Dance Hits & 1 Megamix (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ouzzo - If You (Club Extended) (Feat. Alba Kras & Tony T) 04:21
-02. David Pole - Join The Party (Extended Mix) (Feat. The Romy & Martika) 04:12
-03. Stephan Vegas - Felt Like Love (Original Mix) (Feat. Penny Hannant) 04:07
-04. Alex Milani - Delicious (Original Mix) 04:46(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E1D117175DBE73D17D81608705C7068DE5E5EB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121347   (799671) от 03.04.2017
-
-VA - Dark Room Erotica Jazz Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seneca Reynolds – Deep Shield – Groovy Obsession Mix
-02. Dave Nimerfro – Get You into My Life – Saxuality Chill Lounge Mix
-03. Perelandra – Dancing with the Sun – Travelling Silvertones Mix
-04. Smooth Rebel – Turn out the Light – Secret Love Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B38802A479822154FF2D9E6AC5D6969017AB0F2F
 ```
 
 

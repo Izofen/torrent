@@ -1,3 +1,30 @@
+###  Публикация: 1363293   (943702) от 27.02.2020
+
+VA - Beatport Trance: Electro Sound Pack #14 (2020) [MP3|192-320 Kbps] <Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hippy Cat - Let It Go
+02. Ramin Arab - Revolution (Original Mix)
+03. New Horizons - Radiance (Ciree Remix)
+04. Zenaj - Cosmic Energy(   Читать дальше...   )Жанр: TechnoПродолжительность: 07:23:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209C0B7AD19CEEC74A5839A0212A9FDFA1529EE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363289   (943707) от 27.02.2020
 
 VA - City Life: Extended Trance Party (2020) [MP3|320 Kbps] <Trance, Electro>
@@ -679,33 +706,6 @@ VA - 135 Classic Soul Ballads (2020) [MP3|320 Kbps] <R&B, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE01F47CA3F69F90803E425B890846C2AD044F7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091027   (944974) от 08.01.2017
-
-VA - Top 100 DJs Alive Sound (2017) [MP3|320 Kbps] <Tech Trance, Electro, Dutch, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944974.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cosmic Gate & JES - Fall Into You (Extended Mix) 6:34
-002. Andy Moor & Somna Feat. Amy Kirkpatrick - One Thing About You (Eximinds Remix) 5:40
-003. Raz Nitzan & Kate Louise Smith - This Time (Original Mix) 6:59
-004. Alex Leavon & Gemma Pavlovic - Counting Stars (Original Mix) 5:30(   Читать дальше...   )Жанр: Tech Trance, Electro, Dutch, ProgressiveПродолжительность: 08:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD87C9A90EAECA0F7291ED91437CF5935738BE62
 ```
 
 

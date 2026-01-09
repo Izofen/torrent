@@ -1,3 +1,300 @@
+###  Публикация: 1122210   (793430) от 06.04.2017
+
+VA, Ilan Eshkeri - Collide / Автобан (Original Soundtrack) + (Original Score) (2017) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Collision (02:53)
+02. Scrap Yard (01:42)
+03. Leverage (01:50)
+04. Juliet (02:55)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:34:38 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BE5CFB191E8CB9EF052F8E0F19E0466DB921BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012203   (793443) от 01.05.2016
+
+Henry Jackman - Первый Мститель Противостояние / Captain America: Civil War (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Siberian Overture (02:56)
+02. Lagos (02:10)
+03. Consequences (02:21)
+04. Ancestral Call (02:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E4F8E3D13120F8533C7823726593BA90E28B149
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012205   (793453) от 01.05.2016
+
+Henry Jackman - Первый мститель Противостояние / Captain America: Civil War (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Siberian Overture (02:56)
+02. Lagos (02:10)
+03. Consequences (02:21)
+04. Ancestral Call (02:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2312EABBB59485A65EDEC90C57AB4B258FB3824F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386398   (793465) от 30.05.2020
+
+Marty Robbins - Gunfighter Ballads And Trail Songs (1959) Remastered 1999 [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Iron (3:58)
+02. A Hundred And Sixty Acres (1:42)
+03. They're Hanging Me Tonight (3:07)
+04. Cool Water (3:12)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:430A788DFD86FCCDB9B9BC3E1856D948C8C2BDAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386296   (793469) от 30.05.2020
+
+The Louvin Brothers - Tragic Songs Of Life (1956) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kentucky
+02. I'll Be All Smiles Tonight
+03. Let Her Go, God Bless Her
+04. What Is Home Without Love(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA39C4557D2D9F7241C19E47CB494EF34C4435B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122749   (793507) от 06.04.2017
+
+VA - Spirit & Soul, Vol. 1 (Spiritual Yoga & Meditation Moods) (2017) [MP3|320 Kbps] <Lounge, ChillOut, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bodo Schopf - Misha (07:28)
+02. Jojo Rose - Summer (04:45)
+03. HP. Hoeger - Calm Down (05:20)
+04. El Petit Jardi - Sunlight Through Leaves (05:29)(   Читать дальше...   )Жанр: Lounge, ChillOut, New AgeПродолжительность: 02:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35DE897944C4F47715A374F1531762E0308FBF79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122769   (793513) от 06.04.2017
+
+VA - Most Comfort Melodies for Spa: Deep Sleep Sounds for Meditation (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Native American Music Consort — Most Comfort Melodies for Spa
+02. Spa Music Paradise Zone — Breathe & Beneficial Rain
+03. Soothing Music Academy — Hypnotic Music
+04. Bedtime Stories Unit — Music for Spa(   Читать дальше...   )Жанр: New AgeПродолжительность: 03:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE281C1E923A75A42A3F7C7809350A58828F72FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 382808   (793522) от 13.11.2021
+
+Пелагея - Дискография (11 CD) (2003-2010) [FLAC|Lossless]<Ethnic/Folk-Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ethnic/Folk-RockПродолжительность: 00:55:09
+
+01. Пташечка
+02. Снежочки(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7FB2F94D9E77DAEA78EE7B529BD9ADD455123F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012626   (793557) от 01.05.2016
+
+Roland Romanelli (ex. Space) - Meditations Et Reves (Meditations and Dreams) (1988) [FLAC|Lossless|image + .cue] <New Age, Easy Listening, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melody For A Soul
+02. Love's Memories
+03. Sadness Or Happiness
+04. Liliane's Melody(   Читать дальше...   )Жанр: New Age, Easy Listening, ElectronicПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5067B5AB794EE198CFF130D2CD4B221D495F5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386533   (793568) от 30.05.2020
+
+Buck Owens And His Buckaroos - I've Got A Tiger By The Tail (1965) Reissue 1995 [FLAC|Lossless|tracks] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Got A Tiger By The Tail (2:13)
+02. Trouble And Me (1:56)
+03. Let The Sad Times Roll On (2:16)
+04. Wham Bam (2:03)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6485F00740B3967C0DE7042043577E045C6889FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012503   (793577) от 01.05.2016
+
+John Fluker - 11:11 (2016) [MP3|320 кб/с] <New Age, Neoclassical, Solo Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awaken
+02. In the Beginning
+03. Artificial Time
+04. The 4th Dimension(   Читать дальше...   )Жанр: New Age, Neoclassical, Solo PianoПродолжительность: 00:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C9906B8B007DF3B26D9020DBCFE0B411B060C42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386608   (793578) от 30.05.2020
 
 Fred Neil - Fred Neil (1967) Reissue 2006 [FLAC|Lossless|tracks] <Rock & Roll, Folk>
@@ -398,303 +695,6 @@ Liquid Mind - Liquid Mind XII: Peace (2018) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:250A529EA8D34DC73A89B3D1423FBAED3A60CDE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011032   (795447) от 29.04.2016
-
-Andreas Vollenweider - White Winds (1984) [FLAC|Lossless|image + .cue] <Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The White Winds - The White Boat (First View)  1:51
-02.  Hall of the Stairs - Hall of the Mosaics (Meeting You)  5:04
-03.  The Glass Hall (Choose the Crystal) - The Play of the Five Balls - The Five P...  7:36
-04.  The Woman and the Stone  4:25(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4378BF5DBAD56BFC72695CFDC8CB2A08141A7C4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011672   (795451) от 29.04.2016
-
-Finvarra - Finvarra (2013) [FLAC|Lossless|tracks + .cue] <Folk, World, Country, Celtic>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kelpie / The Cliffs Of Moher 03:33
-02. The Wind That Shakes The Barley 03:11
-03. Jovano Jovanke / Ciuleandra 05:25
-04. Dimna Juda 02:22(   Читать дальше...   )Жанр: Folk, World, Country, CelticПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C129CE82B254DC37528CC016CBC9723F6193A47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509062   (795486) от 11.11.2021
-
-VA - The Best Christmas Album In The World...Ever! 2021 (2021) [MP3|320 Kbps] <Christmas, Pop, Rock>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - Thank God It's Christmas
-02. Band Aid 30 - Do They Know It's Christmas?
-03. Sam Smith - Have Yourself A Merry Little Christmas
-04. Justin Bieber - Mistletoe(   Читать дальше...   )Жанр: Christmas, Pop, RockПродолжительность: 03:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67DB638690343CEC5544BCAB38C4B3FA7FD34EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012042   (795516) от 29.04.2016
-
-Myristica - Star-Filled Skies (2016) [MP3|320 кб/с] <New Age, Neoclassical, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down by the Willow Tree
-02. Star-Filled Skies
-03. Tree of Life
-04. Two Skies(   Читать дальше...   )Жанр: New Age, Neoclassical, RelaxПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6E87871642FD6051D41BFAC0C936C1EED669BDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200700   (795524) от 21.01.2018
-
-The London Studio Orchestra and Singers - For Lovers Only: Great Romantic Themes (1997) [FLAC|Lossless|image + .cue] <Instrumental, Easy listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795524.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Just Called To Say I Love You (4:22)
-2. Never Gonna Let You Go (3:19)
-3. With You I'm Born Again (3:12)
-4. Baby Come To Me (3:15)(   Читать дальше...   )Жанр: Instrumental, Easy listeningПродолжительность: 03:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E31275D7CFFA818832A8C5559FF51DDE3F383F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200215   (796146) от 20.01.2018
-
-Алексей Рыбников - Музыка Космоса (2006) [APE|Lossless|image + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Свет Звёзд (Через тернии к звёздам)
-02. Письма (Большое космическое путешествие)
-03. Тема Полёта (Полёт с космонавтом)
-04. Гроза (Через тернии к звёздам)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CE40FBD19A034C58BAC2BF6B89A8E726378E5A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200398   (796252) от 20.01.2018
-
-James Last - Classics From Russia (1996) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Second Waltz
-02. Der Verzauberte See
-03. Scheherazade
-04. Andante Variationen Nr.6(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:07:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EDC8C2DD8817D18A045DF3D517C0DE4B3B7990B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200386   (796260) от 20.01.2018
-
-James Last - Russland Zwischen Tag Und Nacht (1989) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mitternacht in Moskau
-02. Kalinka
-03. Der rote Sarafan
-04. Russischer Volkstanz(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE830DB42AF232EA07DDBC6E5A248982EA249428
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 103840   (796642) от 09.11.2021
-
-VA - The World Of Jeeves And Wooster (1992) [FLAC|Lossless|tracks] <OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeeves and Wooster
-Дживс и Вустер - заглавная тема.
-02. Jeeves and Wooster say What Ho!
-Вступительное слово от Дживса и Вустера (на англ.)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36DE92B135E9CE3C04D088071E3C5ECF0519C4F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200110   (796889) от 19.01.2018
-
-First Aid Kit - Ruins (2018) [FLAC|Lossless|tracks] <Indie Folk, Country Folk, Americana>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rebel Heart
-02. It's a Shame
-03. Fireworks
-04. Postcard(   Читать дальше...   )Жанр: Indie Folk, Country Folk, AmericanaПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66CA868B2E161D981C585A091E6303E0AF5C9FC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200001   (796911) от 19.01.2018
-
-VA - Intimate Piano: Canadian Sunset (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is A Many Splendored Thing (Gordon Langford, His Piano & Orchestra) (2:55)
-02. Moonglow (Douglas Gamley, His Piano & His Orchestra) (3:07)
-03. Rhapsody In Blue (Henry Mancini) (3:27)
-04. Moonlight In Vermont (Gordon Langford, His Piano & Orchestra) (2:57)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C8FEDC6C2E584E08DAFAAEFAF99E497358A6B71
 ```
 
 

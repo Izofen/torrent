@@ -1,3 +1,162 @@
+###  Публикация: 1031829   (649684) от 05.07.2016
+
+VA - Earotic Vol 1 (Chill Out For Your Ears) (2016) [MP3|320 Kbps] <Deep House, Breaks, Сhill>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Castlebed - Cold Moves (3:49)
+02. Dormidontov - Home (6:37)
+03. Anthony Chocco - You Are (Beach & Martini Mix) (4:03)
+04. Don Major - At Sunset (3:34)(   Читать дальше...   )Производство: KarmagrooveЖанр: Deep House, Breaks, СhillПродолжительность: 02:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66AB362F2E6A56062520243FB7109B36F1528160
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516349   (649708) от 30.06.2012
+
+Session Victim - The Haunted House Of House (2012) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Deep HouseПродолжительность: 00:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C0D13C056D33C20C734C58DBF32B2896F23213
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031745   (649817) от 05.07.2016
+
+VA - Ibiza Vocal Trance (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LTN feat. Christina Novelli - Hold On To Your Heart (Daniel Kandi Radio Edit) (4:28)
+02. Liuck & Neev Kennedy - Let This Go (Radio Edit) (3:29)
+03. Rodrigo Deem & Las Salinas feat. Emily Harder - Anything (Radio Edit) (3:11)
+04. LTN feat. Arielle Maren - Let Me Go (Johan Vilborg Radio Edit) (3:07)(   Читать дальше...   )Производство: SupercompsЖанр: Trance, Vocal TranceПродолжительность: 01:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8728A38E882DF77A48D66B3A03A48B0A6C1674
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031778   (649821) от 05.07.2016
+
+VA - Sensation Angels and Demons (2016) [MP3|320 Kbps] <House, Electro-House, Progressive-House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649821.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Afrojack & Laidback Luke — Move To The Sound
+2. Nicky Romero — Novell
+3. Oliver Heldens & Chocolate Puma — Space Sheep
+4. Eelke Kleijn & Olivier Weiter & Arjuna Schiks & Miss Melera — BEFORE.NOW.AFTER(   Читать дальше...   )Жанр: House, Electro-House, Progressive-HouseПродолжительность: 02:02:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B851C31B9BCF55E97EC8A9C29CE4B94A238DB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031919   (649830) от 05.07.2016
+
+VA - Dezza Pres. Best of Progressive House, Vol. 07 (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dezza - Silk Selections 07 (Continuous DJ Mix) [57:54]
+02. Vintage & Morelli - Daydream (Original Mix) [08:51]
+03. Sound Quelle - Allarg (Original Mix) [06:34]
+04. LTN & Roni Joni - In Between (eleven.five Remix) [06:57](   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E08BB2904EEF7A0BF6BD0D4163A7BDCC42AD0BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031907   (649832) от 05.07.2016
+
+VA - Ibiza Goes Deeper: A Unique Selection Of Deep House Tunes (2016) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Sandemann - Do It Yourself
+ 02. Ron John - The Last Photo - Frank Fox Mix
+ 03. Modell & Mercier - Black Coral - Lovin' Fashion Mix
+ 04. Greg Vasarely - Notting Hill(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:910E51EF39EF71CE04BA1756E38EA3A0E6B3548F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227079   (650379) от 24.05.2018
 
 VA - A State Of Trance (Mixed By Armin van Buuren) (2018) [MP3|320 Kbps] <Trance>
@@ -536,168 +695,6 @@ VA - Ibiza 2012 (2012) [MP3|320 кб/с]<Progressive House, Electro House, House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CAF34DF6F836A21DB56FAECD7C78D637AAA464C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031536   (651800) от 04.07.2016
-
-VA - Chill House Ibiza 2016 (Finest Chill House Music) (2016) [FLAC|Lossless|tracks] <Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guilhem Mariposa - Hijos del Sur (Extended Mix) {5:28}
-02. Adonai - She's Gone {4:53}
-03. Max TenRom - Planet (Extended Mix) {5:11}
-04. Adonai - Salut {4:41}(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:20:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EAC1B243523D838AD99D0BDC703A88F8513B6CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227068   (651822) от 23.05.2018
-
-VA - A State Of Trance (Mixed By Armin van Buuren) (2018)2CD [FLAC|Lossless|tracks + .cue] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren vs Shapov - The Last Dancer (Original Mix)
-02. Whiteout & Wilderness - Yalung (Original Mix)
-03. Tom Fall - Cyclone (Original Mix)
-04. Estiva - Bloom (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF801F03F6319A1490C012E3EB16388550A9902
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031435   (652009) от 04.07.2016
-
-VA - Deep House Invasion (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sascha Beek - Million Questions [08:17]
-02. Steven Moeller - Change the Way (Stefan Jurrack Remix)  [06:57]
-03. 2W Tools - Innate Vision [07:19]
-04. Najwars  - Delta Inflections [06:14](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 04:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:718921FE5434507D94D5DE0A20B8754A7A653680
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226924   (652206) от 23.05.2018
-
-Edward Ka-Spel, Jetzmann/L.Ski & Asmus Tietchens - Das Digitale Vertrauen (1997) Soleilmoon Recordings [FLAC|Lossless|tracks+.cue] <Abstract, Downtempo, Experimental, Industrial, Techno>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edward Ka-Spel - Millenium I (12:01)
- 02. Edward Ka-Spel - Millenium II (11:16)
- 03. Jetzmann/L.Ski - Supra (Ablaufmechanismusversion) (03:44)
- 04. Jetzmann/L.Ski - Nur Unterschicht (03:39)(   Читать дальше...   )Тип издания: CDЖанр: Abstract, Downtempo, Experimental, Industrial, Techno •Продолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3E48560EFB62D8B32EEDFCA3F2CBFF905987327
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226957   (652356) от 23.05.2018
-
-Ben Gold - Sound Advice (Chapter One) (2018) [MP3|320 Kbps] <Electronic, Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652356.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. There Will Be Angels (feat. Audrey Gallagher) (03:32)
-2. Stay (feat. Sivan) (03:55)
-3. Two (feat. Ruben de Ronde & Rodg) (03:10)
-4. The Conquest (feat. Omnia) (03:44)(   Читать дальше...   )Жанр: Electronic, Trance, Progressive TranceПродолжительность: 00:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB9E7C7B437DB1A3BBFFBC9BC5C8F8F292258C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540611   (652444) от 30.03.2022
-
-ENiGMA Dubz - Genesis (2012) [FLAC|Lossless|tracks] <Dubstep, UK Garage, Drum & Bass, Hip-Hop>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You've Been Gone (4:07)
- 02. Can't Spend The Day Without You (5:12)
- 03. For Real (4:48)
- 04. Genesis (5:14)(   Читать дальше...   )Жанр: Dubstep, UK Garage, Drum & Bass, Hip-HopПродолжительность: 01:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:032C1AE84007E36EC6E9AF3B6862419DAC7DFDED
 ```
 
 

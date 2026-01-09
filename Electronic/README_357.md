@@ -1,3 +1,165 @@
+###  Публикация: 1219692   (711916) от 15.04.2018
+
+Monolink and Acid Pauli - The End (2015) 3000° Grad Records [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End (08:14)
+02. New Morning (07:49)
+03. The End (Mollono.Bass Remix) (07:52)
+04. New Morning (The Micronaut Remix) (06:24)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A593CD95BF51604E9A470B4BE258423EEC455CC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219575   (711917) от 15.04.2018
+
+Prime Minister Of Doom - Mudshadow Propaganda (2018) Planet Uterus [FLAC|Lossless|Vinyl|tracks] <Techno, Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Getting Things Started (06:01)
+ 02. Tribal Days Part II (08:49)
+ 03. Tribal Days Part III (09:06)
+ 04. The Vibe (05:03)(   Читать дальше...   )Жанр: Techno, Dub Techno, AmbientПродолжительность: 01:15:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6591DB72C32205581CDF9833890B1F73E2640EB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025246   (711964) от 11.06.2016
+
+VA - Hed Kandi Beach House (2016) [MP3|320 кб/с] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Delay - The Boy Is Mine (feat Alexandra Prince - Mark Lower remix) [7:02]
+02. NY's Finest - Do You Feel Me (City Soul Project Club mix) [7:14]
+03. O&O Music - Music's Hypnotising [4:22]
+04. Sonny Fodera - Feeling U (feat Yasmin - Deep mix) [6:09](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3063FE87E9F76F7D70E5997A30341B73F7C905D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219630   (711970) от 15.04.2018
+
+VA - Superhits Spring 2018, 2CD [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711970.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Negramaro - La Prima Volta 3:58
+02. Portugal. The Man - Feel It Still 2:43
+03. Lost Frequencies & Zonderling - Crazy 2:33(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C35E5000FE20496E7B4C893232E5E0D917D81D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025272   (712049) от 11.06.2016
+
+VA - 538 Dance Smash 2016 vol.2 (2016) [FLAC|Lossless|image + .cue] <House, Club, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fais & Afrojack - Fais
+02. Kungs vs. Cookin' On 3 Burners - This Girl
+03. Galantis - No Money
+04. Tinie Tempah & Zara Larsson - Girls Like(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD287D882B4256D47D6B0A912C6B34B7E4861DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025050   (712055) от 11.06.2016
+
+ROTANOV - DEEP DANCE 01 (2016) [MP3|320 кб/с] <Deep House, Nu Disco>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Aleksave & Maryana Dan - In My Room (Original mix)
+ 02 Optick & Manuel Riva - Close the Deal (Midi Culture Remix)
+ 03 Richard Durand feat. Ellie Lawson - Wide Awake (RoelBeat Remix)
+ 04 Cotry, JazzyFunk, Hot Light, Nikita Silver - Red Roses (Original Mix)(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 01:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309E83AE1F0A4E97ED4B98A9B12D81CD1E2D2120
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025424   (712119) от 11.06.2016
 
 VA - iChill You Vol 1 (2016) [MP3|320 кб/с] <Lounge, Chill Out>
@@ -530,168 +692,6 @@ Sergey Cheremisinov - Hibernation (2017) [MP3|320 Kbps] <Ambient, Neoclassical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0BA2EAFC3AA0AA8AF9610C1F31B7E67EACD80B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219383   (713912) от 14.04.2018
-
-VA - Ibiza Deep House Sensations (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daspa - Alone 5:07
-02. Djschluetex - Feel Them 4:13
-03. 246 - Prophets Of Science Fiction 4:28
-04. Chrizz Morisson - Never Give Up (Dub Mix) 4:06(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:18:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D86C8E57E9FE1E53BF388128251044665C90F21A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219422   (714026) от 14.04.2018
-
-VA - Miami South Beach Sessions (2018) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nina Lares – You And I (Tony Humphries Unreleased Guitar Mix) (8:29)
-02. Teflon Dons – Tomorrow People (Applejac’s Unreleased Unhooked Generation Remix) (feat. Gregory Porter) (7:38)
-03. Nina Lares – Uncover Me (AC’s Unreleased Afternoon Delight Remix) (7:23)
-04. David Harness – Feeling Mighty (feat. Ultra Nate) (5:20)(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37119A278DE370563D5332DB8F990D1EACBD52C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219336   (714028) от 14.04.2018
-
-vidnaObmana - Crossing The Trail | Deluxe 20th (2018) Projekt Records [FLAC|Lossless|WEB-DL|tracks] <Abstract, Ambient, Tribal>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Encountering Terrain (08:33)
- 02. Trail Dwelling (10:55)
- 03. Forest Arrow (08:59)
- 04. Mission Ground (10:19)(   Читать дальше...   )Жанр: Abstract, Ambient, TribalПродолжительность: 01:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:233003FCCA8DB6AA983E097EA418DCF93E25EA51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130673   (714122) от 02.05.2017
-
-Wilkinson - Hypnotic (2017) [FLAC|Lossless|WEB-DL|tracks] <Mainstream Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hypnotic (Feat. Youngman) (04:50)
-02. We Will Be (Feat. Matt Wills) (Extended Mix) (04:06)
-03. Wash Away (03:21)
-04. Sweet Lies (Feat. Karen Harding) (03:27)(   Читать дальше...   )Жанр: Mainstream Drum & BassПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F5B4E70D14D4A22A5A8B8701030790219363D06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024895   (714140) от 10.06.2016
-
-Clouds Testers, Arne Woutersax - Messenger (2015) [FLAC|Lossless|tracks] <Electronic, Jazz, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inhale The Love. Saxophonized (original mix)    04:06
-02. Love and Loneliness. Saxophonized (original mix)    07:18
-03. Luxurizer. Saxophonized (original mix)    06:16
-04. Diving in the Deep White. Saxophonized (original mix)    06:00(   Читать дальше...   )Жанр: Electronic, Jazz, Deep HouseПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E66BBBF30B8A68927C2B9A76E4285D37D37A2844
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130647   (714335) от 02.05.2017
-
-COAM - The Study Of Change (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychill>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bun Bo Hue [00:08:34]
-02. Me Ya [00:08:08]
-03. All Of Life [00:06:29]
-04. Outspot [00:07:26](   Читать дальше...   )Жанр: Ambient, PsychillПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F29C0691FE581F639923297D327EDF4B8153439D
 ```
 
 

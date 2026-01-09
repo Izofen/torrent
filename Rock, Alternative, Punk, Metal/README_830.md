@@ -440,6 +440,39 @@ magnet:?xt=urn:btih:F2315F1EFCEF46166785BCF9CBB1D0B18E77C2C0
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 223545   (577821) от 01.08.2010
+
+Владимир Кузьмин - Лучшее (2009) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_577821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Огонек
+02. XXI век
+03. Белая луна
+04. Я научу тебя
+05. Горят огни
+06. Небесное притяжение
+07. Ясная звезда (Без тебя)
+08. Наши дни
+09. Пороги
+10. Зачем уходишь ты(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:54
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150809   (577877) от 16.07.2017
 
 Edguy - Monuments (2017) 2CD [MP3|320 Kbps] <Power Metal>
@@ -678,33 +711,6 @@ Bryan Adams - Cuts Like a Knife (1983) remaster, 2012, Audio Fidelity [WavPack|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4B81733611445BE9E2355B2436769867B0763C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 377446   (578082) от 13.08.2016
-
-Rush - Roll The Bones (1991) remaster, 2011, Audio Fidelity [FLAC|Lossless|image + .cue]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamline (4:38)
-02. Bravado (4:36)
-03. Roll The Bones (5:30)
-04. Face Up (3:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1F2E89B9B8BD7C20AA676617AB2A7A18CDC30C
 ```
 
 

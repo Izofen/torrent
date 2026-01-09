@@ -108,6 +108,39 @@ magnet:?xt=urn:btih:391DD7396E44431D43AF71F3E857BCF4AFA3FFC6
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 222678   (599516) от 30.07.2010
+
+Anders Osborne - American patchwork (2010) [MP3|256 kbps]<Electric Blues, Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_599516.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. On The Road To Charlie Parker (4:15)
+2. Echoes Of My Sins (4:33)
+3. Got Your Heart (4:05)
+4. Killing Each Other (4:08)
+5. Acapulco (3:48)
+6. Darkness At The Bottom (5:58)
+7. Standing With The Angels (5:15)
+8. Love Is Taking Its Toll (5:01)
+9. Meet Me In New Mexico (3:59)
+10. Call On Me (2:58)Жанр: Electric Blues, Blues-RockПродолжительность: 00:46:06
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299376   (599747) от 01.05.2019
 
 Антитіла - HELLO (2019) [MP3|320 kbps] <Rock>
@@ -669,33 +702,6 @@ The Rolling Stones - Honk (2019) Deluxe [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:011FBB0DB218A37252125F11016057942F7EBA77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913191   (607232) от 28.06.2015
-
-Apogee - The Art Of Mind (2015) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Art Of Mind (19:54)
-a) Psychocosmic Order
-b) Across The Border
-c) The Dividing Point(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5F7F07CF4A8F8978D6106DD4B06046E30C3F3A
 ```
 
 

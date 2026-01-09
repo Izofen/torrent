@@ -1,3 +1,312 @@
+###  Публикация: 1143016   (639074) от 16.06.2017
+
+Wuauquikuna - The Best of Wuauquikuna (2016) [MP3|320 Kbps] <Native American, Chillout, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Way of life (04:47)
+02. Amanecer (06:05)
+03. The last Inka Warriors "Siwar" (04:35)
+04. Sayri Nan (06:25)(   Читать дальше...   )Жанр: Native American, Chillout, WorldПродолжительность: 01:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEB91942AB1CE51F11002FD64C024F9DF75D35C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518974   (639111) от 05.07.2012
+
+Sex And The City 2 / Секс в большом городе 2 (2010) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639111.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alicia Keys - Rapture (4:47)
+ 2. Dido - Everything to Lose (4:28)
+ 3. Cee Lo - Language of Love (3:59)
+ 4. Erykah Badu - Window Seat (4:50)
+ 5. Natacha Atlas - Kidda (4:56)
+ 6. Michael McGregor - Euphrates Dream (3:37)
+ 7. Liza Minnelli - Single Ladies (Put A Ring On It) (3:13)
+ 8. Ricki-Lee - Canґt Touch It (2:51)
+ 9. Alicia Keys - Empire State of Mind (Part II) Broken Down (3:33)
+ 10. Jennifer Hudson and Leona Lewis - Love Is Your Color (3:41)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BDA098700CE7F2767FB8EDCA7F01A687DBD074
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517966   (639259) от 05.07.2012
+
+Miss Congeniality / Мисс Конгениальность (1-2 части) (2000-2005) [MP3|320 кб/с]<Score, OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639259.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли саундтреки из фильма Мисс Конгениальность, а также музыка и песни со второго фильма Мисс Конгениальность 2: Прекрасна и опасна.1. Esthero - Wikked Lil' Grrrls (4:17)
+ 2. Natasha Bedingfield - I'm a Bomb (3:42)
+ 3. Pink - Trouble (3:12)
+ 4. Spiderbait - Black Betty (3:26)
+ 5. Paul Anka - (You're) Having my Baby (2:32)
+ 6. Carl Carlton - She's a Bad Mama Jama (3:54)
+ 7. Ohio Players - Fire (4:31)
+ 8. Thelma Houston - Don't Leave me This Way (5:39)
+ 9. Staple Singers - I'll Take You There (4:38)
+ 10. Ike & Tina Turner - Proud Mary (3:28)(   Читать дальше...   )Жанр: Score, OSTПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3C0E1850EA919601FE185B496ADAFABC772C0E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228202   (639283) от 30.05.2018
+
+Frantz Amathy - Zen Piano Paradise (2018) [MP3|320 Kbps] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639283.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Zen Piano Paradise (13:16)
+ 2. Flight over the Sea (8:43)
+ 3. Nature's Peace (5:18)
+ 4. Sunrise Piano (14:04)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A0F3FF6597F453DA134C91A1764FB73E9DA661
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143011   (639343) от 16.06.2017
+
+Manish Vyas - Sahaj Atma (2017) [MP3|320 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sahana Vavatu (For Inner Nourishment)
+02. Lokaha Samastaha (For Imploring Universal Peace)
+03. Shantakaram (For Removal of Fear)
+04. Sahaj Atma (For Remembrance of Our Natural State of Being)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A741E4CDE02155D892BBAE25C12A29032468F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142974   (639346) от 16.06.2017
+
+The Honeycutters - On the Ropes (2016) [FLAC|Lossless|tracks] <Country,Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - On the Ropes (3:18)
+02 - Blue Besides (5:00)
+03 - Golden Child (3:36)
+04 - The Handbook (3:06)(   Читать дальше...   )Жанр: Country,FolkПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF0BA54932520E539EF34665EFE2ADB94319FAC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142847   (639464) от 16.06.2017
+
+Gary Stewart - Boy Cries Wolf (2010) [MP3|128 Kbps] <Folk, Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Travelling Song 4:16
+02. Jekyll And Hyde 2:56
+03. Take Me Down 3:06
+04. Behind The Door (feat. Ellen Smith) 3:11(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0957B31213ED2BCDB724052CFCC31AC3EB7434D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032824   (639698) от 10.07.2016
+
+Levon Minassian & Armand Amar - Songs from a World Apart (2005) [FLAC|Lossless|image + .cue] <Folk, World, Armenian Duduk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hovern'engan    05:08
+02.  Tchinares    05:47
+03.  Ar Intch Lav Er    06:15
+04.  Nare Nare    05:21(   Читать дальше...   )Жанр: Folk, World, Armenian DudukПродолжительность: 00:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1BD570D73B4A70E6D6D7C50CAE7333D175A6C3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033228   (639872) от 10.07.2016
+
+VA - The Woman In Red (1984) [FLAC|Lossless|image + .cue] <Soundtrack, Funk & Soul>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stevie Wonder - The Woman In Red [04:39]
+02. Stevie Wonder & Dionne Warwick - It's You [04:55]
+03. Ben Bridges - It's More Than You  (Instrumental) [03:15]
+04. Stevie Wonder - I Just Called To Say I Love You [06:16](   Читать дальше...   )Жанр: Soundtrack, Funk & SoulПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369D75B48324B8FEE9D1CA9F277F33ECAFFD0520
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033222   (639996) от 10.07.2016
+
+Ashaneen - Waves of Life (2015) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Wave [00:06:14]
+02. Second Wave [00:03:45]
+03. Third Wave [00:08:24]
+04. Fourth Wave [00:04:41](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71EA43AD3553B0639D5B13CF25836D465D30168
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033236   (640005) от 10.07.2016
+
+Mythos - The Best of Mythos Instrumentals (2014) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introspection
+02. Prelude
+03. Duet
+04. La Cathedral(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D1FAA59E722EDF8911584243FFEBAF7F9943C88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033073   (640113) от 10.07.2016
 
 Mike Howe - Lichens (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Acoustic Guitar>
@@ -425,321 +734,6 @@ VA - Essential Guitar - 33 Guitar Masterpieces (2002) 2CD [WavPack|Lossless]<Cla
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517021   (643320) от 03.07.2012
-
-VA - Адажио для арфы / Harp Adagios (2005) [FLAC|Lossless]<Classical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Well-Tempered Clavier (24), collection of preludes & fugues, Book I, BWV 846-869 (BC L80-103): P  [03:21]
-   Composer   Johann Sebastian Bach (1685 - 1750)
-
- 02. Sonata for oboe & continuo in G minor, H. 549, Wq. 135: Adagio  [02:19]
-   Composer   Carl Philipp Emanuel Bach (1714 - 1788)
-   Performer   Rama Jucker (Cello), Ursula Holliger (Harp) & Heinz Holliger (Oboe)
-
- 03. Prelude for piano No. 15 in D flat major, Op. 28/15, CT. 180  [05:58]
-   Composer   Frйdйric Chopin (1810 - 1849)
-   Performer   Marisa Robles (Harp)(   Читать дальше...   )Жанр: ClassicalФормат: 2CDПродолжительность: 01:08:28
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516625   (643508) от 03.07.2012
-
-Jorgen Ingmann - Guitar Romantic Collection, vol. 3 (1990) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643508.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:59) 01. Verde
-(2:58) 02. Stardust
-(2:16) 03. Blue Balloon
-(2:27) 04. This Is My Song
-(2:29) 05. La Balanga
-(3:52) 06. If We Only Had Time
-(2:15) 07. Marguerite
-(3:09) 08. Classical Touch
-(2:52) 09. I Am Just A Girl
-(2:49) 10. Nostalgia(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB3FDF880E2580208917F13C039F5CF6E1982C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906723   (643578) от 09.06.2015
-
-VA - E-Scape 2015 (2015) [MP3|320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Ward & John Dyson - Ride the Beach
-02. David Wright - Song for a Friend
-03. Eric van der Heijden - Strange Escapism
-04. Dreamerproject - Hymne(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA03776726512EDF814825D96056B7353019B7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032754   (643658) от 08.07.2016
-
-VA - The Melodic Relaxing Piano Collection Vol. 1 (2014) [MP3|320 Kbps] <Instrumental, Relax, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gonelb - In My Heart    03:49
-02. Cristiano Viti - No Way Out    05:37
-03. Gianluca Ricciardi - Classico    03:35
-04. Olga Bordas - Nocturne In C Sharp Minor    06:36(   Читать дальше...   )Жанр: Instrumental, Relax, PianoПродолжительность: 01:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA491C06702E6B75E3043F1F9107ED2336FA642F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032767   (643795) от 08.07.2016
-
-Jacob Pavek - Illume (2015) [FLAC|Lossless|tracks] <Modern Classical, Ambient, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Stairs    02:48
-02.  Tonight, Tomorrow    01:45
-03.  Illume    03:35
-04.  Seasons    05:04(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6353A7850A8D0EF79773EA10B0FE3276F12FE3E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 215448   (643987) от 08.07.2010
-
-Dan Gibson's Solitudes - Blue sky classics (2008) [MP3|256 kbps]<Релакс, New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - J.S. Bach - Prelude in C Major from The well tempered clavier
-02 - Beethoven - Adagio from Violin sonata No.5 in F Major, Op.24. Spring
-03 - Haydn - Largo from Symphony No.88 in G major
-04 - Debussy - Preludes, Book 1. No.8. Girl with the flaxen hair
-05 - Chopin - Larghetto from Piano concerto No.2 in F minor, Op.21
-06 - Mozart - Adagio from Violin concerto No.2 in G major
-07 - Schumann - Larghetto from Symphony No.1 in B flat major, Op.38. Spring
-08 - Schubert - Andante from String quartet No.12 in C minor
-09 - Corelli - Adagio from Sonata No.6, Op.1
-10 - Tchaikovsky - Andante cantabile from String quartet No,1 in D major, Op.11Жанр: Релакс, New Age, MeditativeПродолжительность: 01:03:19
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032545   (644027) от 08.07.2016
-
-Amy Lauren - Sulla Riva (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mahogany Cider [00:02:59]
-02. Black Creek Trail [00:04:29]
-03. Where Three Rivers Meet [00:05:18]
-04. Emmerson's Ballad [00:03:14](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12E84847938C33BE8AF513E245D8507CEDE05374
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032520   (644034) от 08.07.2016
-
-John Fluker - 11:11 (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awaken [00:02:39]
-02. In the Beginning [00:03:29]
-03. Artificial Time [00:05:33]
-04. The 4th Dimension [00:04:22](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28922E367850679542B0DFB60295157DEA24D8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119918   (644260) от 13.06.2017
-
-ДиДюЛя - Лучшее. В исполнении симфонического оркестра Ли Отта (2015) [MP3|320 Kbps] <Instrumental, Neo-Classical>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Водопад
-02. День рождения
-03. Путь домой
-04. Мечта(   Читать дальше...   )Жанр: Instrumental, Neo-ClassicalПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C61AC253B1F978E92A7C46E0D30B4DB7B1470F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292174   (644706) от 30.03.2019
-
-VA - Defected Accapellas Deluxe Vol. 15 (2019) [MP3|320 Kbps] <Acapellas, DJ Tools>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonny Fodera Ft. Alex Mills - Always Gonna Be (Extended Accapella) (04:42)
-02. CamelPhat Ft. Ali Love - Dopamine Machine (Accapella) (08:20)
-03. Offaiah - Push Pull (Accapella) (04:38)
-04. Selace - So Hooked On Your Lovin (Mousse T.'s Accapella) (03:40)(   Читать дальше...   )Жанр: Acapellas, DJ ToolsПродолжительность: 02:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8526C06D5AB67E8DCACB047CB826EB350F9D621D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142073   (644712) от 13.06.2017
-
-The Romantic Strings Orchestra - Thanks For The Memory (1995) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening, Oldies>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embraceable You (2:31)
-02. Over The Rainbow (3:16)
-03. Sunrise Serenade (3:00)
-04. I'm Gettin' Sentimental Over You (2:53)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, OldiesПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F4636160286BC03F56C69C8AD8BCF7BE2E4EA83
 ```
 
 

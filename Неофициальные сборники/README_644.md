@@ -1,3 +1,30 @@
+###  Публикация: 972391   (982068) от 06.01.2016
+
+VA - Top 50 Progressive Trance (Paradise) (2015) [MP3|320 кб/с] <Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Driftmoon-Rise Of The Phoenix (Original Mix) [06:33]
+02. Omnia-Shanghai (Original Mix) [05:50]
+03. Timmus-Still Alive (Original Mix) [06:34]
+04. Craig Connelly-Rain (Original Mix) [07:01](   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 05:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:741EE4A2C1D32D04A8AEEE4F2C3AE69B9B652F76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 612840   (982501) от 04.02.2013
 
 VA - Лучшие танцевальные шлягеры 50х-60-х, [4 CD] (2003-2004) [MP3|320 kbps]<Retro, pop>
@@ -686,33 +713,6 @@ VA - Pioneer Studio 33,5 (2015) 6 сборников [MP3|320 кб/с]<Dance, Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CED4536C1441C8E776E4ACAC5EF5AD2E7ED86C49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971759   (985239) от 03.01.2016
-
-VA - Top 100 Club Tracks (December 2015) (2015) [MP3|320 кб/с] <Dance, Club, Club House, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A & D - Dancing In My Head (Original Mix)
-02. Adele - Hello (Dj Denis Rublev & TPaul Sax Mix)
-03. Adele - Hello (Layn Korel Remix) [2015]
-04. Antoine Cortez - Spektrum (Original mix)(   Читать дальше...   )Жанр: Dance, Club, Club House, ElectroПродолжительность: 08:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D762DCA0147B67C0B9EDFB8173304A83C1C43B
 ```
 
 

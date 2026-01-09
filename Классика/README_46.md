@@ -1,3 +1,84 @@
+###  Публикация: 993611   (893368) от 06.03.2016
+
+Saint-Saens - Carnival of the Animals, Danse macabre, Symphony 3 (Ormandy, Entremont, Power Biggs) (2009) [MP3|320 кб/с] <Классическая музыка, Romanticism, Symphony>
+
+>>Классика
+>>Концерты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony no. 3 in C major, op. 78 "Organ"
+01 -1a- Adagio
+02 -1b- Allegro moderato
+03 -1c- Poco adagio(   Читать дальше...   )Жанр: Классическая музыка, Romanticism, SymphonyПродолжительность: 01:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257E5148D22592370C321B17A81950A1CC668FD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993899   (893443) от 06.03.2016
+
+Alfred Schnittke - Quasi una sonata, Moz-Art a la Haydn, Suite in the Old Style & Concerto Grosso No. 6 (2006) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Classical, Concerto>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893443.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Quasi una sonata for violin and chamber orchestra (1968/1987) 22'22
+2. Moz-Art à la Haydn. Play on music for 2 violins, 2 small string orchestras, double bass and conductor (1977) 11'43
+Suite in the Old Style, arranged for chamber orchestra (1972/1987) 15'49
+3. I. Pastorale 4'03(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B3DDAB27F6A4E3B31440A801BD773E0AA7585C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993599   (893796) от 06.03.2016
+
+Dvorak - Rusalka (Fleming, Czech Philharmonic Orchestra, dir.Mackerras) (1998) 3 CD [APE|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Predehra.Prelude (4:22)
+02.  Hou, hou, hou, stoji mesic nad vodou! (4:35)
+03.  I pekne vitam, pekne vitam (3:08)
+04.  Hastrmanku, taticku ! (5:10)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 02:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1126B04470772B7470E95ACAD31442B32B88476
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993731   (893820) от 06.03.2016
 
 Netrebko, Quasthoff, Terfel, Garanca, Pape. - The Mozart Album (2006) [FLAC|Lossless|image + .cue] <Classical, Opera>
@@ -617,88 +698,6 @@ De Monte - Laudate Dominum (Currende, Erik Van Nevel) (2001) [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0FAC6B7591E86A025D0953DA154AA25E9CE3EF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992403   (900289) от 02.03.2016
-
-VA - Great Pianists of the 20th Century: The Complete Edition (1998 - 1999) Box Set, 202 CD [FLAC|Lossless|tracks + .cue] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900289.jpg" />
-</div>
-
-
-###  Подробнее
-
-На нашем трекере катастрофически не хватало релизов такого наиболее популярного инструмента классической музыки, каким является пианино. Гений фирмы Philips сегодня восполнит этот пробел.
-Действительно Великие пианисты собраны в этом поистине великолепном издании "Великие Пианисты 20-го века". Поверите - двести дисков? А вы наверняка думали, что такое издание (   Читать дальше...   )Box 000 - Sampler
-Box 001 - Geza Anda
-Box 002 - Martha Argerich I
-Box 003 - Martha Argerich II(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 244:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2147736657A2FDC0765D9DB52506CDF4F1983A6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992521   (900512) от 02.03.2016
-
-London Philharmonic Orchestra - The Symphonic Music of Pink Floyd (1995) [FLAC|Lossless|image + .cue] <Modern, Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time (8:13)
-02. Brain Damage (5:14)
-03. Another Brick In The Wall (Part II) (8:28)
-04. Comfortable Numb (5:27)(   Читать дальше...   )Жанр: Modern, ClassicalПродолжительность: 01:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E05A98E5C24A18B346CB911C0DA0E846BCE131C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992625   (900518) от 02.03.2016
-
-Amira Willighagen - Merry Christmas (2015) [MP3|192 кб/с] <Classical, Opera>
-
->>Классика
->>Вокал
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Ave Verum Corpus, K. 618                  2:57
-02.	Bist du bei mir	                                4:12
-03.	Nulla in Mundo Pax Sincera, RV 630	2:21
-04.	Ave Maria	                                        3:57(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C82A4C749C918622B805B1CCD016B0A4DF36F24B
 ```
 
 

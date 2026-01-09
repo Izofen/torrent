@@ -1,3 +1,245 @@
+###  Публикация: 1113538   (836339) от 12.03.2017
+
+Bad Boys Blue - MP3 Play (2015) [MP3|320 Kbps] <Disco, EuroDisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're A Woman 5:22
+02. Pretty Young Girl 5:47
+03. Kiss You All Over, Baby 5:53
+04. For Your Love 5:54(   Читать дальше...   )Жанр: Disco, EuroDiscoПродолжительность: 04:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85AB8E50783869D43944005AC0CA00E9DEA99405
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113735   (836458) от 12.03.2017
+
+Первоуральск - Диктант (1990) Remastered, 2009, Julia Records [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Малоизвестная команда с мужским вокалом в дополнение к миражам и иже подобным. Мне нравилось!01. Ухожу В Ночь
+02. Раскаянье
+03. Наташка
+04. Позови За Собой(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA74AFEA376725A9C4FD5BE57E5C309BE2B0E9FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113646   (836461) от 12.03.2017
+
+VA - This Is Berlin Disco, Vol. 3 (2017) [MP3|320 Kbps] <Disco, EuroDance, House, Tech House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Talker - Time Is a Fact [00:07:16]
+02. Lowkicks - Hot Girls [00:06:18]
+03. James Day - We Dance [00:06:06]
+04. Limelight - When I Look Into Your [00:04:34](   Читать дальше...   )Жанр: Disco, EuroDance, House, Tech HouseПродолжительность: 02:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E7B9B6DF48136A4D58F73CFC043C21C25F4D69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380084   (836529) от 01.05.2020
+
+Everything Everything - In Birdsong (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Birdsong (05:13)
+02. In Birdsong (Edit) (03:59)Жанр: Indie PopПродолжительность: 00:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C13BB4476A035924F9EBD2A150FF20224EE25360
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501391   (836568) от 09.10.2021
+
+VA - Full Tilt Remix Vol. 99 (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Khaled Ft. Post Malone, Megan Thee Stallion, Lil Baby & Dababy - I Did it (Full Tilt Remix)
+02. Anitta - Girl form Rio (Full Tilt Remix)
+03. Anitta Ft. Dababy - Girl form Rio (Full Tilt Remix)
+04. Erica Banks Ft. Beatking - Toot that (Full Tilt Remix - Clean Version)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:10:07 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF9B4219A742AED9BC66FB52BFDFAC64132AA72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501379   (836571) от 09.10.2021
+
+VA - DMC Producer Mixes Paul Dakeyne Volume 1 (2021) [MP3|320 Kbps] <House, Dance,  Italo-Disco, Jazzdance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various Artists - Summer Classic 2
+02. Various Artists - Alternative Classics
+03. Dr. & The Medics Vs Norman Greenbaum - That's The Spirit
+04. Tears For Fears - Tears For Fears Megamix(   Читать дальше...   )Жанр: House, Dance,  Italo-Disco, JazzdanceПродолжительность: 01:20:03 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42FAC125662F97F3C067E486521C643D438A8A28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004978   (836661) от 07.04.2016
+
+Винтаж - Light (2014) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Искренность
+02. Деревья
+03. Ева (Slow)
+04. Запретный Мир(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2B969D340541FC59EA7F5EB1DF6B7C77BE6F09F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004731   (836772) от 07.04.2016
+
+Sarah Brightman - 5 Disco Singles & EPs (1978-1983) [MP3|320 кб/с] <Pop, Disco, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сара Брайтман (англ. Sarah Brightman; 14 августа 1960, Бёркамстед, Хартфордшир, Англия) — британская певица (сопрано) и актриса, исполнительница популярной музыки, а также одна из ведущих мировых исполнительниц в жанре классического кроссовера.
+В данной подборке синглов представлены ранние, весьма популярные и уже практически забытые  шаги Сары, начинающей свой творческий (   Читать дальше...   )Список миньонов:
+1978. I Lost My Heart To A Starship Trooper
+1979. The Adventures Of The Love Crusader
+1980. Love In A U.F.O(   Читать дальше...   )Жанр: Pop, Disco, ElectronicПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F50E2C6FB13F8D2B19A675E8D2504AF7E402017E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004944   (836774) от 07.04.2016
+
+Винтаж - Light (2014) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Искренность (3:48)
+02. Деревья (3:49)
+03. Ева (Slow) (3:44)
+04. Запретный Мир (3:47)(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AAD53ADD511392A644292A2E39D331F8360DB58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 651813   (837262) от 03.05.2013
 
 VA - Кружатся диски - Популярные исполнители 70-х - 90-х годов [23 CD] (2013) [MP3|320 Kbps] <Retro>
@@ -449,249 +691,6 @@ Zodiac - Zodiac (1998) [MP3|320 кб/с] <Electronic, Euro House, Happy Hardcore
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE88FCA3C9C984D2CF9224469D242FDCDD32EB62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112557   (839883) от 10.03.2017
-
-Jim Reeves - The Real... Jim Reeves (2013) 3CD [FLAC|Lossless|tracks + .cue] <Country, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Mexican Joe
-2. Bimbo
-3. Then I'll Stop Loving You(   Читать дальше...   )Жанр: Country, PopПродолжительность: 02:26:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05669D11B6B51782C31265EFD951EDC600204EB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003897   (839986) от 05.04.2016
-
-VA - 12 Inch Dance: 80s Pop (2016) 3CD [MP3|320 кб/с] <Indie Pop, New Wave, Synth Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839986.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Spandau Ballet - Gold (12'' Mix) (7:15)
-02. Duran Duran - The Reflex (Dance Mix) (6:34)
-03. Soft Cell - Torch (Extended Version) (8:27)(   Читать дальше...   )Жанр: Indie Pop, New Wave, Synth PopПродолжительность: 03:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA70121ED1FD4AF52BEF5088AC858B6A66DC0E6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004262   (840001) от 05.04.2016
-
-Peter Griffin - 2 Albums, 4 Singles & EPs (1977-1981) [MP3|320 кб/с] <Electronic, Disco, Pop Rock>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1977. I Hate The Music
-1978. I'm In The Race
-1979. Spiderman (France)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 02:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3C8529B469BDDC04BC108253FD8B9104EBB184
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004298   (840017) от 05.04.2016
-
-Hypnosis - Hypnosis (1991) Reissue, 2001, ZYX Music [MP3|320 кб/с] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Droid    05:47
-02. Inesi    01:14
-03. Windland    04:47
-04. Argonauts    04:44(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C785A0012E933DD04197356B819D0F621BA1577A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113007   (840018) от 10.03.2017
-
-Slick - Slick (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Bass (6:58)
-02. Feelin' Good (7:51)
-03. Sexy Cream (8:07)
-04. Put Your Pants On (3:47)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:32:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934F6D5DA2AB68009B80DAFDA5681222E546CE9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113066   (840098) от 10.03.2017
-
-Graham Gouldman - Animalympics (1980) LP [MP3|320 Kbps] <Electronic, Pop-Rock, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go For It (3:36)
-02. Underwater Fantasy (3:17)
-03. Away From It All (2:34)
-04. Born To Lose (4:09)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, Synth-pop, DiscoПродолжительность: 00:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7742FCAAF5B425B3264A3FA169CC691C999354A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113019   (840123) от 10.03.2017
-
-Lunch Ladies - Down on Sunset Strip (2017) [MP3|320 Kbps] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunshine (04:23)
-02. You're Not There (03:19)
-03. Love Is Overrated (03:40)
-04. Sad Jeans (03:31)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:716B333B690A15C5277D15052D6A4697B7E6A021
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379085   (840968) от 28.04.2020
-
-VA - Classic 80's Pop (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duran Duran - Hungry Like The Wolf 3:41
-02. New Order - The Perfect Kiss (7" Edit) 4:25
-03. Spandau Ballet - Highly Strung 4:11
-04. A-Ha - Cry Wolf 4:04(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4396B1B828799663B7900F3B984F3BBA3F5232E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379386   (841084) от 28.04.2020
-
-Илья Гусев - Ты помнишь май (2020) [MP3|320 Kbps] <Pop, Neo-Disco>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. До встречи с тобой (4:19)
-02. Кажется (4:25)
-03. Южные ночи (3:05)
-04. Пообещай (4:10)(   Читать дальше...   )Жанр: Pop, Neo-DiscoПродолжительность: 00:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59FD0CB19FBFB2F9F64A49CBBF611CEA70613B38
 ```
 
 

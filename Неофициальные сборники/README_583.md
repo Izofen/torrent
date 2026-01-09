@@ -1,3 +1,30 @@
+###  Публикация: 996746   (879406) от 14.03.2016
+
+VA - Returned Trance Around The World (2016) [MP3|320 кб/с] <Trance, Energy, Harmonic, Emotional, Melodic, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879406.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Super8 & Tab feat. Julie Thompson - Patience (Club Mix) 05:34
+002. Sylvermay - Prometheus (Original Mix) 06:57
+003. Sunlounger - Sunkissed (Roger Shah Rework) 05:02
+004. Upfly & Stellarium - Noah's Ark (Original Mix) 06:46(   Читать дальше...   )Жанр: Trance, Energy, Harmonic, Emotional, Melodic, ProgressiveПродолжительность: 16:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:882AD610081FB47329C47AE141229240BD9156FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104174   (879503) от 15.02.2017
 
 VA - Музыка для вашего Авто (2017) [MP3|320 Kbps] <Dance, Club, House>
@@ -668,33 +695,6 @@ VA - Best Of 2021 - Herbst/Winter (2021) 2CD [MP3|320 Kbps] <Hip Hop, Latin, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C65071171754BAADD2965CC2ACAE608384FD04D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996015   (880628) от 13.03.2016
-
-VA - Зайцев нет. Лучшие новинки марта (2016) [MP3|160-320 кб/с] <pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880628.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nicky Romero & Nile Rodgers – Future Funk
-2. Леонид Агутин – Отец
-3. Brazzaville – The Oceans of Ganymede
-4. Потап и Настя – Умамы(   Читать дальше...   )Жанр: popПродолжительность: 03:08:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A6E55360538C5C2B6278B24BAC98BB3B8742B6D
 ```
 
 

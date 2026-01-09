@@ -1,3 +1,30 @@
+###  Публикация: 914273   (596112) от 03.07.2015
+
+A-ha - Greatest Hits (1999) [FLAC|tracks + .cue]<Pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take On Me [03:47]
+02. Cry Wolf [04:08]
+03. Touchy [04:37]
+04. You Are The One (Remix) [03:47](   Читать дальше...   )Жанр: Pop, New WaveПродолжительность: 01:17:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99E22C53AA99AA107EF7B7A31E655A49711512F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299724   (596162) от 03.05.2019
 
 VA - Die Deutschen Disco Charts - Schlager Superhits (2019) [MP3|320 Kbps] <Schlager>
@@ -346,6 +373,34 @@ magnet:?xt=urn:btih:8FFC10B5EAD6D1BC0F140F6708AD283BA127D380
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356929   (596556) от 29.06.2011
+
+Imperio - 2 альбома (1995-1996) [FLAC|Lossless]<Eurodance, Dreamdance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_596556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Imperio - проект австрийского продюсера Норберта Райхарта (Norbert Reichart), солисты Мануэла Рэй (Manuela Ray) и Майкл Харрис (Michael Harris).
+Первый же сингл "Veni Vidi Vici" покорил хит-парады не только Австрии, но и многих Европейских стран. Затем последовали "Quo Vadis", "Nostra Culpa", "Amor Infinitus" и в 1995-м году (   Читать дальше...   )01. Intro
+02. Atlantis
+03. Wings Of Love
+04. Secrets Of Love(   Читать дальше...   )Жанр: Eurodance, DreamdanceПродолжительность: 01:36:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150126   (596613) от 13.07.2017
 
 The Twins - 7 Albums (1981-1993) CD [MP3|320 Kbps] <Electronic, Synth-pop, Italo-Disco>
@@ -649,66 +704,6 @@ USS (Ubiquitous Synergy Seeker) - Approved (2011) EP [MP3|256 Kbps] <Alternative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:095F0DFBCF1EC2218AC2BD58CEB111A63E3D020A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149832   (598634) от 12.07.2017
-
-USS (Ubiquitous Synergy Seeker) - Advanced Basics (2014) EP [MP3|320 Kbps] <Alternative Pop, Electronic Rock, Drum'n'Bass>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hydrogenuine
-02. This Is The Best
-03. Nepal
-04. Freakquency(   Читать дальше...   )Жанр: Alternative Pop, Electronic Rock, Drum'n'Bass, Electropop, Hip-HopПродолжительность: 00:25:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF7C950879A64963FF6D4F4126E0E5A11F69BFFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 806178   (598757) от 19.07.2014
-
-Modern Talking - Milestones (2013) Compilation [MP3|320 кб/с]<Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Heart, You're My Soul (3:22)
-02. Cheri Cheri Lady (3:50)
-03. You Can Win If You Want (3:47)
-04. Brother Louie (3:43)
-05. Geronimo's Cadillac (3:19)
-06. Atlantis Is Calling (S.O.S. For Love) (3:48)
-07. In 100 Years (3:59)
-08. Jet Airliner (4:22)
-09. Sexy Sexy Lover (3:35)
-10. You Are Not Alone (3:25)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8A199147641AB2C0CABF9F41803CB727B3FFF40
 ```
 
 

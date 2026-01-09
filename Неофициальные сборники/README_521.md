@@ -1,3 +1,30 @@
+###  Публикация: 1386648   (793548) от 30.05.2020
+
+VA - New Love Songs (2020) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793548.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dermot Kennedy - Outnumbered (4:05)
+2. Lady GaGa - Always Remember Us This Way (3:30)
+3. Elina - Wild Enough (3:06)
+4. Jp Saxe - If The World Was Ending (3:28)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 03:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5187F6C50CF7C4260A927E99476AF4FD61E34A2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012636   (793561) от 01.05.2016
 
 VA - Record Super Chart № 434 (30.04.2016) (2016) [MP3|320 кб/с] <House, Electro House, Club>
@@ -668,33 +695,6 @@ VA - Soul Rhythm: Chill Electronic Mix (2021) [MP3|320 Kbps] <Chillout, Relax El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7C9177775F457F1AF41847E0EE3CF6C261A22ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274335   (794051) от 06.01.2019
-
-VA - Сегодня на радио хиты FM Vol.2 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794051.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ellie Goulding feat. Diplo & Swae Lee - Close To Me
-002. A Boogie Wit Da Hoodie, 6IX9INE - Swervin
-003. 30.02 - Рассвет тонул
-004. Johnyboy - Zero(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F47B791292BA1E8D1FC21714FC6D1E408CBA2B24
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1214660   (763295) от 23.03.2018
+
+Bosson - RockStar (2004) [FLAC|Lossless|tracks + .cue] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Need Love (3:35)
+02. You Opened My Eyes (3:41)
+03. One Of A Kind (3:55)
+04. A Little More Time (3:56)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:18:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8537E2BE63DCC3877AD03E86B54EE10EA675448E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279973   (763520) от 01.02.2019
 
 Bananarama - The Greatest Hits Collection (Collector Edition) (2017) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, New Wave>
@@ -668,33 +695,6 @@ VA - Dance Classics '80 Part I (1994) [FLAC|Lossless|image + .cue] <Euro-House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49F4EB2D647D11850316EE640CAE3C4062F8CFF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391737   (772797) от 21.06.2020
-
-VA - NOW 100 Hits Summer (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772797.jpg" />
-</div>
-
-
-###  Подробнее
-
-На машине будущего перенеситесь на несколько дней вперед - в 26 июня 2020 года. Именно тогда состоится релиз от известного лейбла NOW! Это те треки, которые будут вас сопровождать всё лето (а оно уже наступило). Слушайте хорошую музыку каждый день!001. Dua Lipa - Don't Start Now  (3:03)
-002. Doja Cat - Say So  (3:58)
-003. Justin Timberlake - CAN'T STOP THE FEELING! (from TROLLS)  (3:56)
-004. Shakira feat. Wyclef Jean - Hips Don't Lie  (3:37)(   Читать дальше...   )Тип издания: 5CD (пока вэб-релиз)Релиз состоялся: 26 июня 2020 годаЖанр: Pop, Rock, DanceПродолжительность: 06:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84875F42AAB1F6DD1222D93CEBD7BF11ECCFC47A
 ```
 
 

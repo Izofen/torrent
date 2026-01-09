@@ -1,3 +1,30 @@
+###  Публикация: 870976   (846917) от 01.04.2016
+
+Юра Саркисян (кларнет) - 2002 (2002) [FLAC 2.0|44.1/16|tracks|MC-Rip] <Folk/Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Праздничный танец
+02. Танец Юрика
+03. Восточный таней
+04. Далеко ты от меня(   Читать дальше...   )Жанр: Folk/PopПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1199CC2B9492386438ED62F77D76981AD3AE1F24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499460   (847826) от 02.10.2021
 
 Bonnie Tyler - All In One Voice (1999) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock>
@@ -669,33 +696,6 @@ B1. Yours Is An Empty Hope(   Читать дальше...   )Жанр: Symphoni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04FAF093F6150CCE86D55D0F1BB354A025FD6C63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104385   (879773) от 15.02.2017
-
-Frank Sinatra - Duets (1993) First Press [WavPack|192/32|image + .cue|Vinyl-Rip] <Jazz, Easy listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lady Is A Tramp With Luther Vandross (3:24)
-02. What Now, My Love? With Aretha Franklin (3:15)
-03. I've Got A Crush On You With Barbra Streisand (3:25)
-04. Summer Wind With Julio Iglesias (2:32)(   Читать дальше...   )Жанр: Jazz, Easy listeningПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D9756435C197DF0E5FB0857CBB9191D5FA30D3
 ```
 
 

@@ -1,3 +1,243 @@
+###  Публикация: 1527652   (735873) от 30.01.2022
+
+Cats on Trees - Neon (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep on Dancing (3:17)
+ 02. Lion (2:25)
+ 03. If You Feel(3:07)
+ 04. Mama Said (3:23)(   Читать дальше...   )Жанр: Indie Pop, Pop-RockПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ABC5FB0CA207DBFA484DB18FC7A8B567866ED7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398237   (736185) от 25.07.2020
+
+Acuario - Acuario (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rema, Rema Marinero (3:45)
+02. Besame Mucho (3:34)
+03. Nada Mas De Amor (3:19)
+04. Oh, Latin Boy (2:54)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30E556362F55495AFEFA1BC9B329C950CC766519
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527670   (736386) от 29.01.2022
+
+Secret Service - Jane (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JaneЖанр: PopПродолжительность: 00:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FF3E3C0578ED321C7466BDAC9ACC66CBB1CCAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527784   (736402) от 29.01.2022
+
+Vincent International - Retro 2 (The 2nd Album) (2022) [FLAC|Lossless|image + .cue] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel My Fire /feat.Stylove/ (Extended Mix) 06:44
+02. Heart & Soul /duet with Rachel Santos/ (Extended Mix) 06:13
+03. Tick Tock Baby (Extended Mix) 06:32
+04. Kiss Me (Extended Mix) 05:38(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30DB3138379D8F5CE6CDE40825290FFBA250FEE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398173   (736539) от 24.07.2020
+
+Taylor Swift - Folklore (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Pop, Country>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The 1
+02. Cardigan
+03. The Last Great American Dynasty
+04. Exile (featuring Bon Iver)(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 01:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87EAD50E8FE1B7B6118AD059C5962C579D9CC883
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398075   (736567) от 24.07.2020
+
+Григорий Лепс - Честь имею! Кони привередливые (Высоцкий) (2020) [MP3|320 Kbps] <Pop, Авторская песня>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736567.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Песня про стукача
+2. В младенчестве
+3. Ах, родная сторона
+4. Жил я славно в 1-й трети(   Читать дальше...   )Жанр: Pop, Авторская песняПродолжительность: 01:27:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A23C83C252E5898CBA894668730A800FDC33BF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397842   (736654) от 24.07.2020
+
+The Charlie Calello Orchestra - Calello Serenade (1979) CD, Album, Reissue, 1992, Unidisc [MP3|320 Kbps] <Disco, Classic Jazz Covers, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sing, Sing, Sing
+02. Star Dust
+03. Moonlight Serenade
+04. In the Mood(   Читать дальше...   )Жанр: Disco, Classic Jazz Covers, Funk, SwingПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A24BBB908BD0A328B6A992A3EA119E72A7C6650
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398138   (736657) от 24.07.2020
+
+Les Humphries Singers - Mexico (1972) 2011, Warner [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop Rock, Gospel>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736657.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Old Time Religion - 3:19
+2. Malaika - 2:10
+3. Lovely Day - 3:24
+4. She's Really Something Else - 2:39(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, GospelПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F95D0594EFE9AC16302BABB64FEAF16EF399CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397896   (736659) от 24.07.2020
+
+VA - Love Songs 2020 (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lewis Capaldi - Someone You Loved (3:04)
+02. Justin Bieber - Purpose (3:30)
+03. Lady Gaga - Million Reasons (3:26)
+04. Ellie Goulding - Your Song (3:08)(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86EC0858860BD2A494E84C91E56939D84F21B80C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 787181   (736673) от 17.05.2014
 
 VA - Pure... 60s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Soft Rock, Pop-Roc>
@@ -451,249 +691,6 @@ VA - Romantic Songs (2022) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD87C743BE8494B54E377C97B853558F8DA3CA2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526129   (738792) от 23.01.2022
-
-Ally - With You In The Room (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adult (4:03)
- 02. It's You (4:03)
- 03. For Good (3:04)
- 04. Woods (1:50)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B026FFDF37CB116D756E38AE13F2CDABB43FA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526135   (738814) от 23.01.2022
-
-Baynk - ADOLESCENCE (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch Me (Hold My Hand) (4:01)
- 02. BAYNK, Tinashe - Esther (3:12)
- 03. BAYNK, Cosmo's Midnight - How Does It Feel? (3:39)
- 04. BAYNK, Drama - 1 Chance (3:22)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D87CE67873927F60C18D41282117058BFC32AE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526150   (738832) от 23.01.2022
-
-Sam Martin - Alpha Omega (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alpha Omega (40:43)
- 02. The Birth (1:10)
- 03. Come On! (0:35)
- 04. Summer Days (3:09)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 01:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C6A2964FBFAD084C0B20BEBDE826A2D64AA5E5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283654   (739725) от 17.02.2019
-
-Hideki Matsutake - Space Fantasy (1978) LP [MP3|320 Kbps] <Electronic, Classical, Disco, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture - Space Cruiser Yamato (3:41)
-02. Nocturnal Pursuit (3:41)
-03. Iskandall (5:25)
-04. White Morning After (3:16)(   Читать дальше...   )Жанр: Electronic, Classical, Disco, Synth-popПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:648958D44017AB8D803784E2A8CA52D3E5C7688F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283603   (739727) от 17.02.2019
-
-Bogart - Brandnew... (1980) LP [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance When The Music Plays (5:09)
-02. Sweet Darlin' (4:04)
-03. Spend A Night In Love With Me (3:31)
-04. Overnight, On Broadway (6:53)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84AD89104C53A9B0DB613E9D168447B92EA021AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283600   (739783) от 17.02.2019
-
-The Day - Midnight Parade (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie, Dream-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Island.flac
-02. Where the Wild Things Are.flac
-03. Grow.flac
-04. The Golden Glow.flac(   Читать дальше...   )Жанр: Indie, Dream-popПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:411AFFEA861F9C5405EEF3E036D4CD79539F1D6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283598   (739795) от 17.02.2019
-
-VA - Schlager BILD 2019 (2019) 2CD [MP3|320 Kbps] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739795.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. Thomas Anders feat. Florian Silbereisen - Sie sagte doch sie liebt mich
-02. Eloy de Jong - Liebe kann so weh tun (im Duett mit Marianne Rosenberg)
-03. Andrea Berg - Kilimandscharo (Neuaufnahme)(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:188904177A7E626AFE9ABB163DD44E51B8282752
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397509   (739817) от 21.07.2020
-
-Валерий Леонтьев - Дело вкуса (1990) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Всё решено
-02. Проблемы
-03. Память
-04. Доктор - время(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B28E36301545A3F06FBA5E66A30172B2E5B45680
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397510   (739825) от 21.07.2020
-
-VA - Русское застолье (2001) [FLAC|Lossless|tracks + .cue]<Pop, Folk>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. О. Канайкина - Солнечный денёк
-02. Адреналин - Шаб-да-будай
-03. Ахи-вздохи - Киданула
-04. Сладка ягода - Ой, цветёт калина(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6211223FA97C8C77B568544692AE99DEA98571C
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 972860   (980677) от 07.01.2016
+
+VA - Acoustic 90s Rock Songs (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Creep
+02. Meg Birch - Losing My Religion - Acoustic
+03. Chilled Aqua - Friday I'm in Love
+04. Alice Lamb - Californication(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF177F83C04DB83BC29C42F40EA7FF1D793ABE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972838   (980682) от 07.01.2016
 
 VA - (OST) Scarface Лицо Со Шрамом (1983) [MP3|320 кб/с]
@@ -692,33 +719,6 @@ Gary Moore - As The Years Go Passing By... (2020) (2CD Compilation) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:574C398A7889D5BDE68CFF14F7FF942FD985A3A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972391   (982068) от 06.01.2016
-
-VA - Top 50 Progressive Trance (Paradise) (2015) [MP3|320 кб/с] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Driftmoon-Rise Of The Phoenix (Original Mix) [06:33]
-02. Omnia-Shanghai (Original Mix) [05:50]
-03. Timmus-Still Alive (Original Mix) [06:34]
-04. Craig Connelly-Rain (Original Mix) [07:01](   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 05:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:741EE4A2C1D32D04A8AEEE4F2C3AE69B9B652F76
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 993683   (895477) от 05.03.2016
+
+VA - Best of Piano and Acoustic Guitar: Spa Music for Yoga Massage and Healing (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Miller - Lizzie's Rhapsody
+02. Meadowlark - Gratitude
+03. Relaxation Guitar Maestro - Soft Moonlight
+04. Robin Miller - In Loving Hearts(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:06:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A0D78289FF52897FFFDAD3DCD04A6C35A238E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993658   (895534) от 05.03.2016
 
 VA - Smooth and Sexy - Premium Jazz Grooves (2016) [MP3|320 кб/с] <Jazz, Chill Out, Lounge>
@@ -667,33 +694,6 @@ VA - Vocal Trance Seduction Vol 7 (2016) [MP3|320 кб/с] <Trance, Vocal Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45A54777F19EE79114E48A1D8EB25DFDFC503894
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993144   (897585) от 04.03.2016
-
-Леонид Азбель и Катенька Дроздовская - Старая Одесса (2001) [MP3|320 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Иволга
-03. Перебиты, поломаны крылья
-04. Однажды сценку я наблюдал(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E0FF58597676804597B2FA1B38D4EEE279F90FA
 ```
 
 

@@ -1,3 +1,171 @@
+###  Публикация: 1370710   (895201) от 28.03.2020
+
+Craig Connelly - Trance Classics Golden Years Mix (1997-2002) 2020-03-23 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Chicane feat. Maire Brennan of Clannad - Saltwater
+02.Energy 52 - Cafe Del Mar (Three N One 2002 Update)
+03.Holden and Thompson - Nothing (93 Returning Mix)
+04.Underworld - Dark And Long(   Читать дальше...   )Жанр: TranceПродолжительность: 02:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940325B129C68D411257F4B80ED1DF5EE5AB65A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370572   (895207) от 28.03.2020
+
+In'R'Voice - Infinite Sunset (2018) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Progressive Chill, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eclectricity (7:42)
+02. Infinite Sunset (6:45)
+03. Rays of Light (9:01)
+04. Sand In The Wind (7:45)(   Читать дальше...   )Жанр: Psychill, Progressive Chill, DowntempoПродолжительность: 01:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9834A2959F31B798223A0CB9EF2177CF36E8F15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 636479   (895235) от 03.04.2013
+
+Various Artists - Underground Sound Of Miami Series 2 (2013) [MP3|320 кб/с]<Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stelios Vassiloudis - Underground Sound Of Miami Series 2 (Continuous Mixed Version)
+02. Guy J - Twenty 11
+03. Stelios Vassiloudis - Panda Keys
+04. Robert Babicz - It Just So Happens
+05. Phonogenic - Laine
+06. Ian O'Donovan - Crimson Flare
+07. Rob Hes - Simplicity
+08. Elio Riso & Tomas Wahl - Default In Your Mind
+09. Pig&Dan - The Sudden Rush
+10. Eagles & Butterflies - Pharoah(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 02:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6351AD64295868AB3E2C35CE553BF040CD2F93D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370747   (895237) от 28.03.2020
+
+Giulio Aldinucci - Shards Of Distant Times (2020) Karlrecords [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phoenix (07:42)
+ 02. Fractal Tears (05:08)
+ 03. Every Forgotten Word (06:49)
+ 04. The Overturned Abacus (06:15)(   Читать дальше...   )Жанр: Ambient, Drone, ExperimentalПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C819CEEF313AC47304C4B4CD0AE5E4D767F9C27C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993159   (895270) от 05.03.2016
+
+Kadebostany - Pop Collection (2013) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking With a Ghost (3:09)
+02. Invisible Man (3:52)
+03. Castle In The Snow (3:46)
+04. Jolan (3:52)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C25BAADAFF1007CEAAC45EF14482D8F0E995B23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370615   (895289) от 28.03.2020
+
+Headkube - Live in Turin (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895289.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Modular Intro (Live Mix) (5:02)
+2. CC Message (Live Mix) (4:30)
+3. Emme (Live Mix) (4:30)
+4. Void (Live Mix) (7:00)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:584C9F8F7EB7C58FA4FEEA99A905FF9DFDDDF7DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493473   (895457) от 03.09.2021
 
 Little Jam - Alone in the Desert (1997) [FLAC|Lossless|tracks + .cue] <Electronic, Trance, Breakbeat, House>
@@ -537,168 +705,6 @@ VA - Chill Soul (Life + Love + Relax) (2017) [MP3|320 Kbps] <Downtempo, Chillout
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8C9DEF8C41BE88D140F93BA01666E3D5879FE1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101013   (898085) от 05.02.2017
-
-VA - Chill Out Love Collection Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jocelyn Brown - It's You
-02. Hardage - Hysterical Years
-03. Electrokingdom - Big Time - VB Acoustic Mix
-04. Mamayo - Born to Love(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A819DD7845F96CB3DBC85EFF49A7F4522024EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101043   (898091) от 05.02.2017
-
-VA - Chill Out Love Collection Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cooley - Imagination Land
-02. Sansura - This is India - O.W.G Mix
-03. Luca Elle - U - Original Mix
-04. Hardage - So Bright(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:11:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A933C40DD66DBBCB27F13553A363B27BAA96F5D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100849   (898096) от 05.02.2017
-
-VA - The Garden Coffee Shop. Lounge Selection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project - In Silencio
-02. Enrico Donner - Side Chain Reactions
-03. Cane Garden Quartet - Love Goddess
-04. Baghira - Way Too Long(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C9F5EFF5162E8CEE7A2787D26C1A8683941FEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100923   (898100) от 05.02.2017
-
-VA - Ibiza Chillout Movement (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lamar Ensemble - Zero Hour
-02. Sweetadelic - Elevon
-03. Aqua Mundi - Mezcal Shadows
-04. The Sura Quintet - Keep Me Company(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2DBC2633BB2100A710D99D2CD60A19C000C651
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101068   (898109) от 05.02.2017
-
-VA - Chillout Lounge A Fine Selection Of Chillout & Ambient Moods (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  James Bright - Hidden Harbours (Original Mix)  5:18
-02.  Sweed - Finally (Original Mix)  5:21
-03.  Makkeroni - Never Without You (Original Mix)  5:25
-04.  Be.Lanuit - En El Aire (Original Mix)  4:52(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85BD30487AFE5CF2C293F24E1D448D5C250B33DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110715   (898359) от 26.03.2020
-
-Alexander Ananyev (Beautumn, Sleepy Town Manufacture, Dirty Owl) - Discography (2004-2017) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Ambient, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Owl Intro (00:16)
- 02. Scrappy (04:20)
- 03. Bill Gilbert Was Here (03:17)
- 04. Way Back (04:37)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Downtempo, Ambient, Minimal, Experimental •Продолжительность: 14:05:33 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E72441F48C2780B57146337E1DF9337DBB36CAF5
 ```
 
 

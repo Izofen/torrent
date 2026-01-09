@@ -1,3 +1,30 @@
+###  Публикация: 1102312   (891417) от 09.02.2017
+
+VA - Beatport Trance Pack (09.02.) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cold Blue & Johnny Yono - Fall Into Dusk (Original Mix)  6:49
+02.  Mark Van Gear - Mary My Lovely Pandita (Original Mix)  7:32
+03.  UDM - Tornado (Original Mix)  6:37
+04.  Oberon - Visions (Original Mix)  7:39(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 06:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:434E0D71E3BA8121190D9135A6650939349F8D25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994386   (891436) от 07.03.2016
 
 VA - Дискотека на 8 марта (2016) [MP3|256 кб/с-320 кб/с] <Pop, Dance>
@@ -667,33 +694,6 @@ VA - Beatport Electronic: Electro Sound Pack #38 (2020) [MP3|320 Kbps] <Syntheti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08A4A4C431A9AD35AE9987F3805F9DA673F4DA53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371397   (892037) от 30.03.2020
-
-VA - Time For Dreams: Chillout Zone (2020) [MP3|320 Kbps] <Chillout, Lounge, Ambient, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892037.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Albert Sokolov - Sea (Original Mix)
-002. Terje Saether - Tungtvann
-003. The Chill-Out Orchestra - Mother
-004. Peter Manson - Homeboy Hippi(   Читать дальше...   )Жанр: Chillout, Lounge, Ambient, DowntempoПродолжительность: 09:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F09898FB4E81262632DC6B5051771770773FC30
 ```
 
 

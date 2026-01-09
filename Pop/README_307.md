@@ -1,3 +1,243 @@
+###  Публикация: 1110641   (852032) от 03.03.2017
+
+VA - High Life International (1982) LP [MP3|320 Kbps] <Electronic,  Reggae, Pop Rock, Disco, New Wave, Europop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ABBA - Head Over Heels (3:48)
+02. Jon & Vangelis - I'll Find My Way Home (4:31)
+03. Roxy Music - More Than This (4:33)
+04. Status Quo - Dear John (3:14)(   Читать дальше...   )Жанр: Electronic,  Reggae, Pop Rock, Disco, New Wave, Europop, Synth-popПродолжительность: 2475 561
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:606731DB7B511647A8C422818F5992D262D96B10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001791   (852099) от 29.03.2016
+
+Niykee Heaton - The Bedroom Tour Playlist (2016) [FLAC|Lossless|tracks] <Pop, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I'm Ready (03:28)
+02.  Bad Intentions (Remix) (04:05)
+03.  Infinity (04:42)
+04.  Say Yeah (03:01)(   Читать дальше...   )Жанр: Pop, RnBПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF34070171D1101FD427123FFF729E17270CCB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498922   (852441) от 29.09.2021
+
+Neoton Familia - 21 Albums (1978 - 1989) Collection [MP3|320 Kbps] <Electronic, Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вероятно, самая популярная венгерская диско-группа Neoton Família (известная как Neoton в Испании, Newton (кратко) в Западной Германии, Neoton Familie в Восточной Германии и Newton Family в остальном мире) имела большой успех в Восточной Европе, Южной Америке и Азии с середины 70-х до конца 80-х годов. В раздаче присутствуют альбомы в исполнении на венгерском (   Читать дальше...   )Список альбомов:
+1978 - Neoton Disco
+1979 - Napraforgo
+1980 - Marathon(   Читать дальше...   )Жанр: Electronic, Disco, PopПродолжительность: 14:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4998665FD631CD6D13F75BA651E85E3D7527683B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 769909   (852983) от 24.03.2014
+
+Belinda Carlisle - A Woman & A Man (1996) [FLAC|Lossless] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  In Too Deep   (4:06)
+02.  California   (2:59)
+03.  A Woman And A Man   (5:12)
+04.  Remember September   (4:33)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5DD5A536727A4C03C3E7FA6605D9107CF9825CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377207   (853567) от 21.04.2020
+
+Marc Almond - Chaos and a Dancing Star (2020) [FLAC|Lossless|tracks + .cue] <Synthpop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Sunrise                                                         [05:45]
+02. Hollywood Forever                                                     [04:50]
+03. Chevrolet Corvette Stingray                                           [03:54]
+04. Dust                                                                  [04:35](   Читать дальше...   )Жанр: Synthpop, Indie PopПродолжительность: 01:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C01B81FF64B5E90A87D2B0A742F2B699304ABC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109797   (853594) от 02.03.2017
+
+Артём Пивоваров - Дискография (2013-2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 02:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7BEE1E04B786353D594BB88C6A13B1155B8553
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110298   (853677) от 02.03.2017
+
+VA - Disco Fox 80 Vol.7 (The Original Maxi-Singles Collection) (2016) [MP3|320 Kbps] <Euro-Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  T. Ark - Under Cover Lover (12'' Version)  6:13
+02.  Bad Boys Blue - Hungry For Love (12'' Version)  5:57
+03.  Mike Mareen - Dancing In The Dark (Galactica Remix)  7:09
+04.  The Twins - Time Will Tell (Dance Mix)  6:50(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:393EBAE5576856B6CBC05E6D830197DBDC6DAE9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110472   (853685) от 02.03.2017
+
+Tokio Hotel - Dream Machine (2017) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something New
+02. Boy Don't Cry
+03. Easy
+04. What If(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2687E615736FE6183F8BC6F9EDA023C8F56F2DC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001390   (853703) от 28.03.2016
+
+VA - Давид Тухманов - Вечная весна: Избранные песни (2001) [FLAC|Lossless|image + .cue] <Ретро, Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853703.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Наши любимые - ВИА "Песняры"
+2. Вечная весна - Валерий Ободзинский
+3. Соловьиная роща - Лев Лещенко
+4. Чистые пруды - Игорь Тальков(   Читать дальше...   )Жанр: Ретро, PopПродолжительность: 01:04:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A5D0F2FFDA49B244BBC859ABD83DECBA079920
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001011   (853789) от 28.03.2016
 
 Gino Soccio - 4 Albums, 1 Compilations (1979-1984) [MP3|320 кб/с] <Electronic, Disco>
@@ -453,249 +693,6 @@ Bebe Rexha - All Your Fault: Pt. 1 (2017) [FLAC|Lossless|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D46BDF486B7207B2F0DC7F361896ECF8C48DED33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109789   (857233) от 28.02.2017
-
-Waaktaar & Zoe - World Of Trouble (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долгожданный дебютный альбом нового проекта гитариста и основного композитора легендарной норвежской группы a-ha Пола Воктор-Савой (Pål Waaktaar-Savoy).01. Beautiful Burnout (3:55)
-02. Tearful Girl (4:01)
-03. World Of Trouble (3:57)
-04. Laundromat (3:59)(   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68BB0CDF1134AC5642532516449B5ACAA46F864
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000635   (857429) от 26.03.2016
-
-Cher - The Millennium Collection: The Best of Cher (2000) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gypsies, Tramps And Thieves [02:37]
-02. The Way Of Love [02:31]
-03. Take Me Home [06:47]
-04. Dark Lady [03:26](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC8CE360DA6E0621302D14BFD5CD7B616778EED0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000679   (857444) от 26.03.2016
-
-Cosmic Gal - Keep On Moving (1979) LP [MP3|320 кб/с] <Electronic, Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep On Moving   03:50
-02. Sindbad   03:42
-03. You're So Good   03:24
-04. Sergeant Pepper   04:33(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C12E6AB646E88BACE703F291730299D14782D077
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000839   (857498) от 26.03.2016
-
-Ardis - Love Addict (1994) [APE|Lossless|image + .cue] <Electronic, Reggae, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prayer For Africa [03:41]
-02. Sweet As Candy [04:00]
-03. Ain't Nobody's Business [03:12]
-04. Fugitive [03:21](   Читать дальше...   )Жанр: Electronic, Reggae, PopПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA54DA67BB4CE9106F990009F976DF8FBEA5AA9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000596   (857502) от 26.03.2016
-
-Masha Qrella - Keys (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ticket To My Heart
-02. Pale Days
-03. Keys
-04. Simple Song(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, ElectronicПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9A47D5663A979ED2B85C8C9E3290BB71EC284CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 319179   (858120) от 18.04.2020
-
-Bad Boys Blue - In The Mix (80s Best) (2002) [FLAC|Lossless|tracks + .cue]<Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're A Woman (Maxi Version)
-02. Pretty Young Girl (Extended Version)
-03. Kisses And Tears (Remix 1994)
-04. I Wanna Hear Your Heartbeat - Sunday Girl (Maxi Version)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:592E1BB83B548F97247FD39A08B23AB8249E81F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109310   (858660) от 27.02.2017
-
-VA - The Best Disco '80 (Syndicate) (1980) Unofficial Release [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billy Ocean - Stay The Night (4:01)
-02. La Flavour - Mandolay (6:21)
-03. Lipps, Inc. - Funky Town (8:08)
-04. Ottawan - You're O.K. (5:13)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F25E9D2D0CD3CC0A9DDF4F39219802C89693AE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376315   (858677) от 18.04.2020
-
-Spatial Vox - Cause Of Shining In Your Eyes (The 1'st Album) (2019) [FLAC|Lossless|image + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cause Of Shining In Your Eyes (4:09)
-02. Right To My Self (3:17)
-03. Call My Name (3:38)
-04. Love Will Never Die (4:06)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F0BF952A9A079225B95E38DE43CF2960DDC4B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376322   (858687) от 18.04.2020
-
-VA - 80's Revolution Dance Movement (2006) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Synth-pop, Italodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MC Dirty Dan - I Can't Forget (3:30)
-02. Dr Phones - Drop the Rules (3:24)
-03. Indiansphere - Don't Use No Violence (3:46)
-04. Perfect Times - Time (3:08)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, Synth-pop, ItalodanceПродолжительность: 01:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:380D00ED7A52553DB08DDF9CFAAB5402D20132B6
 ```
 
 

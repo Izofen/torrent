@@ -1,3 +1,165 @@
+###  Публикация: 1112791   (841543) от 09.03.2017
+
+lorian MSK - Le Vacarme De Diavel (2016) Zenon Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Psy-Trance, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L Insondable Grandeur De L Ombre (08:55)
+02. Resonances Tourmentees Du Comte De L Aube (07:43)
+03. Dissonances Letargiques (09:13)
+04. La Portail De La Coisee Des Vents (08:06)(   Читать дальше...   )Жанр: Techno, Psy-Trance, MinimalПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66342B48892B4BDE1411E24229CA9AC93138FE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003680   (841605) от 04.04.2016
+
+VA - Ten Years of Med School (2016) [MP3|320 кб/с] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etherwood & Royalston - Eyes On Me (05:44)
+02. Keeno - Nocturne (Frederic Robinson Remix) (04:03)
+03. The Erised - Pray (Bop Remix) (05:02)
+04. Etherwood & S.P.Y - We're Nothing Without Love (Ivy Lab Remix)(04:50)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F25D43E4D64A3A8A45852967EBD62F777DFD7DC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112587   (841634) от 09.03.2017
+
+VA - Cafe Paris The Essence of Chilled Moments (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stuce The Sketch - Chuki Ya Nini
+02. Puch - Inside a Machine
+03. Newton - Non Genuin
+04. Van - Familiar Person(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B834290E94D5421B21014BEEEB82AE067CF7509
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112652   (841638) от 09.03.2017
+
+VA - Intimacy Lounge Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lamar Ensemble – Inspirational Shortcut
+02. Rey Salinero – Recuerdos
+03. The Sura Quintet – Keep Me Company
+04. Diario – Ancient Stone Steps(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:02:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775CFCCBB456F89E74CA19D5B96BFC41246B752A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112765   (841645) от 09.03.2017
+
+VA - GOA Chill Pt.1 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oblomov - Rain Kiss
+02. Dyno - You Know About This - Ambient Mix
+03. Cyclodol - Dreamoff
+04. Amorph AA - Forgotten Love(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 00:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC029E3DF38E0850B5B57E5B24086A720A067E01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003739   (841692) от 04.04.2016
+
+Kiiara - Low Kii Savage EP (2016) [FLAC|Lossless|WEB-DL|tracks] <postrnb, futurebeats, noesoul, juke, pop, downtempo>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841692.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gold (03:46)
+2. Feels (03:03)
+3. Tennessee (04:21)
+4. Intention (03:50)(   Читать дальше...   )Жанр: postrnb, futurebeats, noesoul, juke, pop, downtempoПродолжительность: 00:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDEBF161B7B2123E1F45935ADE3225EBF78F542B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112826   (841727) от 09.03.2017
 
 VA - Hoch Die Hande Wochenende Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
@@ -535,168 +697,6 @@ Third Party - Release Radio 001:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EFBC161CDAD54D03A061C92E2AEE354680FD5D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499918   (844156) от 04.10.2021
-
-Yello - Yello 40 Years (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Synth-Pop, Techno, Electronic>
-
->>Electronic
->>Synthpop, New Wave, Retro (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844156.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - THE FIRST 20 YEARS:
-01. Bimbo (Remastered 2005) (3:35)
-02. Pinball Cha Cha (Remastered 2005) (3:24)
-03. The Evening's Young (Remastered 2005) (3:08)(   Читать дальше...   )Жанр: Synth-Pop, Techno, ElectronicПродолжительность: 04:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34AAEFD3E057D4C383C38B85B802D30996FE450
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499877   (844522) от 04.10.2021
-
-Eisfabrik - 10 Releases (Discography) (2015-2020) [MP3|320 Kbps] <Synthpop, Futurepop, EBM>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ice Crystal (3:53)
-02. Ice Crystal (Melting Point Mix) (6:12)
-03. New Signs (3:46)
-04. Ice Crystal (Bitter Cold Mix) (3:40)(   Читать дальше...   )Жанр: Synthpop, Futurepop, EBMПродолжительность: 07:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35BF66176748C159E55F057449F3C470F3FF8707
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112207   (844604) от 07.03.2017
-
-Depeche Mode - Where's the Revolution (Remixes) (2017) Single [FLAC|Lossless|tracks + .cue] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where's The Revolution (Album Version) (4:59)
- 02. Where's The Revolution (Ewan Pearson Remix) (8:36)
- 03. Where's The Revolution (Algiers Remix) (4:55)
- 04. Where's The Revolution (Terence Fixmer Remix) (6:23)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:29:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9FFBCE2DA30B9F1EB304906F75C09EA0792E4E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111957   (844839) от 07.03.2017
-
-NKOHA - autumn (2015) EP [MP3|192 Kbps] <Electronic, Cloud, Beat>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. destined 3:57
-02. for prince 4:24
-03. backroom 3:55
-04. then 3:36(   Читать дальше...   )Жанр: Electronic, Cloud, BeatПродолжительность: 00:22:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94F5E1EF6F1B8FABE2764B944D9BE95B94E00DC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112176   (844853) от 07.03.2017
-
-Moby - Suara Remixes (2017) [MP3|320 Kbps] <Techno, Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go (Victor Ruiz Remix) 09:19
-02. Porcelain (Julian Jeweil Remix) 06:31
-03. Natural Blues (Reinier Zonneveld's Homage Remix) 07:17
-04. Go (Victor Ruiz Warehouse Mix) 07:43(   Читать дальше...   )Жанр: Techno, Deep House, Tech HouseПродолжительность: 00:51:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36AEDF228A52E063F9C2C9B49C7CDCC166AE394D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112134   (845048) от 07.03.2017
-
-Beborn Beton - She Cried (2016) EP [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Cried (Single Edit) (4:25)
- 02. The Black Hit Of Space (Version) (4:55)
- 03. She Cried (Extended Club Remix) (6:21)
- 04. 24/7 Mystery (Remix by Val Solo of S.P.O.C.K.) (3:53)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAFC97E32B94C51799A3450E3DDD3755CBB67A0C
 ```
 
 

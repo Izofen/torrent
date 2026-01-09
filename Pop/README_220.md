@@ -1,3 +1,111 @@
+###  Публикация: 912439   (612388) от 25.06.2015
+
+Фристайл - Кораблик любви (Переиздание) (1997) [FLAC|image +.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Фонари (А. Розанов - Т. Назарова)"
+02. "Старый клён (А. Розанов - С. Кузнецов)"
+03. "Кораблик любви (А. Розанов - Т. Назарова)"
+04. "Белая орхидея (А. Розанов - Т. Назарова)"(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E410D207A5FD1C0694CBCE0E59F5F356C6EAFB2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912269   (612400) от 25.06.2015
+
+Pomplamoose - Besides (2015) [MP3|320 кб/с]<Indie Pop, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 I'm the Shit 03:03
+02 I Feel Good 02:43
+03 Come Together 02:47
+04 Like A Prayer 03:14(   Читать дальше...   )Жанр: Indie Pop, Female VocalПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DBE34A40B556CA908037BD7B644074C1E3B11D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912270   (612429) от 25.06.2015
+
+Tori Kelly - Unbreakable Smile (2015) Target Edition [MP3|320 кб/с]<Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where I Belong (1:27)
+02. Unbreakable Smile (3:49)
+03. Nobody Love (3:23)
+04. Expensive (Feat. Daye Jack) (3:27)(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D41F3A5E5102CDBA9F4071D4DF5A0E2166ED4EB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520546   (612467) от 30.06.2017
+
+Иванушки International - Лучшая Коллекция (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Реви
+ 02. Фонари
+ 03. Этажи
+ 04. Зачем вы, девочки, любите белобрысых(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC91393042F5CE881F3FC74A3C2B4B1987DB42CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912218   (612576) от 25.06.2015
 
 XENA - Ксенофаризм (2015) [MP3|320 кб/с]<Pop>
@@ -458,6 +566,33 @@ magnet:?xt=urn:btih:56EA729906688C33DCA470D9A7401B42BFC0DC05
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 631739   (614325) от 29.06.2017
+
+Иванушки International - Лучшее (2003) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_614325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Безнадега точка ру (new) [3:46]
+02. Золотые облака (new) [4:27]
+03. Капелька света (new) [4:45]
+04. Облако волос (new) [4:08](   Читать дальше...   )Жанр: PopПродолжительность: 01:19:37
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911843   (614495) от 24.06.2015
 
 VA - Fabulous Flips (1993) [MP3|320 кб/с]<Oldies, Soul, R&B, Rock'n'Roll>
@@ -539,169 +674,34 @@ magnet:?xt=urn:btih:A5576F419029D381992391DAA6466518B9C6A0A3
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545405   (614904) от 19.04.2022
+###  Публикация: 523850   (614617) от 17.07.2012
 
-Michael Ball - The Musicals (1996) [FLAC|Lossless|image + .cue] <Vocal, Musical, Soundtrack>
+VA - Grand 12 Inches 9 (2012) 4CD (Compiled by Ben Liebrand) [FLAC|Lossless]<Italo-Disco, Disco, Electro, Disco-Funk, Funk>
 
 >>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614904.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_614617.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. All I Ask Of You (Phantom Of The Opera)
-02. Something's Coming (West Side Story)
-03. Losing My Mind (Follies)
-04. Memory (Cats)(   Читать дальше...   )Жанр: Vocal, Musical, SoundtrackПродолжительность: 00:51:13
+Grand 12 Inches Volume 9 (дата выхода - 12 июня 2012г.) - отличный сборник от Бена Либранда (Ben Liebrand) - одного из основателей студийного ди-джеинга в Европе. Рекомендуется для углублённого изучения музыки стиля Диско. Моё же личное мнение - в данной компиляции Диско-Фанка всё-таки чуть больше, чем "чистого" Диско. А впрочем, смешение направлений нисколько не мешает назвать данный сборник приятным во всех отношениях, за что Бену - огромное спасибо!01. Donna Summer - Could It Be Magic (Full Version With Prelude To Love) :: 06:26
+02. Earth, Wind & Fire - Getaway (12'' Version) :: 05:13
+03. Karen Young - Hot Shot (12'' Version) :: 08:36
+04. Bobby Thurston - You Got What It Takes (12'' Version) :: 09:37
+05. Grace Jones - Pull Up To The Bumper (Unedited Extended Album Version) :: 07:23
+06. Tina Turner - Goldeneye (Morales Club Mix) :: 10:05
+07. Georgio - Lovers Lane (New After Hours Vocal Remix) :: 06:09
+08. Unique - What I Got Is What You Need (Vocal) :: 06:26
+09. Imagination - Music And Lights (Maxi Single) :: 05:20
+10. Salt 'N' Pepa - Let's Talk About Sex (Original Recipe Mix Club) :: 06:00(   Читать дальше...   )Жанр: Acid House, Latin, Hi NRG, Disco, Electro, Disco-Funk, FunkФормат: 4xCD, Compilation, UnmixedПродолжительность: 05:14:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA7DDB4E98D19D197F7CB62513D2DA90D76A9158
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523965   (614947) от 17.07.2012
-
-На-На - Лучшая Коллекция (2012) [MP3|320 кб/с]<Рор>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я люблю тебя
- 02. Эксимос и папуас
- 03. Эй,санам
- 04. Соловей-разбойник
- 05. Не знаю
- 06. Месяц май
- 07. Рыбка моя
- 08. Бабушка Яга
- 09. Чудная
- 10. Фаина(   Читать дальше...   )Жанр: РорПродолжительность: 01:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB90374355FA419D0702955521C5909B2525C2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036887   (615086) от 23.07.2016
-
-Время и Стекло - #Глубокий дом (2015) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Имя 505 [03:26]
-02. Ритм 122 [04:24]
-03. Опасно 220 [02:57]
-04. Песня 404 [03:34](   Читать дальше...   )Жанр: PopПродолжительность: 00:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F60D49466ADA2FB24418A17B4648BE504B0055E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296001   (615132) от 15.04.2019
-
-VA - 100 Greatest Chilled Pop (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Club>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rudimental / Jess Glynne / Macklemore / Dan Caplen : These Days (feat. Jess Glynne, Macklemore & Dan Caplen) [00:03:31]
-02. Fleetwood Mac : Everywhere (2017 Remaster) [00:03:46]
-03. Dua Lipa : Be The One [00:03:22]
-04. All Saints : Pure Shores [00:04:28](   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B758D16310C90C433D7805893F7C8B3458E65D0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295758   (615133) от 15.04.2019
-
-VA - 100 Greatest Summer Songs (2019) [MP3|320 Kbps] <Rock, Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615133.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)
-002. Fleetwood Mac - Everywhere (2017 Remaster)
-003. Dua Lipa - Be The One
-004. All Saints - Pure Shores(   Читать дальше...   )Жанр: Rock, Pop, DanceПродолжительность: 06:26:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:084DEB52D4B72F51D3022611233BD3DD4B88AC3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296006   (615139) от 15.04.2019
-
-Westlife - Westlife (1999) [FLAC|Lossless|image + .cue] <Europop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swear It Again
-02. If I Let You Go
-03. Flying Without Wings
-04. Fool Again(   Читать дальше...   )Жанр: Europop, BalladПродолжительность: 01:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D72885DDAEE61FB7AB7A318E912462A8F376222A
+нет
 ```
 
 

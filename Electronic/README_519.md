@@ -1,3 +1,165 @@
+###  Публикация: 1620883   (1031193) от 24.03.2023
+
+Технология - Мне Не Нужна Информация (1992) Reissue, Remastered, 2003, JAM Group International [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песни ни о чем   (House Mix)
+02. Шутник   (House Mix)
+03. Информация
+04. Холодный след   (16' Mix)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:59:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E684453E5E5664E494F76D31DA73D32E6CBC1C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620997   (1031220) от 24.03.2023
+
+Laibach - Sketches Of The Red Districts (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Neo-Classical, Experimental, Ambient, Spoken-Word>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - 01. 06. 1924 [00:04:09]
+02 - Glück Auf! [00:06:33]
+03 - Moralna Zaslomba [00:05:09]
+04 - Smrt In Pogin [00:06:08](   Читать дальше...   )Жанр: Industrial, Neo-Classical, Experimental, Ambient, Spoken-WordПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC10EBBF5FAB8C51AE1D6E42911A934A855DF978
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620882   (1031227) от 24.03.2023
+
+VA - Techno Club Vol. 68 (Mixed by Talla 2XLC x Metta & Glyde) (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tillmann Uhrmacher - On The Run (Talla 2XLC Extended Remix) [6:21]
+02. Vimana - Dreamtime (Johan Gielen Extended Remix) [7:24]
+03. Talla 2XLC - Ragnaroek (Extended Mix) [6:46]
+04. Allen Watts - Mainframe (Extended Mix) [6:14](   Читать дальше...   )Жанр: TranceПродолжительность: 06:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C7A247713E8EBA1777BEC5AEC1C25EAE6B7B6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447807   (1031348) от 15.02.2021
+
+VA - Mitote: The Dream Of Reality (Compiled by Agz) (2021) [FLAC|Lossless|tracks + .cue] <Psytrance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endeavour - Supra (6:36)
+02. OxyFlux & Shenanigan - Sensient Hill (7:41)
+03. Act One & Mowgli - Competitive Bricklaying (7:10)
+04. Juanmad - Be Animal (6:40)(   Читать дальше...   )Производство: Protoned MusicЖанр: PsytranceПродолжительность: 01:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:847F66F70D5DFCE9E24F682F889A3A0C36366421
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447895   (1031375) от 15.02.2021
+
+VA - Coffee in Bed Lounge: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Peter Pearson - Hitching a Ride to Paradise (Original Mix)
+02 Michael E - Infinite Beauty (Original Mix)
+03 Weathertunes - Wait for Me
+04 Roberto Sol & Nera - Sensuality (Ballad mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03F527E56F177EB2C9F74B9F9EADC3E6505202BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447595   (1031627) от 14.02.2021
+
+VA - Luxury Chillout Lounge (2021) [MP3|320 Kbps] <Lounge, Vocal, Chillwave>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive, Genius Jane – Forever 4:58
+02. Inventors Of The Sun – Opium Lovers 5:24
+03. Lounge Deluxe, Jeela – Beautiful Man (Beatless) 6:07
+04. S.W. – I Am The Walrus 4:34(   Читать дальше...   )Жанр: Lounge, Vocal, Chillwave, Soulful, Downtempo, Nu-Jazz, Light-MusicПродолжительность: 01:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F80AB503A6550621E4511079273B5D29BE476442
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447581   (1031657) от 14.02.2021
 
 VA - Magic Of Trance Vol 12 (Mixed by Vito Von Gert) (2021) [MP3|320 Kbps] <Trance, UpliftingTrance>
@@ -531,163 +693,6 @@ Eguana - Resurrected (2023) [MP3|320 Kbps] <Electronic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68084D747F75DA5CEF12F299844551F68F15BDAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620376   (1032330) от 19.03.2023
-
-Kx5 & deadmau5 & Kaskade - Kx5 (2023) [FLAC|Lossless|WEB-DL|tracks] <EDM, Club House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alive (ft. The Moth & The Flame) (5:09)
- 02. Sacrifice (ft. Sofi Tukker) (4:40)
- 03. Escape (ft. Hayla) (4:00)
- 04. Bright Lights (ft. AR/CO) (3:23)(   Читать дальше...   )Жанр: EDM, Club House, TechnoПродолжительность: 00:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FCB04CBAF3184AF907BC77975BCD203AD89C582
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620200   (1032356) от 19.03.2023
-
-Beborn Beton - Darkness Falls Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Monstrosity [00:06:16]
-02. Dancer In The Dark [00:05:22]
-03. Last Chance [00:04:29]
-04. Trockenfallen Lassen [00:05:30](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9864A0AEF5DFDABC85CB9BFFCFFC8865EF1ECF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126472   (1032459) от 10.02.2021
-
-Donato Dozzy | Voices From The Lake - Discography 53 Releases (2004-2020) Spectrum Spools, Further, Spazio Disponibile [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, Experimental, Minimal ...
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Volo 1 (06:59)
- 02. Volo 2 (07:22)Тип издания: CD, Web, VinylЖанр: Techno, Ambient, Experimental, Acid, Minimal •Продолжительность: 24:24:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A4311D429504AF19CCE948B667EE9B28353BD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446827   (1032463) от 10.02.2021
-
-Low Khey - Never Trust A Cyborg (2021) Comic Sans Records [FLAC|Lossless|WEB-DL|tracks] <Broken Beat, Dub, IDM, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Trust A Cyborg (01:37)
- 02. Control X (03:22)
- 03. Huta Vibz (03:58)
- 04. Click Of Death (03:38)(   Читать дальше...   )Жанр: Broken Beat, Dub, IDM, ExperimentalПродолжительность: 00:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10D1651DABC6BDB2CFE67F177F291E9E3AD322F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279798   (1032470) от 10.02.2021
-
-Reid W. Dunn (Wisp, RWD, Dwaallicht, Entsounds) - Discography 11 Releases (2005-2020) Rephlex, Sublight Records [FLAC|Lossless|tracks+.cue, tracks] <IDM, Breakcore, Electro, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. remember5 (03:56)Тип издания: CD, Web, VinylЖанр: IDM, Breakcore, Electro, Ambient •Продолжительность: 08:14:54 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F02F680A985E1BC1B55BD74E6AACB01AC01909
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620056   (1032536) от 18.03.2023
-
-Sovereign - Rewired (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Cyber Metal>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To The Stars [00:03:27]
-02. Uncharted World [00:04:31]
-03. Robot Party [00:02:49]
-04. Monkey Island [00:03:46](   Читать дальше...   )Жанр: Instrumental Cyber MetalПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A64175E854A50EDE05B374484C84B4C7656666B
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1477142   (1011320) от 13.06.2021
+
+Shingo Nakamura - Glow (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shingo Nakamura - Commence
+02. Shingo Nakamura - Phenomena
+03. Shingo Nakamura; Brandon Mignacca - Darling Midnight
+04. Shingo Nakamura - Before You Go(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:31:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7F7820C2A6AA2BD2C1EFB6E5F2633945AF34A24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477139   (1011344) от 13.06.2021
+
+VA - Moodswings 3 (2021) [FLAC|Lossless|Web-DL|tracks] <Drum & Bass, Liquid Funk>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Villem, McLeod, Leo Wood - Siren (5:14)
+02. Riya - Ripples (4:54)
+03. Technimatic - Mirror Image (Phaction Remix) (5:20)
+04. Terror, Imogen Storey - Into You (Cyantific Remix) (4:14)(   Читать дальше...   )Производство: Spearhead Records - SPEAR130Жанр: Drum & Bass, Liquid FunkПродолжительность: 01:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BDB169E924F6AEC02B2B62FF7862682E663405A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477031   (1011349) от 13.06.2021
+
+Doctrina Natura - The Fire Of The Beginning Of Time (2021) Alexandar [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children Of The Same Goddess (06:00)
+ 02. Of Sand Is Made The Flesh (08:03)
+ 03. Those Who Have Left (05:03)
+ 04. Ancestral Blood (06:34)(   Читать дальше...   )Жанр: Techno, Acid, AmbientПродолжительность: 00:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E0E714FD1B297680D87ABC250CF80A777BFFA54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477014   (1011353) от 13.06.2021
+
+Adam Kroll - Mutants (2021) Subtempo [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Dub, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Phoenix (03:50)
+ 02. Nicodemus Pulse (05:28)
+ 03. Good Bye Garbha-Hsien (05:00)
+ 04. Neo (04:18)(   Читать дальше...   )Жанр: Dub Techno, Ambient, Dub, ExperimentalПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1B015E2C2227D4A95394FB4900D62E0F763BCD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477150   (1011355) от 13.06.2021
+
+VA - Jungle Ballad EP (2014) [FLAC|Lossless|Web-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bcee – Breath In (4:52)
+02. Roygreen & Protone – Raindrop (5:12)
+03. Rowpieces – Jungle Ballad (5:54)
+04. Roygreen & Protone – Renaissance (5:41)Производство: Fokuz Recordings – FOKUZ069Жанр: Drum & BassПродолжительность: 00:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E436B3433B05DF68202BE5267CAD1C9043B2FC61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215670   (1011474) от 12.06.2021
+
+The Gnome | Gnome & Spybey - Discography 16 Releases (2010-2021) Crime League, Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cancel Your Tomorrow (03:50)
+ 02. To Be The Sun In Flight (05:46)
+ 03. Long And Short (14:03)
+ 04. Born To Fly (06:00)(   Читать дальше...   )Тип издания: WebЖанр: Ambient, Experimental, Drone •Продолжительность: 12:05:38 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E7A53679C629E76DC5DE3A56089DC981FFAF479
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476817   (1011479) от 12.06.2021
 
 Marvel83' - Atlantis (2021) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Retrowave, Synthwave>
@@ -532,168 +694,6 @@ Dani Corbalan - Best of Dani Corbalan (2020) [FLAC|Lossless|WEB-DL|tracks] <Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19140CD29968A714B45078C22646BDA9736FF362
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474322   (1013066) от 02.06.2021
-
-Gambusia - Artist Series: Gambusia (2021) Superordinate Dub Waves [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gaster (05:50)
- 02. Heron (04:42)
- 03. Perch (05:41)
- 04. Koel (05:52)(   Читать дальше...   )Жанр: Dub Techno, Ambient, Deep TechnoПродолжительность: 00:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F91790EB87703A2ECD14FD48530F52FA18C4E151
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474167   (1013227) от 01.06.2021
-
-GusGus - Mobile Home (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Tech House, Synthpop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stay The Ride
-02. Higher (feat. Vök)
-03. Simple Tuesday
-04. Love Is Alone (feat. John Grant)(   Читать дальше...   )Жанр: House, Tech House, SynthpopПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:809C48E2E20BD82F736598053381A8207C396E5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473533   (1013531) от 30.05.2021
-
-Penelope Trappes - Penelope Three (2021) [MP3|320 Kbps] <Dark Ambient, Shoegaze>
-
->>Electronic
->>Ambient, Experimental, Modern Classical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Veil
-02. Nervous
-03. Forest
-04. Fur & Feather(   Читать дальше...   )Жанр: Dark Ambient, Shoegaze, Trip-HopПродолжительность: 00:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5710403F141F7AA95F2DAA3EAD319BDD20F1A90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473597   (1013557) от 30.05.2021
-
-Penelope Trappes - 5 CD (2017-2021) [FLAC|Lossless|WEB-DL|tracks] <Dark-Ambient, Shoegaze, Trip-Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Veil [00:01:44]
-02. Nervous [00:04:24]
-03. Forest [00:04:51]
-04. Fur & Feather [00:03:04](   Читать дальше...   )Жанр: Dark-Ambient, Shoegaze, Trip-HopПродолжительность: 5 CD, 02:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DA8BB58FC902243A74CD246DD6BA5699C5F3118
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473394   (1013678) от 29.05.2021
-
-VA - Maretimo Chillhouse Flight, Vol. 1 - Join This Spheric Lounge Trip (2021) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pascal Dubois - House on the Beach (Chillers Mix)
-02. Airstream - Night Affair (1 AM Remastered Mix)
-03. The Smooth Commander - Nightflight to New York (5th Avenue Remastered Cut)
-04. Adriatic Grooves - Ibiza Overflight (Vibes & Bytes Mix)(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 01:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E0EF88426FE60E510445BCB63C1AD439BA1F91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473423   (1013727) от 29.05.2021
-
-Lårry (Larry) - Nines (2021) Awkwardly Social [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno, IDM, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Hard To Leave This Place (05:29)
- 02. Emshen (04:23)
- 03. Nines (04:41)
- 04. What Can Be Done When Nothing Can Be Done (04:43)Жанр: Electro, Techno, IDM, AmbientПродолжительность: 00:19:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09D5F268E027926EE61DD1CE50169D6E4C2751FB
 ```
 
 

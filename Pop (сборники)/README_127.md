@@ -1,3 +1,30 @@
+###  Публикация: 1473989   (1013329) от 31.05.2021
+
+VA - 80s Hits Essentials (2021) [MP3|320 Kbps] <Disco, Pop, Rock, RnB>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toto - Africa
+02. Def Leppard - Pour Some Sugar On Me (Remastered 2017)
+03. Matthew Wilder - Break My Stride
+04. Bobby Brown - My Prerogative(   Читать дальше...   )Жанр: Disco, Pop, Rock, RnBПродолжительность: 07:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A53B3BE235328526B3099C712EE15F37C7B9548
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473984   (1013364) от 31.05.2021
 
 VA - The Best Mother's Day Album In The World...Ever! (2021) [MP3|320 Kbps] <Pop, Rock, RnB>
@@ -665,33 +692,6 @@ VA - German Top 100 Single Charts 30.04.2021 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFEF8B5695588800890B260F5A443CF89C5514C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464501   (1019761) от 22.04.2021
-
-VA - National Pop Dance Music (Vol.15/1) (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка, которая всегда будет неотъемлемой частью жизни каждого человека, в большей степени или в меньшей. А если эта музыка еще и отличного качества и понравившегося Вам стиля, то Ваше настроение всегда будет на высоте. Представляет вам сборник из 155 популярных песен со всех концов света, в компании с которыми жизнь покажется гораздо веселее!001. Jonas Blue - Something Stupid
-002. Smith & Thell - Radioactive Rain
-003. Dash Berlin - No Regrets
-004. Benny Benass - Lovelife(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D5284BFB3BC0B865A6C24D2BE6F2DF9E637E25D
 ```
 
 

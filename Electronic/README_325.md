@@ -1,3 +1,161 @@
+###  Публикация: 1032637   (643549) от 08.07.2016
+
+Adrika - Prana (2016) [FLAC|Lossless|WEB-DL|24Bit|tracks] <Psybient, Downtempo, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earthunity (05:56)
+02. Daydream (05:37)
+03. Prana (06:08)Жанр: Psybient, Downtempo, Progressive TranceПродолжительность: 00:17:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046ABC92FA811365BC0BC4F0277FA26B74D404CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032630   (643906) от 08.07.2016
+
+York - Traveller (2016) [MP3|320 Kbps] <Chillout, Downtempo, Progressive Trance, Progressive House>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. York With Nathan Red & Kim Sanders - How Did I Fall In Love? (8:01)
+02. York Ft. R.I.B & Seven24 & J.Stenzel - Salty Belle (6:21)
+03. York Ft. Ginger Mackenzie - My Ship (4:20)
+04. York - Traveller (4:17)(   Читать дальше...   )Жанр: Chillout, Downtempo, Progressive Trance, Progressive HouseПродолжительность: 02:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74478AEB6A14410F4E2019D08CAD3A8B10673E73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283162   (644233) от 03.04.2022
+
+Marga Sol • Discography + M-Sol Records & Sublabels: Chill 'N Chill Records, Urban Orange Music • Compilations Collection - 387 Releases (2008-2022) [MP3|320 Kbps] <Chillout, Lounge, Downtem ...
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Marga Sol
+M-Sol Records (Give a Better Sound Of Your Life)
+Urban Orange Music (Urban Music for Urban People)
+Chill 'N Chill Records (Chillout Your Mind)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, Ambient, Smooth Jazz, Deep House, World, Funk, SoulПродолжительность: 496:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A9176D7492B44626CC27F0CDF15501DA6FD51A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 137923   (644397) от 03.04.2022
+
+Freeland - Cope™ (Jun-08-2009) [FLAC|Lossless]<Electronic, Rock, Electro, Breaks>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You 3:31
+02. Under Control 4:04
+03. Strange Things 4:16
+04. Bring It 5:40(   Читать дальше...   )Жанр: Electronic, Rock, Electro, BreaksПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE1380C4FBDD727D1314947C7905342EDDF102EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142370   (644461) от 13.06.2017
+
+Нейромонах Феофан - А теперь поёт медведь (2017) Single [MP3|320 Kbps] <Drum & Bass, Electronic>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644461.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. А теперь поёт медведьЖанр: Drum & Bass, ElectronicПродолжительность: 00:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85AA21E3A6064C732D4F03904421AED4AA0A940C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142235   (644469) от 13.06.2017
+
+Igorrr - Savage Sinusoid (2017) [FLAC|Lossless|tracks+.cue] <Breakcore, Black Metal, Baroque, Death Metal, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viande (01:55)
+ 02. ieuD (03:55)
+ 03. Houmous (03:32)
+ 04. Opus Brain (05:26)(   Читать дальше...   )Жанр: Breakcore, Black Metal, Baroque, Death Metal, ExperimentalПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2AC30A5A60EE90D26139175C11B931DE1AF033C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142142   (644603) от 13.06.2017
 
 Robin Schulz & David Guetta & Cheat Codes - Shed A Light (The Remixes Part 2) (2017) [FLAC|Lossless|WEB-DL|tracks] <House>
@@ -533,168 +691,6 @@ Chris van Buren - New Horizons (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAA86315DE77D43AD30BB122D788B344A2662281
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 344431   (645204) от 05.06.2011
-
-GusGus - Arabian Horse (2011) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_645204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Selfoss
-02. Be With Me
-03. Deep Inside
-04. Over(   Читать дальше...   )Жанр: House, Downtempo, Tech HouseПродолжительность: 00:59:30
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292706   (645281) от 30.03.2019
-
-Chris van Buren - Hope and Destiny (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Limits of Our Frontier (5:40)
-02. Destination Mars (6:40)
-03. Spirit (6:11)
-04. Opportunity (6:00)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE6D258EF585C489944CCB75E581AE461C69BF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292545   (645287) от 30.03.2019
-
-H1987 - ODYSSEY (2018) [FLAC|Lossless|Web-DL|tracks] <Ambient, Downtempo, Trip Hop, Chillwave>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I (3:24)
-02. II (5:00)
-03. III (4:38)
-04. IV (4:31)(   Читать дальше...   )Жанр: Ambient, Downtempo, Trip Hop, ChillwaveПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32FEF58E2C5985CC988F7294DC90A666B36B4802
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906367   (645539) от 08.06.2015
-
-VA - Ibiza Deep House Vol 1 (2015) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert Reston - I'm Sending You (03:36)
-02. Blackman - Everybody (Nu York Lights Mix) (03:36)
-03. Don Major - At Sunset (03:35)
-04. Frank Scozzi - Unconsciousness Without Limits (03:33)(   Читать дальше...   )Производство: Liquid Lounge RecordingsЖанр: Deep HouseПродолжительность: 01:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AE2B509E8B78F5FFB620D8D7FD9A09AD9E892DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032041   (645693) от 07.07.2016
-
-Chiptune Radio - 8-bit tribute to The Offspring (2015) [FLAC|Lossless|tracks] <8bit, Punk, Rock>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretty Fly
-02. Self Esteem
-03. Come Out and Play
-04. Genocide(   Читать дальше...   )Жанр: 8bit, Punk, RockПродолжительность: 01:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41AD4CD631AD0F2BE99EB8292F8A0914F87E558
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032091   (645950) от 07.07.2016
-
-VA - Progressive Goa Trance Vol. 2 (2016) [MP3|320 Kbps] <Trance, Psy Trance, Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monolock -  Proggy Froggy 9:02
-02. Flucturion 2.0 -  Paper-layered Panorama 6:46
-03. Inkel -  Pulsating Vibe 7:06
-04. Nature & Norma Project -  Digital Age 7:29(   Читать дальше...   )Жанр: Trance, Psy Trance, Goa TranceПродолжительность: 02:27:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DE7CB681515AE10F3AFB90A9F0929A3462A7CD9
 ```
 
 

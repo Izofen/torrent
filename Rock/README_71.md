@@ -1,3 +1,57 @@
+###  Публикация: 1132698   (700828) от 09.05.2017
+
+The Rubettes - The Singles Collection (1992) [MP3|320 Kbps] <Rock & Roll, Pop Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugar Baby Love
+02. Tonight
+03. Juke Box Jive
+04. I Can Do It(   Читать дальше...   )Жанр: Rock & Roll, Pop Rock, GlamПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36B01EC6F6D5532456EFBBA1F9243DDB7D10CA26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402314   (701715) от 14.08.2020
+
+Скрябін - Про любов - InOrganik (Remixed) (2020) [MP3|320 Kbps] <Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701715.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Про любов (Budapest Pop-Mix)
+2. Парасолі (Budapest Pop-Mix)
+3. Хлопці-Олігархи (Budapest Pop-Mix)
+4. Вибач (VSTeam Remix)(   Читать дальше...   )Жанр: Rock, ElectronicПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:241BF16E0600255FB7E7B89E407674FB62624E17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1533646   (703218) от 25.02.2022
 
 Антитіла - MLNL (2022) [MP3|320 Kbps] <Rock>
@@ -644,54 +698,6 @@ Bryan Adams - Shine a Light (2019) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FE12DB83A681DEC39F0FBA102AB35D706008E3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 207691   (717193) от 08.06.2010
-
-Emerson, Lake & Palmer - From the Beginning [5 CD Boxset] (2007) [MP3|320 kbps]<Progressive rock, Symphonic rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_717193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive rock, Symphonic rock
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 208384   (717437) от 08.06.2010
-
-The Mamas & The Papas - All The Leaves Are Brown: The Golden Era Collection (2CD) (2001) [MP3|320 kbps]<Pop-Rock,Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_717437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop-Rock, Folk-Rock
-
-## Скачать торент
-```bash
-нет
 ```
 
 

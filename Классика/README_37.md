@@ -1,3 +1,84 @@
+###  Публикация: 1121732   (799617) от 03.04.2017
+
+Isao Tomita - Different Dimensions (1997) [FLAC|Lossless|tracks + .cue] <Electronic, Modern Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Debussy: Snowflakes Are Dancing (2:14)
+02. Villa-Lobos: Dawn Chorus (5:41)
+03. Ravel: Bolero (9:17)
+04. Moussorgsky: Ballet of the Chicks in Their Shells (1:09)(   Читать дальше...   )Жанр: Electronic, Modern ClassicalПродолжительность: 01:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACE20B440AF5F6CA742A1246DDBFE1B353699ADD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199714   (800069) от 17.01.2018
+
+VA - 50 Piano Masterworks (2017) [MP3|320 Kbps] <Classical>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800069.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Helene Grimaud  -  Johann Sebastian Bach (Partita or Violin Solo No.3 in E Major, BWV 1006 - 1. Preludio)  3:42
+02.  Emil Gilels  -  Edvard Grieg (Lyric Pieces Book X, Op.71 - 3. Puck)  1:43
+03.  Alice Sara Ott  -  Frederic Chopin (Waltz No.1 in E flat, Op.18 - 'Grande valse brillante')  5:43(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5553547482ECB25422B466698D0B24F373BBCD24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199761   (800142) от 17.01.2018
+
+Riccardo Muti & Wiener Philharmoniker - New Year's Concert 2018 (2018) 2CD [FLAC|Lossless|tracks + .cue] <Classical, Orchestral>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freikugeln, Polka schnell, op. 326 (2:48)
+ 02. Geschichten aus dem Wienerwald, Walzer, op. 325 (12:29)
+ 03. Festmarsch, op. 452 (4:10)
+ 04. Stadt und Land, Polka Mazurka, op. 322 (4:23)(   Читать дальше...   )Жанр: Classical, OrchestralПродолжительность: 01:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473F470FDAB6C2BBFC0F28F3D7642BB0CA0B4D75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506102   (800830) от 30.10.2021
 
 VA - Best of Classical Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental>
@@ -612,90 +693,6 @@ Concerto for Harpsichord in E major, BWV 1053 by Johann Sebastian Bach
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:042808C64DDB7D33CE11D614DB98E5E7766CCBBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007732   (819161) от 16.04.2016
-
-The Florestan Trio - Schubert. Piano Trio No 2 In E Flat Major, D929 (2002) [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Piano Trio No. 2 in E flat major, D929: 1. Allegro  15:43
-02.  Piano Trio No. 2 in E flat major, D929: 2. Andante con moto  8:34
-03.  Piano Trio No. 2 in E flat major, D929: 3. Scherzo: Allegro moderato  6:19
-04.  Piano Trio No. 2 in E flat major, D929: 4A. Finale: Allegro moderato (Final version)  12:57(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:123B84395BC0CB8B1582EDA38D08D3D5FC75DB9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007827   (819312) от 16.04.2016
-
-Alfred Schnittke - Concerto Grosso no. 4 = Symphony no. 5, Pianissimo (Jarvi - Gothenburg SO) (1988) [FLAC|Lossless|tracks] <Classical, Symphony, Concerto>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto Grosso no. 4 = Symphony no. 5, 1988
-01 (1) Allegro
-02 (2) Allegretto
-03 (3) [3.1- Lento; 3.2- Allegro](   Читать дальше...   )Жанр: Classical, Symphony, ConcertoПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99831B0DA777CA943179BA8CB7197DEA69BE8461
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 880887   (820472) от 27.03.2015
-
-Arnold Schoenberg - Gurrelieder [2 SACDs] (2007) [DSD 5.1, 2.0 1bit/2822,4kHz | SACD-R] [FLAC|Lossless]<Classical - Vocal>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kомпозитор: Шёнберг Арнольд Франц Вальтер (1874-1951)
-Дирижер: Гилен Михель
-Исполнитель: Дин Смит Роберт, тенор ~ Динер Мелани, сопрано ~ Лукас Ралф, баритон ~ Неф Ивонн, меццо ~ Шмидт Андреас, баритон ~ Зигель Герхард, тенор
-Ансамбль: Хор Баварского радио ~ Хор Лейпцигского радио ~ Симфонический оркестр Юго-Западного радио Германии(   Читать дальше...   )Schoenberg: Gurre-Lieder
-Disc 1:
-Gurre-Lieder: Part I
-01. Orchestral Prelude (6:24)(   Читать дальше...   )Жанр: Classical - VocalПродолжительность: 02:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6196C6EB15FF3A72B68145630DE42D361674AF0E
 ```
 
 

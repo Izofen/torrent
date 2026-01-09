@@ -1,3 +1,30 @@
+###  Публикация: 1462534   (1021002) от 15.04.2021
+
+Taylor Swift - Fearless (Taylor's Version) (2008) 2CD / Target Exclusive / 2021 [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, & Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fearless (04:02)
+02. Fifteen (04:54)
+03. Love Story (03:56)
+04. Hey Stephen (04:14)(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 01:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85079D5BC4BB75110FB03B3680DC5C8A5733CCF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462163   (1021324) от 13.04.2021
 
 гр. Тяни-толкай - 3000 шагов. Баллады (2005) [FLAC|Lossless|tracks + .cue]<Pop>
@@ -665,33 +692,6 @@ Caravelli (12.09.1930, Paris, France – 1.04.2019, Cannet, France) - руков
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC266457423E038F89A6D7AB0086A68D61B4C713
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453167   (1027180) от 09.03.2021
-
-Lana Del Rey - Chemtrails Over The Country Club (2021) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Dress [00:05:33]
-02. Chemtrails Over The Country Club [00:04:31]
-03. Tulsa Jesus Freak [00:03:35]
-04. Let Me Love You Like A Woman [00:03:20](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62AA95887E026D359C3FF6FC254F67AFAB884F45
 ```
 
 

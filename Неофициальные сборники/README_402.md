@@ -1,3 +1,36 @@
+###  Публикация: 516708   (651943) от 29.06.2012
+
+VA - Trance In Motion vol.118 (Mixed By E.S.) (2012) [MP3|320 kbps]<Trance, Vocal Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Poshout feat. Ange - Beside (Sunset Extended)
+02.Allure feat. Emma Hewitt - Stay Forever (Extended Mix)
+03.ATB feat. Ramona Nerra - Never Give Up (Clubmix)
+04.Tenishia feat. Jan Johnston - As It Should (tyDi Remix)
+05.Will Holland feat. Jeza - Every Heartbeat (Beat Service Remix)
+06.Cosmic Gate & J'something - Over The Rainbow (Extended Mix)
+07.Xtigma feat. Sarah Russell - Take Your Hand (Summer Remix)
+08.Ignas feat. Julie Thompson - Hold On (Original Mix)
+09.Sean Tyas - Lekta (Original Mix)
+10.Mark Bester - Colors Of Summer (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, ProgressiveПродолжительность: 01:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B1DF6F2EF991BBFC997893ABB6015C5D997464
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516548   (651945) от 29.06.2012
 
 VA - Лето Хитами Пропето! Party Music Love Radio 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
@@ -683,33 +716,6 @@ DJ сборникЖанр: Future HouseПродолжительность: 00:34
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD597BF5A84579E2759AE746286BA6989D0D16BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031638   (652170) от 04.07.2016
-
-VA - Relevant Freak Future Massive (2016) [MP3|320 Kbps] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652170.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nicky Romero -  Novell (Original Mix) 5:35
-002. KSHMR feat. Sidnie Tipton -  Wildcard (Radio Edit) 3:09
-003. Sam Feldt -  Been A While (Madison Mars Remix) 3:39
-004. Tiesto & Bobby Puma -  Making Me Dizzy (Extended Mix) 4:40(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 08:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00818734E28D77A6E02C2ABFBC6816233B7F3202
 ```
 
 

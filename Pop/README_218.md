@@ -1,3 +1,84 @@
+###  Публикация: 1546504   (606273) от 24.04.2022
+
+VA - DMC Dance Mixes 291 Pop (2021) [MP3|320 Kbps] <House, Dance-pop, Drum n Bass, Progressive House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diana Ross - If The World Just Danced (Moti Extended)
+02. Dj Z - Finally (Extended)
+03. Ed Sheeran - Shivers (Alok Extended Remix)
+04. Fucou - Lie Machine (Extended)(   Читать дальше...   )Жанр: House, Dance-pop, Drum n Bass, Progressive HouseПродолжительность: 01:19:56 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB6168D4F8FA563687CEB07252E8EFADCFAD8553
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297158   (606678) от 20.04.2019
+
+VA - ZYX Italo Disco Spacesynth Collection 5 (2019) [MP3|320 Kbps] <Italo-Disco, Synth-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606678.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Laserdance — Trans Space Express 05:59
+02.Italove — At The Disco (Bellatrix Dub Space Remix) 06:09
+03.Victor Ark — Lost In Time 05:08(   Читать дальше...   )Жанр: Italo-Disco, Synth-PopПродолжительность: 02:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F25584CD23972A6BCF3403FEC975882B1963ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297180   (606680) от 20.04.2019
+
+VA - Eurovision Song Contest Tel Aviv (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Jonida Maliqi - Ktheju tokes (Albania)
+02 Srbuk  - Walking Out (Armenia)
+03 Paenga - Limits (Austria)
+04 Kate Miller-Heidke - Zero Gravity (Australia)(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:824AA0B5AA9DDB24169801433819A5E926E4CE9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296976   (606798) от 20.04.2019
 
 Everything but the Girl - Amplified Heart (1994) [FLAC|Lossless|tracks + .cue] <Downtempo, Synth-pop>
@@ -597,109 +678,28 @@ magnet:?xt=urn:btih:C2E438D85E15D649CFE77E5544EDA2BF26114921
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146652   (609490) от 02.07.2017
+###  Публикация: 525000   (609244) от 20.07.2012
 
-The Human League - Greatest Hits (1995) [MP3|320 Kbps] <Pop>
+VA - Hits 2012 (2012) [FLAC|Lossless]<Pop, Rok, R&B>
 
 >>Pop
->>Зарубежная поп-музыка
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609490.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_609244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Don't You Want Me [03:55]
-02. Love Action (I Believe in Love) [03:48]
-03. Mirror Man [03:48]
-04. Tell Me When [04:39](   Читать дальше...   )Жанр: PopПродолжительность: 01:04:20
+1. Michel Telo - Ai Se Eu Te Pego (2:45)
+2. Sak Noel - Paso (The Nini Anthem) (3:17)
+3. Qwote Feat. Pitbull & Lucenzo - Throw Your Hands Up (Dancar Kuduru) Sagi Abitbul Remix Edit (4:33)
+4. R.I.O. feat. U-Jean - Turn This Club Around (3:18)(   Читать дальше...   )Жанр: Pop, Rok, R&BПродолжительность: 02:31:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20F5CE8E25061C80850F3C79B0EDB289C542BA2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 684680   (609893) от 26.07.2016
-
-Пающие Трусы (Пающіє Труси) - Интимнепредлагать (2012) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Девчонки олигархов (3:31)
-02. Интимнепредлагать (4:00)
-03. Как Алла (3:48)
-04. Василёк (3:17)(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EEED764045AE8D60C6DF33D19AA4F9504C07DFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295756   (610122) от 18.04.2019
-
-2 Unlimited - Let The Beat Control Your Body (1994) [FLAC|Lossless|tracks + .cue] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610122.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Let The Beat Control Your Body (Airplay Edit) 3:38
-2	Let The Beat Control Your Body (X-Out In Trance Remix) 5:11
-3	Let The Beat Control Your Body (Extended) 5:58
-4	Let The Beat Control Your Body (X-Out In Rio) 5:06(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:26:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55B067CFAD7D46293CBC985A810C674E84DB81E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296728   (610243) от 18.04.2019
-
-VA - NOW Thats What I Call Music! 2 (2019) [MP3|320 Kbps] <Synthpop, Reggae, Dancehall>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610243.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Queen - Radio Ga Ga
-02. Nik Kershaw - Wouldn't It Be Good(   Читать дальше...   )Жанр: Synthpop, Reggae, DancehallПродолжительность: 01:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4A1A7AD7EE6004D90C2BCDA587EC4F8DD116E0
+нет
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1136468   (673246) от 23.05.2017
+
+VA - Scarpa Mykonos 2017  [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gregor V feat. Nina R - With My Soul 04:58
+02. Petros Odin - Sanity (feat Antony Lazos - Sax & Lovers mix) 06:23
+03. V-Sag - Apnoea 06:16
+04. DSF, Dino MFU - The Way I Loved You 05:49(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:27:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:883DD7780D8B691D9EDC027FD7DDA5054D1B6D5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223604   (673301) от 05.05.2018
+
+VA - Deep House Hits: Ibiza 2018 [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loud Luxury – Body (feat. brando) (Dirtcaps Remix)
+02. Armin van Buuren – Sex, Love & Water (feat. Conrad Sewell) (Loud Luxury Remix)
+03. Lost Frequencies & Zonderling – Crazy (James Remix)
+04. Thomas Gold – Begin Again(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:08:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924A1336F53D7A18A4A416F9F7B709EA0B95932E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223513   (673305) от 05.05.2018
+
+VA - Club Sounds Vol.85 (2018) [MP3|320 Kbps] <Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rudimental Feat. Jess Glynne, Macklemore & Dan Caplen - These Days (Ajr Remix)
+02. Kygo & Miguel - Remind Me To Forget
+03. Felix Jaehn Feat. Marc E. Bassy & Gucci Mane - Cool
+04. The Chainsmokers - Everybody Hates Me(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: Dance, Club
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB95FC4E39F59F3403D74297BDCDD7A1171D334A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223629   (673419) от 05.05.2018
+
+The Future Sound Of London - My Kingdom (Re-Imagined) (2018) FSOLDigital [FLAC|Lossless|WEB-DL|tracks] <Abstract, Ambient, IDM, Leftfield>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Kingdom - Path 7 (11:40)
+ 02. Transient Empires (01:53)
+ 03. Collapsed Structures (05:38)
+ 04. Sound Shadow (01:00)(   Читать дальше...   )Жанр: Abstract, Ambient, IDM, LeftfieldПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5675FCE2703AF7C248C216D0949427607FC4A9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290615   (674073) от 22.03.2019
+
+Flume - Hi This Is Flume (2019) Mixtape [MP3|320 Kbps] <Electronic, Hip-Hop>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674073.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hi This Is Flume
+2. Ecdysis
+3. High Beams (ft. Slowthai)
+4. Jewel(   Читать дальше...   )Жанр: Electronic, Hip-HopПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB38F124FE712E6997FCDC3EE2E681D9859001E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290979   (674080) от 22.03.2019
+
+Autumn - Synthesize (2011) LP, Compilation [MP3|320 Kbps] <Electro, Synth-pop, Minimal>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Say You Hello (5:32)
+02. The Third Autumn (4:33)
+03. Night In June (4:38)
+04. Viginaigre (4:10)(   Читать дальше...   )Жанр: Electro, Synth-pop, MinimalПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF56BB7EA10E31462AB7F8DB6A7960E06B0AB331
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030092   (674268) от 30.06.2016
 
 All4tonic - Laika Messages (2016) [MP3|160 Kbps] <Electronic, Ambient, Dub>
@@ -533,168 +695,6 @@ VA - Selfhealing Sounds (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A72180B32F3B447BEFA16425FC7CB95D4B6635DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223362   (675115) от 04.05.2018
-
-VA - Workout Vol 6 (2018) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AkroSonix - Mr. (Original Mix) [05:16]
-02. Liam 24 - Deep Night (Original Mix) [05:14]
-03. ADAKADAK - Vacation in Bulgaria (Original Mix) [05:03]
-04. DJ BF - I'll Meet You In The Next Year (Original Mix) [05:00](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:23:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54CD8F255C2A3B3A31B211AEDB3267A44BB01B20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536357   (675143) от 12.03.2022
-
-Meteor - Voyage Into Fear (2018) [FLAC 2.0|96/24|WEB-DL|tracks] <Synthwave, Retrowave, Cyberpunk>
-
->>Electronic
->>Synthpop, New Wave, Retro (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleep Mode: Off [01:36]
-02. E-Class System [03:46]
-03. No Return [04:31]
-04. Hostile Worlds [01:55](   Читать дальше...   )Жанр: Synthwave, Retrowave, 80's, Outrun, CyberpunkПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90C4697C6F0DC015A0AE7604DB664B0B6E0990FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030058   (675643) от 29.06.2016
-
-Schiller - Greatest Hits (2010) 2CD [FLAC|Lossless|image + .cue] <Electronic, Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Try (feat. Nadia Ali) (04:45)
-02. Let Me Love You (feat. Kim Sanders) (06:40)
-03. Time For Dream (feat. Lang Lang) (03:08)
-04. I Feel You (feat. Heppner) (05:30)(   Читать дальше...   )Жанр: Electronic, Downtempo, AmbientПродолжительность: 02:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072DA284967976EDDFB386AC92F5A37DC20E9E62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135903   (676477) от 21.05.2017
-
-VA - Monstercat Uncaged, Vol. 1 (2017) [MP3|320 Kbps] <Drum & Bass, Drumstep, Dubstep>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rogue, Stonebank & Slips & Slurs - Unity
- 02. Dirtyphonics & Bassnectar - Watch Out
- 03. Wolfgang Gartner & Aero Chord - Borneo
- 04. Unlike Pluto - Everything Black (feat. Mike Taylor)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5374C3EBE76C9B70E3F2049767D48B72ECBE0B51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030136   (676530) от 29.06.2016
-
-Solid Stone - Introspection (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solid Stone - Introspection (5:09)
-02. Solid Stone - Broken (6:28)
-03. Solid Stone & Wellenrausch - Ursa Major (7:21)
-04. Solid Stone - Profound (4:49)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F15E8B07DA4D36DD55326E4708745717C77E2EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029963   (676535) от 29.06.2016
-
-VA - Goa 2016 Vol.3 (2016) [MP3|320 Kbps] <Trance, Goa Trance, Psy>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motion Drive -  The Substance 7:59
-02. Aioaska -  Tschatahitika (Original Mix) 9:43
-03. Mindwave -  Singularity 7:23
-04. Microlin -  True Believer 8:04(   Читать дальше...   )Жанр: Trance, Goa Trance, PsyПродолжительность: 02:22:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7DDE529908A8B0F568BC2718005A48AE91612D
 ```
 
 

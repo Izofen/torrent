@@ -1,3 +1,30 @@
+###  Публикация: 1129692   (720232) от 29.04.2017
+
+VA - BRAVO Hits 97 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katy Perry feat. Skip Marley - Chained To The Rhythm (3:57)
+02. Ed Sheeran - Castle On The Hill (4:21)
+03. Alma - Chasing Highs (3:15)
+04. Zedd & Alessia Cara - Stay (3:30)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, R&B, Disco, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 02:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3B1F1E0B4C9C23DB1CB3A498CB799790E225B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129685   (720321) от 29.04.2017
 
 VA - 100 Hits Sunday Morning Songs (2017) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Dance, Pop, Rock>
@@ -668,33 +695,6 @@ Fifth Harmony - Reflection (2015) Deluxe Edition [FLAC|Lossless|image + .cue] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD40757C2EE02933F38B8BD8A4E4871EA2227A15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284274   (728897) от 21.02.2019
-
-Jamelia - Superstar-The Hits (2007) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Superstar
-02. Thank You
-03. See It in a Boy's Eyes
-04. Stop(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A2A586483DF2B5091A7B7D5227A6C8BCC6BEB32
 ```
 
 

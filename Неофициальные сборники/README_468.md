@@ -1,3 +1,30 @@
+###  Публикация: 1527651   (736247) от 29.01.2022
+
+VA - Крутые пушки Зима 2022 [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MELISA & TOMMO - I'm Alone (RAKURS RADIO REMIX) (2:17)
+02. Acraze feat. Cherish - Do It To It (Yudzhin Radio Remix) (2:08)
+03. R3HAB, Jonas Blue, Ava Max, Kylie Cantrall - Sad Boy (Cat Dealers Remix - Extended Version) (3:12)
+04. Tom Boxer feat. Antonia - Morena (Lavrushkin & Larichev Remix) (2:47)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 05:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9959DFAB5BCD3448251B8521CE59F3AB8236FC7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 787860   (736315) от 18.05.2014
 
 DJ P@F - Made In ZP City (2011) [MP3|256 кб/с]<Electronic>
@@ -674,33 +701,6 @@ VA - Beatport Trance: Electro Sound Pack: #128 (2020) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0B65AE4FD77D1E37F0C5085EA05A54023DA95F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397693   (737601) от 22.07.2020
-
-VA - Progressive Trance Sound Party (2020) [MP3|320 Kbps] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Farius - Home Again
-02. Fortuna And Casus - Behind Life
-03. Noise Zoo - Empress
-04. Airwave - Another Dimension(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 06:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2602AA291E02338B1B6559E1C526ECD112955EC6
 ```
 
 

@@ -1,3 +1,82 @@
+###  Публикация: 998510   (867802) от 20.03.2016
+
+Richard Strauss, Alfred Lord Tennyson - Enoch Arden: A Melodrama (Mac Morgan, William Ransom) (1989) [MP3|320 кб/с] <Classical>
+
+>>Классика
+>>Вокал
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867802.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Part 1 (39:59)
+2. Part 2 (29:17)Жанр: ClassicalПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C070E41CB03CF497B008BBAD2F0A789A48F97EEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997869   (869548) от 19.03.2016
+
+Wolfgang Amadeus Mozart - Symphonies 38 in C major "Prague" & 40 in G minor (CSO, Walter) (1959) [DSD 2.0|ISO|1/2.8224|SACD-R] <Classical, Orchestral>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphonies 38 in C major K. 504 "Prague"
+1. I. Adagio – Allegro
+2. II. Andante
+3. III. Finale. Presto(   Читать дальше...   )Жанр: Classical, OrchestralПродолжительность: 00:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB49CF647CAC0716E1803BC92D8F90CC034D9F07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997880   (869553) от 19.03.2016
+
+Римский-Корсаков - Шехеразада (1978)(BSO, Silverstein, Ozawa)  [DSD 2.0|ISO|64/1|SACD-R] <Orchestral>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I. Das Meer und Sindbads Schiff, Largo e maestoso, Lento, Allegro non troppo
+02. II. Die Geschichte vom Prinzen Kalender, Lento, Andantino, Allegro molto, Vivace scherzando, Moderato assai, Allegro molto ed animato
+03. III. Der junge Prinz und die junge Prinzessin, Andantino quasi allegretto
+04. IV. Fest in Bagdad. Das Meer. Das Schiff treibt gegen den MAgnetberg (   Читать дальше...   )Жанр: OrchestralПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00FCDB4FB674ED45CD34D181634F85473EE4009
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997670   (869695) от 19.03.2016
 
 Jean Sibelius - Lemminkainen Suite, Pohjola’s Daughter (Finnish Radio Symphony Orchestra, Hannu Lintu) (2015) [DTS 2.0, 5.0|ISO|64/1|SACD-R] <Orchestral>
@@ -620,87 +699,6 @@ Wolfgang Amadeus Mozart 	Hermitage String Trio  03:41
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A243D2360A0E5FD04390911D6A9327849336EA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997382   (873844) от 17.03.2016
-
-Epoca Barocca - Christoph Schaffrath - 2 альбома (2006, 2010) [FLAC|Lossless|tracks] <Classical, Chamber Music>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adagio  02:41
-02. Allegro  05:03
-03. Allegro  05:05
-04. Poco Allegro  06:11(   Читать дальше...   )Жанр: Classical, Chamber Music |Продолжительность: 01:17:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9344F02BEC0B609839DBB6F36D8A64D118BFBB9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997303   (875340) от 16.03.2016
-
-Korngold, Rosza, Waxman, Heifetz - Concertos - Tema Con Variazioni - "Carmen" Fantasy (1988) Compilation [FLAC|Lossless|tracks] <Classical, Neo-Romantic, Contemporary>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moderato Nobile  07:55
-02. Romance  07:13
-03. Finale - Allegro Assai Vivace  06:42
-04. Allegro Non Troppo Ma Passionato  11:24(   Читать дальше...   )Жанр: Classical, Neo-Romantic, ContemporaryПродолжительность: 01:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D48A8E245C4C595770BD2E867DD43B369707367
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105115   (876352) от 17.02.2017
-
-Kalman - Die Csardasfurstin (Сильва) (1968) 1994 Hungaroton Classic Kft [APE|Lossless|image + .cue] <Operetta>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Elojatek  2:38
-02.  Hogyha szivem kered tolem (Haj, ho! Haj, ho!...) 2:42
-03.  A lanyok, a lanyok, a lanyok angyalok (Bunosok vagyunk mi...) 3:49
-04.  Egy a szivem, egy a parom (A szeretem furcsa joszag ...) 5:42(   Читать дальше...   )Жанр: OperettaПродолжительность: 01:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:267990C5A3BFAC51A5247007F062F354F61A2998
 ```
 
 

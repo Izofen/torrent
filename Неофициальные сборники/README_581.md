@@ -1,3 +1,30 @@
+###  Публикация: 1105347   (876554) от 17.02.2017
+
+VA - Ready Styles Final Songs (2017) [MP3|320 Kbps] <Synthpop, Bigroom, UK Garage, Funk, Trap, Future Bass>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_876554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 unlimited - Get Ready For This (Original 12'' Version) 05:54
+02. Sultan & Shepard X Sak Noel - Samba Sixteen X Trumpets (Dibs & Mgm Edit) (Clean) 04:40
+03. Borgeous X Rvssian & Mri X Sean Paul X 7 Skies & Sissa X Burns - Ride It X Beauty Queen (Dibs & Mgm Edit) (Clean) 03:49
+04. The Chainsmokers F. Xylo X Hall & Rush - Setting Fires (   Читать дальше...   )Жанр: Synthpop, Bigroom, UK Garage, Funk, Trap, Future BassПродолжительность: 05:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C2DBD3E04B2C81863B89BBDCA9A958CF38067EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105320   (876639) от 17.02.2017
 
 VA - Отдыхаем душой на радио Шансон выпуск № 3 (2017) [MP3|256 Kbps] <Шансон>
@@ -665,33 +692,6 @@ VA - Русский шансон лучший (2017) [MP3|256 Kbps] <Шансо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:531F23DB5869C866F4E03040633FD6C2F19105F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104456   (878218) от 16.02.2017
-
-VA - Blueas About It  (2017) [MP3|256-320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878218.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. BRUCE SPRINGSTEEN - Badlands 4:03
-002. Ana Popovic - Waiting on You (Double-Time Swing) 3:58
-003. Ana Popovic - Who’s Yo' Mama 3:16
-004. Cliff Stevens - If I Didn't Love You 3:51(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 10:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B5F581CE28BE9EA46450BEFF2B966982ABE843
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1013358   (777587) от 04.05.2016
+
+VA - Workout Music - Work Out Mix (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace Of Base - Cruel Summer (Yogi Nando Remix)
+02. Ace Of Base Feat Offer Nissim & Maya - All That She Wants (D-VIBE Mashup)
+03. Adele - Hello (DJ Zhukovsky Mix)
+04. Alex Kafer & Lera - Don't You Believe To Tears (Shura Cover 2016)(   Читать дальше...   )Жанр: PopПродолжительность: 07:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6912A745D15D20FB0AA3306DA47CE6AA7201228
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013147   (777610) от 04.05.2016
 
 VA - Главная дискотека мая 50х50 (2016) [MP3|256 кб/с] <Pop, Dance>
@@ -668,33 +695,6 @@ VA - The Rhythms Of Disco (2018) [MP3|320 Kbps] <Electronic, Disco, Pop Rock, Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0902CE54A3A4CD417FF6A412BEC9AD59EF70453
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389781   (783865) от 12.06.2020
-
-Twenty One Pilots - Great Artists of My Heart Vol. 05 (2020) [MP3|320 кб/с]<Indie Pop, Alternative Hip-Hop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783865.jpg" />
-</div>
-
-
-###  Подробнее
-
-|04:53| 01. Implicit Demand For Proof
-|04:37| 02. Guns For Hands
-|05:08| 03. Ode To Sleep
-|03:55| 04. Heavydirtysoul(   Читать дальше...   )Жанр: Indie Pop / Alternative Hip-HopПродолжительность: 04:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED483F2B8670774D709F44CF608C5A201182EAE
 ```
 
 

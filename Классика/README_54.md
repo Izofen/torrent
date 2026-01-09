@@ -1,3 +1,83 @@
+###  Публикация: 1455552   (1025620) от 19.03.2021
+
+Great conductors of the 20th century - Evgeny Mravinsky (2003) 2CD [FLAC|Lossless|image + .cue] <Orchestral>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Joseph Haydn - Symphony G-Dur
+01. Adagio - Allegro (6:59)
+02. Largo (5:26)
+03. Menuetto. Allegretto - Trio (4:20)(   Читать дальше...   )Жанр: OrchestralПродолжительность: 02:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BA8CDA951DDC85C63EE5EE6E15A663D177D7DA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455574   (1025624) от 19.03.2021
+
+French composers conduct - Henri Tomasi, Florent Schmitt, Philippe Gaubert, Maurice Ravel (2009) [FLAC|Lossless|image + .cue] <Orchestral>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Henri Tomasi - Symphonic Poem "Tam-Tam" (for chorus, soloists and orchestra)
+01. Tam-Tam (8:10)
+02. La chanson des sables (8:32)Жанр: OrchestralПродолжительность: 01:15:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94FFD597F52B7F68187E8F7FC724B570CB5B59FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454129   (1026588) от 13.03.2021
+
+A.Scarlatti - San Casimiro, re di Polonia (1999) 2010,  Acte Prealable [FLAC|Lossless|image + .cue] <Classical oratorio>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026588.jpg" />
+</div>
+
+
+###  Подробнее
+
+San Casimiro, Rè di Polonia
+
+Prima Parte
+01-18(   Читать дальше...   )Жанр: Classical oratorioПродолжительность: 00:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D2B3EFEFB5C767D3304670FE3A491CB1DA0A999
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453802   (1026707) от 12.03.2021
 
 VA - Piano Classics - Relaxing Classical Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -620,87 +700,6 @@ magnet:?xt=urn:btih:422B2F7CC2AE81E0C19B436070359C63C3FF5CD9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:682047CBB32775DDD1B93989EF7A3C0705C68DB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437110   (1042242) от 04.01.2021
-
-VA - Relaxing 2021 [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042242.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Claude Debussy, Arturo Benedetti Michelangeli. Preludes Book 1, L. 117 8. La fille aux cheveux de lin (2:50)
-002. Frederic Chopin, Maria Joao Pires. Nocturne No. 1 in B-Flat Minor, Op. 9, No. 1 (5:36)
-003. Frederic Chopin, Maria Joao Pires. Nocturne No. 2 in E-Flat, Op. 9, No. 2 (4:29)
-004. Claude Debussy, Alexis Weissenberg. Suite bergamasque, L. 75 III. Clair (   Читать дальше...   )Жанр: ClassicalПродолжительность: 05:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43CF3FA0A6501D28C0AFCABF86AE822688AB87DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436995   (1042249) от 04.01.2021
-
-J. S. Bach ‎ - Organ Works (Lionel Rogg) (1998) [FLAC|Lossless|image + .cue] <Classical, Baroque>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Toccata And Fugue, BWV 565
-1 Toccata. Adagio 2:29
-2 Fugue 5:49
-3 Chorale "Wachet Auf, Ruft Uns Die Stimme", BWV 645 4:29(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91C27F9AAEFD528E94A9AC658FC63FA2C11EE001
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437006   (1042771) от 02.01.2021
-
-Schubert - Symphony No. 8 'Unfinished' & Symphony No. 5 (1985) [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony no. 8 in B minor, D 759 "Unfinished":
-01. I. Allegro moderato (15:51)
-02. II. Andante con moto (13:42)
-Symphony no. 5 in B-flat major, D 485:(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:354208CB9BFB3CA36947D1EC36D9EB85EC6B3DD9
 ```
 
 

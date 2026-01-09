@@ -1,3 +1,165 @@
+###  Публикация: 1111048   (850377) от 04.03.2017
+
+VA - Sound Of Serenity Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Heavenly Light - Butterfly Wings  3:15
+02.  Manifestation - Sirens  3:14
+03.  Jeff Sunrise - Danse Dextro  6:06
+04.  Dan Taylor - Fly With Me  4:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:27:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF67ED9300D6C09512A140363161CDB14FAA929
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110928   (850434) от 04.03.2017
+
+VA - This Is My Church Vol.2 (The Chill Out Edition) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Anthony Smith - Surrealism (Sunrise Edit)  3:20
+02.  Billy Anderson - Fly With Me (Original Mix)  4:25
+03.  Grand Lounge - Common Drum (Topazz Suite Mix)  5:26
+04.  Robert Janson - Step By Step (Original Mix)  4:59(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82257BBFE0A60DB9A5D339E7A20FA489156222C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110936   (850435) от 04.03.2017
+
+VA - Chillout March 2017 (Top 10 Best Of Collections) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  MAA - Elasia  4:38
+02.  Seven24 - Behind The Sky (Chillout Mix)  5:11
+03.  Suntise - Erotic (Chillout Mix)  2:45
+04.  Moonnight - To Save Love (Chillout Mix)  3:41(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891423B214B6DA798A5DA6F86BE0C35A0BB4F3DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001660   (850564) от 30.03.2016
+
+Supermayer (Superpitcher & Michael Mayer) - Save The World (2007) [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey  [01:03]
+02. The Art Of Letting Go [05:39]
+03. Saturndays [07:14]
+04. Superbrain Transmission [02:34](   Читать дальше...   )Жанр: Techno, Minimal, AmbientПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45768A4B2037A2803B50D4A1D23467C79F9D072A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 305494   (850737) от 10.03.2011
+
+Apollo 440 - 4 Albums (1994 - 2003) [MP3|320 Kbps]<Drum & Bass, Electronic Rock, Big Beat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamonds In The Sidewalk (feat. Jack Kerouac) (3:41)
+02. Something's Got To Give (feat. Xan) (6:54)
+03. Christiane (feat. Elizabeth Gray) (5:37)
+04. Existe (6:00)(   Читать дальше...   )Жанр: Drum & Bass, Electronic Rock, Big BeatПродолжительность: 04:56:45
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499199   (851137) от 30.09.2021
+
+VA - Relaxing Room: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Deeper Love (Original MIx) (5:50)
+02. Peter Pearson - The Dream That Was Summer (Original Mix) (6:03)
+03. Michael e - The Universe Is in Us (Original Mix) (6:00)
+04. Frank Neo - Mindflow (Original Mix) (5:39)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:902EAB522D79B849D1D338BEFC8CA47189287EB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499164   (851271) от 30.09.2021
 
 Flavio Paulin - Paulin (1979) LP [MP3|320 Kbps] <Electronic, New Wave, Abstract, Synth-pop, Disco>
@@ -531,168 +693,6 @@ VA - House vs. Deep House Show Love (2021) [MP3|320 Kbps] <House, Deep House, Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCBA4555498A6933225629D11C188D4DFA25A49E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498631   (852733) от 29.09.2021
-
-Charlotte de Witte b2b Enrico Sangiuliano - The Age Of Love Stream (2021-08-12) [MP3|320 Kbps] <Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christian Andersen - A Storm Is Coming
-02. Luca Agnelli - Blow
-03. Other Form - Further Still
-04. Mattia Saviolo - Sentinella Meccania(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E625205F294B43E0FA01AC89662FFD178F58AEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498930   (852746) от 29.09.2021
-
-VA - Before Sunset: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Hiska - Sandy (feat Michael Moses) (4:48)
-02. Dacosta - Sunset Boulevard (4:16)
-03. Matej Blanusa - Beginning (Medani Pieck) (3:58)
-04. Digby Jones - El Corazon (3:44)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C09F29BB3D314D734E4EA843C457DE9ED9BE344
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377227   (853278) от 21.04.2020
-
-Peter Pearson - Under the Spell (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853278.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In My Dreams	06:00
-2. Tripping with the Stars	04:13
-3. To the Hills	04:36
-4. Seasons Change	05:22(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6824E8407F27C37DD3F6E13F9867A2B22F6EE868
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377229   (853563) от 21.04.2020
-
-VA - Goa Culture - Season 3 (Compiled by Magnifico) (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853563.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. One Function - Yantra (8:17)
-2. Stayos - Gaya (8:11)
-3. Tristate - Nevermore (8:59)
-4. Space Hypnose; Atacama - Zodiac (8:00)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A385A962AAE8F04942B1F75DF34F07CBD4DE7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376865   (853565) от 21.04.2020
-
-Cyan - Transmission (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853565.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Space Cadet (5:58)
-2. Nibiru (8:17)
-3. Galactica (7:32)
-4. Another Level (8:10)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:09:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38BE617C4BBBA509DECFCF382C6BCACAC8966CAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377286   (853663) от 21.04.2020
-
-VA - Workout in Da House (2020) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anderblast - Systema
-02. Anderblast and Dark Drake - Elements
-03. Anderblast and Nari and Milani - Fire
-04. Anderblast - Proton(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:21:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E729A839911B1BEB724ED801DE5C8238AD6FF21
 ```
 
 

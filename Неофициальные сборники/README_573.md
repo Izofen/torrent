@@ -1,3 +1,30 @@
+###  Публикация: 999313   (864815) от 22.03.2016
+
+VA - Tropical Chill Vol.1- Relaxing Summer Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864815.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Christos Fourkis - Feel Me Chill Out Version
+002.  Kai French - Just Relax
+003.  Svendaq - Get Away
+004.  Sunyata Project - Lay Your Hands On Me Extended Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A3F1045D8B98E4F2E22FCD9638D98E5919DF7A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999507   (864825) от 22.03.2016
 
 VA - Шансон-состояние души 97 (2013) [MP3|160-256 кб/с] <Shanson>
@@ -664,33 +691,6 @@ VA - Ресторан Кураж на радио Шансон выпуск № 5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:185C05402098A53AD1D6C174A04A6907116E63EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107679   (866479) от 23.02.2017
-
-VA - I Love Music! - Experimental Edition Vol. 10 (2017) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866479.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Airform - Dream (Chillout Mix) 6:39
-002. AOXA - Floating Memories (Original Mix) 3:54
-003. AOXA - Shining Aurora (Original Mix) 3:34
-004. Belle, Krono - We Are So Animal (feat. Belle) (Original Mix) 2:49(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:384A5BE220B3C5FDF7CE213F5DEC81C38E107B9F
 ```
 
 

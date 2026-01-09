@@ -1,3 +1,252 @@
+###  Публикация: 1143549   (634971) от 18.06.2017
+
+Алла Йошпе и Стахан Рахимов - Лучшие песни (2009) [MP3|320 Kbps] <Ретро,Советская эстрада>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634971.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Поговорим, родные, по душам (4:05)
+2. Алеша (3:45)
+3. Опять война (3:41)
+4. Осенние колокола (4:50)(   Читать дальше...   )Жанр: Ретро,Советская эстрадаПродолжительность: 01:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1BC500D8F935EF778AB7A1838295478019B2772
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517552   (635060) от 07.07.2012
+
+Flo Rida - Wild Ones (2012) [FLAC|Lossless]<Pop, Dance, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whistle
+02. Wild Ones (feat. Sia)
+03. Let It Roll
+04. Good Feeling
+05. In My Mind, Pt. 2 (feat. Georgi Kay)
+06. Sweet Spot (feat. Jennifer Lopez)
+07. Thinking Of You
+08. I Cry
+09. Run (feat. RedFoo of LMFAO)Жанр: Pop, Dance, R&BПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67CBA0061B8FB95ECDF51893E54D41A7F6A33143
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143332   (635094) от 18.06.2017
+
+Limelight - Special Love (2015) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Special Love (6:24)
+02. Hold Me Tight (7:03)
+03. Call Me (7:02)
+04. I Want Your Love (7:19)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9A21DEB12B1A107F895475C256E657A3C8D15E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143672   (635108) от 18.06.2017
+
+Disco Digitale - Discography (2006-2014) [MP3|320 Kbps] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Disco Digitale была образована в 2003 году под влиянием творчества Fancy, Digital Emotion, Trans-X. Первый альбом "Computer Dreams" вышел в 2006 году и включал в себя 11 песен, здесь присутствует мужской и женский вокал. Позже вышел диск с ремиксами на треки из первого альбома и несколькими новыми песнями.
+ Состав группы: братья Ларс и Кристер Бьёрндал (   Читать дальше...   )01. Taken To The Stars 3:47
+02. Videogirl 3:40
+03. Digital Love 3:58
+04. Lightspeed 3:23(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 02:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B3A7C1770AD4A288CC3349283E56041CD3E9BA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143552   (635122) от 18.06.2017
+
+Disco Digitale - Electronic Passion (2014) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurora 5:26
+02. Night Sky 4:58
+03. You Tell Me 3:48
+04. The Future 4:15(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9782C958D58C41911880EA131936DCB786C3338B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907870   (635157) от 13.06.2015
+
+Michael Jackson - The Best 39 (2015) [MP3|320 кб/с]<Pop, R&B, Rock, Funk, Post-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thriller
+02. Billie Jean
+03. Beat It
+04. Heal The World(   Читать дальше...   )Жанр: Pop, R&B, Rock, Funk, Post-DiscoПродолжительность: 03:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:095AB17C6B7E249191B158CAF43EA1B3DCAC23AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293686   (635224) от 04.04.2019
+
+VA - Golden DJ Hits Vol. 1 (2004) [MP3|320 Kbps] <Eurodance, Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. O-Zone - Dragostea Din Tei (3:33)
+02. Las Ketchup - Asereje (3:28)
+03. In-Grid - Tu Es Foutu (3:36)
+04. Los Del Rio - Macarena (3:51)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:11:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBA9898310CE3602C3177093672EBEB7FC539365
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293693   (635235) от 04.04.2019
+
+VA - Golden DJ Hits Vol. 2 (2006) [MP3|320 Kbps] <Eurodance, Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Teens - Gimme! Gimme! Gimme! (A Man After Midnight) (3:54)
+02. E-Type feat. Nana - Life (3:41)
+03. Dana International - Diva (2:59)
+04. Aqua - Around The World (3:26)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B39F64A1E888F41B7EAD110AEBC39EC63CF2EC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143465   (635241) от 18.06.2017
+
+L.A.X. - L.A.X. (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woman Ad Lib (6:12)
+02. I Don't Wanna Be Undercover (4:40)
+03. Don't Stop (7:03)
+04. Dancin' At The Disco (6:49)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B49731983EF175248C075D1FEA5A6F831A9EA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143546   (635250) от 18.06.2017
 
 Disco Digitale - Computer Dreams (2006) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
@@ -451,255 +700,6 @@ magnet:?xt=urn:btih:81F9F09ED4F428A61B520967AA19837F366A8831
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:277B8627CCCC7C3B70370C49B4E511D4157260EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907827   (636163) от 13.06.2015
-
-James Taylor - Before This World (2015) [MP3|320 кб/с]<Folk-Rock, Country, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636163.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Today Today Today (3:09)
-2. You And I Again (3:52)
-3. Angels Of Fenway (3:18)
-4. Stretch Of The Highway (5:32)(   Читать дальше...   )Жанр: Folk-Rock, Country, PopПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8EE0E1D1E50EF2B8C9195F01C4E8C0F447C386C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661991   (636785) от 03.04.2019
-
-VA - Песня 75, 76, 77 (3 CD) (2007) [FLAC|Lossless]<Retro|Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ВИА «Пламя» / У деревни Крюково [0:03:29.55]
-02. Тамара Синявская / Черноглазая казачка [0:03:25.05]
-03. Геннадий Пономарев / Барабан [0:02:59.49]
-04. Мики Евремович (СФРЮ) / Московская серенада [0:04:15.13](   Читать дальше...   )Жанр: Retro|PopПродолжительность: 00:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1C29F1156823861F97874C192A99601188B2FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542465   (636859) от 07.04.2022
-
-ABBA - Golden Disco Hits (2001) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Day Before You Came
-02. Take A Chance On Me
-03. Money, Money, Money
-04. The Piper(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F1089809F92CFE1B35A3B29C67B9E2F0FC9347
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542458   (636876) от 07.04.2022
-
-Комбинация - Легендарные Песни (2004) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Boy
-02. Белый вечер
-03. Russian Girls
-04. Два кусочека колбаски(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5910DA53346C41CFA2417B8E6BD98C953FBB219F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519284   (636916) от 06.07.2012
-
-Валерия - Самое лучшее (1999) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты где-то там
- 02. Обычные дела
- 03. Не забудь былые увлеченья
- 04. Кап-кап
- 05. Жаль
- 06. О том, что было
- 07. Небеса
- 08. Золотая рыбка
- 09. Моя Москва
- 10. Самолет(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:172CC9793C44EE88DC440E9C2A6A76808D5BC203
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542455   (636953) от 07.04.2022
-
-Игорь Саруханов - Grand Collection (2002) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Маскарад
-02. Слово в слово
-03. Позади крутой поворот
-04. Вчерашний день(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03D62277FB2C1AF0D7DFF167AD99BA0D209105B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542462   (637107) от 07.04.2022
-
-Дилижанс - Лучшие Песни (2003) [FLAC|Lossless|tracks + .cue] <Pop, Folk>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Свадебная
-02. Тёща
-03. Цыганочка с выходом
-04. Хочу мужа я(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 01:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3002E2188F3B10DA06169C2C4CDEF1F7D989B9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542406   (637117) от 07.04.2022
-
-Natasha Morozova (Наташа Морозова) - Перелётные птицы (2014) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Улетай на крыльях ветра (4:30)
-02. Перелётные птицы (4:10)
-03. Колокольчик (3:47)
-04. Сердцем в сердце (3:59)(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFCF81C5FA1C36EF00E762BF22B44FD58E88727E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542399   (637120) от 07.04.2022
-
-SEVENROSE - Нам не забыть (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нам не забыть (4:07)
-02. Зима пророчит (4:00)
-03. Про лето (4:02)
-04. Наваждение (4:08)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE848A2FBA63AD502DBE26F67522DDC9CA7C2164
 ```
 
 

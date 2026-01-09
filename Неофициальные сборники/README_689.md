@@ -1,3 +1,30 @@
+###  Публикация: 1840944   (1047688) от 08.12.2025
+
+VA - #010 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Was - I Am The Cool (4:08)
+02.  Eric Johanson - Undertow (Live) (4:17)
+03.  Kirk Fletcher - Every Dog Has Its Day (3:43)
+04.  Shawn Pittman - Low No More (4:07)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C26466DA114FAAB9A1EECE52102A55EDA9650C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840943   (1047689) от 08.12.2025
 
 VA - #009 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -668,33 +695,6 @@ VA - No name compilation Deep Chill Vocal House part 27 (2025) [MP3|320 Kbps] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94E4AEFF5567F5FFBC95733DE7B139323F211D8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842755   (1048893) от 16.12.2025
-
-VA - No name compilation Deep Chill Vocal House part 28 (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Fade Away
-02 - Ocean Eyes
-03 - Falling Apart
-04 - One(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3A365BE6C31D76A66B68E6ECE085968648AD9C0
 ```
 
 

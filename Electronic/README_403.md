@@ -1,3 +1,165 @@
+###  Публикация: 1277311   (785451) от 20.01.2019
+
+VA - Turn Up The Volume - Radio Versions (2019) [MP3|320 Kbps] <House, Dance, Club, Funky>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Niels van Gogh, Steelfish-Love & Money (Radio Edit)
+02. Audax, Adriano Pagani, Dimy Soler-Fire & Ice (Radio Edit)
+03. Tocadisco-Feeling Irie (Radio Edit)
+04. MXB-Bottle Runs Dry (MBP Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Club, FunkyПродолжительность: 01:22:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AF143FF97121C937F607DE52CC9029C8F7F8AC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277445   (785453) от 20.01.2019
+
+Our Lady Of The Flowers - Holiday In Thule (2019) 13 Records [FLAC|Lossless|tracks+.cue] <Ambient, Field Recording, Dub Techno>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Initiation (04:55)
+ 02. Quantum Prayer - One (04:30)
+ 03. A Glowing, Floating Light (07:00)
+ 04. Ripples in Shallow Water (09:59)(   Читать дальше...   )Жанр: Ambient, Field Recording, Dub TechnoПродолжительность: 01:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0581FE8AB81A4EC93CAA39481D7D51DBD8A488F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277307   (785457) от 20.01.2019
+
+MRUKS - Deja VU Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Retrowave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MRUKS - UH
+02. MRUKS - FOX
+03. MRUKS - Tempore
+04. MRUKS - Ancient People(   Читать дальше...   )Жанр: Funky, Club House, RetrowaveПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45182DC63AD509EB52BF8DD33E55946799F1CFDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277298   (785458) от 20.01.2019
+
+VA - Civil Dance Vol.9 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luke Vegas - Let The Bass Kick (Radio Edit)
+02. Martial Flowz - Arena
+03. Tcline - Insanity
+04. Glamrock Brothers - Long Train Runnin (Walker &  Daniels Edit)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275852A4C307BB45572B07BBCD4D2CB393236E88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203907   (785463) от 04.02.2018
+
+VA - The Elegance Of Electronic Music - Deep House Edition #2 (2018) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2Gemeinsam - Want Some Love (Radio Edit)
+02. Scheinizzl - One More (Radio Edit)
+03. Mike Dem, Sanna Hartfield - Day Dream (Radio Edit)
+04. Biskuwi - Sadness Is A Reason To (Radio Edit)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:726136EE51E1B50E8375A3AD18F899C3177972DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204128   (785467) от 04.02.2018
+
+Occer - Imperfect (2017) Zenon Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Psy-Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Affection (06:22)
+02. Imperfect (06:05)
+03. Nefario (06:21)
+04. Tumult (06:31)Жанр: Techno, Psy-TranceПродолжительность: 00:25:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08F071207FF8593B7FFA146CA557B7C9712A5EC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204147   (785468) от 04.02.2018
 
 VA - Selective Deep House Vol.4 (2018) [MP3|320 Kbps] <Funky, Club House>
@@ -529,168 +691,6 @@ VA - When The Sun Goes Down Vol.6 (Deep House Essentials) (2017) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8CDC344706388AA0A39936F0E55AC2BB9952939
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124565   (785831) от 11.04.2017
-
-VA - Lone Scapes: Chillout and Relaxation (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enrico Donner - Golfinhos
-02. Don Gorda Project - Greenwood
-03. Cane Garden Quartet - Erotisme
-04. Cane Garden Quartet - Into the Green(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B61D183DEB1544385F43487E9F2DE753EE856EBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124429   (785835) от 11.04.2017
-
-VA - Just Slow Music: 10 Exclusive Selected Electronic Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armanda Carlay - Paris - Dakar - Slow Beat Mix
-02. St. Robert - Inner Light
-03. Ann Carola - Feel the Presents
-04. Maya Girl - Rain Forrest(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C93853DA05C9D34DAA1ECF352343FB31C918AF7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124308   (785836) от 11.04.2017
-
-VA - Lounge Expression. Chillout Selection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rawback - Web Dream - Bunny Mix
-02. Inside Soul - Grassland - Rose Extended
-03. Roben Bucks - Falling Apart - Mirror Version
-04. Vintage Bullet - Dance Hole - Soul Cut(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B8CA35134DBA3BE64130ABA154D534CA9B0C760
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124296   (785837) от 11.04.2017
-
-VA - Lounge Sensations Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Deeper Sublime - La Musica Sei Tu  5:58
-02.  Fade - Aguhja  7:06
-03.  Mark One - Out Of Touch  4:05
-04.  Marc Hartman - People Of Beijing  4:36(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB403258BC4DD24C84D0894CD9BD5F79B82A49D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123517   (785919) от 10.04.2017
-
-Holly Wilson - Pink Floyd En Bossa Nova (2006) [MP3|320 Kbps] <Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Brick In The Wall (Part 2)
-02. Time
-03. Money
-04. Us And Them(   Читать дальше...   )Жанр: Easy Listening, OtherПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:384D6BED77FA182694D69162B5CF06236FEDFE49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123672   (785932) от 10.04.2017
-
-Kroy - Scavenger (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hull  (03:45) 
-02. Bones  (04:13) 
-03. Learn  (03:35) 
-04. Monstrosity  (03:14) (   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:35:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BA20E97CDE8A5AB9F7851AF446771FB86437A8
 ```
 
 

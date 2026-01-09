@@ -1,3 +1,30 @@
+###  Публикация: 1378276   (846457) от 25.04.2020
+
+Andru Donalds - Great Artists of My Heart Vol. 03 (2020) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846457.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:29| 01. Andru Donalds - Just For One Day
+|03:45| 02. Andru Donalds - Holdin' On To You
+|04:00| 03. Andru Donalds - Mishale
+|04:21| 04. Andru Donalds - Better Way(   Читать дальше...   )Жанр: PopПродолжительность: 02:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F094CE54973DA3E582E137BDE8F2D041C0EFC5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111810   (846480) от 06.03.2017
 
 Rihanna - MP3 Play (2014) [MP3|320 Kbps] <RnB, Reggae>
@@ -665,33 +692,6 @@ VA - Радио Рекорд Dance 2021 Выпуск 2 [MP3|320 Kbps] <Pop, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:276A4272829427AF6F8B6EC4F7E97A8E86CA53F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498597   (847466) от 02.10.2021
-
-VA - Masters Of Hardcore Chapter XLIII Magnum Opus (2CD) (2021) [MP3|320 Kbps] <Hardcore & Hardstyle, Speedcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847466.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Angerfist - What Happened
-02. Re-Style & Cammie Robinson - Kryptonite
-03. N-Vitral & Never Surrender - Wij Gaan Harder(   Читать дальше...   )Жанр: Hardcore & Hardstyle, SpeedcoreПродолжительность: 02:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8871E133C5AA89F36C2E0A53B8B8FFBF4A97AD
 ```
 
 

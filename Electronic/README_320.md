@@ -1,3 +1,164 @@
+###  Публикация: 1228968   (632192) от 03.06.2018
+
+DJ Rostej - Loneliness (2018) Contemporary Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, IDM, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Callin (06:50)
+ 02. Hidden Path (04:27)
+ 03. Ethereal (06:35)
+ 04. Chilly Autumn (Pt. Two) (07:17)(   Читать дальше...   )Жанр: Downtempo, IDM, AmbientПродолжительность: 01:11:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4FB9EFA4D9D0EE22B2DC05DC656B3B22A7EC3AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908112   (632232) от 15.06.2015
+
+DAB (Digital Analog Band) - 3 альбома (2003-2011) [MP3|192-239 кб/с]<Lounge, Downtempo, Ambient, Dub>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632232.jpg" />
+</div>
+
+
+###  Подробнее
+
+2003 - Best, Vol. 1
+2005 - Best, Vol. 2
+2011 - Best, Vol. 3Жанр: Lounge, Downtempo, Ambient, DubПродолжительность: 02:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48ADBB0CBCDA2686EC20655EBD4D3F9251CCCA6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034970   (632263) от 14.07.2016
+
+Physical Dreams - Cosmos (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Defcon 5 (9:06)
+02. Calima (8:27)
+03. Nothing Is Forever (8:00)
+04. Solar Stone (8:55)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72A7CBB97ADCF54B7C10FE76EC2296DDCD04A4A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034931   (632358) от 14.07.2016
+
+Moby - Music From Porcelain (2016) [FLAC|Lossless|tracks+.cue] <Techno, Trance, Acid House, Ambient, D&B, etc.>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raze – Break 4 Luv (05:24)
+02. 808 State – Pacific State (05:46)
+03. A Tribe Called Quest – Scenario (04:10)
+04. Precious – Definition Of A Track (05:21)(   Читать дальше...   )Тип издания: CD, Compilation •Жанр: Techno, Trance, Acid House, Ambient, D&B, etc. •Продолжительность: 01:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BADFCE240C7DD88F3755632FCCCA7632930D519
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034956   (632368) от 14.07.2016
+
+Benny Benassi - Danceaholic (2016) [MP3|320 Kbps] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Benny Benassi & Chris Brown – Paradise
+ 02. Benny Bennasi – Danceaholic
+ 03. Benny Benassi feat. Richard Judge – Out Of Control
+ 04. Benny Benassi feat. BullySongs – Universe(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF9E45A0805AEA791B45EC3F05C7D80465C5887
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034962   (632425) от 14.07.2016
+
+VA - Techno Club Vol. 50 (Mixed by Talla 2XLC & Kai Tracid) (2016) [FLAC|Lossless|tracks + .cue] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johan Gielen & Talla 2XLC - El Nino (Intro) (1:05)
+02. James Dymond feat. Neve White - With & Without You (5:47)
+03. Talla 2XLC & Andre Visior - Oblivion (Mike Sanders Remix) (4:34)
+04. Jordan Suckley & Sam Jones - Hijacker (A.R.D.I. Remix) (4:06)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD5EE5A679343205894C4C1D0232458468FE6CDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035013   (632501) от 14.07.2016
 
 Ryan Elliott - Fabric 88 (2016) [FLAC|Lossless|tracks] <Progressive House, Techno>
@@ -539,166 +700,6 @@ VA - Dark Rooms - Selection Erotic, Vol 1 (2015) [MP3|320 кб/с]<Electronic, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:623A083BD0728EA7F02E576AD45193E64FD8469F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228814   (634116) от 02.06.2018
-
-Erik Wøllo (Erik Wollo) - Wind Journey (Special Remastered Edition) (2018) Spotted Peccary [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beginning (01:29)
-02. Wind Journey 1 (05:29)
-03. Blue Moon (03:32)
-04. Dream Lines (05:21)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C443B67E41581A7A10956AF2B128367C9FC72EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907596   (634178) от 14.06.2015
-
-VA - Lounge Collection (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Foxtrot Effect - Flotillas (05:53)
-02. Sesion De Los Flores - Back To Yourself (06:01)
-03. Arrojas - Whats For Breakfast (05:49)
-04. Bio Logical Theory - Magnetic Lights (05:53)(   Читать дальше...   )Производство: Lounge MastersЖанр: Downtempo, Lounge, Chill OutПродолжительность: 01:28:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F84462C5DCF5359EB77F25F61EE3957CFD636463
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034368   (634364) от 13.07.2016
-
-36 - Seconds & Forever (2016) [MP3|320 Kbps] <Electronic, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634364.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Seconds & Forever (Part 1)
-2. Seconds & Forever (Part 2)Жанр: Electronic, AmbientПродолжительность: 00:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC318DF3C4CE1E3357C0A055550BE7E8A6243309
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034054   (634367) от 13.07.2016
-
-VA - A House Is Not A Home Without A Dog #01 (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634367.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Roland'Sousa - Feeling This Music (7:19)
-2. Andy Caz - Morning Theme (8:11)
-3. Fragoso - Mint (7:28)
-4. Ruben B Goode - Mind & Soul (6:29)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A1829ECAF64FA48A3BE657C90B842618C6A4EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143311   (634844) от 18.06.2017
-
-Lorde - Melodrama (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Electropop, Dreampop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634844.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Green Light (3:55)
-2. Sober (3:17)
-3. Homemade Dynamite (3:10)
-4. The Louvre (4:31)(   Читать дальше...   )Жанр: Indie Rock, Electropop, DreampopПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C7335DFE299425CC3AD82F401DFC6462588CF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542823   (634920) от 08.04.2022
-
-Boris Brejcha - Die Maschinen sind Gestrandet (2022) Remastered [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Verstaubter Fruchtzucker (Remastered) (7:16)
- 02. Shikora (Remastered) (7:03)
- 03. Push to Play (Remastered) (7:02)
- 04. Anabella (Remastered) (7:10)(   Читать дальше...   )Жанр: Tech House, Techno, MinimalПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB37A94D499448C61F3B558ABDE3A61DB82DFED1
 ```
 
 

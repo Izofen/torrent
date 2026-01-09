@@ -1,3 +1,30 @@
+###  Публикация: 1228082   (640932) от 29.05.2018
+
+Charles Aznavour - Mélodies inoubliables (2018) [FLAC|Lossless|WEB-DL|tracks] <French Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Je m'voyais deja
+02. Jezebel
+03. Heureux avec des riens
+04. Il faut savoir(   Читать дальше...   )Жанр: French PopПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB5F16B730FA2C862D873A7CF408072206F31E95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906976   (641476) от 10.06.2015
 
 Rick Astley - The Best Of (2014) [FLAC|Lossless]<Pop>
@@ -662,33 +689,6 @@ VA - Les Inrockuptibles: La bande-son du printemps 2019 (2019) [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0444D29082C6E72618F887E33E789704ECFF776
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291913   (648843) от 28.03.2019
-
-B. Fleischmann - Stop Making Fans (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Comes The A Train
-02. You're The Spring
-03. We've Heard The Talking Heads Talking
-04. There Is A Head(   Читать дальше...   )Жанр: Electronic, Pop, Indie PopПродолжительность: 01:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A99464265331D8BFBED0B99E0BD1B9AF7BC6C0
 ```
 
 

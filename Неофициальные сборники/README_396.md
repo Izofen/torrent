@@ -1,3 +1,30 @@
+###  Публикация: 1032207   (645947) от 07.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 72 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hurricanes - Only One Night ( 1988 )
+02. Seal - Kiss From A Rose ( 1994 )
+03. Night Society - Hold Me Tight ( 1985 )
+04. E-Lusion - Use Your Love ( 1998 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23025483C437DCF4E6EE3288A27D8929A8A3E5CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032228   (645956) от 07.07.2016
 
 VA - Зарубежная Дискотека ХХ Века - 76 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
@@ -668,33 +695,6 @@ VA - ЕвроХит Топ 40 Europa Plus 25.05.2018 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:057AC6D86344A5694485E71722C2683428FF299F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292292   (646800) от 29.03.2019
-
-VA - Ragga Jungle (2019) [MP3|320 Kbps] <Reggae, Dub Ska, Jungle>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646800.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Stephan Warren - Drum Rass Riddim
-002. Funky Kingston Feat. Pispalan Rini - Vonkale
-003. Morgan Heritage - Revolution Is A Must In Dub
-004. Nature Makonnen - Rastafari Children(   Читать дальше...   )Жанр: Reggae, Dub Ska, JungleПродолжительность: 09:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F836469E5D26514CB296CA447225B188D547EDD
 ```
 
 

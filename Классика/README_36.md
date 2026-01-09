@@ -1,3 +1,84 @@
+###  Публикация: 1208354   (779781) от 23.02.2018
+
+Jacqueline Leung - In Sunshine or In Shadow (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. By the Sleepy Lagoon
+02. Aragon
+03. Irish Tune from County Derry
+04. Duport Variations in D Major, K. 573: Variations 1-9(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F369BF6238CA08B171C98038829A2EADD51F977C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207030   (780515) от 18.02.2018
+
+Akira Kosemura - In The Dark Woods (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Minimal>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dna (5:16)
+ 02. Resonance (2:01)
+ 03. Between the Trees (3:29)
+ 04. Sphere (4:22)(   Читать дальше...   )Жанр: Modern Classical, Ambient, MinimalПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD55593FDC4C506BFE2B29DF5A37616A0B213950
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391493   (781000) от 20.06.2020
+
+Andrew Jasinski - Sea (2014) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Neo-Classical, Instrumental, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_781000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sea (3:20)
+02. В лесу родилась ёлочка... (russian christmas song) (2:28)
+03. Mountains of Adygea (3:16)
+04. Your Eyes (1:50)(   Читать дальше...   )Жанр: Modern Classical, Neo-Classical, Instrumental, PianoПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F1595F7D23EBB3FA5EE2435B579DDB4D6E9A04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391496   (781016) от 20.06.2020
 
 Andrew Jasinski - Embracing the Universe (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Neo-Classical, Instrumental, Piano>
@@ -612,87 +693,6 @@ magnet:?xt=urn:btih:84A5432C998AA35C7E7E25AB5821E015C385D9FD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C5A52ABF7F100CC0E94817EDD70D958D0A93B88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121732   (799617) от 03.04.2017
-
-Isao Tomita - Different Dimensions (1997) [FLAC|Lossless|tracks + .cue] <Electronic, Modern Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Debussy: Snowflakes Are Dancing (2:14)
-02. Villa-Lobos: Dawn Chorus (5:41)
-03. Ravel: Bolero (9:17)
-04. Moussorgsky: Ballet of the Chicks in Their Shells (1:09)(   Читать дальше...   )Жанр: Electronic, Modern ClassicalПродолжительность: 01:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACE20B440AF5F6CA742A1246DDBFE1B353699ADD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199714   (800069) от 17.01.2018
-
-VA - 50 Piano Masterworks (2017) [MP3|320 Kbps] <Classical>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800069.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Helene Grimaud  -  Johann Sebastian Bach (Partita or Violin Solo No.3 in E Major, BWV 1006 - 1. Preludio)  3:42
-02.  Emil Gilels  -  Edvard Grieg (Lyric Pieces Book X, Op.71 - 3. Puck)  1:43
-03.  Alice Sara Ott  -  Frederic Chopin (Waltz No.1 in E flat, Op.18 - 'Grande valse brillante')  5:43(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5553547482ECB25422B466698D0B24F373BBCD24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199761   (800142) от 17.01.2018
-
-Riccardo Muti & Wiener Philharmoniker - New Year's Concert 2018 (2018) 2CD [FLAC|Lossless|tracks + .cue] <Classical, Orchestral>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freikugeln, Polka schnell, op. 326 (2:48)
- 02. Geschichten aus dem Wienerwald, Walzer, op. 325 (12:29)
- 03. Festmarsch, op. 452 (4:10)
- 04. Stadt und Land, Polka Mazurka, op. 322 (4:23)(   Читать дальше...   )Жанр: Classical, OrchestralПродолжительность: 01:53:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473F470FDAB6C2BBFC0F28F3D7642BB0CA0B4D75
 ```
 
 

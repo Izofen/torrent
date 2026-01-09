@@ -1,3 +1,30 @@
+###  Публикация: 1221118   (698707) от 22.04.2018
+
+VA - View In Color: Deep House Club Essential (2018) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698707.jpg" />
+</div>
+
+
+###  Подробнее
+
+С каждым наступившим новым днём все больше убеждаешься, что прочувствовать приход весны, тёплого солнца и настоящего отдыха помогает правильная музыка. Речь идет о направлении House, Deep-House – это относительно спокойная, гармоничная и глубокая музыка, помогающая максимально расслабиться и отрешиться от суеты.001. Universe 314 - The Segret Is Dream (Deepbass Mix)
+002. Captain Freeman - Don't Do It
+003. Star Hub - A Matter (Modell & Mercier's Fashion Mix)
+004. Todor Ivanov - Sunrise (Original Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 08:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948B062E969AA46EC547AAE163B5CB7E395FB887
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221101   (698711) от 22.04.2018
 
 VA - EUROMANIA: Rave Hits vol. 1-4 (2015) [MP3|320 Kbps] <Eurodance, Rave, Techno, Electronic>
@@ -665,33 +692,6 @@ VA - Night In The Tropics (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DE45A1B5388750F366702CC3BDC3155AC2FD8F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402549   (699824) от 15.08.2020
-
-VA - German Top 100 Single Charts 14.08.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jawsh 685 & Jason Derulo - Savage Love (Laxed - Siren Beat)
-02. Apache 207 - Bläulich
-03. KitschKrieg & Jamule - Unterwegs
-04. Samra - 24 Stunden(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38BF430A7345E93C5DC15908A127EA19DF4B199F
 ```
 
 

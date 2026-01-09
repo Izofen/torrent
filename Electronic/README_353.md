@@ -1,3 +1,165 @@
+###  Публикация: 794044   (700377) от 07.06.2014
+
+Of Norway - Accretion (2014) [FLAC|Lossless|WEB-DL]<Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yours Is A History Of Violence
+02. Spirit Lights (feat Linnea Dale)
+03. Accretion
+04. Love Is Over(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:07:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F586B2B14538B75ED5D8B94E95B24D0E91559DBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026951   (700406) от 17.06.2016
+
+VA - Goa Trance Vol.32 (2016) [MP3|320 кб/с] <Trance, Psy-Trance, Psychedelic>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waio - Searching for Signals (Symbolic Remix) 8:28
+02. Ace Ventura & Symbolic - Prime Time (Avalon Remix) 8:23
+03. Relativ - Tomorrow Last Forever 8:51
+04. Freak Control - Dmt Trip 6:51(   Читать дальше...   )Жанр: Trance, Psy-Trance, PsychedelicПродолжительность: 02:24:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26F49B0CD4DA2C959CEC623BBDD39981591C9FD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220927   (700526) от 21.04.2018
+
+VA - Markus Schulz presents In Bloom Volume One (2018) (EP) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Markus Schulz & Jes - Calling for Love (Original Mix)
+02.Markus Schulz & Emma Hewitt - Safe from Harm (Club Mix)
+03.Andy Moor & Adina Butar - Wild Dream (Original Mix)
+04.Dave Neven & Ellie White - Try for Me (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:20:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20B6818F69AC97EB468CB7AC3A5CD12AA278E2AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132721   (700627) от 09.05.2017
+
+Коммутатор - Триумф Воли (2008) [MP3|256 Kbps] <EBM, Industrial, Synthpop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ультиматум (03:30)
+02. Безумный Мир (04:03)
+03. Встань С Колен (04:02)
+04. Триумф Воли (Album Version) (05:40)(   Читать дальше...   )Жанр: EBM, Industrial, SynthpopПродолжительность: 00:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A362553DE4B1CDB406525BF561F8D44319E032AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220792   (700651) от 21.04.2018
+
+Willits + Sakamoto (Christopher Willits & Ryuichi Sakamoto) - Ancient Future (2012) Ghostly International [FLAC|Lossless|tracks+.cue] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reticent Reminiscence (05:04)
+ 02. Abandoned Silence (04:31)
+ 03. I Don't Want To Understand (07:11)
+ 04. Levitation (04:26)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8D4503CC338973975214563B7A2D4651E0958D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220895   (700652) от 21.04.2018
+
+VA - Aly & Fila - Future Sound of Egypt 544 (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hazem Beltagui - Reasons To Love (Extended Mix)
+02. iiO - Rapture (Hot TuneiK Remix)
+03. D-Formation - Anbar (Original Mix)
+04. Eelke Kleijn - The Method (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive Trance,Uplifting TranceПродолжительность: 01:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C44EEDF96AEA9B2C8C0BBC6BB0D60AB4F65DC04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220877   (700660) от 21.04.2018
 
 VA - Ori Uplift & Ellez Ria - Uplifting Only 271 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -532,169 +694,6 @@ Little BIG - Skibidi (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Rave, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E60D3BEC4C75DDFC6D803CEE4A83F6725120F5E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286673   (703474) от 07.03.2019
-
-Eurythmics - Missionary Man, Live Concert 1984 (2000) Unofficial Release, Bootleg [FLAC|Lossless|image + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sex Crime
-02. Let's Go
-03. The Last Time
-04. Here Comes The Rain Again(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:925E5A3B6BA7ED3531C0B80AAD3034D70F459CC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 894851   (703578) от 04.05.2015
-
-VA - Bar and Grooves (30 Smooth Summer Tunes) (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703578.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cor De Savina - Mariana Green (06:27)
-002. The K2 Project - Suntanner (03:14)
-003. Chantell - Dreaming Of You (Naked On The Beach Mix) (05:26)
-004. Greg Knight - Chocolate & Marmelade (05:22)
-005. Steven Dual - Flying (Balearic Guitar Mix) (04:18)(   Читать дальше...   )Производство: Cherry Lounge RecordingsЖанр: Downtempo, Lounge, Chill OutПродолжительность: 02:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E8808281287D3F98A3B2B1FE1E4C2A690D02DDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287512   (703616) от 07.03.2019
-
-VA - 8 марта '10 Танцевальная версия (2010) [MP3|320 Kbps] <House, Euro House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pakito - Harmony (3:33)
-02. Sunrise Inc. - Forever in My Soul (Extended Mix) (Extended Mix) (6:45)
-03. Scooter - Ti Sento (4:03)
-04. ATB pres. Flanders - Behind (2:50)(   Читать дальше...   )Жанр: House, Euro House, Progressive HouseПродолжительность: 01:33:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:996C89D7F7324E9537F01D8DD9E3B2AC68289F68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287511   (703694) от 07.03.2019
-
-VA - 8 марта '09 Танцевальная версия (2009) [MP3|320 Kbps] <House, Euro House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Mind - Baker Street (3:19)
-02. Basshunter - Angel In The Night (2:54)
-03. Jf Ray London - Blue (Da Ba Dee) (3:36)
-04. Commercial Club Crew - La Isla Bonita (Crew 7 Radio Remix) (3:00)(   Читать дальше...   )Жанр: House, Euro House, Progressive HouseПродолжительность: 01:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D65ED55AD8A47A4811FC4916BC0699637BE3DA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402271   (703813) от 13.08.2020
-
-Bronson - Bronson (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro House, Tech House, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FOUNDATION (3:04)
- 02. HEART ATTACK (3:30)
- 03. BLINE (4:25)
- 04. KNOW ME (3:00)(   Читать дальше...   )Жанр: EDM, Electro House, Tech House, ExperimentalПродолжительность: 00:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1461BC2648286E3065AC38C93DFD983455BF8E6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026523   (704070) от 15.06.2016
-
-VA - Disco Fever (2016) [MP3|320 кб/с] <House, Disco, Nu-Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discotron - Bang Bang (5:25)
-02. Jack Le Funk - The Disco Ride (5:25)
-03. Serial Thrilla - A Lil Higher (5:46)
-04. Audio Jacker - Shake That Ass (5:33)(   Читать дальше...   )Производство: Tasty RecordingsЖанр: House, Disco, Nu-DiscoПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0548F07CA7F598E0C07C437D352CA5799B7B244C
 ```
 
 

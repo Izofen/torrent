@@ -1,3 +1,30 @@
+###  Публикация: 1389942   (783565) от 13.06.2020
+
+VA - Music News vol.19 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783565.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Вера Брежнева - Хорошие Новости (KM & Alex Davia Remake) (02:46)
+ 002. 6ix9ine feat. Nicki Minaj - Trollz (03:23)
+ 003. 24kGoldn - Valentino (Imanbek Remix) (02:58)
+ 004. 410 - Мотылек (03:00)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 11:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A893AD9B4553E83F7345BBA6244AC57BFE49EA75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390023   (783658) от 13.06.2020
 
 VA - ЕвроХит Топ 40 Europa Plus 12.06.2020 [MP3|320 Kbps] <Pop, Dance>
@@ -667,32 +694,6 @@ Alan Walker - Faded (2017) Remix, Cover Sara Farel [MP3|192 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A60C2348DFD3821CBD12703BF0D6162778643F06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204434   (784232) от 07.02.2018
-
-The Beloved - Sweet Harmony (2017) Remix [MP3|192 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784232.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sweet Harmony
-2. B&G Remix
-3. Up MusicЖанр: Deep HouseПродолжительность: 00:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D8C3F4E328BB497E1E12D36FF748DE8C36284D3
 ```
 
 

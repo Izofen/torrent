@@ -1,3 +1,30 @@
+###  Публикация: 1530754   (727826) от 12.02.2022
+
+VA - Happy Pop Dance Party (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727826.jpg" />
+</div>
+
+
+###  Подробнее
+
+В некоторой степени несерьезный и легкомысленный сборничек, где собраны заводные популярные поп-мелодии со всего света. Мелодии, которые непринуждённо "застревают" в голове, но тем не менее не вызывают дискомфорта.001. Jts & Tatsunoshin - Afterlife
+002. Stayc - I'll Be There
+003. Urban Cookie Collective - Champagne Supernova
+004. Ariana Bell - Your Touch(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59B0D411770D75998C853E68D4048B0837E80DB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022674   (727851) от 03.06.2016
 
 VA - Future Feelings Club Disco House (2016) [MP3|128-320 кб/с] <Electro, Disco, Club House>
@@ -668,33 +695,6 @@ VA - Rock Blues Ballads Story 12 (2017) [MP3|320 Kbps] <Rock Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5C382CF0D2FFAF39E1CF722AFC0BF15F7EA5386
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530223   (729681) от 10.02.2022
-
-VA - Сегодня на радио хиты FM Vol.12 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Konfuz - Пропал интерес (1:48)
-02. Артур Пирожков, Клава Кока - Хочешь (2:01)
-03. Graham Lake - FOCUS (2:06)
-04. Markul, Джарахов - Я в моменте (2:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43DB9172F05D3156EF3EAFCBC278D356DD68138
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1199348   (801689) от 15.01.2018
+
+VA - Trance Winter Essentials Vol.01 (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vintage & Morelli  -  While The Earth Sleeps (David Broaders Remix)  5:30
+02.  Dezza  -  Deja Vu (Original Mix)  7:02
+03.  Eleven.Five & Incognito Soul  -  Disguise (Mizar B Remix)  5:54
+04.  Catherine feat. Blugazer & Blue Symmetry  -  Vertigo (Eleven.Five Remix)  7:49(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7550E5B06861A15CBBF50A8BF29CAB44FABC7B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384579   (801749) от 21.05.2020
+
+Yppah - Sunset in the Deep End (2020) [FLAC|Lossless|Web-DL|tracks] <Ambient, Breaks, Experimental, Dream Pop>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreams Like You (feat. Shaunna Heckman) (5:44)
+02. Light Cycle (4:30)
+03. Pieces (5:21)
+04. Shadows Climb The Wall (5:23)(   Читать дальше...   )Производство: Future Archive Recordings - 3663729104908Жанр: Ambient, Breaks, Experimental, Psychedelic, Shoegaze, Dream PopПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7A643539466C8E532B527156F3F1069589CC918
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198979   (801770) от 15.01.2018
+
+VA - Kamasutra Sensual Chillout Vol.5 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sanjay Farrell - Higher Level
+02. Joey Connor - Rooftop Bar
+03. Quika 76 - Reaching Tarbaby
+04. Sweet Ocean - Soft Emotion(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD4A11CF37BEE4EE1DC9B65717FBAB7844EB62E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199047   (801771) от 15.01.2018
+
+Islandman - Rest In Space (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801771.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Agit (04:39)
+2. Rest In Space (05:06)
+3. Ikaru (05:00)
+4. Night Wind (04:12)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F862C36EA7CAAFD28FECBA1BE76F1227BCB1D425
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198907   (801834) от 15.01.2018
+
+Hed Kandi - Beach House (2010) [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801834.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01 South Street Player - (Who) Keeps changing your mind (Daniel Bovie & Roy Rox Remix)
+02 Choklate - The Tea (The Layabouts Main Vocal Mix)
+03 Christian Hoff & Lily McKenzie - Take You(   Читать дальше...   )Жанр: HouseПродолжительность: 03:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AAE50D7BAD9C7BA860D849AFC8DD6FCE8035162
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199213   (801835) от 15.01.2018
+
+VA - Future Sounds. EDM (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Maureen Sky Jones & DJ Combo  -  I Had A Dream (Stephan F Remix)  4:44
+02.  Geo Da Silva & DJ Combo  -  To My Beat (Original Mix)  3:39
+03.  Turbotronic  -  Show Me The Money (Original Mix)  4:13
+04.  Mr. Pit & Sean Norvis feat. Justine Berg  -  Afraid To Feel (Original Mix)  5:24(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDACB54FC357EDFB94A76021935E40462056DE64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199386   (801836) от 15.01.2018
 
 VA - Aly & Fila - Future Sound Of Egypt 530 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -533,168 +695,6 @@ Brandy Kills - The Silent And The Blocked (2018) [FLAC|Lossless|image + .cue] <S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7EA4975568F32EBD5AECD1B64BE82ECB53BDF6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198897   (802945) от 14.01.2018
-
-VA - Future Electronic Chillout - Top Downbeat Lounge Grooves (2018) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Moon Pub  -  Across The Horizon (Spheric Dance Mix)  4:52
-02.  Kling One  -  Going Up (Mystical Electronic Downtempo Mix)  5:04
-03.  Kevin Engelstein  -  Until We See The Ocean (Balearic Downtempo Mix)  4:45
-04.  Ryan Pearce  -  Use Your Words (Melancholic Downbeat Mix)  4:39(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BC6CE9B38B485504C6064747E0D51AA118F5CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198848   (802947) от 14.01.2018
-
-York - Peace (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Farewell To The Moon  6:33
-02.  Angels Will Help You  5:32
-03.  The Awakening  5:05
-04.  Inmortal  6:21(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 01:16:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:874CA8A0DD372516F8D7A8BB1E099653731BA7B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198745   (802949) от 14.01.2018
-
-VA - Black Hole Trance Music 01-18 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jam & Spoon  -  Odyssey To Anyoona (Markus Schulz vs. Jam El Mar Remix)  4:16
-02.  Alex Karweit  -  Choosing His Angels (Extended Club Mix)  7:33
-03.  Ferry Corsten  -  Wherever You Are (feat. HALIENE) (Solis & Sean Truby Extended Remix)  6:49
-04.  Dirkie Coetzee  -  Nymeria (Extended Mix)  5:34(   Читать дальше...   )Жанр: TranceПродолжительность: 02:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7EF61E892EE5A96184BAD86229C6201E78918C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198644   (802951) от 14.01.2018
-
-VA - Lemongrass Garden Vol.8 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Marc Hartman  -  Love Can Save The Day (To Roberto Concina)  5:36
-02.  Eskadet  -  Stars In Your Eyes  5:54
-03.  Malkou  -  Chateau De Vincennes  3:49
-04.  Roberto Bronco  -  Rollin  5:02(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59583FA9EB9F291BBF9BB8E9CCF210325628B43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198842   (802955) от 14.01.2018
-
-VA - Best Of LW House II (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Audiowhores  -  Sometimes (Sean Finn Recall)  5:56
-02.  JB & Charlie Hedges  -  Best Night Oml (Pt. 2) (Lindo Martinez Remix)  7:01
-03.  Damon Hess & Emilie Cunliffe  -  Dancefloor (Original Mix)  5:21
-04.  Afrojack  -  Chords (George F, Eran Hersh & Darmon 'Blow Your Mind' Remix)  9:03(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:800C76E3BAF0631BB5173F4E52346DFE863715DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198593   (802957) от 14.01.2018
-
-VA - Chilling Me Softly (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Active Waves - Cafe Montmatre  03:23
-02. LPA City - Maspalomas Sunset  05:02
-03. Makia Blue - Nauthiz  03:23
-04. Dark and Light - To See You Again  03:37(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B731BB1047E41C2DD07FEDE2125970CBD6465045
 ```
 
 

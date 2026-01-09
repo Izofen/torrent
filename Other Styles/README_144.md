@@ -1,3 +1,300 @@
+###  Публикация: 1197044   (818897) от 05.01.2018
+
+Mezzo Piano - Love Has a Name (2017) [MP3|320 Kbps] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Halls of Heaven
+02. Let Our Faith Become a Mountain
+03. Weight of Heaven
+04. Love Has a Name(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 01:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0564779883251707B7038090C43640A40626AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116883   (818937) от 22.03.2017
+
+Ramin Djawadi - The Great Wall / Великая стена (Original Soundtrack Album) (2017) [FLAC|Lossless|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nameless Order (04:27)
+02. Prologue (01:49)
+03. What A Wall (03:46)
+04. The Great Wall (04:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0760446D40FC873A9383FFB96B580FEF10932A08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116882   (818944) от 22.03.2017
+
+Ramin Djawadi - The Great Wall / Великая стена (Original Soundtrack Album) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nameless Order (04:27)
+02. Prologue (01:49)
+03. What A Wall (03:46)
+04. The Great Wall (04:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A77CEE5E7D312409665A64BEF79813F275BADC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382604   (818983) от 11.05.2020
+
+Danheim - Hringrás (Hringras) (2019) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk, Ambient Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vaftrudner (4:17)
+02. Óðinn (Danheim & Gealdýr) (5:34)
+03. Hringrás (5:23)
+04. Lifa & Dauðr (6:07)(   Читать дальше...   )Производство: Danheim Self-releasedЖанр: Dark Folk, Nordic Folk, Ambient Folk, Viking MusicПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D04AD5D99AA467D74A0FB23681C6C73F6917A010
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117154   (819093) от 22.03.2017
+
+Canda & Guru Atman - Healing Yoga Mantras (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Feel the Breath (Opening) (2:11)
+02.  Om Ah Hum - Hold My Hand (Vajra Guru Mantra) (7:56)
+03.  Hey Shivaya - Welcome Shiva (Shiva Mantra) (7:41)
+04.  Sarvesham - May We All Feel Free (Shanti Mantra) (7:18)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E3AD1324026A9D53A447DB5AE11E4B43782B79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382605   (819115) от 11.05.2020
+
+Danheim - Runagaldr (2018) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk, Ambient Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runatal (Danheim & Sigurbodi) (6:05)
+02. Egilsson (5:49)
+03. Feikinstafir (3:55)
+04. Fella (3:12)(   Читать дальше...   )Производство: Danheim Self-releasedЖанр: Dark Folk, Nordic Folk, Ambient Folk, Viking MusicПродолжительность: 00:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED4FDDCB6B5B963CDE730DE49785DBE0F212BDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382226   (819134) от 11.05.2020
+
+Jim Brickman - Blessed (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819134.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. How Great Thou Art
+2. Were You There
+3. Abide With Me
+4. Come You Thankful People(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB21548112705D139D2864A38023E4C764AD6034
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382458   (819271) от 11.05.2020
+
+Bruce Kurnow - Peaceful Sunset (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819271.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Peaceful Sunset 03:28
+2. The Light in Your Eyes 02:50
+3. Midnight Tide	04:49
+4. Shenandoah 04:15(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E7EBC1404288828CDE9ECF97E600C129C67EB99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007258   (819323) от 16.04.2016
+
+Mark Knopfler & Evelyn Glennie - Altamira (2016) [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Altamira (2:59)
+02. Maria (3:34)
+03. Dream Of The Bison (2:53)
+04. By The Grave (2:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBA6A4AACA0B93ACD032C947E18CA36B1178E12B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503501   (819398) от 19.10.2021
+
+24Relax - Native American Music (2021) 2CD [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pacific Blue
+02. The Power of Native Spirit
+03. Native American Horses
+04. The Nomadic Ancestors(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D6838D63E03AFE8E670BCBB6EB75A397313A17E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007215   (819657) от 16.04.2016
+
+George Winston - Remembrance (A Memorial Benefit) (2001) [MP3|320 кб/с] <Folk, World, Country>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lament    02:23
+02. Where Are You Now    04:03
+03. Remembrance    03:50
+04. Where The Sun Rises First    05:06(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:28:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E2EC89E7D556D152AC649802BEEE4FDFF60112
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196839   (820415) от 04.01.2018
 
 ДиДюЛя - Лучшее (2010) 2CD [FLAC|Lossless|image + .cue] <Instrumental>
@@ -397,303 +694,6 @@ magnet:?xt=urn:btih:A32F18EFAF754743095426E6FDD9CED03DB5E05F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6701557CBF61EDA506D0AA3A3A77FFB3B6BFAC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502730   (822568) от 17.10.2021
-
-Jim Brickman - The Ultimate Christmas Playlist (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy To The Night (3:56)
-02. O Christmas Tree (3:58)
-03. Little Drummer Boy (3:28)
-04. Christmas Time Is HereO Christmas Tree (3:58)(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB5FBC4F99939CEA0B2EE2F6E29C4E0D379D99F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115379   (822615) от 20.03.2017
-
-Alan Menken & VA - Beauty and the Beast / Красавица и чудовище (Original Motion Picture Soundtrack) (2017) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Menken - Main Title: Prologue (03:02)
-02. Alan Menken - Belle Meets Gaston (00:54)
-03. Alan Menken - Your Mother (02:14)
-04. Alan Menken - The Laverie (01:22)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 02:11:56 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7627050750363C03F8215CE040F18CA970A11CBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381839   (822654) от 09.05.2020
-
-Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klaymen Shuffle
-02. Olley Oxen Free
-03. Everybody Way Oh!
-04. Rock And Roll Dixie(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A5E070B9F9ACC7E5824D6EDC8CBFCFC38F7EAFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116615   (822748) от 20.03.2017
-
-Кукуруза - Там, где солнечный свет (1993) [FLAC|Lossless|image + .cue] <Country, Bluegrass>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Widow Woman (Traditional) (4:41)
-02. Poor Wayfaring Stranger (Traditional) (3:27)
-03. Ты мне не был чужим / You Were Not A Stranger To Mе (Andrew Shepelev) (3:49)
-04. Coming Back To You (Leonard Cohen) (3:31)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B516203AC7708EBAE6EDF8F3892B82E96CA2BA10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116163   (822758) от 20.03.2017
-
-VA - Imaginary Tibetan Journey Music Soothing Atmosphere, Namaste Yoga, Deep Meditation (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ageless Tibetan Temple - Imaginary Tibetan Journey Music
-02. Brain Stimulation Music Collective - Asian Meditation (Cello & Waves)
-03. Reiki Healing Zone - Deep Sleep: Calming Music
-04. Deep Aura Meditation Ambient - Breathing Light(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C79BDEA0970731A789B86BC84A45EECA445685
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 775391   (823550) от 09.04.2014
-
-VA - Just Spice Of Duduk (part 3) (2002) [FLAC|Lossless]<Duduk/Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mher K. - Dzori Miro (7:10)
-02. Serge - Ready 2 Realise (6:00)
-03. Sevada - Past Remains (7:22)
-04. Artashes - Eyes Of Hope (4:49)(   Читать дальше...   )Жанр: Duduk/InstrumentalПродолжительность: 01:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECF2DBCB3B83530A5D0AD0F7355E8585257136E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382896   (823849) от 08.05.2020
-
-Edelis - 12 альбомов, EP & Single (2008 - 2018) [MP3|320 kbps] <New Age, Ambient, Ethno>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект «Эделис» - представляет собой интересное смешение стилей Ambient, New Age, Ethno, электронной и этнической музыки.01. Moons Merger - 05:01
-02. Touch - 04:29
-03. Phoenix's Dreams - 03:30
-04. Back to Sky - 04:36(   Читать дальше...   )Жанр: New Age, Ambient, EthnoПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F56FD625981A476D7749840A5523FD147D6354C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381596   (823996) от 08.05.2020
-
-Greg Maroney - Moving On (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823996.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Moving On	03:15
-2	Odyssey	04:14
-3	Winter Is Coming	03:39
-4	Dancer	03:45(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA4C73955BCB73B2E7225AA93108242692C85FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196333   (823999) от 02.01.2018
-
-Mokadelic - Gomorra: La Serie (2014) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Experimental>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dust Ring (3:45)
- 02. Right to the Edge (2:51)
- 03. Doomed to Live (2:42)
- 04. Stoke the Baptism of Fire (3:41)(   Читать дальше...   )Жанр: Electronic, ExperimentalПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165969177FE99F7B498CFC0A9B6D9125D32A16C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116154   (824442) от 19.03.2017
-
-Петр  Dранга (Петр Дранга) - Перспектива (2011) Полная Версия 22 трека [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интродукция
-02. Виртуозо
-03. Вечер
-04. Ирландский ветер(   Читать дальше...   )Жанр: Instrumental, AccordionПродолжительность: 01:10:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EB7B69341F2DA5D967DA888F6EBA505BBFF2909
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381386   (824465) от 08.05.2020
-
-New Age, Creative Mind Master, Asian Zen - Home Zen Learning (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824465.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Deep Focus with Tibetan Bowls 03:52
-2. Better Stimulation 03:32
-3. All Day Motivation 03:31
-4. Pineal Gland Activation 03:34(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE2D7DA2F5F62192B5031DF9FED7FA9CBC011048
 ```
 
 

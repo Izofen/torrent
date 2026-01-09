@@ -1,3 +1,30 @@
+###  Публикация: 1383294   (811725) от 15.05.2020
+
+VA - Nu Metal Heaven (2020) [MP3|320 Kbps] <Metal, Nu-Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papa Roach - Top Of The World 3:54
+02. Linkin Park - Numb 3:06
+03. Evanescence - Wasted On You 4:23
+04. Slipknot - Wait And Bleed 2:28(   Читать дальше...   )Жанр: Metal, Nu-MetalПродолжительность: 03:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC4996967B01F0AAF89AF11AB5C367B43EF24EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383315   (811726) от 15.05.2020
 
 VA - Today's Best Ballads (2020) [MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - Schlagerparade (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B8A1BC6045D400AB2505F00B37E524AB2A83DA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383071   (813750) от 14.05.2020
-
-VA - Happy Love Day (2020) [MP3|320 Kbps] <Pop, Lyric>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Coco - Villa Bonita
-02. Luke Evans - Show Me Heaven
-03. Penny Police - Kig Op
-04. Glenn Soukesian - Figure It Out(   Читать дальше...   )Жанр: Pop, LyricПродолжительность: 05:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A682864420D4B496479ED1DE2E016F699271ECC3
 ```
 
 

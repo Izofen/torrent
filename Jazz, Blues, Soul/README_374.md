@@ -1,3 +1,219 @@
+###  Публикация: 1547808   (601972) от 30.04.2022
+
+Jane Lee Hooker - Rollin (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucky [04:55]
+02. Drive [04:19]
+03. Jericho [04:03]
+04. Weary Bones [03:36](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00: 32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77678D9C656EA6E1F19E52A8B24C07284B0FDADB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547807   (601980) от 30.04.2022
+
+Rory Gallagher - Live In San Diego '74 (2022) Live At The San Diego Civic Center, CA, USA, 1974 [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Messin' With The Kid
+02. Cradle Rock
+03. I Wonder Who
+04. Hands Off(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C879EEA41B222C0141E47108E1026F1FA10E055B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547995   (602005) от 30.04.2022
+
+Parov Stelar - Moonlight Love Affair (2022) [FLAC|Lossless|image + .cue] <Nu Jazz, Electro Swing, Electronic>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Его настоящее имя - Marcus Füreder, его сценический псевдоним - Parov Stelar. Он популярный австрийский DJ, основатель группы The Parov Stelar Band и создатель лейбла Etage Noir Recordings.Marcus родился 27 ноября 1974-го года в Linz, Austria, и с самого раннего детства увлекался музыкой. Впрочем по-настоящему о музыкальной карьере Marcus задумался позднее, (   Читать дальше...   )01. Candy Girl feat Vallemarie (2:43)
+02. AKH Odessa feat The Russian Gentlemen Club (4:01)
+03. Toxic Lover (2:57)
+04. Fire (2:35)(   Читать дальше...   )Жанр: Nu Jazz, Electro Swing, ElectronicПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C81591E2AADC3A650C6BA4D1FEAF80C06314CFB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547658   (602021) от 30.04.2022
+
+Jazz Relax - Smooth Jazz Piano (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Jazz Club (2:27)
+02. Whisky at the Jazz Bar (3:45)
+03. Jazz Romance (3:14)
+04. High Rise Bar (2:46)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:806ED422946A95791E82093075EA09D61553ED19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547868   (602048) от 30.04.2022
+
+Budapest Ragtime Band - The Best Of (2001) 2CD, BRB Records [FLAC|Lossless|tracks + .cue] <Dixieland, Ragtime>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602048.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Maple Leaf Rag [2:57]
+02. Scott Joplin's New Rag [3:44]
+03. The Ragtime Dance [3:04](   Читать дальше...   )Жанр: Dixieland, RagtimeПродолжительность: 01:53:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1FF62CB37344A4F39CEA6EB8E7CF89D135716F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547694   (602053) от 30.04.2022
+
+Red Mitchell & Jimmy Rowles - Red'N Me (1978) 1991, Dreyfus [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama G. [6:38]
+02. In the Middle of a Kiss [4:44]
+03. The Persian [6:13]
+04. The Woman in the Shoe [4:33](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E47490D979C1D5674616FB18F2522B5B922B17D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149058   (602483) от 09.07.2017
+
+The Swagger Kings - Rock 'N' Twang (2017) [MP3|320 Kbps] <Retro Blues, Jump, Rockabilly>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. Honey Darlin' Please (Feat. Michael Adrian) (03:04)
+02. Baby Doll's (03:47)
+03. Broken Hearted (03:33)(   Читать дальше...   )Жанр: Retro Blues, Jump, RockabillyПродолжительность: 01:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8738F5901C021F2533B49B649E4A7A073A882729
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149201   (602579) от 09.07.2017
+
+Aynsley Dunbar - Mutiny (2009) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  La Do Da  (03:35) 
+02.  For What It's Worth  (04:51) 
+03.  Juicy John Pink  (04:58) 
+04.  Chung's Revenge  (05:24) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1699AB70F20BC4154A20FE9FD0A25BC218FA5F05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149207   (602585) от 09.07.2017
 
 Carol Welsman - I Like Men: Reflections Of Miss Peggy Lee (2009) Welcar Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -478,222 +694,6 @@ Pat Boyack & The Prowlers - On The Prowl (1996) [MP3|320 Kbps] <Modern Electric 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F87DD60FC857FC670146B3DD02F852039F5E3B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148578   (603496) от 07.07.2017
-
-Dean Martin - Everybody Loves Somebody (1998) Prism Leisure [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everybody Loves Somebody [02:04]
-02. Don't Let The Stars Get In Your Eyes [02:31]
-03. Deep Purple [02:42]
-04. I Wonder Who's Kissing Her Now [01:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABF467E4C2CB874C6C2628464FF28C14302B74B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148390   (603497) от 07.07.2017
-
-Hendrik Meurkens - Samba To Go! (2009) ZONO Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, World Fusion, Brazilian Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spaceburger [05:20]
-02. Odessa in April [06:36]
-03. Samba To Go! [04:31]
-04. So Tinha De Ser Com Voce [05:46](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, World Fusion, Brazilian JazzПродолжительность: 00:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71D1A33A1A96ECF68A219108129E8AF1FAD8CE5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148572   (603498) от 07.07.2017
-
-Karin Plato - Blue Again (2000) Stikjazz Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Takes Two To Tango [03:06]
-02. Someone To LIght Up My Life [04:17]
-03. Blue Again [04:31]
-04. What'll I Do? [04:08](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8456EA3612B44B07FE11EA8CB4AAE229B878807
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297607   (603605) от 23.04.2019
-
-Wayne Shorter - Wayning Moments (1961) 2000, Koch Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Orpheus (take 4) [4:36]
-02. Devil's Island (take 8) [3:57]
-03. Moon of Manakoora (take 2) [3:43]
-04. Dead End (take 8) [4:34](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5527070CC787A0CD9E0F1F3DCA11A731A6AFFF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231786   (603759) от 20.06.2018
-
-Bing Crosby - The Legendary Bing Crosby (1930-e - 1950-e) 1990, Metrodome [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Of Spain [2:32]
-02. The Very Thought Of You [2:59]
-03. June In Januray [3:13]
-04. Zip-A-Dee-Doo-Dah [1:47](   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6B0ED67BBE6DD275C3F5B4A510E675CCBC8BD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231890   (603763) от 20.06.2018
-
-Melly Frances - The Album (2018) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Dress (02:44)
-02. All I Seen (06:06)
-03. Bootlegger's Ball (05:29)
-04. Rebel Girl (05:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4964F6ED4FE72C07361C5DB65BA2242891DB6FDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546865   (603817) от 26.04.2022
-
-Travellin' Blue Kings - Bending the Rules (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Many People (3:44)
-02. Do It Baby (3:55)
-03. Never Never Land (4:36)
-04. What Needed Doin' Done (3:27)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D6D086966CE10B5B6342A9E66F62F636BAD2F5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546864   (603880) от 26.04.2022
-
-THICK - Audio Obesity (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tin Foil Hat (2:54)
-02. Healthy Whiskey (4:07)
-03. Audio Obesity (2:57)
-04. Healing Powers (3:59)(   Читать дальше...   )Жанр: Blues Rock, RockПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FA5EABC37AF65800E6103078C91EAE7C72D8794
 ```
 
 

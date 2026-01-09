@@ -1,3 +1,165 @@
+###  Публикация: 1365770   (929010) от 08.03.2020
+
+Evanton - Flavors - The Best Of Evanton Vol.2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Italo-Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swept Away (3:40)
+02. Cloning The Droid (4:43)
+03. Cosmic Juice (5:25)
+04. Micro Disco (6:08)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Italo-DiscoПродолжительность: 01:19:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE4690A23E652CB887929691D8B35B9B9000C46F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365768   (929011) от 08.03.2020
+
+Evanton - Stretch It (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Italo-Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magnetron (Marathon Mix) (7:12)
+02. Swept Away (Extended Remix) (5:24)
+03. Electric Eyes (Extended Version) (6:29)
+04. Funky Times (Maxi Version) (7:12)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Italo-DiscoПродолжительность: 03:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE30A2987067CB7F344AA8CF82A1A29B3EEB68A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365553   (929014) от 08.03.2020
+
+Atongmu - Voice of the Sky (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Progressive Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929014.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Atongmu - Don't Hold Back (7:02)
+2. Atongmu - Bubble Burst (6:31)
+3. Atongmu - Truth, Justice & Action (6:27)
+4. Atongmu - Adventures On The Moon (6:58)(   Читать дальше...   )Жанр: Psy-Trance, Progressive Psy-TranceПродолжительность: 01:21:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C4A770FB81D81DF24893A51C23F7BDB0A3D813
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365769   (929019) от 08.03.2020
+
+Evanton - Colors - The Best Of Evanton (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Italo-Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saga (5:46)
+02. Barbarella Reloaded (4:13)
+03. Love In Rimini (4:24)
+04. Fancy Lady (4:06)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Italo-DiscoПродолжительность: 01:22:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C4F15D5239E7516CA06068AA59A5E96F1C70DDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365554   (929142) от 08.03.2020
+
+Sixsense - Energy Source (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Progressive Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929142.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Astro Blast (6:04)
+2. Automatix (6:54)
+3. Digital Giza (7:16)
+4. What There Is (6:44)(   Читать дальше...   )Жанр: Psy-Trance, Progressive Psy-TranceПродолжительность: 01:07:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E99A7BD476D24F86E250FA8C572725DB08C33FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365683   (929147) от 08.03.2020
+
+Paul Pearson - Live @ Subteran, Joshua Brooks Manchester, United Kingdom 2020-02-29 [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JoC H - Puertas
+02. Dmitry Molosh - Ambition
+03. Matt Fax - Light On(Extended Mix)
+04. Paul Thomas & Jerome Isma-Ae - Tomorrow(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 01:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C31F0C455C7E26275B5BCF7CA433E16B1154F75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365596   (929149) от 08.03.2020
 
 The Last One - Discography 3 Releases (2019) iM Electronica, opn g8s [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Drone, Ambient>
@@ -533,168 +695,6 @@ VA - Urban Sports Music, Vol. 4 (2019) [MP3|320 Kbps] <House, Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2054F91C3D20A82DE9D0F9E3CCDFD9D1CCB6B64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365112   (932336) от 06.03.2020
-
-VA - Urban Sports Music, Vol. 2 (2019) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melbourne Bounce Project feat. Gemeni - Melbournia Superstars (Radio Edit) [03:12]
-02. Sunloverz - Summer of Love 2k13 (Edit) [03:04]
-03. Steve Cypress - Play It Loud (A2C Remix Edit) [03:50]
-04. Benjiy - Do It Yourself (Club Edit) [03:02](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DEA6486B154FD9B04383006A8B55A8ACBBA5690
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364891   (932342) от 06.03.2020
-
-VA - Future Punk, Vol. 6 (2020) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rachel Wins - Stay with Me (Dub Mix) [04:18]
-02. TARAZ - Bass Troubles [04:03]
-03. Wandrezo - Manifest Yourself [05:27]
-04. Marcello Cavallero - Touch Me (Remix) [06:43](   Читать дальше...   )Жанр: HouseПродолжительность: 01:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D635D571EC368C6D5FB049AF49709A3359870B9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365315   (932343) от 06.03.2020
-
-VA - EDM Big Room Partytime, Vol. 7 (2020) [MP3|320 Kbps] <House, Big Room, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932343.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Asandokai - King in a Wild Side [2:54]
-2. Ashanti Khumenati - Tupin [3:05]
-3. Cobran Vasuki&Altin Tatani - Cocaine Cartel [2:58]
-4. Fake Ascii Codes - Milk Smell [2:50](   Читать дальше...   )Жанр: House, Big Room, DanceПродолжительность: 00:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CCABC39CB5C27AA5D9982C2BA0B0EE2B6555D68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365320   (932345) от 06.03.2020
-
-VA - Clinique Sampler, Pt. 230 (2020) [MP3|320 Kbps] <House, Progressive House, Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alejandro R - Strange Light (Original Mix) [08:27]
-02. Echo Daft - Tristezza (Alex ll Martinenko Remix) [06:27]
-03. Filter Cutz - Marina (Original Mix) [08:51]
-04. Joel Giannini - Obscure (Marcelo PM Remix) [06:47](   Читать дальше...   )Жанр: House, Progressive House, Deep House, Tech HouseПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDB393A686153AF2641620906E951105731C2B43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093825   (932431) от 16.01.2017
-
-VA - Total Trance Selections  Vol.02 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Darren Porter - Human (Extended Mix)  7:05
-02.  Tony Grand - Dragon (Original Mix)  6:22
-03.  Anthrex - Alfa1 (Original Mix)  7:28
-04.  Azotti - Desna (Original Mix)  6:09(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A78616AF925020FA5F72252BCCB887D7249168C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986280   (932463) от 13.02.2016
-
-VA - Ministry Of Sound: Chilled House Session (2016) [MP3|320 кб/с] <Afro House, Deep, Tropical, UK Garage, Synthpop>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sigala - Sweet Lovin' (Feat Bryn Christopher - House Robot Remix) 05:25
-02. Felix Jaehn - Book Of Love (Feat Polina) 03:18
-03. Ellie Goulding - On My Mind (Mk Remix) 06:11
-04. Disclosure - Omen (Feat Sam Smith - Jonas Rathsman Remix) 08:32(   Читать дальше...   )Жанр: Afro House, Deep, Tropical, UK Garage, SynthpopПродолжительность: 06:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C1C89B4CDDBA7F890815F927DF85E89BB85F6E2
 ```
 
 

@@ -1,3 +1,162 @@
+###  Публикация: 1129852   (718709) от 30.04.2017
+
+Sverre Knut Johansen - Contact (2017) [MP3|320 Kbps] <Electronic, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Contact 4:18
+02 Hope 4:43
+03 Journey Through Space 6:44
+04 Apocalypse 6:44(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD441574E24BB018995CC754FCFEAFD0226B96D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984165   (718718) от 05.08.2020
+
+Spatialize - Discography 9 Releases (2004-2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Dub, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scarlet Sundown (06:31)
+ 02. Fluid Blue (05:11)
+ 03. Clarity (Original Version) (06:10)
+ 04. Praise (04:07)(   Читать дальше...   )Тип издания: WEBЖанр: Psychill, Downtempo, Dub, Ambient •Продолжительность: 06:09:35 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A355761571A799DDCEC088ED6D4AF51BC811731
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230307   (718811) от 27.02.2019
+
+Trifonic - Discography 11 Releases (2008-2019) Trifonic Music LLC [FLAC|Lossless|tracks+.cue, tracks] <IDM, Post Rock, Downtempo, Glitch, House>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightrun (Comaduster Remix) (05:01)Тип издания: CD, WebЖанр: IDM/Downtempo/AmbientПродолжительность: 00:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D127D49D28F2E33296154E7CCAE0729C91F6C7F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129743   (718830) от 30.04.2017
+
+Alina Baraz & Galimatias - Urban Flora (2015) [MP3|320 Kbps] <Electronic, R&B, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Show Me
+02. Drift
+03. Can I
+04. Fantasy(   Читать дальше...   )Жанр: Electronic, R&B, Soul, DowntempoПродолжительность: 00:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6034F11DB33C9A7694F09E69269BE8D6AA5BCFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129914   (718835) от 30.04.2017
+
+VA - Chilli Vanilli Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mykel Mars - Good Time (Chillout Deluxe Mix)  5:39
+02.  More Flowers - Capetown Sunset (Urban Chillout Mix)  5:24
+03.  Bobby Escobar - Playa (White Sand Mix)  4:44
+04.  Agent Juno - Sunstorm (Ambient Chillout Mix)  5:31(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F52A62A45EDD283CF5D7D641E0D593189C41762A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129480   (718839) от 30.04.2017
+
+Keosz - Ava (2017) [MP3|320 Kbps] <Ambient, Dark Ambient, Drone>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aquitted from Illness (5:29)
+02. All I Had To Do (4:46)
+03. AVA (3:55)
+04. Downfall (5:54)(   Читать дальше...   )Жанр: Ambient, Dark Ambient, DroneПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F50FDA4996676D1CE2F9A89ABBBC0F1AE944F882
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400212   (718874) от 05.08.2020
 
 VA - Retro Drive: The Soundtrack (2020) [MP3|320 Kbps] <Synthpop, New Wave>
@@ -533,165 +692,6 @@ VA - Beach Grooves Maretimo Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Beach Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC60469698DFE0A1DE05CE2A359EA5BA41DE68B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400427   (719145) от 05.08.2020
-
-The Violent Youth - Там, где нас нет (2020) [MP3|320 Kbps] <New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хорошо одному [00:03:27]
-02. Танцуй [00:02:55]
-03. Свободно [00:03:36]
-04. Там, где нас нет [00:03:19](   Читать дальше...   )Жанр: New WaveПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F8F7971BF5F6644943D66472AA699C0C6A2E4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400208   (719146) от 05.08.2020
-
-VA - Nothing But... Funky Groove, Vol. 10 (2020) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WeAreTwo - Could Have Been Us (Dreamell Remix) [05:09]
-02. Bruce Sheroy - Bai Fen Bai (DJ Tecklogix Remix) [05:00]
-03. Walter Gardini - In The Deep [04:51]
-04. JoioDJ - Sensuality (H@K Club Mix) [07:52](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2BD710A9F700313E981BDA65E6287D24B20B88E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400365   (719147) от 05.08.2020
-
-VA - Beach Grooves Maretimo Vol.2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Beach House, Lounge>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Maretimo - Costa Balear (The Beachfloor Cut) (5:41)
-02. Poolwave - African Market (Jazzman´s Cut) (6:11)
-03. Airstream - Back in Time (The Golden Beach Cut) (6:54)
-04. Pascal Dubois - Send Me Away (The Chillhouse Mix) (4:16)(   Читать дальше...   )Жанр: Beach House, LoungeПродолжительность: 01:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:948285166DF911172EFCE9B590C2A9B997797E50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285659   (719154) от 27.02.2019
-
-VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brian Eno - An Ending (Ascent)
-02. Cosmic Gate & Foret - Need to Feel Loved
-03. Marshmello featuring Bastille - Happier (Markus Schulz Festival Mix)
-04. Andrew Bayer featuring Alison May - In My Last Life (In My Next Life Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C405A924F0F4651B7FE76844E1F175E34613603
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400422   (719247) от 05.08.2020
-
-рассел - side A (2020) [MP3|320 Kbps] <New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Культ [00:04:09]
-02. Приз [00:02:48]
-03. В плащах [00:02:58]
-04. В уста [00:04:00](   Читать дальше...   )Жанр: New WaveПродолжительность: 00:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC708AF0F07E14175569F875A7902583C838F71E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218858   (719637) от 11.04.2018
-
-VA - ROHS! - Netlabel Collection (2008-2017) (2018) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep House, Techno, Minimal, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: WEBЖанр: Dub Techno, Ambient, Deep House, Techno, Minimal, Tech House •Продолжительность: 09:12:38 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA605E7F2A7DD3C184F532F25F64AF43125EB0F3
 ```
 
 

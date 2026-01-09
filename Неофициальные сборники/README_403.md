@@ -1,3 +1,30 @@
+###  Публикация: 1031638   (652170) от 04.07.2016
+
+VA - Relevant Freak Future Massive (2016) [MP3|320 Kbps] <House, Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652170.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nicky Romero -  Novell (Original Mix) 5:35
+002. KSHMR feat. Sidnie Tipton -  Wildcard (Radio Edit) 3:09
+003. Sam Feldt -  Been A While (Madison Mars Remix) 3:39
+004. Tiesto & Bobby Puma -  Making Me Dizzy (Extended Mix) 4:40(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 08:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00818734E28D77A6E02C2ABFBC6816233B7F3202
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031363   (652171) от 04.07.2016
 
 Timur Mingazov - MBS Mix #27 (Why Spring- - Deep House Apr `16) | (2016) [MP3|320 Kbps] <Deep House>
@@ -698,33 +725,6 @@ VA - Суперхиты (2017) [MP3|320 Kbps] <Downtempo, Ambient, Vocal, Chillo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9F25CB6942AEAAAEADC973DED0E1F6CAACED28E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141079   (653473) от 08.06.2017
-
-Иван Кучин - Лучшие песни (2017) [MP3|320 Kbps] <Авторская песня, шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653473.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. А в кабаке
-002. А на чёрных ресницах
-003. Ах, январь мой
-004. Багульник(   Читать дальше...   )Жанр: Авторская песня, шансонПродолжительность: 06:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B72EB72C50551B74A65BBDD703C2EB10107849E0
 ```
 
 

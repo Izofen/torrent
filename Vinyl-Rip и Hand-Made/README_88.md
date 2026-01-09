@@ -1,3 +1,30 @@
+###  Публикация: 1397417   (740426) от 20.07.2020
+
+Sky - Masterpieces - The Very Best Of Sky (1984) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Prog Rock, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740426.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Toccata
+A2 Westway
+A3 Fool On The Hill
+A4 Gymnopodie No. 1(   Читать дальше...   )Жанр: Prog Rock, InstrumentalПродолжительность: 00:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:566A2DD5A1B85B65F78EE5739A9AA3A81A0E131C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397404   (740451) от 20.07.2020
 
 VA - Пулсиращи Ноти 3 (1985) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock, Pop>
@@ -678,33 +705,6 @@ A4 FG-4(   Читать дальше...   )Жанр: Pop RocПродолжите
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64ACA1696805481EE1B2777631F7653EDB5CF05B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016861   (763023) от 16.05.2016
-
-Deodato (Деодато) - Best Of Deodato (Лучшие произведения Деодато) (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Fusion>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763023.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Так Говорил Заратустра (Also Sprach Zarathustra)
-A2 Прелюдия к Послеполуденному Отдыху Фавна (Prelude To Afternoon Of A Faun)
-A3 Ночи в Белом Атласе (Nights In White Satin)
-B1 Голубая Распсодия (Rhapsody In Blue)(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D32EB551C11BCBD0C36EF22552F589383F76074B
 ```
 
 

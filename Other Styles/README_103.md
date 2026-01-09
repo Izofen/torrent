@@ -1,3 +1,309 @@
+###  Публикация: 519981   (635203) от 07.07.2012
+
+VA - Cossacks-Songs and dances of the Don and Cuban Cossacks / Казаки-песни и танцы Донских и Кубанских казаков - 3 Альбома (2008) [MP3|320 кб/с]<Folk Казачья песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635203.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Vocal ensemble from Leningradskaya stanitsa - Zazhurilis chernomortsy (5:55)
+ 2. Bayda (4:45)
+ 3. A vzhe lit bilsh dvesti (3:57)
+ 4. Vy, kubantsy, brattsy-molodtsy (2:49)
+ 5. I ne pyut, ne yedyat koni voronye (3:23)
+ 6. Zelyonoe zhito, zelene (3:07)
+ 7. Cholovik propiv indika (1:49)
+ 8. Stradaniya (0:33)
+ 9. Korobeyniki (1:14)
+ 10. Vocal ensemble from Chelbasskaya stanitsa - Oy, vechora - izvechora (3:49)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 01:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CFB6CB16596B59B0B7E3C1DFE2D6B39418F890E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519849   (635344) от 07.07.2012
+
+VA - Песни кубанских казаков (2002) [MP3|320 кб/с]<Folk Казачья песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635344.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Из-под течушки. (4:28)
+ 2. Ой, в 877 году. (1:52)
+ 3. Генерал наш, генерал Кавказский. (2:11)
+ 4. У нашего барина. (1:08)
+ 5. Вспомним, храбрые кубанцы. (2:51)
+ 6. Да кукушечка, моя душечка. (2:08)
+ 7. Казаки, казаки. (1:34)
+ 8. За Кавказом огни горят. (1:32)
+ 9. Из-за леса, леса копий и мечей. (5:26)
+ 10. Васенька мой. (3:13)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 01:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE56372EC0E20BA4E7CE15ED1C9920003A926F7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293554   (635369) от 04.04.2019
+
+VA - Four Guitars (2019) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Easy Listening, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Todd Mosby, Vin Downes, Trevor Gordon Hall & Will Ackerman - August Light
+02. Trevor Gordon Hall, Vin Downes & Will Ackerman - The Blue Hour
+03. Todd Mosby, Trevor Gordon Hall & Will Ackerman - Dolphin Song
+04. Will Ackerman - The Impending Death of the Virgin Spirit(   Читать дальше...   )Жанр: Acoustic, Easy Listening, GuitarПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAD7137FC45F95A5DA08DBEDC0284722F958E95D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519476   (635472) от 07.07.2012
+
+VA - 101 Movie Songs (5CD) (2012) [MP3|181-288 кб/с]<Pop, Rock>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rick Springfield — Jessie's Girl 3:13
+ 02. T.Rex — I Love To Boogie 2:17
+ 03. The Raspberries — Go All The Way 3:23
+ 04. Harry Nilsson — Everybody's Talkin' 2:48
+ 05. B.J. Thomas — Raindrops Keep Falling On My Head 3:06
+ 06. Edison Lighthouse — Love Grows (Where My Rosemary Goes) 2:53
+ 07. Nazareth — Love Hurts 3:53
+ 08. Karen Young — Hot Shot 4:23
+ 09. Barry Blue — Dancing On A Saturday Night 3:16
+ 10. Gilbert O'sullivan — Alone Again (Naturally) 3:40(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:686B470DC5FBA57F85A000A92ECC87336DF37A8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519783   (635619) от 07.07.2012
+
+VA - What are you thinking about soldier / О чем задумался, служивый - Песни казаков Волгоградской, Уральской, Краснодарской земель (1999) [MP3|320 кб/с]<Folk Казачья песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635619.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A Field Marshal going to his army (2:46)
+ 2. The Cossacks on the St. Petersburg Road (2:22)
+ 3. Free people lived on the Kamyshinka River (3:50)
+ 4. A Rowan-tree was standing in the field (2:16)
+ 5. The bitter wormwood grass (1:45)
+ 6. Thirty ships were getting ready (3:57)
+ 7. Farewell my dear Father and Mother (2:34)
+ 8. We shall say that the horses are ready (3:50)
+ 9. Wht have you turned black, green field? (5:15)
+ 10. Since yesterday evening (4:27)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 01:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E301D40B92C9C1C6C9DB3C5A3026A21851AE8F07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519869   (635620) от 07.07.2012
+
+Metafora - Flores Alvarez (2012) [MP3|320 кб/с]<instrumental metal>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Praeludium 1:59
+02. Allegro Con Brio 7:15
+03. Adagio Cantabile 2:05
+04. Vivace 3:15
+Gerbera Arthas:
+05. Praeludium 2:56
+06. Largo 2:13
+07. Allegro Molto 5:00
+08. Andante Maestoso 2:47
+09. Presto Agitato 2:45(   Читать дальше...   )Жанр: instrumental metalПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA3C0B5A4F4A618F93C98799BA743D3CD8AE190
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519651   (635631) от 07.07.2012
+
+VA - Yak pushu strelu / As I let an arrow fly / Як пущу стрелу песни русско-украинско-белорусского пограничья (2007) [MP3|320 кб/с]<Ethnic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635631.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Vesna, Vesnyanochka (0:36)
+ 2. Na Gryanoy Nedele (1:04)
+ 3. Seraya Iy Zeziulechka (0:42)
+ 4. Katis, katis, zharkoie solntse (2:00)
+ 5. Oy, ty, lastochka (1:14)
+ 6. Gdje zhiviot moya milaya (2:12)
+ 7. Da khodila Tanechka po gorodu (1:33)
+ 8. Sidel Vanya na divane (2:39)
+ 9. Oy, ya v boru vodu beru (1:12)
+ 10. Sama idu po kameniu (2:32)(   Читать дальше...   )Жанр: EthnicПродолжительность: 01:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFD1874518F9D358DA724F0F1B1F6DAF33AA907
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228556   (635697) от 01.06.2018
+
+Oliver Scheffner - Sunny Chillout Lounge (2018) [MP3|320 Kbps] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Dreams of sunbeams
+02 Cloud pictures passing by
+03 Spring break
+04 Ein Adler landet auf dem Mond(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB76D2E3D2C9694214111F099CA6180AB4DE8E77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904680   (635730) от 13.06.2015
+
+Neu! - Neu! Box (1972-1986) 2010 / Gronland Rec (1972-1986) [MP3|320 кб/с]<Krautrock>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hallogallo 10:07
+02. Sonderangebot 4:50
+03. Weissensee 6:42
+04. Jahresbersicht (Part 1): Im Glck 6:52(   Читать дальше...   )Жанр: KrautrockПродолжительность: 10:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B037A0E60FE242FD575375A554611483D79A88F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033553   (635816) от 12.07.2016
+
+Deep Forest - Hit Collection (2000) [FLAC|Lossless|image + .cue] <Electronic, House, Tribal,>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sweet Lullaby 03:53
+02.Pacifique 03:47
+03.Marta' s Song 04:12
+04.Forest Hymn 04:40(   Читать дальше...   )Жанр: Electronic, House, Tribal,Продолжительность: 01:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF90EE83CDB1723120DAEB1996EF99EEA56A7D7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033843   (635930) от 12.07.2016
 
 Ennio Morricone - Film Music By Ennio Morricone (1993) [FLAC|Lossless|tracks + .cue] <Contemporary, Easy Listening, Soundtrack>
@@ -71,6 +377,39 @@ Phil Thornton - Rejuvenation - Beyond the Edge of Dreams (2014) [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84A82821B3965100C56A63C810B907416148953A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519433   (636910) от 06.07.2012
+
+Yanni - Live at El Morro, Puerto Rico (2012) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_636910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Truth Of Touch
+02. Vertigo
+03. The End Of August
+04. The Rain Must Fall
+05. Felitsa
+06. Voyage
+07. Nightingale
+08. Ode To Humanity
+09. Niki Nana
+10. One Man's DreamЖанр: New AgeПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -418,315 +757,6 @@ CD1
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143016   (639074) от 16.06.2017
-
-Wuauquikuna - The Best of Wuauquikuna (2016) [MP3|320 Kbps] <Native American, Chillout, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Way of life (04:47)
-02. Amanecer (06:05)
-03. The last Inka Warriors "Siwar" (04:35)
-04. Sayri Nan (06:25)(   Читать дальше...   )Жанр: Native American, Chillout, WorldПродолжительность: 01:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEB91942AB1CE51F11002FD64C024F9DF75D35C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518974   (639111) от 05.07.2012
-
-Sex And The City 2 / Секс в большом городе 2 (2010) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639111.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alicia Keys - Rapture (4:47)
- 2. Dido - Everything to Lose (4:28)
- 3. Cee Lo - Language of Love (3:59)
- 4. Erykah Badu - Window Seat (4:50)
- 5. Natacha Atlas - Kidda (4:56)
- 6. Michael McGregor - Euphrates Dream (3:37)
- 7. Liza Minnelli - Single Ladies (Put A Ring On It) (3:13)
- 8. Ricki-Lee - Canґt Touch It (2:51)
- 9. Alicia Keys - Empire State of Mind (Part II) Broken Down (3:33)
- 10. Jennifer Hudson and Leona Lewis - Love Is Your Color (3:41)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16BDA098700CE7F2767FB8EDCA7F01A687DBD074
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517966   (639259) от 05.07.2012
-
-Miss Congeniality / Мисс Конгениальность (1-2 части) (2000-2005) [MP3|320 кб/с]<Score, OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639259.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли саундтреки из фильма Мисс Конгениальность, а также музыка и песни со второго фильма Мисс Конгениальность 2: Прекрасна и опасна.1. Esthero - Wikked Lil' Grrrls (4:17)
- 2. Natasha Bedingfield - I'm a Bomb (3:42)
- 3. Pink - Trouble (3:12)
- 4. Spiderbait - Black Betty (3:26)
- 5. Paul Anka - (You're) Having my Baby (2:32)
- 6. Carl Carlton - She's a Bad Mama Jama (3:54)
- 7. Ohio Players - Fire (4:31)
- 8. Thelma Houston - Don't Leave me This Way (5:39)
- 9. Staple Singers - I'll Take You There (4:38)
- 10. Ike & Tina Turner - Proud Mary (3:28)(   Читать дальше...   )Жанр: Score, OSTПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3C0E1850EA919601FE185B496ADAFABC772C0E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228202   (639283) от 30.05.2018
-
-Frantz Amathy - Zen Piano Paradise (2018) [MP3|320 Kbps] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639283.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Zen Piano Paradise (13:16)
- 2. Flight over the Sea (8:43)
- 3. Nature's Peace (5:18)
- 4. Sunrise Piano (14:04)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A0F3FF6597F453DA134C91A1764FB73E9DA661
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143011   (639343) от 16.06.2017
-
-Manish Vyas - Sahaj Atma (2017) [MP3|320 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sahana Vavatu (For Inner Nourishment)
-02. Lokaha Samastaha (For Imploring Universal Peace)
-03. Shantakaram (For Removal of Fear)
-04. Sahaj Atma (For Remembrance of Our Natural State of Being)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A741E4CDE02155D892BBAE25C12A29032468F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142974   (639346) от 16.06.2017
-
-The Honeycutters - On the Ropes (2016) [FLAC|Lossless|tracks] <Country,Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - On the Ropes (3:18)
-02 - Blue Besides (5:00)
-03 - Golden Child (3:36)
-04 - The Handbook (3:06)(   Читать дальше...   )Жанр: Country,FolkПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF0BA54932520E539EF34665EFE2ADB94319FAC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142847   (639464) от 16.06.2017
-
-Gary Stewart - Boy Cries Wolf (2010) [MP3|128 Kbps] <Folk, Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Travelling Song 4:16
-02. Jekyll And Hyde 2:56
-03. Take Me Down 3:06
-04. Behind The Door (feat. Ellen Smith) 3:11(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0957B31213ED2BCDB724052CFCC31AC3EB7434D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032824   (639698) от 10.07.2016
-
-Levon Minassian & Armand Amar - Songs from a World Apart (2005) [FLAC|Lossless|image + .cue] <Folk, World, Armenian Duduk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hovern'engan    05:08
-02.  Tchinares    05:47
-03.  Ar Intch Lav Er    06:15
-04.  Nare Nare    05:21(   Читать дальше...   )Жанр: Folk, World, Armenian DudukПродолжительность: 00:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1BD570D73B4A70E6D6D7C50CAE7333D175A6C3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033228   (639872) от 10.07.2016
-
-VA - The Woman In Red (1984) [FLAC|Lossless|image + .cue] <Soundtrack, Funk & Soul>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stevie Wonder - The Woman In Red [04:39]
-02. Stevie Wonder & Dionne Warwick - It's You [04:55]
-03. Ben Bridges - It's More Than You  (Instrumental) [03:15]
-04. Stevie Wonder - I Just Called To Say I Love You [06:16](   Читать дальше...   )Жанр: Soundtrack, Funk & SoulПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:369D75B48324B8FEE9D1CA9F277F33ECAFFD0520
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033222   (639996) от 10.07.2016
-
-Ashaneen - Waves of Life (2015) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Wave [00:06:14]
-02. Second Wave [00:03:45]
-03. Third Wave [00:08:24]
-04. Fourth Wave [00:04:41](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71EA43AD3553B0639D5B13CF25836D465D30168
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033236   (640005) от 10.07.2016
-
-Mythos - The Best of Mythos Instrumentals (2014) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introspection
-02. Prelude
-03. Duet
-04. La Cathedral(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D1FAA59E722EDF8911584243FFEBAF7F9943C88
 ```
 
 

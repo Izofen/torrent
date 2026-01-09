@@ -1,3 +1,36 @@
+###  Публикация: 506473   (687703) от 06.06.2012
+
+VA - Инструментальная музыка (2012) vol. № 66 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Dado - Desert Of Sadness
+02. J.Emblow - Under The Roofs Of Paris
+03. Cusco - Sun Of Jamaica
+04. F.Goya - Unchained Melody
+05. Nostardamus - I Orevers Kiss
+06. DJ Skydreamer - X-Theme
+07. E.Simoni - When I Need You
+08. Е.Дога - Долгая дорога в дюнах
+09. Emile Prud Homme - Nuit De Java
+10. Armik - Puerto De Malaga(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA0A2DDF58C8922FBC8962ACF28391A081D4DE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 505960   (687783) от 06.06.2012
 
 VA - Инструментальная музыка (2012) vol. № 63 [MP3|320 кб/с]<Instrumental>
@@ -691,33 +724,6 @@ VA - Hot Future Dancefloor Tracks (2017) [MP3|320 Kbps] <R&B, New Jack Swing, La
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A890D823FFCD1C1D37409669459F7E245CA9581
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134388   (689377) от 15.05.2017
-
-Альберт Артемьев - В лабиринте (2017) [MP3|192 Kbps] <New Age>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - В лабиринте
-02 - Знамение
-03 - Маленький ангел
-04 - В плену времени(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:232FF4B10F3D9C372E304C2D8E64E15BB99A917C
 ```
 
 

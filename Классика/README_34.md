@@ -1,3 +1,84 @@
+###  Публикация: 1530793   (727815) от 12.02.2022
+
+Sofiane Pamart - LETTER (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Solo Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DEAR (2:39)
+ 02. PUBLIC (3:42)
+ 03. YOUR (2:16)
+ 04. LOVE (4:17)(   Читать дальше...   )Жанр: Modern Classical, Solo PianoПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58030DEEE25B7635F77DFFF8BF358549F0539983
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022470   (728586) от 02.06.2016
+
+Mario Lanza (Марио Ланца) - Welterfolge/Mein Herz Singt Nur Für Dich! (1991) [APE|Lossless|image + .cue] <Classical, Vocal>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Begin the beguine
+02. On the street where you live
+03. Yours is my heart alone
+04. Mamma... quel vino(   Читать дальше...   )Жанр: Classical, VocalПродолжительность: 01:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D1C725AA10ECECD1059C12ACBF6A423D47F919C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283278   (731940) от 18.02.2019
+
+Yann Tiersen - ALL (2019) Mute Artists Ltd. [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Ambient, Contemporary>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tempelhof (6:09)
+ 02. Koad (6:01)
+ 03. Erc’h (9:21)
+ 04. Usal Road (2:59)(   Читать дальше...   )Жанр: Neoclassical, Ambient, ContemporaryПродолжительность: 01:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72D1B2854CD40FAF3BB02464304F526F034E8ABF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283323   (731953) от 18.02.2019
 
 Julien Marchal - INSIGHT IV (2019) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Piano, Minimal>
@@ -607,87 +688,6 @@ Concerto For Violin In D Major
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA1EF33BA767027297787F12E661453A1480E5D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018013   (757367) от 19.05.2016
-
-Camille Saint-Saens - Samson et Dalila (1990) [APE|Lossless|image + .cue] <Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Act II, Scene 3 - 'Oui!...deja par trois fois - En ces lieux, malgre moi, m'ont ramenee mes pas'
-02. Act II, Scene 3 - 'Mon coeur s'ouvre a ta voix'
-03. Act III, Scene 1 - 'Vois ma misere, helas!'
-04. Act III, Scene 2 - 'L'aube qui blanchit deja les coteaux'(   Читать дальше...   )Жанр: OperaПродолжительность: 02:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:605EE83C5793C5B88FEEC67AFFCFDA4840CCE821
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280673   (760319) от 03.02.2019
-
-Royal Philharmonic Orchestra & James Morgan - Sleep Baby Sleep (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brahms: Lullaby Op. 49 No. 4 (arr. orchestra)
-02. You Are Not Alone
-03. Stay Awake
-04. Fauré: Après un rêve, Op. 7, No. 1 (arr. orchestra)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:02:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F88EBA319B6BFC6E223A9B89CA2810E4935F46F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125899   (765273) от 18.04.2017
-
-VA - Celtic Swoon (2017) [MP3|320 Kbps] <Classical>
-
->>Классика
->>Камерная
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Genevieve Lacey and James Crabb - Traditional (Mary Scott, The Flower Of Yarrow) (Arr. James Crabb)  4:30
-02.  Jane Sheldon & Paul McMahon & Brendon Lukin & Cantillation & Brett Weymark - MacMillan A New Song  5:29
-03.  Chris Duncan & Catherine Strutt - Rorate  5:41
-04.  Choir Of Trinity College & University Of Melbourne and Michael Leighton (   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DD6A15A1917832B43AE12E1D6D12BB6C7F9800
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1213104   (773347) от 15.03.2018
+
+VA - German Top 100 Single Charts 16.03.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773347.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Olexesh - Magisch (feat. Edin)
+002. Marshmello & Anne-Marie - FRIENDS
+003. Drake - God's Plan
+004. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)(   Читать дальше...   )Жанр: PopПродолжительность: 05:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02866798FA0037840C2A826AF56341627023AFCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015686   (773979) от 11.05.2016
 
 Ирина Аллегрова - Перезагрузка. Перерождение (2016) [MP3|320 кб/с] <Pop>
@@ -668,33 +695,6 @@ VA - De Top 100 Aller Tijden 1983 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2344D2176DE72FABFA3CE5A61FAD1A5536053C7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013358   (777587) от 04.05.2016
-
-VA - Workout Music - Work Out Mix (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ace Of Base - Cruel Summer (Yogi Nando Remix)
-02. Ace Of Base Feat Offer Nissim & Maya - All That She Wants (D-VIBE Mashup)
-03. Adele - Hello (DJ Zhukovsky Mix)
-04. Alex Kafer & Lera - Don't You Believe To Tears (Shura Cover 2016)(   Читать дальше...   )Жанр: PopПродолжительность: 07:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6912A745D15D20FB0AA3306DA47CE6AA7201228
 ```
 
 

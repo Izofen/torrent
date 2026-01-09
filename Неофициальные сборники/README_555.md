@@ -1,3 +1,30 @@
+###  Публикация: 1380224   (835058) от 02.05.2020
+
+VA - Romantic R&B (2020) [MP3|320 Kbps] <R&B, Pop, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835058.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Mario - Let Me Love You (4:09)
+2.Nelly - Dilemma (4:49)
+3.Usher - My Boo (3:43)
+4.BROCKHAMPTON - SUGAR (Remix) feat. Dua Lipa (3:42)(   Читать дальше...   )Жанр: R&B, Pop, OtherПродолжительность: 03:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8B76EAFCEC2E8F18F5900E4A6D28A3CFE295AA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113951   (835094) от 13.03.2017
 
 Chris Bell - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
@@ -668,33 +695,6 @@ VA - Вспоминая СССР. Любимые песни из кинофил�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CE7BCCAA266C4454143F944F41E47E7CB2F9671
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379748   (837389) от 30.04.2020
-
-The Alan Parsons Project - 100% Alan Parsons (2020) [MP3|320 Kbps] <Progressive rock, Art rock, Progressive Pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sirius (Chicago Bulls Theme Song)
-02. Eye In The Sky
-03. Games People Play
-04. Don't Answer Me(   Читать дальше...   )Жанр: Progressive rock, Art rock, Progressive PopПродолжительность: 03:53:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C297192629DA256534432B5C006633DB0D42EE2
 ```
 
 

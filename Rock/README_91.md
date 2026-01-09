@@ -1,3 +1,57 @@
+###  Публикация: 1091492   (943024) от 09.01.2017
+
+The Detroit Cobras - Life, Love And Leaving (2001) [MP3|320 Kbps] <Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Sailor (02:26)
+02. He Did It (02:23)
+03. Find Me A Home (01:32)
+04. Oh My Lover (01:35)(   Читать дальше...   )Жанр: Garage RockПродолжительность: 00:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A8820EC37652BD3BB450ABF5431413BB86D94DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091301   (944487) от 08.01.2017
+
+David Bowie - No Plan (2017) EP [MP3|320 Kbps] <Art Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazarus
+02. No Plan
+03. Killing a Little Time
+04. When I Met YouЖанр: Art Rock, RockПродолжительность: 00:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46581492ACC497B293A3321AF55D371295C83129
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090772   (945977) от 07.01.2017
 
 Gov't Mule - 2016-12-31 The Beacon Theatre, New York, NY (2017) 3CD Live [MP3|320 Kbps] <Rock>
@@ -647,60 +701,6 @@ Malone Sibun - Come Together (2020) [MP3|320 Kbps] <Blues, Rock, R'n'B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AE9EA1C6C730A3CBA43073D1E9D4D5D0EA87017
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742488   (978083) от 06.01.2014
-
-Rainbow - Since You Been Gone - The Best Of Rainbow (2014) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Since You Been Gone (3:18)
-02. All Night Long (Live at Donington) (6:39)
-03. Stargazer (8:26)
-04. Kill The King (4:29)(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB763BC5CA10B44A97BE9796632F432E62FE3760
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973217   (980044) от 08.01.2016
-
-David Bowie - Blackstar (2016) [MP3|320 кб/с] <Art Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980044.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Blackstar
-2. 'Tis a Pity She Was a Whore
-3. Lazarus
-4. Sue (Or In a Season of Crime)(   Читать дальше...   )Жанр: Art Rock, RockПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18782E89C5609EECF0A350EB9F7407926E121C1A
 ```
 
 

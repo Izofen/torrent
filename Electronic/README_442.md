@@ -1,3 +1,165 @@
+###  Публикация: 1002809   (847102) от 01.04.2016
+
+VA - Lounge Deluxe, Vol 3 (50 Fantastic Lounge Grooves) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steen Thottrup - Save a Little Prayer - Original Mix [06:39]
+02. Jose Delgado - Summerset Area - Original Mix [05:28]
+03. Stefano Monza - People from Ibiza - Chill-Out Mix [04:14]
+04. Florito - Nokondi - Original Mix [06:25](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A031B90F01347AA1BC012DAC0798AC0D3049DFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002829   (847108) от 01.04.2016
+
+VA - Goa Vol.2 (Compiled by DJ Bim) (2016) [MP3|320 кб/с] <Trance, Psy Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Invisible Reality - Invention & Innovation 07:46
+02 PehrBerg - Footprints 08:57
+03 Hasche - Solid Ground 08:21
+04 Kristallklar - Global Spin 07:58(   Читать дальше...   )Жанр: Trance, Psy TranceПродолжительность: 02:27:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A82EF2E8C20688368C51A4CBFCAE04F86323283
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378039   (847958) от 24.04.2020
+
+IC3PEAK - До Свидания (2020) [MP3|320 Kbps] <Electronic, Experimental>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мертвая Луна [03:17]
+02. Я целую твой труп [03:54]
+03. Интерлюдия [01:37]
+04. Все равно [03:03](   Читать дальше...   )Жанр: Electronic, ExperimentalПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EC22FAA18669A85C25A320BB6120BD197C3EF6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378147   (848158) от 24.04.2020
+
+Boris Brejcha - Thunderstorm (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848158.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Thunderstorm (7:37)
+2. The Awakening (8:38)
+3. Nothing Seems To Be (9:19)
+4. Titelbild (7:43)Жанр: Tech House, MinimalПродолжительность: 00:33:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26B5EF67CE4E2AE3A90852F05182A6504168A24E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378125   (848168) от 24.04.2020
+
+Parov Stelar - Voodoo Sonic: The Trilogy, Pt. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Nu Jazz>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brass Devil
+02. Piano Boy
+03. Don't You Forget (feat. Lilja Bloom & Anduze)
+04. Fade to Red (feat. ESCHES)(   Читать дальше...   )Жанр: Electronic, Nu JazzПродолжительность: 00:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990B4444CF2EFDE96E5C70D8ADD0FBDB4A2156AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378133   (848340) от 24.04.2020
+
+Zymosis - Timeless (2020) Sentimony Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Breaks, Downtempo, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zymosis - You Don't Have Time (07:43)
+ 02. Zymosis - Discover Yourself (07:53)
+ 03. The Doox - Rano (Zymosis Remix) (05:29)
+ 04. Zymosis - Perception Limit (07:06)(   Читать дальше...   )Жанр: Psybient, Breaks, Downtempo, Progressive TranceПродолжительность: 01:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D5636F5F18632A956924FD12E5061DC2EE44C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378272   (848342) от 24.04.2020
 
 VA - The Ultimate Gym And Fitness Beats (2020) [MP3|320 Kbps] <Progressive House>
@@ -527,168 +689,6 @@ Pet Shop Boys - Super (2016) [MP3|320 кб/с] <Electronic, New Wave, Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9070F8A050D30CD05F62185E30D8098EE82FEACE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111048   (850377) от 04.03.2017
-
-VA - Sound Of Serenity Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Heavenly Light - Butterfly Wings  3:15
-02.  Manifestation - Sirens  3:14
-03.  Jeff Sunrise - Danse Dextro  6:06
-04.  Dan Taylor - Fly With Me  4:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:27:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF67ED9300D6C09512A140363161CDB14FAA929
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110928   (850434) от 04.03.2017
-
-VA - This Is My Church Vol.2 (The Chill Out Edition) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Anthony Smith - Surrealism (Sunrise Edit)  3:20
-02.  Billy Anderson - Fly With Me (Original Mix)  4:25
-03.  Grand Lounge - Common Drum (Topazz Suite Mix)  5:26
-04.  Robert Janson - Step By Step (Original Mix)  4:59(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82257BBFE0A60DB9A5D339E7A20FA489156222C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110936   (850435) от 04.03.2017
-
-VA - Chillout March 2017 (Top 10 Best Of Collections) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  MAA - Elasia  4:38
-02.  Seven24 - Behind The Sky (Chillout Mix)  5:11
-03.  Suntise - Erotic (Chillout Mix)  2:45
-04.  Moonnight - To Save Love (Chillout Mix)  3:41(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:891423B214B6DA798A5DA6F86BE0C35A0BB4F3DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001660   (850564) от 30.03.2016
-
-Supermayer (Superpitcher & Michael Mayer) - Save The World (2007) [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey  [01:03]
-02. The Art Of Letting Go [05:39]
-03. Saturndays [07:14]
-04. Superbrain Transmission [02:34](   Читать дальше...   )Жанр: Techno, Minimal, AmbientПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45768A4B2037A2803B50D4A1D23467C79F9D072A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 305494   (850737) от 10.03.2011
-
-Apollo 440 - 4 Albums (1994 - 2003) [MP3|320 Kbps]<Drum & Bass, Electronic Rock, Big Beat>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamonds In The Sidewalk (feat. Jack Kerouac) (3:41)
-02. Something's Got To Give (feat. Xan) (6:54)
-03. Christiane (feat. Elizabeth Gray) (5:37)
-04. Existe (6:00)(   Читать дальше...   )Жанр: Drum & Bass, Electronic Rock, Big BeatПродолжительность: 04:56:45
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499199   (851137) от 30.09.2021
-
-VA - Relaxing Room: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Deeper Love (Original MIx) (5:50)
-02. Peter Pearson - The Dream That Was Summer (Original Mix) (6:03)
-03. Michael e - The Universe Is in Us (Original Mix) (6:00)
-04. Frank Neo - Mindflow (Original Mix) (5:39)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:902EAB522D79B849D1D338BEFC8CA47189287EB9
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1015686   (773979) от 11.05.2016
+
+Ирина Аллегрова - Перезагрузка. Перерождение (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Перезагрузка
+02. По МКАДу
+03. Птица
+04. Сумка(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:659E72EBF58349715D9A63CD6D78650BDA6542C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015483   (773984) от 11.05.2016
 
 VA - Popular Britpop May (2016) [MP3|210-320 кб/с] <Pop>
@@ -666,33 +693,6 @@ Dosis - Technoir: Part 1 (2016) [MP3|320 кб/с|image+cue] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A87A4C821F0D2431F5547230453393D17B08572
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015285   (775079) от 10.05.2016
-
-VA - Deep Night: Deep House Selection (2016) [MP3|320 кб/с] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milton Diaz - Liverpool Dimention - Sunset Avenue Mix
-02. Sonny Fasser - Case and Shot - Danny Florence's Limousine Mix
-03. Porn Btz - A New Reason - Congalonga's House Mix
-04. Ralf Harris - I Get It - Deep & Jazzy Style Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4467AAD9299F61DC5BF96745F249BFFF4D61F663
 ```
 
 

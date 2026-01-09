@@ -1,3 +1,30 @@
+###  Публикация: 1363984   (939339) от 01.03.2020
+
+VA - In My Dream: City Party Mix (2020) [MP3|320 Kbps] <Club, EDM, Dance House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939339.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mike Tunes - No Excuses
+002. Axby - Chav
+003. Bonnie X Clyde - Bad Behavior
+004. 4b - Blackout(   Читать дальше...   )Жанр: Club, EDM, Dance HouseПродолжительность: 07:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D337383C8D980C979D6B5ACCD777922FE4ED60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092097   (939459) от 11.01.2017
 
 VA - Dance Hits Collection Vol.8 (2017) [MP3|320 Kbps] <Eurodance , House>
@@ -668,33 +695,6 @@ VA - Best of Romantic Rock (2017) [MP3|320 Kbps] <Rock, Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:763C1BFC3F85CDD9395D4499254DFCC07FC6A6A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091963   (941426) от 10.01.2017
-
-VA - Дискотека зимних дорог. Русские хиты (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941426.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анжелика Варум - Голос 4:43
-002. Sha Man - Я Люблю Ее 3:44
-003. Полиграф Шарикoff (Серега) - Гелик Вани 3:08
-004. Яков Самодуров - Стану Первым 3:42(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2AFDB3DD2381AD2D830055EE8E7A8B7D8A99D8E
 ```
 
 

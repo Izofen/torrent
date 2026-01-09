@@ -1,3 +1,250 @@
+###  Публикация: 1294492   (628373) от 08.04.2019
+
+VA - Ballermann XXL (Die besten Mallorca Party Schlager Hits zum Opening 2019 im Mallorcastyle) (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628373.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Robin - Cordula Grün
+002. DJ Malle - Helikopter 117 (Mach' den Hub Hub Hub)
+003. Axel Fischer - Bella Ciao (Eric van Dust Mix)
+004. Ingo ohne Flamingo - Saufen morgens, mittags, abends(   Читать дальше...   )Жанр: PopПродолжительность: 06:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3A6B7312034858E00712D96D4129A780A82FA2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294476   (628376) от 08.04.2019
+
+Lou & Hollywood Bananas - Meet The Ska All Stars: Greatest Hits (1980) LP [MP3|320 Kbps] <Pop, Disco, Ska>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hong-Kong Ska (2:20)
+02. I Won't Never Let You Go (2:43)
+03. Ska-Baloo Cha (2:52)
+04. Skeilzat (4:07)(   Читать дальше...   )Жанр: Pop, Disco, SkaПродолжительность: 00:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B38256E09B5A8AEF24FC507AF2C3A8A5053D6CB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035497   (628514) от 16.07.2016
+
+Дима Билан - Я ночной хулиган (2003) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Я ночной хулиган  "
+02. "Звёздочка моя ясная  "
+03. "Малыш   "
+04. "Я так люблю тебя  "(   Читать дальше...   )Жанр: PopПродолжительность: 00: 59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C59087CA6BB751E5716C0C70B7023780AF20AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035473   (628525) от 16.07.2016
+
+Britney Spears feat. G-Eazy - Make Me (2016) Single [FLAC|Lossless|WEB-DL|track] <Pop, Hip-Hop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make Me [00:03:51]Жанр: Pop, Hip-HopПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1264EE03FD48E4EA2F89233B33E689B4025FD14D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035382   (628527) от 16.07.2016
+
+VA - Come and Get It: The Best of Apple Records (2010) Remaster [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаю Вашему вниманию компиляционный альбом лучших песен, выпущенный лейблом Apple Records 25 октября 2010 года. В альбом вошли ремастированные композиции, изданные Apple Records в период с 1968 по 1973 год. Ремастирование песен для альбома провела та же команда инженеров, что в 2009 году ремастировала альбомы The Beatles.
+"На «Come and Get It: The Best (   Читать дальше...   )01. Mary Hopkin - Those Were the Days  (5:11)
+02. James Taylor - Carolina in My Mind  (3:39)
+03. The Iveys - Maybe Tomorrow  (2:54)
+04. Black Dyke Band - Thingumybob  (1:56)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31EF3B31EFEA66F5DEA51D6C606A129E9DD9F0B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521140   (628666) от 10.07.2012
+
+Лада Дэнс - Лучшая Коллекция (2012) [MP3|320 кб/с]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нежданный звонок
+02. До свидания
+03. Пойду с тобой
+04. Не судьба
+05. Ночные танцы
+06. Нас больше нет
+07. Девочка-ночь
+08. Будь со мной
+09. Ночь
+10. Только дождись(   Читать дальше...   )Жанр: РорПродолжительность: 02:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530B92DF2AF51AE9A9D5F78E0326F14013EB7EC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035326   (628668) от 16.07.2016
+
+Kany Garcia - Limonada (2016) [FLAC|Lossless|WEB-DL|tracks] <Latin Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mío
+02. De Verano a Invierno
+03. Perfecto para Mi
+04. El Mejor(   Читать дальше...   )Жанр: Latin PopПродолжительность: 0:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29D0D3EBBD2C78E10AE47B6F3B1A0C8EF7BEF092
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144079   (629354) от 21.06.2017
+
+ESTRADARADA - 3 Singles (2015-2016) [FLAC|Lossless|WEB|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Галя, гуляй! (Album Edit) (4:00)
+02. Галя, гуляй! (Radio Edit) (3:30)
+03. Галя, гуляй! (Extended) (4:12)
+04. Галя, гуляй! (Max Creative Radio Edit) (2:52)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACE397A8559D2C5A5C2A75DFD17B6077FA4EA37B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543481   (629526) от 11.04.2022
+
+VA - Summer Wedding 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shania Twain - You're Still The One (3:32)
+02. Extreme - More Than Words (5:37)
+03. The Righteous Brothers - Unchained Melody (3:36)
+04. The Police - Every Breath You Take (4:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFE1E268727F5E49B0DC0FB7E061251020670EBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294429   (629635) от 07.04.2019
 
 Красные Маки - 2 Albums (1980) LP [MP3|320 Kbps] <Pop, Disco>
@@ -464,250 +711,6 @@ Mix 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49ADE29541BE8E72555277DBF455164512980028
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143930   (631630) от 20.06.2017
-
-Supersempfft & Roboterwerke - 3 Albums (1979, 1981) LP [MP3|320 Kbps] <Electronic, Space Rock, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Состав: Dieter Kolb, Franz Aumuller.  Вдохновленные веяниями электронной музыки тех лет (Kraftwerk, Telex..), но не потерявшие своей оригинальной изюминки выпустили в одном и том-же составе предлагаемые три примечательных альбома. Последний вышел под новым названием группы, аналогичному названию их первого альбома - RoboterwerkeСписок альбомов:
-1. Supersempfft - 1979 - Roboterwerke
-2. Supersempfft - 1981 - Metaluna
-3. Roboterwerke - 1981 - Futurist(   Читать дальше...   )Жанр: Electronic, Space Rock, Synth-pop, DiscoПродолжительность: 01:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97AC1DFD37A86C96099618BE2D76E746F48047FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543390   (631835) от 10.04.2022
-
-Виктория Черенцова - Карантин (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Карантин (3:05)
-02. Не бойся (4:11)
-03. Опять дожди (3:51)
-04. Однажды ты соскучишься по мне (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15699D4FE94381D537A176B15C30B724455233F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294057   (631858) от 06.04.2019
-
-Weyes Blood - Titanic Rising (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Lot's Gonna Change (04:21)
-02. Andromeda (04:40)
-03. Everyday (05:07)
-04. Something to Believe (04:45)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E224C1CE0EC0B086D11B257E393492B0F2485F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228980   (631978) от 03.06.2018
-
-VA - Ещё одна вечеринка!! (1995) [FLAC|Lossless|image + .cue]<Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Каролина - Вот и всё
-02. Лариса Черникова - Подари мне ночь
-03. Кай Метов - А ты меня не поняла (Techno Mix)
-04. Юла и Джимми Джи - Рэйв Тайм (Sovok Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85882F0058BEC2735DC0C08C8F4D895F1B6A52F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543385   (631983) от 10.04.2022
-
-Виктория Черенцова - Кукуруза (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. До завтра, Москва (3:53)
-02. Я люблю тебя (3:30)
-03. Будь со мной (3:36)
-04. Танцуй (3:42)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DDCEDF5DB75177EC3E92C87BEDFDD6923CDF4FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228990   (632099) от 03.06.2018
-
-Ladies of Soul - Live at the Ziggo Dome (2018) [MP3|320 Kbps] <Soul, R&B, Pop, Disco, Funk, Hip Hop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ladies of Soul feat. Berget Lewis & Glennis Grace & Edsilia Rombley & Candy Dulfer - Ouverture 2018
-02. Ladies of Soul feat. Berget Lewis & Glennis Grace & Edsilia Rombley & Candy Dulfer - Count Me In
-03. Ladies of Soul feat. Berget Lewis & Glennis Grace & Edsilia Rombley & Candy Dulfer - Let's Groove Tonight
-04. Ladies of (   Читать дальше...   )Жанр: Soul, R&B, Pop, Disco, Funk, Hip HopПродолжительность: 02:31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC43C7E6BE665F79ABF8D57947726417019127A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034953   (632162) от 14.07.2016
-
-Ottawan - серия "Золотые хиты дискотек" (2001) compilation [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  You`re O.K  5:07
-02.  Zoo Zoo - (Bisquit)  6:12
-03.  Hands Up (Give Me Your Heart)  4:44
-04.  It`s All Music (It`s All Rock`n Roll)  3:33(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13D8E02711063C58D58EB5B7FE7A5A9050B732F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229021   (632203) от 03.06.2018
-
-Philippe Renaux - Noels Cosmiques (1977) LP [MP3|320 Kbps] <Electronic, Synth-pop, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632203.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Мы желаем Вам космического Рождества" - таков слоган у этой пластинки. Вас ждут волшебные мгновения при прослушивании "Ave Maria" Шуберта, "Gloria" Генделя или всенародной "Jingle Bells" в стиле космик. И праздник в доме будет не только в предновогоднее время, а всегда!
-Philippe Renaux -  продюсер, автор и аранжировщик работавший (   Читать дальше...   )01.  Ave Maria De Schubert (5:21)
-02.  Noel Blanc (White Xmas) (3:21)
-03.  Il Est Ne Le Divin Enfant (3:11)
-04.  Anges Dans Nos Campagnes - Gloria De Haendel (2:57)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Easy ListeningПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B1AA6F259AAD934391846D40E2849339650553
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908520   (632244) от 15.06.2015
-
-Walk Off the Earth - Sing It All Away (2015) [MP3|320 кб/с]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632244.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rule the World (3:25)
-2. I'll Be Waiting (3:46)
-3. Home We'll Go (3:09)
-4. Hold On (The Break) (3:27)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A626BE2F5A3D839A981583BD831FBD2224BFDA6A
 ```
 
 

@@ -1,3 +1,163 @@
+###  Публикация: 1484068   (1006285) от 18.07.2021
+
+Blutengel - Erlosung - The Victory of Light (2021) 2CD, Deluxe Edition [MP3|320 Kbps] <Darkwave, Gothic Rock, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Herrschaft [00:05:04]
+02. Freak Out [00:04:38]
+03. She's Not a Saint [00:04:17]
+04. Purple Sky [00:04:19](   Читать дальше...   )Жанр: Darkwave, Gothic Rock, IndustrialПродолжительность: 2 CD, 01:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEA94DF39FBFAE959FC948E486B13AFAF7F357EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484239   (1006286) от 18.07.2021
+
+Inhmost - The Meaning Of...... (2021) re:st [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunrise Meditation (04:47)
+ 02. Healing Hand (05:32)
+ 03. Outer Thoughts Dub (06:59)
+ 04. Outside Space (04:56)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D4246E3B77BB0DFF033F620981A3A9C7D3DC056
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189483   (1006356) от 17.07.2021
+
+Emancipator - Discography 37 Releases (2006-2021) Loci Records [FLAC|Lossless|tracks+.cue, tracks] <Downtempo, Trip Hop, Instrumental>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thumper (02:17)
+ 02. Lemon Lime (03:53)
+ 03. Jade (04:22)
+ 04. Tea Sprinkles (04:05)(   Читать дальше...   )Тип издания: CD, WEB, VinylЖанр: Downtempo, Trip Hop, Instrumental •Продолжительность: 17:45:54 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B70A5FED9FEA892E377396227EBF6D8F478873
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483579   (1006415) от 17.07.2021
+
+Stillhead - Iceberg (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006415.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Stillhead - Sunset Over Estonia 03:28
+2. Stillhead - Knife Edge 03:46
+3. Stillhead - Stillhead feat. Mu Vonz - Maybe We Aint Dead 03:53
+4. Stillhead - Breathe Me Out 04:24(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40A23E86803727ED4E47A415C43157B5B4B14914
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388785   (1006462) от 16.07.2021
+
+laaps - Label-Pack 13 Releases (2020-2021) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Contemporary, Experimental, Minimal, Acoustic>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seven Signals In The Sky (06:53)
+ 02. Lying Dormant And Forgotten (06:20)
+ 03. Never Walk Home Alone At Night (06:11)
+ 04. Exoplanet (05:19)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Ambient, Contemporary, Experimental, Minimal, Acoustic •Продолжительность: 08:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130F6CC3ED2A558D1C31AB2AF827CAFEF1CAE3B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426526   (1006470) от 16.07.2021
+
+The Chikara Project - Label-Pack 19 Releases (2017-2021) [FLAC|Lossless|tracks] <Drum n Bass, Jungle, Halftime, Ambient>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Can Help Each Other (04:33)
+ 02. Rest Assured (feat. Elysia Grace) (05:06)Тип издания: WEBЖанр: Drum n Bass, Jungle, Halftime, Ambient •Продолжительность: 07:55:16 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:252B88352004264ACDE15391406AF4266E1692B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483980   (1006500) от 16.07.2021
 
 Future Synth - Exoplanet (2021) [MP3|320 Kbps] <Synthpop, Spacesynth, Space-Disco>
@@ -527,162 +687,6 @@ Dev Sk - This is my [peE]P (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23B533D022AE090C9046B89081C12A388CF5979B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483060   (1007195) от 11.07.2021
-
-Baba Gnohm - Forgotten Stories (2021) [FLAC|Lossless|WEB-DL|tracks] <Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asia 3am (03:30)
- 02. Inside My Left Eye (05:29)
- 03. Sunken Dreams (04:21)Жанр: DowntempoПродолжительность: 00:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963FEFA4382D69DB970457B3313BB105C45DFBAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483057   (1007197) от 11.07.2021
-
-Airto - Eighteen Things I've Never Imagined (2018) Monumental Netlabel [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Downtempo, Drill n Bass>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 11th Of May (04:53)
- 02. Biotek Estate (04:40)
- 03. My Friend Alice (04:00)
- 04. Bombay (04:20)(   Читать дальше...   )Жанр: IDM, Ambient, Downtempo, Drill n BassПродолжительность: 01:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C81D6B8543D71879663A899887ADAC6F5E1DF10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985640   (1007212) от 10.07.2021
-
-This Morn' Omina - Discography 23 Releases (1997-2021) Ant-Zen [FLAC|Lossless|tracks+.cue, tracks] <Rhythmic Noise, Tribal, Industrial, Dark Ambient>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007212.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 The First Cycle: Nezeru Enti Sebauem Neterxertet
-01. Inside A Full Eclipse (11:20)
- 02. Totemism (Modern) (03:20)
- 03. K'hai (08:10)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Rhythmic Noise, Tribal, Industrial, Dark Ambient •Продолжительность: 25:16:10 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C8EF6AE18BD924912B51E51B211027625E04B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017003   (1007232) от 10.07.2021
-
-Wil Bolton (aka CHEjU) - Discography 30 Releases (2010-2021) [FLAC|Lossless|tracks, tracks+.cue] <Ambient, Drone, Experimental, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Platform (05:29)Жанр: Ambient, Drone, Experimental, Modern Classical, Field Recording •Продолжительность: 19:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E60FAC594D1AC86D924D65C3E15A489631BFA21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204906   (1007309) от 10.07.2021
-
-The Tin Box - Discography 14 Releases (2015-2021) Audiobulb Records, Hibernate Recordings [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Downtempo, Glitch>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moving Bliss (05:36)
- 02. Moving Design (04:33)Тип издания: WEBЖанр: IDM, Ambient, Downtempo, Glitch •Продолжительность: 08:04:42 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB92D0C2DF56E6E3501F9B917E5C522384252802
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044466   (1007340) от 09.07.2021
-
-Ólafur Arnalds (Olafur Arnalds) - Discography 47 Releases (2006-2021) Erased Tapes, Mercury Classics, Decca [FLAC|Lossless|tracks+.cue, tracks] <Modern Classical, Ambient, Neo-Classical, Co ...
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hjálmar Lárusson & Jónbjörn Gíslason - Jómsvíkingarímur - Ýta Eigi Feldi Rór (01:09)
- 02. Julianna Barwick - Forever (04:25)
- 03. Koreless - Last Remnants (04:04)
- 04. Odesza - How Did I Get Here (Instrumental) (01:40)(   Читать дальше...   )Тип издания: CD, WebЖанр: Modern Classical, Ambient, Neo-Classical, Contemporary •Продолжительность: 20:57:25 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7000A642B608FB53D5D993CCC443165E57156E11
 ```
 
 

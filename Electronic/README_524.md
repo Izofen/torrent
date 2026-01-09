@@ -1,3 +1,165 @@
+###  Публикация: 1444588   (1034437) от 02.02.2021
+
+Spacehawk - Terracide (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spacedisco, Spacedance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:15)
+02. Terracide (4:20)
+03. Hyperspace (4:09)
+04. Virtual World (4:47)(   Читать дальше...   )Жанр: Spacesynth, Spacedisco, SpacedanceПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD7409073ED513314E82B0A6895C1AC9B70CF6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444545   (1034440) от 02.02.2021
+
+VA - Mhammed El Alami Vocal Trance Selections (2021) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mhammed El Alami & iMi - Summer Is Over (Original Mix)
+02. Mhammed El Alami & Emma Horan - Warriors (Original Mix)
+03. Radion6 & Sarah Lynn - A Desert Rose (Mhammed El Alami Edit)
+04. Mhammed El Alami & Waltin Jay - Thankful (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB086E1D2738B599052D51E474D7EFEBBAEECE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444586   (1034442) от 02.02.2021
+
+Spacehawk - Universe (2020) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spacedisco, Spacedance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:09)
+02. Total Eclipse (4:12)
+03. Cybernoid (4:38)
+04. Battlestorm (4:40)(   Читать дальше...   )Жанр: Spacesynth, Spacedisco, SpacedanceПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C32E5B36435A9743C378B589B921953FD21698A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444589   (1034450) от 02.02.2021
+
+Faber - Spacefish (2009) [FLAC|Lossless|image + .cue] <Traditional Electronic, Berlin Schoo>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034450.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Tangerine Sky.
+2.Trancesphere X.
+3.Bell In The Dark.
+4.Space Fish.(   Читать дальше...   )Жанр: Traditional Electronic, Berlin SchooПродолжительность: 01:08:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D4D72CA7FBF178CAB93E24872E765ED8BE95243
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444502   (1034460) от 02.02.2021
+
+Bop - Etudes 2008​-​2013 (2020) Microfunk Music [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, Dub, IDM, Microfunk>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bop x Despot - Microfunk (06:13)
+ 02. Bop x Paul B - Galactic Glider (06:07)
+ 03. Bop - Insight (04:53)
+ 04. Bop - Punk's Not Dead (05:06)(   Читать дальше...   )Жанр: Drum n Bass, Dub, IDM, MicrofunkПродолжительность: 00:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:790DC39226D987C254B38607A051C1BF4181637C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993253   (1034541) от 01.02.2021
+
+Sonic Area - Collection 11 Releases (2004-2021) [FLAC|Lossless|tracks+.cue, tracks ] <Industrial, Experimental, IDM, Modern Classical>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soot Spirit (03:34)
+ 02. The Silent Way (04:26)
+ 03. The Praying Mantis (05:57)
+ 04. Lotus (04:07)(   Читать дальше...   )Тип издания: CD, WebЖанр: Industrial, Experimental, IDM, Modern Classical •Продолжительность: 10:35:40 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C5CD591032FBF7062F53021EEB3E3EC0E1FEDAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617766   (1034561) от 09.03.2023
 
 Acryl madness - Blood Rage Hurricane (2023) [MP3|320 Kbps] <Darksynth>
@@ -530,168 +692,6 @@ Giuseppe Falivene - Discography 14 Releases (2017-2021) Annulled, Oslated [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B53CCC00C5DD8D7C9EE9067D2C29D531D5724F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443500   (1035483) от 29.01.2021
-
-VA - Best Of Last State (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sina7 - Uranus (Extended Mix)
-02. Nikzad & Sina - The Seventh Sky (Extended Mix)
-03. FAWZY & W!SS - Horizont (Extended Mix)
-04. Last Soldier - To The Future (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26BAB4C089A487534E45ACE92E48E556146263E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617115   (1035526) от 05.03.2023
-
-Kim & Buran - Tramplin (2022) Limited Edition [MP3|320 Kbps] <Synthpop, Space disco, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Walk In The Stratosphere [00:04:56]
-02 - Phazerdelique [00:05:52]
-03 - I Will Meet You In Summer [00:05:32]
-04 - French Train [00:04:55](   Читать дальше...   )Жанр: Synthpop, Space disco, DowntempoПродолжительность: 01:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F2A35D7627500A1E382B03090A1D180D4D4599
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616588   (1035543) от 05.03.2023
-
-VA - By the Way...Sounds Good, Size One (2023) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nana K. - Old's Cool (Deep Tribe Extended Remix) (7:04)
-02. g3ms - Just Like That (Extended Mix) (4:24)
-03. Lost House Rhythms - Runnin' (Original Mix) (3:25)
-04. Sam Collins - Showing Off (Original Mix) (2:46)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:403BB3B5EE4D5E28D0C0E799DD3C656E32CC8A57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617040   (1035545) от 05.03.2023
-
-Kim & Buran - Tramplin (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Space disco, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk On The Stratosphere! [00:04:56]
-02. Phazerdelique [00:05:52]
-03. French Train [00:04:55]
-04. Cosmic Gate [00:03:40](   Читать дальше...   )Жанр: Synthpop, Space disco, DowntempoПродолжительность: 01:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F78ADCD2A0908DC32D5CFC7CBDE4D46957802B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616932   (1035570) от 05.03.2023
-
-VA - Deep House Summer Hits (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abee Sash - Ain't Nobody (04:52)
-02. A-mase & Sharliz - Sky (Deep Radio Edit) (04:31)
-03. Abriviatura IV & Kamensky - Tears Away (Gus One Remix) (04:35)
-04. Alberto Miliziano - Thinking (02:28)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722D9436A51FE130E8BB7D2978E49B1E535D2513
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616767   (1035578) от 05.03.2023
-
-VA - The Sound of 2023 Mix 5: Dubai (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taufiq Azam - D'arce (Intro Mix) (07:17)
-02. Dain - Aurora (05:12)
-03. F4T4L3RR0R - Dragonfly (05:19)
-04. Robert B - Still See The Stars (05:07)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 03:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29670EDAB533F064A86383BA54FE75FB51E7F9D3
 ```
 
 

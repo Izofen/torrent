@@ -1,3 +1,30 @@
+###  Публикация: 1232513   (600053) от 24.06.2018
+
+VA - Ibiza Opening Party 2018 (Deluxe Version) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sounds Fine - Colours (Original Mix) 5:54
+02. MKVG - I Can Give (Original Mix) 5:47
+03. Mack Jack - Marimba (Original Mix) 3:38
+04. Martin Zoom - Above You (Extended Mix) 4:12(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 04:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:129558B2B68B03ADB7E90FDC5C8698D9DB93BFE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232502   (600056) от 24.06.2018
 
 VA - Best Charts: Summer Of Dance (2018) [MP3|320 Kbps] <Deep House>
@@ -660,33 +687,6 @@ Oil 10 - Discography 9 Releases (1998-2014) Divine Comedy Records, Ant-Zen [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EF5E4B50E6D648A9089C52C26A7856E3BCEA7D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149322   (601155) от 10.07.2017
-
-VA - Bodybuilding Music: No More Words Needed (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Page Two – Horsin
-02. Pacey Rookz – Bespoken
-03. Oceane Ripped – Punch
-04. Niki Taylor – Coach(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957A819A6A8FCB66872BBDBAB460DFDADC4F2B73
 ```
 
 

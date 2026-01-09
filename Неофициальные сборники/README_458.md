@@ -1,3 +1,30 @@
+###  Публикация: 1023584   (724253) от 05.06.2016
+
+VA - Alterportal HITS 16 Vol. 93 - May (2016) [MP3|128-292 кб/с] <Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Secret Circus - No Cigar
+02. 3 Pill Morning - Electric Chair
+03. Phrenia - Moonshine
+04. The Hypothesis - Eye for an Eye(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1624AC1BB150FAB6480071A627B2FAF2400DBA5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128851   (724353) от 27.04.2017
 
 Bob Margolin - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Chicago Blues>
@@ -665,32 +692,6 @@ VA - The LoungLegends play Barry Manilow (2011) [MP3|320 kbps]<Easy Listening, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3AFD9DA21E1FF38960D40EEB65FD927FBC2D29C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217984   (724733) от 08.04.2018
-
-ZODIAC - Reload (2017) Remix [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724733.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Reload
-2. DJ YASTREB
-3. Up MusicЖанр: Electro HouseПродолжительность: 00:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C3155BF67BD19387A904A002C243585BAB0C58
 ```
 
 

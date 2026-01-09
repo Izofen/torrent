@@ -1,3 +1,30 @@
+###  Публикация: 1033417   (639769) от 10.07.2016
+
+VA - Jazz Erotica - Sinfully Glamorous Naughty Smooth Jazz Music for Seductive Erotic Romance (2016) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemonjazz - Close Your Eyes - Erotic Sunset to Sunrise Mix
+02. Kool Keys - All This Time - Midnight Passion Mix
+03. Burning Lipps - Near or Far - Erotic Beach Love Mix
+04. Cool Swings - Just A Boy - Horny Instrumental Mix(   Читать дальше...   )Жанр: JazzПродолжительность: 01:14:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6AEEDFA6761E586F9EE58F31E3622CCE57D8C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033139   (639876) от 10.07.2016
 
 VA - The Official UK Top 40 Singles Chart - 8th July (2016) [MP3|263-320 Kbps] <Dance, Hip-Hop, Pop>
@@ -677,33 +704,6 @@ VA - Terror Hippie - Terror Trip (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75A1772AE86DFE8518263DB435FB01342C6C41D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292952   (641350) от 01.04.2019
-
-VA - Color Club Life (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641350.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ewаn Rill - Mоvе оn
-002. Mаgnеtiс Brоthеrs - Mоrning Fееlings (оriginаl Miх)
-003. Plаtunоff - аutumn In Yоu
-004. Tunеsquаd - Thе сhаnt(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 09 :29 :00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E27B3B73E339FBF773476FC67D526937D0B4E239
 ```
 
 

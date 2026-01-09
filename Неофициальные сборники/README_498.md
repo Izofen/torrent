@@ -1,3 +1,30 @@
+###  Публикация: 1014480   (776207) от 08.05.2016
+
+VA - Trance Maniacs Party - Melody Of Heartbeat #163 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Essonita feat. Irina Makosh - Letter To Angel (Original Mix) 6:27
+02. Beat Service - Not This Time - Original 5:55
+03. Squarz Kamel, Love Dimension - Say Me (Original Mix) 6:29
+04. Eminence Ft. Holly Drummond - Ultraviolet (Cold Rush Remix) 7:28(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E1686D1E5C38099CFB1C3ABFB974BDEB13CD61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212120   (776262) от 10.03.2018
 
 VA - Dance Hot Mixes Popular Radio Mixes (2018) [MP3|320 Kbps] <Dance, Club, Pop>
@@ -668,33 +695,6 @@ VA - Rain Hugs: Relax Edition (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7B30713040B1733D5A5F6F02C30AF30B0C5C5CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013627   (776951) от 06.05.2016
-
-VA - Spring Break Beach Party (2016) [MP3|320 кб/с] <Progressive House,Techno, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funtom Cruisers - Boarding (Original Mix)
-02. Dj Rohan - Bring The Bass Back (Original Mix)
-03. Inquisitive - Rave Slam (Original Mix)
-04. D.J. Mash Up - Summertime Sadness (Remix)(   Читать дальше...   )Жанр: Progressive House,Techno, HouseПродолжительность: 06:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:282FBD98DCF4CA6E191DEBCFCD7C5978A009EE10
 ```
 
 

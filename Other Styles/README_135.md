@@ -1,3 +1,300 @@
+###  Публикация: 1276736   (787614) от 17.01.2019
+
+VA - Yoga Chill Out 2019 [MP3|320 Kbps] <New Age, Ambient, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California Sunshine - Alala (Intro Chill Mix)
+02. Illegal Substances - Lost Civillization (Edit)
+03. Ufomatka - Sunrise On Venus
+04. The Same Old Souls - Strange Light Anomalies(   Читать дальше...   )Жанр: New Age, Ambient, DowntempoПродолжительность: 03:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5EF0BA8E934DB69AFD18A8263A2D394BFF6DA9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511915   (787835) от 23.11.2021
+
+Variations & Gary Ryan - Romantic Guitar (2006) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Albatross (2:58)
+02. Bilitis (3:22)
+03. Lara's Theme (2:22)
+04. Everything I Do (I Do It For You) (4:09)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A6A83BEDC0FED3E192BC0CD18269900F0547EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203275   (788122) от 02.02.2018
+
+Cousin Harley - Blue Smoke - the Music of Merle Travis (2017) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788122.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Divorce Me C.O.D.
+2. Deep South
+3. Blue Smoke
+4. So Round, So Firm, So Fully Packe(   Читать дальше...   )Жанр: CountryПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D976318DDDFA61E510B8C29CEB16D7753CD21534
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203543   (788160) от 02.02.2018
+
+Llewellyn - Return to the Temple (Re-Recorded) (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Temple Base Chakra
+02. Temple Spleen Chakra
+03. Temple Solar Plexus Chakra
+04. Temple Heart Chakra(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44FB78FF01243C28EA0196197DF902108144F3E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203047   (788164) от 02.02.2018
+
+Marika Takeuchi - Colors In The Diary (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frozen Lake
+02. Green Field
+03. Blue Falls
+04. White Mountains(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A082171CE9AE98ADBFF706D8133513D34B6F9E6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202309   (788166) от 02.02.2018
+
+Pentangle - Reflection (1971) [FLAC|Lossless|tracks + .cue] <Folk Rock, Jazz>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788166.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wedding Dress – 2:48
+2. Omie Wise – 4:23
+3. Will the Circle be Unbroken? – 4:06
+4. When I Get Home – 4:55(   Читать дальше...   )Жанр: Folk Rock, JazzПродолжительность: 00:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF328A7DDB84508BD8D770001D0B7212350A5351
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511614   (788316) от 22.11.2021
+
+Квітка Цісик - Пісні з України (1980) Kvitka Cisyk, Kacey [FLAC|Lossless|tracks + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Іванку, купи ми рум'янку
+02. Пісня про рушник
+03. Стоїть гора високая
+04. Ой, видно село(   Читать дальше...   )Жанр: FolkПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC432D9FC5DF1079CF890E09C1675043A0689EEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276205   (788587) от 15.01.2019
+
+Thomas Cappeau - Commando Ninja / Коммандос-ниндзя (Original Motion Picture Soundtrack) (2018) [MP3|320 Kbps] <Soundtrack, Score, Synthwave>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The 'Nam (01:24)
+02. The Raid On The House (03:29)
+03. The Deal (03:20)
+04. Confronting The Red Ninja (02:43)(   Читать дальше...   )Жанр: Soundtrack, Score, SynthwaveПродолжительность: 00:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:016656C863E3ED94228EF3E3919295CF44361EFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202903   (788646) от 01.02.2018
+
+Ernesto Cortazar - Blue Waters (2009) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remembrance (4:02)
+ 02. Mournful Seaside (2:52)
+ 03. Blue Waters (3:33)
+ 04. Perpetual Breeze (3:29)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2488799085856D7C227D375782658FA6682E86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511319   (788804) от 21.11.2021
+
+Kvitka Cisyk - Two Colors (1989) Kacey Cisyk, Квитка Цисык [FLAC|Lossless|tracks + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788804.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Де ти тепер
+2. Черемшина
+3. Коломийка
+4. Тече річка(   Читать дальше...   )Жанр: FolkПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD5E9E6D993F5C44F9F637648A90703A97686269
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511654   (788939) от 21.11.2021
+
+Митрофановна - Развернула 'Митрофановна' гармонь (2004) [FLAC|Lossless|tracks + .cue] <Фольклор, русская народная песня>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты возьми гармонь... (3:15)
+02. Хуторянка (3:43)
+03. Никто тебя не любит так, как я (3:19)
+04. Все татары кроме я (2:09)(   Читать дальше...   )Жанр: Фольклор, русская народная песняПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68973B58DFADDDBE9E86B1DE8978D62F4879C0FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202937   (789017) от 31.01.2018
 
 Франк Пурсель - Музыка хорошего настроения (2005) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
@@ -397,303 +694,6 @@ Dr. Jeffrey Thompson - Brainwave Suite: Insight & Intuition (2003) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85338CCAB87ECB692ADB79B3C521DD000B2BAB0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201908   (790939) от 27.01.2018
-
-Noorvik - Noorvik (2018) [MP3|320 кб/с]<Post-Rock, Post-Metal, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790939.jpg" />
-</div>
-
-
-###  Подробнее
-
-[10:20] 01. Denali
-[08:06] 02. Shishaldin
-[08:35] 03. Malaspina
-[07:29] 04. Chugach(   Читать дальше...   )Жанр: Post-Rock, Post-Metal, InstrumentalПродолжительность: 00:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1F51C42B92237B46B287A42A5C20416149F020
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202049   (790969) от 27.01.2018
-
-Neil Davidge - BRITANNIA (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make Amends (04:01)
-02. The Sun Will Not Rise Tomorrow (03:10)
-03. You Spoke (02:25)
-04. The Scariest Thing (02:26)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD49EE35723E09C929A2B3973375E350C99249F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201949   (790970) от 27.01.2018
-
-Ernesto Cortazar - Memories Of The Fall (2010) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memories Of The Fall (3:37)
- 02. Lady (4:11)
- 03. Living A Dream (3:43)
- 04. Falling Leaves (3:15)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 00:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD54449724C3E90FEC289DCEB8D7EAE430F5CAFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275133   (791096) от 10.01.2019
-
-Greg Maroney - Secrets of the Sea (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secrets of the Sea
-02. Reverence
-03. River of Dreams
-04. Distant Shores(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8BDC8DCC0AFB527325C3A884523DE043A1C1AAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275215   (791117) от 10.01.2019
-
-Anaamaly - Fields of Light (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Centering Meditation
-02. Morning Air
-03. A Peaceful Drift
-04. Cosmic Waters(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF09B49903541118B8A2DE5F5508EB244DB66C39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274819   (791120) от 10.01.2019
-
-Philip Wesley - Hope Endures (2012) [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Solo Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Unknown (5:06)
- 02. Leaving The Darkness Behind (4:47)
- 03. Amazing Grace (4:54)
- 04. Second Chances (3:00)(   Читать дальше...   )Жанр: Modern Classical, Ambient, Solo PianoПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0812B98000FB701D0FC89039620AB235A11EAF74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201852   (791441) от 26.01.2018
-
-Khruangbin - Con Todo El Mundo (2018) [FLAC|Lossless|WEB-DL|tracks] <Funk / Soul, Folk, World, & Country>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cómo Me Quieres (3:45)
-02. Lady and Man (4:18)
-03. Maria También (3:11)
-04. August 10 (4:25)(   Читать дальше...   )Жанр: Funk / Soul, Folk, World, & CountryПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CA93F6F11CAEFCDDCBBAFB6EC7D0551665966AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201780   (791509) от 26.01.2018
-
-Calexico - The Thread That Keeps Us (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Indie Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End Of The World With You 03:08
-02. Voices In The Field 03:26
-03. Bridge To Nowhere 03:07
-04. Spinball 01:11(   Читать дальше...   )Жанр: Indie FolkПродолжительность: 01:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B24A5638D4EE36C1ABFE19EF562C0319D0153ED3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201875   (791557) от 26.01.2018
-
-Бузулук - Гордись, Русская Слава! (2008) [MP3|320 Kbps] <Folk, Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гордись,гордись, русская слава (4:31)
-02. Вдоль по линии Кавказа (4:50)
-03. На речке Камышинке (4:26)
-04. Со горы горы (2:56)(   Читать дальше...   )Жанр: Folk, Казачья песняПродолжительность: 01:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92CA4E4D11752C322E5B43DC2B0D0B9908D6F24D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201874   (791560) от 26.01.2018
-
-Бузулук - Славьтесь, славьтесь казаки! (2006) [MP3|320 Kbps] <Folk, Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На речке было на Лазорьевой (3:45)
-02. На сухом было пруду (4:25)
-03. Ни сокол с орлом солеталися (3:42)
-04. 25 июня (3:15)(   Читать дальше...   )Жанр: Folk, Казачья песняПродолжительность: 01:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477F4856A312FCEBA45343CF0BEF1711C98E653C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386860   (791807) от 01.06.2020
-
-Sungha Jung - Sungha Jung Cover Compilation 1-5 (2019) [MP3|~245 Kbps (V0)] <Acoustic, Fingerstyle Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Bird (3:39)
-02. Can't Help Falling in Love (2:59)
-03. Fake Love (3:41)
-04. Girls Like You (3:05)(   Читать дальше...   )Жанр: Acoustic, Fingerstyle GuitarПродолжительность: 06:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E56749C2317B0950C5D74BE24957950E050ACC
 ```
 
 

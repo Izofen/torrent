@@ -1,3 +1,30 @@
+###  Публикация: 1369551   (901951) от 24.03.2020
+
+VA - Warm Lounge Sounds (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901951.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Capa - Desert Me
+002. Gene Bautista - Playa Del Carmen
+003. Nova Casa - Soul
+004. Mazelo Nostra - Underworld(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, RelaxПродолжительность: 10:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B994913A15B0DEC5E7B878AAF708CF2EDDD8A6EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369560   (901993) от 24.03.2020
 
 VA - Different Shades Of World Song (2020) [MP3|320 Kbps] <Pop Folk, Shancon, World Music>
@@ -668,33 +695,6 @@ VA - Afro Bass (2021) [MP3|320 Kbps] <Jungle, D&B, Electro Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:616E322F0A05DFDC397E4CAE1E97DC56B44A82F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992183   (902422) от 01.03.2016
-
-VA - Музыка хорошего настроения 2 (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902422.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lx24 - Скажи Зачем
-002. Nabiha - Weapon
-003. Алена Roxis - Наша Ночь
-004. The Dollyrots - Little Medusa(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41322A23333268CCE6087C9292F2C7D802428C08
 ```
 
 

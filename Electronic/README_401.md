@@ -1,3 +1,165 @@
+###  Публикация: 1389257   (784583) от 10.06.2020
+
+Maks Henning - Spring Dub 2 (2020) 7th Cloud [FLAC|Lossless|WEB-DL|tracks] <Techno, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Witness (06:42)
+ 02. Forest Firefly (06:39)
+ 03. Night Forest Creature (06:32)
+ 04. Surface (05:46)Жанр: Techno, Dub TechnoПродолжительность: 00:25:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0425E5A415A84380613A56339963EDC43FA65D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204472   (784634) от 06.02.2018
+
+VA - Lounge Acoustic Covers (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Naydet Cross - I Want to Break Free
+02. Ashala Kirn - All You Need is Love
+03. Solo Kaola - Sunny
+04. Ashala Kirn - I Get the Sweetest Feeling(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5E17CE6049ED35E97B2DF52EDF5EF9EC285FAB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204666   (784639) от 06.02.2018
+
+Lyktum - Human (2018) [MP3|320 Kbps] <Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_784639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lyktum – Divine Enchantment (Original Mix)
+02. Lyktum & Aho – Spirit Guide (Original Mix)
+03. Lyktum – Symmetry (Original Mix)
+04. Lyktum – Water (Original Mix)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:14:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E142BC3F2B75C0410D33331E24197953EDAB88B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204464   (784663) от 06.02.2018
+
+VA - Kontor Festival Sounds 2018 The Beginning (2018) 3CD [MP3|320 Kbps] <House, Trance Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784663.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Martin Garrix & Matisse & Sadko  -  Forever  3:38
+02.  Eastblock Bitches & Niels Van Gogh  -  Get Money  3:33
+03.  DubVision & Afrojack  -  New Memories  3:35(   Читать дальше...   )Жанр: House, Trance DanceПродолжительность: 01:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:405D09BA32D2B2479B108F8DE7012548CE9CDE0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204473   (784667) от 06.02.2018
+
+Kai Engel - caeli (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Neoclassical>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. aspirato (3:11)
+ 02. soli (3:19)
+ 03. coelum (2:35)
+ 04. visum (3:08)(   Читать дальше...   )Жанр: Ambient, IDM, NeoclassicalПродолжительность: 00:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69DDC5EC9D7B1FB80355A69655A8B0802066677E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204463   (784669) от 06.02.2018
+
+Kai Engel - The Run (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Neoclassical>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seeker (4:37)
+ 02. Run (4:02)
+ 03. Harbor (4:00)
+ 04. Imminence (2:40)(   Читать дальше...   )Жанр: Ambient, IDM, NeoclassicalПродолжительность: 00:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2C219137FB5D66E58E5F69E7AF7A5577460CD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204639   (784675) от 06.02.2018
 
 VA - Love Hits Vol.3 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -533,168 +695,6 @@ VA - United Colours Of Trance Vol.10 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61821A1B325855524EFC295A8E78179DF3693F4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204300   (784994) от 05.02.2018
-
-VA - Chilling Sounds, Vol. 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anjo - Delight (Original Mix) 03:20
-02. Den Shender - Den Shender (Original Mix) 03:12
-03. Fashion Star - One Dream (Original Mix) 04:22
-04. IMAX - Monks Under Tramadol (ArcticA Chill Out Mix) 03:26(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:06:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD035827067766165F5F71065ABA7452EC4F809E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204408   (784995) от 05.02.2018
-
-VA - afterlights (2017) [MP3|320 Kbps] <Trance,House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ryo Nakamura – In The Twilight
-02. Shion Hinano – Farewell
-03. Akihiro Ohtani – Still Beauty
-04. Aran – East Wind(   Читать дальше...   )Жанр: Trance,HouseПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F4E11D8B034246BC8A32E1F28CC6340FA82C93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204364   (784997) от 05.02.2018
-
-Aloner Station - Overcreate World (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784997.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Forward To Hopes 03:11
-2. Harmony 04:40
-3. Bar 03:15
-4. Vhs 02:28(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBA32C875B61F044215FD35D15EACF4FDDED8F4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277748   (785016) от 21.01.2019
-
-VA - Abora Recordings Best Of 2018 (Mixed By Ori Uplift) (2019) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Syntouch & Spins - Desolation (Intro Mix)
-02.Playme - The Great Bay (Original Mix)
-03.Akku - Megumi (Emotional Mix)
-04.Sandro Mireno - It's Your Day (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFB289F1FA726D80A11A179FE7372D21F4C4C89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277695   (785020) от 21.01.2019
-
-Acronym & Kali Malone - The Torrid Eye (2019) Stilla Ton [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call From The Tower (03:21)
- 02. A Sunspot (05:52)
- 03. Tempest Of Joy (05:21)
- 04. Legs Of The Fly (06:18)(   Читать дальше...   )Жанр: Techno, Experimental, AmbientПродолжительность: 00:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86C25C062B3276E9505F2D4647E062A65D5B86F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277757   (785026) от 21.01.2019
-
-VA - Nothing But... The Future Of Trance Vol.11 (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vince Blakk & Angel II Demon - Cohiba (Extended Mix)
-02. Jan Miller - Signs (Original Mix)
-03. Cyril Ryaz - Aurore (Original Mix)
-04. Keurich - Magic Touch (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01BB8552C5F4E79130DDD14992A972FC8849C029
 ```
 
 

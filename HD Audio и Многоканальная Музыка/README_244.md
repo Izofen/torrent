@@ -1,3 +1,30 @@
+###  Публикация: 1290535   (678337) от 20.03.2019
+
+Boots Randolph - The Greatest Hits Of Boots Randolph (1974) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Jazz, Big Band, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678337.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Yakety Sax
+A2 Smoke Gets In Your Eyes
+A3 Gentle On My Mind
+A4 Stardust(   Читать дальше...   )Жанр: Jazz, Big Band, FunkПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D35B1332D75F523105AD336B92C50E85600B9C76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290013   (678339) от 20.03.2019
 
 Randy Travis - Storms Of Life (1986) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk, Country>
@@ -676,33 +703,6 @@ magnet:?xt=urn:btih:4EC3E4981565D49CBAD6435161EC100A7D0E8EF7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11842F6D9B4748E61EC6ADFB614BEECE2D6C6C44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131920   (704926) от 07.05.2017
-
-Saraya - Saraya [LP] (1989) [WavPack 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704926.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Love Has Taken Its Toll
-A2 Healing Touch
-A3 Get U Ready
-A4 Gypsy Child(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5126E710D04761AE8D882E63902B6E0B569D43DC
 ```
 
 

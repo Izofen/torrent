@@ -1,3 +1,30 @@
+###  Публикация: 972766   (980653) от 07.01.2016
+
+VA - Танцевальная Зима 50/50 (2016) [MP3|320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Frequencies ft. Janieck Devy - Reality 02:39
+02. Джанет Джексон - BURNITUP! (feat. Missy Elliott) 03:28
+03. Anna Naklab ft. Alle Farben - Supergirl 03:33
+04. Нюша - Где Ты, Там Я (DJ Nejtrino & DJ Baur Remix) 03:30(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:458FD3B78EC50211F801F4DF530ABD0A66A243A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972815   (980697) от 07.01.2016
 
 VA - Попсовая VIP тусовка (2015) [MP3|256-320 кб/с] <Pop>
@@ -770,39 +797,6 @@ VA - Митяевские песни. Часть 3 (2011) [MP3|320 кб/с]<pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81610F46B1B2B7D6043856B8B9ECE976506A8DCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605974   (995236) от 21.01.2013
-
-VA - Зажигательная вечеринка. Зимний выпуск. Зарубежная версия (2013) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995236.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alyanna - Fiesta
- 002. Sandra - Russian Eyes
- 003. Drei Ros Feat. Diedra - Crazy
- 004. Chris Brown - Don't Judge Me
- 005. Chris Brown - 4 Years Old
- 006. Cheryl Cole - I Like It
- 007. Sandra - Sand Heart
- 008. Little Mix - Going Nowhere
- 009. Nelly Furtado - Parking Lot
- 010. Justin Bieber Feat. Far East Movement - Live My Life(   Читать дальше...   )Жанр: PopПродолжительность: 06:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FEA1ED236324380DE294BE750084AC6D5C38DD
 ```
 
 

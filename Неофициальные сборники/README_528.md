@@ -1,3 +1,30 @@
+###  Публикация: 1385358   (797760) от 24.05.2020
+
+VA - Beatport Trance: Electro Sound Pack #87 (2020) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797760.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Future State - Heliosphere
+002. Sunmote - Melancholy
+003. Ex-S & Escobar - Spiritual Dimension
+004. Sunny Lax - Moonlight(   Читать дальше...   )Жанр: TranceПродолжительность: 13:15:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645ED1B912C43C97F2D458C5B8DAF24CB907ADB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385350   (797766) от 24.05.2020
 
 VA - Rap NNM 2020 (Русский Выпуск) [MP3|320 Kbps] <Rap>
@@ -671,33 +698,6 @@ VA - A Synthwave Panorama Vol. 6 (2019) by Gertrudda [MP3|320 Kbps] <Synthwave, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9398ABA06E80F4151208F06FB7E976B5275C7B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507481   (798480) от 04.11.2021
-
-VA - A Synthwave Panorama Vol. 4 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pilotpriest - Archive Seven (5:45)
-02. STARLANDER - Station 5 (5:10)
-03. Alseph - SuperNova (3:24)
-04. GUNSHIP - When You Grow Up, Your Heart Dies (5:50)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C67649E4ADC86960B41C10D11DD1918DDDF38FA0
 ```
 
 

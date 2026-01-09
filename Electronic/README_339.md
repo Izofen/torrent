@@ -1,3 +1,165 @@
+###  Публикация: 1137083   (669406) от 25.05.2017
+
+VA - Santorini Beach and Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Puch - 3mptiness
+02. Miper - Move on
+03. Dominik Pointvogl - Coral Suite
+04. Tim Angrave - Sunshine(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91A29059FD802B68264358DCA7CC963C3BE4CB22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137255   (669407) от 25.05.2017
+
+VA - Stefano Maschio - Deep Lovely Precious Love (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stefano Maschio - Barbacoa (Latin mix) (04:19)
+02. Stefano Maschio - Albatros (04:18)
+03. Stefano Maschio - Black Sheep (Spiritual Soul Cut remix) (03:51)
+04. Spiritual Soul - City Lights (05:12)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0867B48362564E7042CEF99B48B96D645137548
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137091   (669410) от 25.05.2017
+
+Solaroid - Awa’s Dream (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669410.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Awa’s Dream (05:44)
+2. Wet Souvenir (07:30)
+3. In Serata Per Caso (05:43)
+4. Tennent (06:18)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0C4239D8FFCA3BF8D0CA39A6C1382F46DE0543
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223872   (669480) от 07.05.2018
+
+Зодиак (Zodiac) - Disco Alliance (1980) LP (1980) [MP3|320 Kbps] <Electronic, Space Rock, Synth-pop, Disco>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зодиак (Zodiac) (5:16)
+02. Пасифик (Pacific) (3:55)
+03. Провинциальное диско (Provincial Disco) (4:19)
+04. Поло (Polo) (3:19)(   Читать дальше...   )Жанр: Electronic, Space Rock, Synth-pop, DiscoПродолжительность: 00:27:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BEF5E26F4FECE76D86EA99721962D71582E7C16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223913   (669762) от 07.05.2018
+
+VA - Deepalma Ibiza 2018 | 5th Anniversary DJ Edition (Compiled By Yves Murasca, Rosario Galati & Keyano) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweed, Jalana, Dayne S - Finally (Dayne S Deep Mix) (6:16)
+02. Meines - Take Me Away Feat. Lenny (Original Mix) (5:48)
+03. Rosario Galati, Yves Murasca - Kalura (Original Mix) (6:30)
+04. Holter & Mogyoro - Summer Vibes (Original Mix) (6:28)(   Читать дальше...   )Жанр: Deep House, Tech House, Nu DiscoПродолжительность: 04:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2C236643DEA22C3C878934A3CB508C2D4D8A28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223868   (669780) от 07.05.2018
+
+VA - Ori Uplift & Phoenix - Uplifting Only 273 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Syntouch & Spins - Desolation (Intro Mix)
+02. FAN FAVORITE 269: RAM ft. Stine Grove - RAMore (Daniel Skyver Remix)
+03. Sandro Mireno - Saffo (EXCLUSIVE PREMIERE)
+04. Factor B feat Cat Martin - White Rooms (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE2094C8ADCC3F79EC981C11882EDF05F90F48E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224024   (669871) от 07.05.2018
 
 VA - Markus Schulz  - Global DJ Broadcast (World Tour London) (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
@@ -532,168 +694,6 @@ Ercos Blanka - Classic Trick Remixes (2019) Seven Villas Music [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD33BD82ED4F33CCCE1F825C20CCF35E0C5EDF2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537036   (670744) от 14.03.2022
-
-The Future Sound Of London - Music For 3 Books (2021) Compilation [FLAC|Lossless|image + .cue] <Ambient, Experimental, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viewed From Outside (02:47)
-02. The Whispering Masses (04:25)
-03. Orrery (04:20)
-04. Fracti (03:06)(   Читать дальше...   )Жанр: Ambient, Experimental, Modern ClassicalПродолжительность: 00:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A0FD3181828780E35CC15FDA0571F55C824BD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291418   (670834) от 24.03.2019
-
-VA - Radio Dance Charts Vol.1 (40 Radio Smashers) (2019) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ron Reeser & Kriss Norman - Need You (Radio Edit) 3:15
-02. Purple Cafe - Cities (Radio Edit) 3:01
-03. Mr Finga feat. Sven Bünjer - Check The Beatz (Radio Edit) 3:55
-04. Sandy Kay & Antastic - My Way (Radio Edit) 3:05(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:18:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DECC0C9803F9A9EA6613D096992DDD7A71388F0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291416   (670835) от 24.03.2019
-
-L A N D (Land) - Night Within (2012) [FLAC|Lossless|tracks + .cue] <Dark Ambient, Dark Jazz, Post Rock>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing Is Happening Everywhere (feat. David Sylvian) (5:40)
-02. Into The Blue (4:46)
-03. Stillman (5:54)
-04. Nighthawks (1:57)(   Читать дальше...   )Производство: Important Records – IMPREC360Жанр: Dark Ambient, Dark Jazz, Post Rock, ElectronicПродолжительность: 00:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00A0A829BD7F8765A8630613BF8EB240950EE8EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291174   (670836) от 24.03.2019
-
-James Dymond - Live @ Elation, Las Vegas [Extended Set] (09-03-2019)[MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Sherry & Alex Di Stefano vs Coming Soon & WAIO - Everyone Is Looking At Us (James Dymond Intro Rework)
-02. Antinomy - A New Dawn (Original Mix)
-03. GMS & Upgrade - 90 Million Degrees (Original Mix)
-04. Paul Denton - Wasp (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F99E7942B91DA791AFD386C49A1A162A185BD248
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291417   (670837) от 24.03.2019
-
-L A N D (Land) - Anoxia (2015) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Experimental Electronic, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Labyrinthitis (3:06)
-02. Neutra (5:36)
-03. Drop City (2:50)
-04. Metamorphosis (9:07)(   Читать дальше...   )Производство: Important Records – imprec429Жанр: Dark Ambient, Experimental Electronic, DroneПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2022461D8AA2FEBBDD393B750D56C5E25F19BA1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136884   (671142) от 24.05.2017
-
-Aly & Fila - Future Sound Of Egypt 497 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marymoon & Martin Roth - Ahead of Time (Original Mix)
-02. Yotto - Wilderness Girl (Original Mix)
-03. Danito & Athina - City Lights (Stereo Underground Remix)
-04. Stoneface & Terminal - North Cape (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4CF2B61D68C585639E0C6422275862CAE604C55
 ```
 
 

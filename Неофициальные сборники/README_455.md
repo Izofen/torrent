@@ -1,3 +1,30 @@
+###  Публикация: 1023978   (720307) от 07.06.2016
+
+VA - Easy Jazz Love Songs (2016) [MP3|320 кб/с] <Jazz, Instrumental, Easy Listening>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720307.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nat King Cole Trio - For Sentimental Reasons (I Love You) 02:52
+2. John Coltrane Quartet - A Love Supreme Part I Acknowledgement 07:42
+3. B.B. King - I Need Your Love 02:22
+4. Nina Simone - Black Is the Color of My True Love's Hair 03:24(   Читать дальше...   )Жанр: Jazz, Instrumental, Easy ListeningПродолжительность: 01:12:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:746F83D0424993D3DB515E63F7835B49E30F3576
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024201   (720315) от 07.06.2016
 
 VA - Love Therapy: Romantic Piano and Instrumental (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
@@ -671,33 +698,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6074D884A95F66F4720672BDDCAD20EA9026F7B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129468   (722150) от 28.04.2017
-
-Gary B.B. Coleman - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Chicago Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Word Of Warning
-02. Stealing Your Love Tonight
-03. Too Much Weekend
-04. Watch Where You Stroke(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 02:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBFB4552620987D7CDE8309B2EDFC927839EFE6A
 ```
 
 

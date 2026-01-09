@@ -1,3 +1,163 @@
+###  Публикация: 1373946   (884292) от 10.09.2021
+
+Sven Weisemann (Desolate, Jouem, Phidias) - Discography 43 Releases (2006-2021) Fauxpas Musik, Mojuba [FLAC|Lossless|tracks+.cue, tracks] <Tech House, Downtempo, IDM, UK Garage, Deep House, Ambi ...
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sceptrum (07:41)
+ 02. Typhon (07:34)Тип издания: CD, Web, VinylЖанр: Tech House, Downtempo, IDM, UK Garage, Deep House, Ambient •Продолжительность: 19:39:35 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:027FAF08C05C17B4A28203216CFFCFD6AB9D6C34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995685   (884329) от 11.03.2016
+
+Man Of No Ego - Blinkers Removed (2015) [FLAC|Lossless|WEB-DL-24Bit|tracks] <Ambient, Psybient, Downtempo, Psychill>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celestial Medicine (07:22)
+02. Blinkers Removed (08:01)
+03. Tara (08:35)
+04. Harmony Of The Universe (08:45)(   Читать дальше...   )Жанр: Ambient, Psybient, Downtempo, PsychillПродолжительность: 01:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2544368EAF4B329981B50C9FEDF298AD02736D28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383880   (884429) от 10.09.2021
+
+Lou Karsh | Reptant - Discography 14 Releases (2016-2021) LKR Records, X-Kalay, Salt Mines [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, IDM, Techno, Breaks>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghost In The Filter (05:21)
+ 02. Time Blind (05:31)
+ 03. Shermanic Ritual (06:09)
+ 04. Reptilian Magnetism (04:37)Тип издания: WEBЖанр: Electro, Acid, IDM, Techno, Breaks •Продолжительность: 06:523:17 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3DABEBA9E76C892EDA9208AC8988CBC803D4F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495158   (884450) от 10.09.2021
+
+Gregory - Unknown Universe (2021) [MP3|320 Kbps] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unknown Universe (6:17)
+02. Invasion Of Mars (4:44)
+03. New Adventures In Space (6:10)
+04. The Laser Cannon (4:29)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D5D121D654494D3F564217E78926E3F5760CBAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995125   (884500) от 11.03.2016
+
+Johnny Hates Jazz - Turn Back The Clock (1988) [FLAC|Lossless|tracks] <Europop, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебютный и лучший альбом!01. Shattered Dreams
+02. Heart Of Gold
+03. Turn Back The Clock
+04. Don't Say It's Love(   Читать дальше...   )Жанр: Europop, Synth-popПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD79C1F7DB8D57EB5FB87D5DC673BEC82145AB16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495111   (884539) от 10.09.2021
+
+VA - Scorchin' Sessions Vol. 1 (Mixed by Super8 & Tab) (2021) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BetweenUs - Lost Island (Mixed) (05:40)
+02. Sam Heyman - Corvus (Mixed) (04:54)
+03. Angel One - Each Of Us (Mixed) (02:42)
+04. Nick Hayes - Signal (Mixed) (04:07)(   Читать дальше...   )Жанр: EDM, Progressive House, TranceПродолжительность: 01:06:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57CA740DCA3AD89310D35B621A43AE17F95419AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995202   (884770) от 11.03.2016
 
 Msdos - Goes Funky Town (2016) [MP3|320 кб/с] <Drum & Bass>
@@ -533,168 +693,6 @@ VA - What's Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D0294F31AEDCEB4CAE4A14469C1583301542004
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103432   (886052) от 12.02.2017
-
-VA - Cosy Winter Lounge Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omaya - We All Do - Original Mix
-02. Weathertunes - La Seine - Original Mix
-03. Van - All as Before - Original Mix
-04. Foggy Sky - Who Are You - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84AA94B7640991B270CD77197DAD2FC1E080A077
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103047   (886064) от 12.02.2017
-
-VA - City of Souls: Lounge Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Gorda Project - Morning Darkness  5:45
-02.  Enrico Donner - Side Chain Reactions  5:58
-03.  Cane Garden Quartet - Erotisme  5:37
-04.  Baghira - Synapses  5:56(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109A736B5E88C1EE5850AFC6727C384BC8D8F9A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103120   (886077) от 12.02.2017
-
-VA - Moment Of Chill Vol.2 (Finest Selection Of Music To Chill) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Florito - A Roma  3:22
-02.  Chris Le Blanc - Shiva And The Sea (Sunset Ashram Mix)  6:14
-03.  Christos Fourkis - La Vida Es Una Siesta  5:10
-04.  Joker - Erotic Dream  7:27(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8F0511F9708D6A3A7C929934E9114BAA87F6617
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103525   (886084) от 12.02.2017
-
-VA - Down For Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project - Surfing Emotional Waves 05:45
-02. Enrico Donner - Golfinhos 05:57
-03. Cane Garden Quartet - Ageless 05:52
-04. Baghira - A Clear Image 05:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AF84EFDB14756E46D17AD4D717B2B5EADA09C32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103061   (886090) от 12.02.2017
-
-VA - Smooth Island Chill  Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Marga Sol - Children  6:42
-02.  Submersion - Other Rules (Original Chillout Mix)  4:07
-03.  Seven24 & Soty - Hope (feat. Jama) (Vocal mix)  4:11
-04.  Rega Avoena - Earth Angels  5:02(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CEEB1EA70BDEA88014764B46937CC5C9C1421CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103228   (886114) от 12.02.2017
-
-VA - The White Beach Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Wonderlights - Barcelona City Lights (Lounge House Mix)  5:43
-02.  Ibiza Bitches - Be Happy (Deep House Lounge Version)  5:57
-03.  Long Island Ice Tea - Be With Me (Radio Rework)  3:35
-04.  Hotel Stereo - Believe (Lounge Radio Edit)  3:38(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2992629208707B2D53D1FB7FF883B8DD2820C5B4
 ```
 
 

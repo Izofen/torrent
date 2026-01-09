@@ -1,3 +1,244 @@
+###  Публикация: 1196690   (820741) от 04.01.2018
+
+Judy Cheeks - Mellow Lovin’ (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Little Girl In Me (3:51)
+02. Kiss Me Baby (5:38)
+03. Suspicious Minds (4:08)
+04. It's Just A Love Affair Gone (3:52)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A9A32706FEF296DA0CA3E40687497E47D1EDFCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196777   (820743) от 04.01.2018
+
+Bebu Silvetti - 40 Exitos (2008) 2CD [MP3|320 Kbps] <Pop, Disco, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хуан Фернандо Сильветти Адорно (27 марта 1944 года — 5 июля 2003 года), более известный как Бебу Сильветти — аргентинский композитор, пианист, дирижёр, аранжировщик и музыкальный продюсер. Пик популярности Бебу Сильветти как композитора пришёлся на конец 70-х — начало 80-х годов. Как продюсер стал обладателем премии Billboard Music Awards в 2002 году и обладателем (   Читать дальше...   )01. Lluvia de primavera (5:55)
+02. Atmosfera (4:44)
+03. Fin de semana (2:30)
+04. Lluvia de cocos (3:26)(   Читать дальше...   )Жанр: Pop, Disco, Easy ListeningПродолжительность: 02:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5195FEA473F6223A80A99CCDD5261FC75A00C81A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116938   (820803) от 21.03.2017
+
+Secret Star - I Need A Man | Jump In My Car (2 Singles) (1986) [MP3|320 Kbps] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Need A Man 4:47
+02. Space Operator 4:12Жанр: Euro-DiscoПродолжительность: 00:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D49B8A176EC22209CDBA9B7EEB9B6D627650AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117099   (820929) от 21.03.2017
+
+НеИгрушки - На Луну (2000) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ерунда
+02. На Луну
+03. Мальчишка
+04. Весна (полная версия)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF0CBD671D5808A202FCDB97BFEBBEA42BA7FBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116810   (821052) от 21.03.2017
+
+Coeur de Pirate - Roses (2015) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carry On [03:35]
+02. Crier Tout Bas [04:20]
+03. I Don't Want To Break Your Heart [04:05]
+04. Drapeau Blanc [03:24](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39237056906CBCE009BC955CFDA39965C5D8CD59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117041   (821062) от 21.03.2017
+
+VA - Miami Disco 2017  [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821062.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Discotron - Clap Your Hands (original mix) (06:40)
+2. Audio Jacker - Rotate (original mix) (05:38)
+3. Disko Junkie - Go Back To Disko (original mix) (05:15)
+4. Jack Le Funk - Funk's Lazy Afternoon (original mix) (06:14)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40DAAD6F9F626C3B7AF8B0F87426A427DC8BD53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503297   (821241) от 18.10.2021
+
+VA - Calming Acoustic Covers: 14 Chilled and Relaxing Acoustic Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shannon & Keast - Fireflies (Acoustic) (03:42)
+02. John Burnsby - What a Wonderful World (Acoustic) (02:20)
+03. Karizma Duo - Islands in the Stream (03:30)
+04. Django Wallace - My Future (Acoustic) (03:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144843692198F49B0A93F871D03C4AC0F3FE115C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503362   (821344) от 18.10.2021
+
+VA - Hit Connection 2011.3 (2011) [FLAC|Lossless|tracks + .cue] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elisa Tovati & Tom Dice - Il Nous Faut (3:08)
+02. MIKA - Elle Me Dit (3:41)
+03. Maroon 5 & Christina Aguilera - Moves Like Jagger (3:24)
+04. Rihanna - Man Down (4:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7FC47DFEB532C3FC296181331B483EF6D24A31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007602   (821411) от 15.04.2016
+
+Wild Belle - Dreamland (2016) [FLAC|Lossless|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mississippi River
+02. Losing You
+03. Dreamland
+04. Coyotes(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8922D845772BEDBB99CFFFAC377AD2F7D9F3FE12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196569   (822304) от 03.01.2018
 
 ZOLOTO - Не переживай (2018) EP [MP3|320 Kbps] <Indie Pop, Synthpop>
@@ -449,249 +690,6 @@ magnet:?xt=urn:btih:DFBEFDBDD6BD9872D873FF2A4698C50D8C4D1B6D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CA61B742169B98191F4DA8FF8D15E17805CDCE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116422   (824660) от 19.03.2017
-
-Amii Stewart - Knock On Wood & Paradise Bird (1979) Reissue, 1999, Limited Edition  [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knock On Wood (6:21)
-02. You Really Touched My Heart (4:28)
-03. Light My Fire / 137 Disco Heaven (8:24)
-04. Bring It On Back To Me (3:55)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80E57ACF9807583E1A9C511A2215AEC9EF8DB6F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115987   (824751) от 19.03.2017
-
-Fenati At Piano With The Munich Machine - Disco Symphony (1977) LP [MP3|320 Kbps] <Disco,  Funk-Soul, Classical, Easy Listening, Modern>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совместный проект итальянского пианиста, композитора, руководителя оркестра и мюнхенской группы Giorgio Moroder - Munich Machine.01. Sheherazade (4:14)
-02. Ol' Man River (3:16)
-03. From The New World Symphony (7:10)
-04. Serenade (4:13)(   Читать дальше...   )Жанр: Disco,  Funk-Soul, Classical, Easy Listening, ModernПродолжительность: 00:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50253CE029BFC9916B4F18B48CE295E29F710F2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381651   (824809) от 08.05.2020
-
-I Break Horses - Warnings (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn (09:00)
-02. Silence (04:28)
-03. l a r m (01:03)
-04. I'll Be The Death Of You (04:37)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3963F03240E3653A6F34A1BEC467A2C972DBA2F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502940   (824857) от 16.10.2021
-
-Инна Маликова & Новые Самоцветы - Просто не верится (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824857.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Просто не верится
-2. Лунная ночь
-3. Там
-4. Незнакомка(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:317BC3A7D124A9420B2A740EA8A65B9B454115E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502939   (824944) от 16.10.2021
-
-VA - GANGSTER MUSIC, Vol. 4 (2021) [MP3|320 Kbps] <Eurodance, Technopop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824944.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. TRITICUM - Gangster
-2. Slider & Magnit - Down Low
-3. Motivee - Murcielago (Radio Mix)
-4. Mari Ferrari/Fugo - Slow(   Читать дальше...   )Жанр: Eurodance, TechnopopПродолжительность: 01:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D1BE8129BEF2F340CD879AB882999E0EF274B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502938   (824959) от 16.10.2021
-
-VA - GANGSTER MUSIC, Vol. 3 (2021) [MP3|320 Kbps] <Eurodance, Technopop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824959.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rasster - Alligator
-2. JOOLIA - Maserati
-3. DJ Chris Parker/Frost - Radioactive
-4. Rompasso/Rich The Kid - Angetenar(   Читать дальше...   )Жанр: Eurodance, TechnopopПродолжительность: 01:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2389E24E8013DFD15BD7751689C229A2C379C17F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006804   (825176) от 13.04.2016
-
-Alexandra Stan - Cliche (Hush Hush) (2013) Japanese Limited Edition [FLAC|Lossless|image + .cue] <Pop, Dancepop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Saxobeat (03:15)
-02. Ting Ting (03:56)
-03. Show Me The Way (03:44)
-04. Lollipop (Param Pam Pam) (03:55)(   Читать дальше...   )Жанр: Pop, Electronic, Dancepop, Electropop, Euro House, Europop, R&B, BalladПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65877C0CE5388CD9135F31F966FB678F2F08E0E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006775   (825180) от 13.04.2016
-
-Fleur East - Love, Sax & Flashbacks (2015) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Funk & Soul, R&B, Dancepop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sax (3:56)
-02. Breakfast (3:24)
-03. More And More (3:55)
-04. Gold Watch (3:32)(   Читать дальше...   )Жанр: Pop, Funk & Soul, R&B, DancepopПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F0C6607913384E0F4422419ED8129E3068CBA0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006938   (825184) от 13.04.2016
-
-VA - Retro Disco Koktel (2006) Compilation, Partially Mixed [MP3|255~303 кб/с (V0)] <Europop, Synth-pop, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro - Intro    00:17
-02. Joy - Touch by Touch    03:30
-03. Goombay Dance Band - Eldorado    03:13
-04. Ottawan - D.I.S.C.O.    02:55(   Читать дальше...   )Жанр: Europop, Synth-pop, Euro-DiscoПродолжительность: 01:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AADB82AB3287CB76B91F90B6D79F3FD44976260D
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1117703   (817176) от 23.03.2017
+
+VA - Empire Records - Dancenudisco 13 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobina & May-Britt Scheffer - Born Again (Filatov & Karas Extended Remix)
+02. Anton Ishutin feat. Note U - Be My Lover (Sax@cean Edit)
+03. Dr. Alban & Nicole Heiland - Solo Tu Music In Me (Vnrg Mash UP Remix)
+04. Ajvas - Walking On The Moon (Original mix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B40CA0EFF226C6D3574ADADC45D0D34D13AC73D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117444   (817177) от 23.03.2017
 
 VA - German Top 100 Single Charts (17.03.) (2017) [MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - German Top 100 Single Charts (25.04.2016) [MP3|256-320 кб/с] <Pop, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F201E50484EB6B27EC2E514D450658A803B294C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008140   (818092) от 17.04.2016
-
-VA - Созвездие весеннее - 3 (2016) [MP3|256 кб/с] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818092.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Гарри Польский - Ну Погоди
-002. Turbotronic - Booty Shake
-003. Кира Стертман - Небо
-004. Emotion - Самая(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:274855BF808A1A607598FB8751830B0CD5AF3663
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1292292   (646800) от 29.03.2019
+
+VA - Ragga Jungle (2019) [MP3|320 Kbps] <Reggae, Dub Ska, Jungle>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646800.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stephan Warren - Drum Rass Riddim
+002. Funky Kingston Feat. Pispalan Rini - Vonkale
+003. Morgan Heritage - Revolution Is A Must In Dub
+004. Nature Makonnen - Rastafari Children(   Читать дальше...   )Жанр: Reggae, Dub Ska, JungleПродолжительность: 09:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F836469E5D26514CB296CA447225B188D547EDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292065   (646805) от 29.03.2019
 
 VA - не Громкие новинки недели 7 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -686,33 +713,6 @@ VA - Реальные Песни В Крутую Тачку (2016) [MP3|256 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E42E478B860DDA1B17832655709F43C045A60AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031977   (647642) от 06.07.2016
-
-VA - Жаркие танцы. Летние хиты (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алеся Жинь & Сергей Смирный - Уже Не Важно
-02. Star Pilots - Only For Tonight
-03. Виа Гра - Так Сильно
-04. Дмитрий Фомин - Паровозик(   Читать дальше...   )Жанр: PopПродолжительность: 06:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C521464D3E03EA58BB285BA89E30F7A193BCFC53
 ```
 
 

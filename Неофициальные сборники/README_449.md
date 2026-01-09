@@ -1,3 +1,30 @@
+###  Публикация: 1401016   (713344) от 08.08.2020
+
+VA - Expression Vocal House (2020) [MP3|320 Kbps] <Vocal House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713344.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cocino - Where Do We Go
+002. Jay Fox - Heartbeat
+003. Sunnery James - Pray (Extended Mix)
+004. Asher Postman - Walk Away(   Читать дальше...   )Жанр: Vocal House, ElectroПродолжительность: 08:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6DD1F0E3C5C55A47EA2341DCC56971DD72A2E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401037   (713359) от 08.08.2020
 
 VA - German Top 100 Single Charts 07.08.2020 [MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - Nu Collection: Cool Tunes, Electronic and Chill Tracks (2016) [MP3|320 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A980A1851B605435CB268B6C846109081BBC0DD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130606   (714328) от 02.05.2017
-
-VA - Synthwave Drive (4CD) от DON Music (2017) [MP3|320 Kbps] <Synthwave, Electronic, Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance With The Dead - Venom (03:56)
-02. Carpenter Brut - L.A. Venice Bitch 80's (04:11)
-03. Perturbator - Disco Inferno (05:13)
-04. Scandroid - Neo-Tokyo (Dance With The Dead Remix) (05:47)(   Читать дальше...   )Жанр: Synthwave, Electronic, SynthpopПродолжительность: 04:29:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38FF8C69DDABE8A6B2CEFC84AF178A307B95AA2F
 ```
 
 

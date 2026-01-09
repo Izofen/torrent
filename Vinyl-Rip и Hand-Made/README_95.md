@@ -1,3 +1,30 @@
+###  Публикация: 1098306   (908523) от 30.01.2017
+
+DJ Tiёsto - In My Memory (Limited Vinyl Edition) (2001) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908523.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. DJ Tiesto - Magik Journey (Album) 11:07
+B1. DJ Tiesto - Magik Journey (Alternative) 10:01
+C1. DJ Tiesto - Dallas 4 PM 6:46
+D1. DJ Tiesto feat. Nicola Hitchcock - In My Memory 6:08(   Читать дальше...   )Жанр: TranceПродолжительность: 01:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D32980DC3D80BA9F5016FFA2555CDAF3B34A3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098599   (908581) от 30.01.2017
 
 Tiёsto - Parade Of The Athletes (Limited Vinyl Edition) (2004) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Trance>
@@ -665,33 +692,6 @@ Rainbow - Ritchie Blackmore's Rainbow (1975) Phonogram [FLAC 2.0|192/24|image+cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DB2F78D40949239894E3EBFA48A132A840EA78A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 861288   (935842) от 19.01.2015
-
-Supertramp - Breakfast In America (1979)  Japan Press [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935842.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Gone Hollywood (5:19)
-A2. The Logical Song (4:11)
-A3. Goodbye Stranger (5:51)
-A4. Breakfast In America (2:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EADE775C4C119D980E8AC7E45A697BC49B26E0B6
 ```
 
 

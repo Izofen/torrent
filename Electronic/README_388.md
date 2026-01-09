@@ -1,3 +1,164 @@
+###  Публикация: 1125091   (773451) от 13.04.2017
+
+Yaroslav Kulikov - Once In A Dream (2011) [FLAC|Lossless|WEB|tracks] <Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once In A Dream (8:56)
+ 02. After Life (8:57)
+ 03. You Can Fly (7:30)
+ 04. New Horizon (7:07)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB0A08D937F588EEA5F4AEB48E0DD454CF0C230E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124899   (773458) от 13.04.2017
+
+Peter Bjargo - Animus Retinentia (2017) [MP3|320 Kbps] <Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Let The Light Shine Through 04:07
+02. Stillhet 01:52
+03. To Replace My Sadness 03:46
+04. Grains 02:22(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73E25AEC3EF3DBC1BB283304A81AA454E503D263
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124971   (773527) от 13.04.2017
+
+VA - Recoverworld Radio 009 (Mixed by Rich Smith) (2017) [FLAC|Lossless|WEB|tracks|image] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danny Legatto & Alex Van Gray - Fly Away (7:59)
+02. Laura May - Are You Afraid of Ghosts (Cenk Basaran Remix) (6:57)
+03. Nikolauss - Solaris (6:24)
+04. Tau-Rine & Haig & Raffi - Redemption (8:02)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A15E770DF60CD39D551804C69636AFB171D53A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125076   (773540) от 13.04.2017
+
+Germind - Thoughtform (2017) [MP3|320 Kbps] <Psybient, Ambient, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Textures Life
+02. Shimmering At Sunrise
+03. Thoughtform
+04. Galactic Stems(   Читать дальше...   )Жанр: Psybient, Ambient, DowntempoПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E846A6614EA80F8942534A0F22C3BD8EFDA2B50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 885574   (773817) от 06.04.2015
+
+Ricardo Donoso - Beginning Of The Shape (2014) [MP3|320 кб/с]<Experimental, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shape Collateral (07:07)
+ 02. The View Of The Overlook (Rendition) (03:14)
+ 03. Shape Collateral (Condemned Version) (03:53)Жанр: Experimental, AmbientПродолжительность: 00:14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD87870B6FC7121007959DC2659D191A6760AE71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212943   (774221) от 14.03.2018
+
+VA - Best Of Cafe De Anatolia (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ KhaiKhan  -  Anatolia (Original Mix)  4:18
+02.  Phanoman & Mozkai  -  Aspendos (Original Mix)  6:32
+03.  Nikko Sunset  -  A Time For Us (Original Mix)  7:17
+04.  Valeron  -  Euphrates (Original Mix)  6:51(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF60D804F7ABEE4BFE6905916957019D2201B7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277972   (774236) от 23.01.2019
 
 Hybrid Leisureland - Discography 9 Releases (2007-2016) Ultimae Records, Double Life Records [FLAC|Lossless|tracks+.cue, tracks] <Ambient>
@@ -533,165 +694,6 @@ John Maus - We Must Become the Pitiless Censors of Ourselves (2011) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1B079F47B2314E13605785ECE52EBBA36F5178C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277806   (775096) от 22.01.2019
-
-Steve Good (aka Puff Dragon) - Everything's Inside Everything Else (2018) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandcastles / Cirrus (07:06)
- 02. Nimbus (05:42)
- 03. Parallel (07:15)
- 04. 360 (06:19)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B520CA0932F95974D73BC8D04E37E155BDE7482
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277761   (775101) от 22.01.2019
-
-MRUKS - Enchantment (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Retrowave>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. EnchantmentЖанр: Funky, Club House, RetrowaveПродолжительность: 00:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C2554465710DD6CE3DDDA16ACC85A443BDADB39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277847   (775155) от 22.01.2019
-
-VA - Winter Sun 01 (2019) [MP3|320 Kbps] <Progressive House, Progressive Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Numedian - Balearic Winter (Original Mix) [08:07]
-02. ZGOOT - Hopefulness (Original Mix) [06:25]
-03. L_DG - Toronto (Original Mix) [07:41]
-04. Ellunate - Twinkle (Original Mix) [06:04](   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 01:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A9E7A3E5BC907B47290AF32A89D8BC19F6EDE6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277798   (775160) от 22.01.2019
-
-VA - D.MAX Recordings: Best of 2018 (Mixed by Bryan Summerville & Dave Cold) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Novan Aery - Quasar (Original Mix)
-02. D4souL - Mario (Original Mix)
-03. AC - Gale (Original Mix)
-04. Age&Why - Don't send Me Away (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:25:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A634EA4CB3E502AB105588DFA7C204EE26F6A261
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277903   (775165) от 22.01.2019
-
-VA - Abstract Vibes 2 - More Vibes (1997) [FLAC|Lossless|tracks + .cue] <Downtempo, Trip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Archive - Old Artist (04:04)
-02. Sneaker Pimps - 6 Underground (Fila Brazillia remix #1) (06:48)
-03. Lascelles - Butterfly (feat. Vanessa Darby) (04:03)
-04. Lamb - Trans Fatty Acid (06:23)(   Читать дальше...   )Жанр: Downtempo, Trip HopПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5CD5FB990E2193F6701F8C54F14F0653AAEAC19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212765   (775213) от 13.03.2018
-
-VA - You Gotta Work For This Body (2018) [MP3|320 Kbps] <Deep, Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ungert - Sidebar 3:08
-02. Trump - Laptop 3:08
-03. Troy Mandalon - Input 3:08
-04. Tom Dolby - Interface 3:08(   Читать дальше...   )Жанр: Deep, Minimal, Tech HouseПродолжительность: 01:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69661D62C8885D90DD54833CE86CFCD5DC7D94B2
 ```
 
 

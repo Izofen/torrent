@@ -1,3 +1,30 @@
+###  Публикация: 1020743   (743585) от 27.05.2016
+
+VA - Отдыхай на любимой волне (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Анна Седокова - О Тебе
+02. Dj Roshka Feat. Farid Aqa - Onun O
+03. Juan Magan Feat. Paulina Rubio & Dcs - Vuelve
+04. Андрей Орельский - Вованчик(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6390ACDDE7405FAC5D227370D3282392049849
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282597   (743604) от 13.02.2019
 
 VA - Drum Star Bass (2019) [MP3|320 Kbps] <DnB, Dubstep, Bass Electronic>
@@ -668,33 +695,6 @@ VA - Depth Of Perception: Uplifting Trance Mix (2016) [MP3|320 кб/с] <Trance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4077F74E984221F7DA621089357A1966B69780F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020724   (743891) от 27.05.2016
-
-VA - Sweet Supernova: Ibiza Deep House Mix (2016) [MP3|320 кб/с] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743891.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aerial Revision - Acid Six (Original Mix)
-002. Fritzbeat - Your Hero - Radio Version
-003. Cycle Of Life - Set the Tone
-004. Eddy Chrome - Feel It in Your Soul - Vocal Mix(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 09:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA2B3E4A0B20BB2E71899D17589DE6C57E7E1E7
 ```
 
 

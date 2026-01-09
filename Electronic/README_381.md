@@ -1,3 +1,165 @@
+###  Публикация: 1394396   (763718) от 05.07.2020
+
+Tamlin - Spectrogram (2008) [FLAC|Lossless|tracks + .cue] <Breaks, Psy-Trance, Progressive Trance, Experimental>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perspective (8:42)
+02. Release (6:15)
+03. Switch (7:22)
+04. Catalysk (8:03)(   Читать дальше...   )Жанр: Breaks, Psy-Trance, Progressive Trance, ExperimentalПродолжительность: 01:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A088741911113672CC0A5EA2242F0813504A052D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214581   (763973) от 22.03.2018
+
+VA - Goa Dreams Vol.6 (2018) [MP3|320 Kbps] <Psy Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Various Artists  -  Goa Dreams Vol.6 (Continuous Mix Part 1)  1:17:52
+02.  Various Artists  -  Goa Dreams Vol.6 (Continuous Mix Part 2)  1:15:29
+03.  Astrix & Freedom Fighters  -  Burning Stones (Original Mix)  8:07
+04.  Ace Ventura  -  Altern8 Patterns (Pitch Bend Remix)  7:31(   Читать дальше...   )Жанр: Psy TranceПродолжительность: 05:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA05FC0256A0441DB0F889A09DDE822D7715CD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214511   (764056) от 22.03.2018
+
+The Other People Place - Lifestyles Of The Laptop Cafe (2001) Warp Records [FLAC|Lossless|tracks+.cue] <Electro, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eye Contact (05:30)
+ 02. It's Your Love (07:31)
+ 03. Moonlight Rendezvous (07:07)
+ 04. You Said You Want Me (04:24)(   Читать дальше...   )Жанр: Electro, DowntempoПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C2F8D43DECF46B9FAF2A3A748E553C592FE9905
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214677   (764059) от 22.03.2018
+
+VA - Aly & Fila - Future Sound of Egypt 540 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amari & Nico Morano feat. Jinadu - Desire (Extended Mix)
+02. Emerge - It's Over (Extended Mix)
+03. Basil O’Glue - Hoax (Tim Penner Remix)
+04. Wally Lopez - Sunday Trip (Quivver Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7957636CDA43DD5794D94D751FDE24252F05B7B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214532   (764061) от 22.03.2018
+
+Fonogeri - Into The Labyrinth (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Joey Wants To Find  4:33
+02.  Curious Boy  3:41
+03.  The Clue  3:58
+04.  Night Train  3:29(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 01:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE81CC0D7627ABD65411C4FB4F3E8D807C563E76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214501   (764063) от 22.03.2018
+
+VA - Coastal Selections 006 (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valiant (UK) – Paredolia (Original Mix)
+02. Japeboy – Offing (Original Mix)
+03. Lumidelic – Celebration (Original Mix)
+04. Skua – Aoibhneas (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:27:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77082C4FA3CD821B93B6EA84830870A5B2320D8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214653   (764065) от 22.03.2018
 
 VA - Spring Progressive House Vol.1 (2018) [MP3|320 Kbps] <Progressive House>
@@ -531,168 +693,6 @@ VA - Beautiful Lounge Collection Vol 3 (2017) [MP3|320 Kbps] <Downtempo, Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F2BBB688A245F3F84945BE5C85B5CDAE76AC36E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279749   (764591) от 31.01.2019
-
-Manet - Devour (2017) [FLAC|Lossless|tracks + .cue] <Dark Ambient, Dark Jazz, Post Rock>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norwegian Horror Saga
-02. Delirious And Devoured
-03. Doctor Schnabel Von Rom
-04. Vendredi Noir(   Читать дальше...   )Производство: Dark Jazz Records – DJR 001Жанр: Ambient, Dark Ambient, Dark Jazz, Doom Jazz, Post RockПродолжительность: 00:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732A90F7251BBAA669A66830586A54A5BC08DC37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279959   (764592) от 31.01.2019
-
-VA - Nicholson - Glorious (The Album) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicholson - Toward The Light (Feat. Jennie Osborn) (Original Mix)
-02. Nicholson - Society (Original Mix)
-03. Nicholson & Emoiryah - In The Need (Original Mix)
-04. Nicholson - Shut Them Down (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D497DFE00126DDEF837B82F6F3A814C74B54D72E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279933   (764595) от 31.01.2019
-
-VA - JOOF 20 Years (Mixed by Gary Delaney & Facade & Daniel Lesden) (2018) [MP3|320 Kbps] <Progressive House,Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary Delaney – JOOF 20 Years - Mixed by Gary Delaney (Continuous DJ Mix)
-02. Facade – JOOF 20 Years - Mixed by Facade (Continuous DJ Mix)
-03. Daniel Lesden – JOOF 20 Years - Mixed by Daniel Lesden (Continuous DJ Mix)
-04. Monojoke – Hollow Child (Original Mix)(   Читать дальше...   )Жанр: Progressive House,TranceПродолжительность: 11:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E901980BCDA19C1F6477172BBFF7C6B55F0099
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279882   (764596) от 31.01.2019
-
-VA - Nothing But...Tech House Essentials, Vol.07 (2019) [MP3|320 Kbps] <Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GAWP - Blocker (Original Mix)
-02. Hott Like Detroit - Groovers (Dub Mix)
-03. Fachini - Keep Holding (Original Mix)
-04. Black V Neck - Listen To My Flute(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 02:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46BF280374615AD4D11B20A4D270D74800B4687C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279950   (764597) от 31.01.2019
-
-VA - Festival Anthems Vol.4 (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer - New Era (Suanda 150 Anthem) (Extended Mix)
-02. Frainbreeze - #Dvrk5ide (Extended Mix)
-03. Ruslan Radriges - Revival (Extended Mix)
-04. Adip Kiyoi - Start With A Dream (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA4D9B6C5DE90A8FD3BAF3E954D85CF11E87891
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214415   (764822) от 21.03.2018
-
-Onuka - Mozaika (2018) [MP3|320 Kbps] <Electronic, Folk>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vsesvit
-02. Golos
-03. Animal
-04. Strum(   Читать дальше...   )Жанр: Electronic, FolkПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD4FE642BF1929AFA90CAD91AC50DCB2CAE76307
 ```
 
 

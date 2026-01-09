@@ -1,3 +1,165 @@
+###  Публикация: 1107728   (866566) от 23.02.2017
+
+VA - 12 Bombs To Rock: Tech and Deep-House Edition 15 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcelo Wallace - A7
+02. Clownfish - The Lights
+03. Andy B. Jones - World To Life - Matty Menck Dub
+04. Mark - Evol - Extended Mix(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C0A77511FCDE6B8F9B7F01CF29035F22D3B3E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107929   (866569) от 23.02.2017
+
+VA - Mallorca Beach and Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866569.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lo Tide - Look To The Skies 3:23
+002. Dominik Pointvogl - Flamingo Hilton 4:39
+003. No Accident In Paradise - Taniec 9:23
+004. Weathertunes - Bikini 4:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF418FF8B771B1816E9F121E75776E4B23B2F3F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107930   (866570) от 23.02.2017
+
+VA - Chillout Dimension: Pure Chill Music Selection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866570.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Valefim Planet - Voyager 5:48
+002. Maxim Air - Fly - Original Mix 7:29
+003. Valefim Planet - Soothing the Soul - Original Mix 6:03
+004. Dmitry Bereza - Light Speed 5:43(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55EA6167E640F11348EB1D1DAF562BF23C1152F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107623   (866572) от 23.02.2017
+
+VA - Clear the Air Vol.4: Pure Chill out and Electronica (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866572.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Redlounge Orchestra - Lightning Seeds 4:49
+002. Antigua Beach Lovers - Moka Reas 5:10
+003. Slownoise - The Knot 5:39
+004. JB 59 - Mediterranean LIfe 4:18(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC8C3EF0BC4E817983785E55452B258355F40B58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107906   (866574) от 23.02.2017
+
+VA - Sunday Brunch Chill Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Breezz Studio - Intro  3:16
+02.  De La Cream - Wonderful Life  3:58
+03.  Greg Walker - Sixth Avenue Samba  5:24
+04.  Florito - Loungery  4:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFAFE8948D76E592997CA7FE2091466912278581
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107855   (866576) от 23.02.2017
+
+VA - Top 20 Chillout February (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Radiobird - Sea  5:36
+02.  Cj RcM - No Regrets  3:42
+03.  DJ Party-Zan - Trip At Nothing  4:40
+04.  Jentarix - Indian Summer  3:54(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5C1F33AEFB8233B917028104EC7BBD1ABF5015
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107629   (866578) от 23.02.2017
 
 VA - Lounge Bar by Skyloft: Alternative Ambience Remastered (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -533,166 +695,6 @@ VA - Sensual Mood Lounge Vol.6 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED57DC8C1904E4D05562B647DEF27886915039CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107243   (868342) от 22.02.2017
-
-Her Critters - Seconds Of Harmony (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868342.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sound Of The Road (02:59)
-2. Drivin' Your Way (03:01)
-3. Crossroads Of Your Soul (02:51)
-4. Power For That Cash (03:37)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C542BF26A93126BC59649B59C1A420542A673E56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998690   (868389) от 20.03.2016
-
-VA - Serious Beats 83 [Mixed by Ar-Tee] (4CD) (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive House, Drum and Bass, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868389.jpg" />
-</div>
-
-
-###  Подробнее
-
-DISC 1
-01. Netsky feat. Digital Farm Animals - Work It Out (3:15)
-02. Sigala feat. Bryn Christopher - Sweet Lovin' (Extended Mix) (4:57)
-03. Sigma & Rita Ora - Coming Home (3:31)(   Читать дальше...   )Жанр: House, Progressive House, Drum and Bass, Electro HouseПродолжительность: 04:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB7CC8D1C9FA8FABD62CB5426B5836F496D5515
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997862   (868576) от 20.03.2016
-
-VA - We Love Deep Vol. 1 (2016) [MP3|320 кб/с] <Tech House, Indie Dance, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phunk Investigation - Cadillac Man (Radio Edit)
- 02. Mart - Hollywood (Short Edit)Жанр: Tech House, Indie Dance, Nu DiscoПродолжительность: 01:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A80DA118C937C9420C2A9B83BB93CF1224D9A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998911   (868583) от 20.03.2016
-
-Aythar - Astronautica (2016) [MP3|320 кб/с] <Ambient, Space>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astronautica (Space Version) (08:46)
- 02. Mystical Clouds (10:15)
- 03. Alien Worlds, Pt. 1 (09:18)
- 04. Alien Worlds, Pt. 2 (11:14)(   Читать дальше...   )Жанр: Ambient, SpaceПродолжительность: 01:16:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C90AA2B5DB88E40B5C02B634762CF8378A80512
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998826   (868585) от 20.03.2016
-
-VA - Telrae Mixed By Salz Vol. 5 (2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stefan Gubatz - Cologne (11:59)
-02. OVC - Sortavala (08:21)
-03. Cio D'or - And On (06:56)
-04. Taster Peter - Dub inquieta (Salz Remix) (06:21)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 02:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6755C1EBA7F479549B17EEC3B5DBE72AEDF2A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998612   (868590) от 20.03.2016
-
-Flash Cartel - Elevate (2012) [MP3|320 кб/с] <Progressive House, Drum & Bass, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elevate (Original Mix) [05:56]
-02. Elevate (Three20 Remix) [05:36]
-03. Breakaway (Original Mix) [06:46]
-04. Boulevard (Original Mix) [04:12]Жанр: Progressive House, Drum & Bass, Electro HouseПродолжительность: 00:22:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29DA6534A3453BAC43455A286C2D2E78615E565D
 ```
 
 

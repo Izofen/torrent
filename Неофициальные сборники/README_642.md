@@ -1,3 +1,30 @@
+###  Публикация: 973710   (979138) от 09.01.2016
+
+VA - Big Workout Hits 2016 - 40 Essential Fitness And Workout Hits (2016) [MP3|320 кб/с] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Sirias - Firestone (Workout Mix 114 BPM) [05:00]
+02. Billie Tasker - Hideaway (Workout Mix 123 BPM) [04:38]
+03. Stephan Baker - Waves (Workout Mix 120 BPM) [03:39]
+04. Billie Tasker - Am I Wrong (Workout Mix 120 BPM) [04:55](   Читать дальше...   )Жанр: Club, DanceПродолжительность: 04:20:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4AA90CE515BA82E3C3082BBC9ED7566CDD96F92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973733   (979140) от 09.01.2016
 
 VA - 100x Winter 2015 (5CD) (2016) [MP3|320 кб/с] <Club , Dance , House>
@@ -674,33 +701,6 @@ VA - Танцевальная Зима 50/50 (2016) [MP3|320 кб/с] <Pop, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:458FD3B78EC50211F801F4DF530ABD0A66A243A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972860   (980677) от 07.01.2016
-
-VA - Acoustic 90s Rock Songs (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Creep
-02. Meg Birch - Losing My Religion - Acoustic
-03. Chilled Aqua - Friday I'm in Love
-04. Alice Lamb - Californication(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEF177F83C04DB83BC29C42F40EA7FF1D793ABE5
 ```
 
 

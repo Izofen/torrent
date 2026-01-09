@@ -1,3 +1,144 @@
+###  Публикация: 1231380   (607120) от 17.06.2018
+
+VA - The Best Of Critical State 001 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asteria - Whaaat (Indecent Noise Remix)
+02. Estigma - The Joker (Original Mix)
+03. Evan Pearce - Galactica (Original Mix)
+04. HP Source - Highlight Reel (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36686EA23804ADC5F8FA6663BB45E9933DD4B88A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231364   (607124) от 17.06.2018
+
+VA - Silent Shore Selections Top 20: Spring (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christopher Corrigan - Sleepless Nights (Original Mix)
+02. Suprano & Hypersia - Resurrected (Original Mix)
+03. Ashley Smith & Rielle - Let Me Breathe (Original Mix)
+04. Ram & Stine Grove - RAMore (Daniel Skyver Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:20:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38460F28D9AFCECFF0B760E177F66D3982A5F9AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231418   (607126) от 17.06.2018
+
+VA - Clubbers Culture (Classified Trance Tracks) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Craig Meichan - Warp Drive (Original Mix)
+02. Ercole - Cut The Wire (Original Mix)
+03. Liam Nicklin - Fire (Original Mix)
+04. Alizera - Galaxy (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9B4852483251C63F6C679F916A63EF0625F4A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913281   (607146) от 28.06.2015
+
+VA - Secret Weapons (2015) [MP3|320 кб/с]<Techno, Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adrian Hour - Speaking Groove (06:16)
+02. Erik Hagleton - Pressure (Club Mix) (06:46)
+03. Mihalis Safras & Mark Broom - Messing (Dosem Remix) (07:13)
+04. Tapesh - Black Out (Club Mix) (06:59)(   Читать дальше...   )Жанр: Techno, Deep House, Tech HouseПродолжительность: 03:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D903EEC87713772E6F70FE80FB1B03B829751817
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525595   (607162) от 21.07.2012
+
+VA - Razormaid! 7th Anniversary Box Set (1992) 7CD Limited Edition[FLAC|Lossless]<Synth-pop, New Beat, Disco, Italo-Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_607162.jpg" />
+</div>
+
+
+###  Подробнее
+
+В состав данного сборника от Razormaid Records вошли такие именитые исполнители 80-90х годов, как: Ofra Haza, Erasure, Depeche Mode, Den Harrow, Boytronic, Off, Telex и т.д. Все 84 трека и более девяти часов звучания - для настоящих ценителей и поклонников стилей Synth-pop и New Beat!01. Ofra Haza - In 'Nim Alu :: 07:12
+02. St. Che - (Be My...) Power Station :: 06:20
+03. Elevation - Traitor :: 06:10
+04. Sinead O'Connor - Lay Your Hands :: 06:46
+05. Depeche Mode - Breathing In Fumes :: 05:27
+06. T 99 - Invisible Sensuality :: 07:16
+07. Style - Telephon :: 06:23
+08. Erasure - Heavenly Action :: 05:51
+09. Eighth Wonder - I'm Not Scared :: 06:56
+10. Kim Wilde - Hey Mister Heartache :: 07:05(   Читать дальше...   )Жанр: Synth-pop, New Beat, Disco, Italo-DiscoФормат: 7xCD, CompilationПродолжительность: 09:15:53
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147632   (607419) от 03.07.2017
 
 Goldie - The Journey Man (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Experimental>
@@ -553,141 +694,6 @@ VA - Summer Music Lounge. Selection for Dj and Clubs (2017) [MP3|320 Kbps] <Bale
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC4E3ECB4CA3C5ADFC0CF51075CCBF0B8DC1E976
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037960   (610108) от 26.07.2016
-
-VA - 538 Dance Smash 2016 Festival Edition (2016)2CD [FLAC|Lossless|image + .cue] <House, Club, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Garrix & Third Party - Lions in the wild (03:30)
-02. Otto Knows & Avicii - Back where I belong (02:53)
-03. Lucas & Steve - Can't get enough (02:36)
-04. Sam Feldt, Wulf, Lucas & Steve - Summer on you (02:40)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5443F9182DCA43E92DC594090543B2A62459B1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296592   (610131) от 18.04.2019
-
-VA - Sonic Alchemy (Mixed by Chris Hampshire) (2019) [MP3|320 Kbps] <Techno>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guillermo DR - Only Attack (Original Mix) (08:20)
-02. Active Lab - Test Subject (Original Mix) (07:02)
-03. Casey Rasch - Werun (Original Mix) (07:27)
-04. Cenk Basaran - The Creator (Original Mix) (06:52)(   Читать дальше...   )Жанр: TechnoПродолжительность: 03:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39F7522ABDC926040E1B14B1748D6A79894DB37B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296689   (610134) от 18.04.2019
-
-Jens Buchert - Exoplanet (2019) Dimension Music [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep Space House, Ambient Dub>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exoplanet (5:15)
- 02. Arcticon (4:51)
- 03. Worldrone (6:11)
- 04. Icelander (5:29)(   Читать дальше...   )Жанр: Electronic, Deep Space House, Ambient DubПродолжительность: 00:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED06C8982471AD8E69AA470E61460E836C0F8A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296119   (610135) от 18.04.2019
-
-VA - Made In Germany Vol. 1 - A German Synthwave Compilation (2017) [FLAC 2.0|44.1, 48/16, 24|tracks] <Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave, Retro (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alpha Boy - Intro (0:27)
-02. LeveL -1 - Wasteland Motor Race (3:54)
-03. Street Hawk - Dreamrunner (6:18)
-04. Superflight - Outline (3:03)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CA346CACB71C4933C688E95D01C3C10C030F1D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188676   (610200) от 15.06.2018
-
-TEVOL - Label-Pack 4 Releases (2016-2017) [FLAC|Lossless|tracks] <Dub Techno, Minimal, Techno>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Greev (08:49)
- 02. Greev (Idealist remix) (06:35)
- 03. Sofar (08:36)
- 04. Sofar (Andre Kronert remix) (06:54)Жанр: Techno/Deep TechnoПродолжительность: 00:30:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F10C1D197D8071CD87C77FE8B7A6AE8E038405D6
 ```
 
 

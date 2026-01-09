@@ -1,3 +1,297 @@
+###  Публикация: 1117860   (814918) от 24.03.2017
+
+John Paesano - Mass Effect: Andromeda (Original Score) (2017) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Better Beginning (04:26)
+02. Memories (02:49)
+03. Exaltation (04:59)
+04. A Trail Of Hope (02:44)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DADB9DBF2A198AED276EF022B8293D3CADD8B25C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117538   (815195) от 24.03.2017
+
+Danny Elfman, VA - Fifty Shades Darker / На пятьдесят оттенков темнее (Original Score) + (Original Deluxe Soundtrack) (2017) [FLAC|Lossless|tracks/tracks + .cue]<Score, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZAYN & Taylor Swift - I Don't Wanna Live Forever (Fifty Shades Darker) (04:07)
+02. Halsey - Not Afraid Anymore (03:47)
+03. JRY feat. Rooty - Pray (03:22)
+04. Tove Lo - Lies In The Dark (03:42)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:01:36 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43505F62FFCA6131AFEA8929485DA3614260B866
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117536   (815336) от 24.03.2017
+
+Danny Elfman, VA - Fifty Shades Darker / На пятьдесят оттенков темнее (Original Score) + (Original Deluxe Soundtrack) (2017) [MP3|320 кб/с]<Score, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZAYN & Taylor Swift - I Don't Wanna Live Forever (Fifty Shades Darker) (04:07)
+02. Halsey - Not Afraid Anymore (03:47)
+03. JRY feat. Rooty - Pray (03:22)
+04. Tove Lo - Lies In The Dark (03:42)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:01:36 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D273C273679A882E8B6B8D271451FE88823BFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117638   (815347) от 24.03.2017
+
+Martian Love - You, Never Sleep (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You, Never Sleep [00:04:05]Жанр: Electronic, AmbientПродолжительность: 00:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D474B80A90C85A7A200DE904C3D56DBACEFA1EFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008485   (815372) от 18.04.2016
+
+Mark Knopfler & Evelyn Glennie - Altamira (2016) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Altamira (2:59)
+02. Maria (3:34)
+03. Dream Of The Bison (2:53)
+04. By The Grave (2:00)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF6B2EA78E3938E49323F05A4A129F023F5A2219
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117506   (815476) от 24.03.2017
+
+Rejean Paquin - Erotic Music (2006) [MP3|320 Kbps] <New Age, Enigmatic, Erotic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preleminaries (8:52)
+02. Act 1 (5:43)
+03. Act 2 (5:40)
+04. Act 3 (6:05)(   Читать дальше...   )Жанр: New Age, Enigmatic, EroticПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9ED2A7BDA9B3D2DD98A4939F0EC40E764DEBF49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197190   (815687) от 07.01.2018
+
+Richard Clayderman - Zeit Zum Traumen (1984) [FLAC|Lossless|image + .cue]<Pop, Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woman In Love 2:28
+02. I Have A Dream 3:08
+03. Bright Eyes	2:52
+04. Hey Jude 2:44(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D70B3326D56FBDD06007108ECB89780A7A74D7EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197488   (815691) от 07.01.2018
+
+VA - Cocktail Piano Romance (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dennis Wilson Quartet — Misty (3:36)
+02. The Ronnie Price Quartet — Mack The Knife (3:51)
+03. The Dennis Wilson Quartet — Autumn Leaves (2:21)
+04. The Frank Horrox Quintet — Moonglow (2:15)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46E42ACE253A17C7DF41CD4FF707C5D02DAECA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008282   (815700) от 18.04.2016
+
+VA - Los clasicos argentinos Tango - Vol.10  - Alfredo De Angelis: El tango alegre (1996) [MP3|128 кб/с] <Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carlos Gardel - Senda florida
+02. Nelly Omar - Sus ojos se cerraron
+03. Oscar Alonso - Sueno de juventud
+04. Alfredo De Angelis y su Orquesta - Cuando llora la milonga(   Читать дальше...   )Жанр: TangoПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E40CB4E360653BEC60386CACF5B55F78766BF56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503976   (815876) от 21.10.2021
+
+VA - Peaceful Night Instrumental Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Soft Rock>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wildlife - Wishing You Were Here (04:17)
+02. Ray Hamilton Orchestra - Anytime You Need A Friend (04:25)
+03. Tony Skeggs - Hotel California (06:44)
+04. Wildlife - Take It Easy (03:35)(   Читать дальше...   )Жанр: Instrumental Soft RockПродолжительность: 00:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36026D76084CDEF2205226031308E64CB2DA2958
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117463   (816785) от 23.03.2017
+
+Jon Henrik Fjallgren - Goeksegh - Jag ar fri (2015) [FLAC|Lossless|tracks] <Ethnic, Folk, Joik>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jag ar fri | Jag ar fri (03:01)
+02. Daniel's Joik | Daniel's Joik (06:32)
+03. The Reindeer Herder's Joik | The Reindeer Herder's Joik (05:58)
+04. Utoya | Utoya (07:59)(   Читать дальше...   )Жанр: Ethnic, Folk, JoikПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A0B3766C19E0729833DA6CF185251E3C62610D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117624   (816898) от 23.03.2017
 
 VA - Dream Therapy (Top Deep Sleep Music, Dream Meditation, Sleep Yoga Nature Music) (2017) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
@@ -396,303 +690,6 @@ Tommy Emmanuel - The Best Of Tommysongs (2020) [FLAC|24/44.1|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:528984AF94D8D24319B8C046CC7B0F68768C8AE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197044   (818897) от 05.01.2018
-
-Mezzo Piano - Love Has a Name (2017) [MP3|320 Kbps] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Halls of Heaven
-02. Let Our Faith Become a Mountain
-03. Weight of Heaven
-04. Love Has a Name(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 01:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0564779883251707B7038090C43640A40626AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116883   (818937) от 22.03.2017
-
-Ramin Djawadi - The Great Wall / Великая стена (Original Soundtrack Album) (2017) [FLAC|Lossless|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nameless Order (04:27)
-02. Prologue (01:49)
-03. What A Wall (03:46)
-04. The Great Wall (04:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0760446D40FC873A9383FFB96B580FEF10932A08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116882   (818944) от 22.03.2017
-
-Ramin Djawadi - The Great Wall / Великая стена (Original Soundtrack Album) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nameless Order (04:27)
-02. Prologue (01:49)
-03. What A Wall (03:46)
-04. The Great Wall (04:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A77CEE5E7D312409665A64BEF79813F275BADC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382604   (818983) от 11.05.2020
-
-Danheim - Hringrás (Hringras) (2019) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk, Ambient Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vaftrudner (4:17)
-02. Óðinn (Danheim & Gealdýr) (5:34)
-03. Hringrás (5:23)
-04. Lifa & Dauðr (6:07)(   Читать дальше...   )Производство: Danheim Self-releasedЖанр: Dark Folk, Nordic Folk, Ambient Folk, Viking MusicПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D04AD5D99AA467D74A0FB23681C6C73F6917A010
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117154   (819093) от 22.03.2017
-
-Canda & Guru Atman - Healing Yoga Mantras (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Feel the Breath (Opening) (2:11)
-02.  Om Ah Hum - Hold My Hand (Vajra Guru Mantra) (7:56)
-03.  Hey Shivaya - Welcome Shiva (Shiva Mantra) (7:41)
-04.  Sarvesham - May We All Feel Free (Shanti Mantra) (7:18)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E3AD1324026A9D53A447DB5AE11E4B43782B79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382605   (819115) от 11.05.2020
-
-Danheim - Runagaldr (2018) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk, Ambient Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Runatal (Danheim & Sigurbodi) (6:05)
-02. Egilsson (5:49)
-03. Feikinstafir (3:55)
-04. Fella (3:12)(   Читать дальше...   )Производство: Danheim Self-releasedЖанр: Dark Folk, Nordic Folk, Ambient Folk, Viking MusicПродолжительность: 00:53:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED4FDDCB6B5B963CDE730DE49785DBE0F212BDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382226   (819134) от 11.05.2020
-
-Jim Brickman - Blessed (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819134.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. How Great Thou Art
-2. Were You There
-3. Abide With Me
-4. Come You Thankful People(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB21548112705D139D2864A38023E4C764AD6034
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382458   (819271) от 11.05.2020
-
-Bruce Kurnow - Peaceful Sunset (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819271.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Peaceful Sunset 03:28
-2. The Light in Your Eyes 02:50
-3. Midnight Tide	04:49
-4. Shenandoah 04:15(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E7EBC1404288828CDE9ECF97E600C129C67EB99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007258   (819323) от 16.04.2016
-
-Mark Knopfler & Evelyn Glennie - Altamira (2016) [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Altamira (2:59)
-02. Maria (3:34)
-03. Dream Of The Bison (2:53)
-04. By The Grave (2:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA6A4AACA0B93ACD032C947E18CA36B1178E12B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503501   (819398) от 19.10.2021
-
-24Relax - Native American Music (2021) 2CD [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pacific Blue
-02. The Power of Native Spirit
-03. Native American Horses
-04. The Nomadic Ancestors(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D6838D63E03AFE8E670BCBB6EB75A397313A17E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007215   (819657) от 16.04.2016
-
-George Winston - Remembrance (A Memorial Benefit) (2001) [MP3|320 кб/с] <Folk, World, Country>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lament    02:23
-02. Where Are You Now    04:03
-03. Remembrance    03:50
-04. Where The Sun Rises First    05:06(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:28:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E2EC89E7D556D152AC649802BEEE4FDFF60112
 ```
 
 

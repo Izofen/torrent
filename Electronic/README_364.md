@@ -1,3 +1,165 @@
+###  Публикация: 1128850   (726266) от 26.04.2017
+
+Alphaville - Strange Attractor (2017) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giants (3:29)
+ 02. Marionettes With Halos (4:23)
+ 03. House Of Ghosts (5:08)
+ 04. Around The Universe (4:01)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CADF5920ABE180E98129A0168B8B8844B39642F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128599   (726352) от 26.04.2017
+
+VA - Pure Bliss Vocals - Spring (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ana Criado & Alan Morris - Border Line (Radio Edit)  3:15
+02.  Allen Watts & Katty Heath - Break Without The Pain (Radio Edit)  3:23
+03.  Audrey Gallagher & Kaimo K - Lullaby (Radio Edit)  4:02
+04.  Adip Kiyoi & Susie Ledge - Another Chance (Radio Edit)  3:51(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908A2252CCA18F028D4B3CC4F32A3F72ED0AC46F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023262   (726413) от 04.06.2016
+
+VA - John Digweed - Re: Structured (Bedrock Records) (2015) Box Set [FLAC|Lossless|image + .cue] <Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quivver - Time Go By (Reprise)
+02. Joop Junior - Sofie_Lucie
+03. Rory Gallagher & James Trystan - Waking Giants
+04. Philipp Straub & Andrew Fonda - True Basics(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 03:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB9133C95510996B33B0BC38EF8FC0FC060F23BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128816   (726454) от 26.04.2017
+
+VA - Milchbar - Seaside Season 9 (Compiled by Blank & Jones) (2017) [FLAC|Lossless|CD|tracks+.cue] <Downtempo, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blank & Jones - My Island (4:20)
+02. Blank & Jones with Zoe Dee - Adios Ayer (4:27)
+03. Cantoma - Sea Of Blue (4:14)
+04. Zee Erf feat. Francesca Mondi - Southern Freeez (Muddґs Mix For Emma) (3:34)(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 01:16:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE6A227E86D01D8E88A267AED5CA0BE93486D96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284973   (726546) от 23.02.2019
+
+VA - Deep Value, Vol. 3 (Mixed by Mihai Popoviciu) (2019) Bondage Music [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mihai Popoviciu - Triumph (Guido Schneider & Daniel Dreier Remix) (7:54)
+02. Azteca - Garage Nr. 2 (Original Mix) (6:45)
+03. Frink - Casuality (Original Mix) (7:34)
+04. Tuccillo - Auroris (Original Mix) (6:27)(   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 03:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDA9E334CCB4AEE9FAA31D36D34A1E8FE6C81D3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128307   (726569) от 26.04.2017
+
+VA - Lounge Escapades (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Flashbaxx - Madison  4:52
+02.  Thomas Vitali - Rebecca's Eyes  9:49
+03.  Monosolar - Titubear  4:28
+04.  Gabriel Loirat - Terraza  4:28(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEFD04BAF54EA85F804825FCD542F160E4B6DC2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022936   (726615) от 04.06.2016
 
 VA - Armada Chill (2016) [MP3|320 кб/с] <Chillout, Lounge, Deep>
@@ -531,165 +693,6 @@ VA - This Is My Church Vol.4 (The Chill Out Edition) (2017) [MP3|320 Kbps] <Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33FB35521931B71A34AAD7EC714642398B588046
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128410   (727668) от 25.04.2017
-
-VA - Mantra House Vol. 1 (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body Dymension - Shake Your Ass (feat. Alex D.)Жанр: HouseПродолжительность: 01:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B737B6F13F1EDCB3175F26855EC16155E02407C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128402   (727669) от 25.04.2017
-
-VA - Blue Sunset Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Grooveyard - Seven Mile (Blade From Jestofunk Re-Edit)  7:03
-02.  Danny Tylar - Blow  3:12
-03.  Ruadh Munro - Joe Sax  3:11
-04.  The Cabildos - Collection Samba  3:44(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:117D3C4E881BFDFF67925D48701CC8936D2CFF1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022792   (727682) от 03.06.2016
-
-Above & Beyond - Acoustic II (2016) [FLAC|Lossless|WEB-DL|tracks] <Downtempo , Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello
-02. We're All We Need (Vocals – Zoë Johnston)
-03. On My Way to Heaven (Vocals – Richard Bedford)
-04. Save Me (Vocals – Zoë Johnston)(   Читать дальше...   )Жанр: Downtempo , ChilloutПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACDE3A644CB2FFFC8F24C9EF6E3C58434192E326
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022483   (727783) от 03.06.2016
-
-Pantha du Prince - The Triad (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronica, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Winter Hymn (feat. Queens) (4:38)
-02. You What Euphoria (5:52)
-03. Frau im Mond, Sterne laufen (6:13)
-04. In an Open Space (feat. Queens) (5:55)(   Читать дальше...   )Жанр: Electronica, MinimalПродолжительность: 01:02:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA1D42AC4BDCC3CBC82F9C1C2026C46ECEC103E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022776   (727788) от 03.06.2016
-
-VA - House Traxx (Tracks 4 DJ's) (2016) [MP3|320 кб/с] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fashion Lovers - Vaquero's Vow (5th Avenue House Mix) (5:42)
-02. Modell & Mercier - Taming of the Shrew (House Progression Mix) (5:42)
-03. Victor Montreal - Close the Eyes Simple (Gilda's Vocal Mix) (5:43)
-04. House Fly - Leather Stocking (Reference Mix) (5:42)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5670FAA10F944A291EB47712363034CBDC24B27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530883   (727818) от 12.02.2022
-
-VA - Winter Collection 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Organic House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bodaishin & RYAN (AR) - Fates (Original Mix) (8:11)
-02. Berni Mora - The Forgiveness Garden (Original Mix) (8:14)
-03. Larrosa & Gardoqui - Isolation (Original Mix) (8:00)
-04. Seiji Niizawa - Konbanwa (Original Mix) (8:05)(   Читать дальше...   )Жанр: Progressive House, Organic HouseПродолжительность: 03:11:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E6D084778708E957A989D6B9C3C75F92AA001F0
 ```
 
 

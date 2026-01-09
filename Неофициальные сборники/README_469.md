@@ -1,3 +1,30 @@
+###  Публикация: 1397693   (737601) от 22.07.2020
+
+VA - Progressive Trance Sound Party (2020) [MP3|320 Kbps] <Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Farius - Home Again
+02. Fortuna And Casus - Behind Life
+03. Noise Zoo - Empress
+04. Airwave - Another Dimension(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 06:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2602AA291E02338B1B6559E1C526ECD112955EC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526977   (737799) от 26.01.2022
 
 VA - My Best Hammond Organ (2022) [MP3|320 Kbps] <Hammond Organ, Jazz, Fashion Jazz>
@@ -670,33 +697,6 @@ Hits of My Soul - сборник электронной и инструмент�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F997E9213291ABC133658308C458EA31D232D74E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283137   (740255) от 16.02.2019
-
-VA - ЕвроХит Топ 40 Europa Plus 15.02.2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lil Peep, XXXTentacion - Falling Down
-02. Vanotek - Love Is Gone
-03. Don Diablo feat. Emeli Sande, Gucci Mane - Survive
-04. Denis First, Reznikov, Bright Sparks - Shameless(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:582E6186FA276E94EB44902038A175D6CFA741E0
 ```
 
 

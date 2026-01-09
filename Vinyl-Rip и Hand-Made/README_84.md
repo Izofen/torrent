@@ -1,3 +1,30 @@
+###  Публикация: 1228179   (639015) от 30.05.2018
+
+Queen - A Kind Of Magic (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Vision (5:11)
+02. A Kind Of Magic (4:24)
+03. One Year Of Love (4:29)
+04. Pain Is So Close To Pleasure (4:23)(   Читать дальше...   )Производство: EMI Records - EU 3509Жанр: RockПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964A0913C93D40DAAAE7739E56ED680BF285240E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 866730   (639308) от 11.06.2015
 
 Джеймс Ласт - Большой секрет (1977) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Disco, Jazz-Funk, Easy Listening>
@@ -666,33 +693,6 @@ A4 Hugo(   Читать дальше...   )Жанр: Glam Rock, Pop RockПрод
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7A0324F61DB2BA370F3BCF0ED0D30715B8C1122
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 798239   (671197) от 21.06.2014
-
-Генрик Шеринг - Л. Бетховен (Концерт для скрипки с оркестром) (1987) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Allegro Ma Non Troppo  25:22
-Сторона 2
-1. Larghetto. Rondo, Allegro  20:02Жанр: ClassicalПродолжительность: 00:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B6AC8E01730AFBF2D1C1B0635D232EEF54676C
 ```
 
 

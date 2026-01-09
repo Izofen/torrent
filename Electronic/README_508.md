@@ -1,3 +1,165 @@
+###  Публикация: 1462188   (1021322) от 13.04.2021
+
+Maps and Diagrams - _Modulus (2021) Handstitched* [FLAC 2.0|44.1/48/24|tracks|WEB-DL] <Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ooad (07:36)
+02. Tern (08:50)
+03. Iris (03:20)
+04. Quel (04:46)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B2FC60FFF0E5EC37DF7FF9BC025CEEABE829397
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997185   (1021371) от 12.04.2021
+
+Modeselektor - Discography 41 Releases (2002-2021) [FLAC|Lossless|tracks+.cue, tracks] <Leftfield, Techno, Glitch, IDM, Dubstep, Electro, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minibus (01:20)
+ 02. Dentist (01:39)
+ 03. Sekt Um 12 (03:06)
+ 04. Tacken (03:20)(   Читать дальше...   )Тип издания: CD, Vinyl, WEBЖанр: Leftfield, Techno, Glitch, IDM, Dubstep, Electro, Experimental •Продолжительность: 20:17:24 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69DC24F46B688A2C4DC45F3F0CA82D128E2D39B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462120   (1021413) от 12.04.2021
+
+VA - Spacechillers Vol. 4 (Compiled by Maiia) (2021) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S1gns Of L1fe – Simulation Of Reality (08:58)
+02. Ateris – Every Ending Is A New Beginning (Flucturion 2.0 Remix) (09:17)
+03. Nile – Long And Prosper Life (06:44)
+04. Dreaming Cooper – Illusions (07:52)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 01:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A8CC1D6D21D3264FC25D4BFFDD36C7BC27AC491
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462094   (1021432) от 12.04.2021
+
+Nora En Pure - Live @ Graubünden, Switzerland (2021-04-03) [MP3|320 Kbps] <Deep House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passenger 10 - Days Of Yore
+02. Nora En Pure - Cognitive Fadings
+03. Passenger 10 - Thuringia
+04. Nora En Pure - Enchantment(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 02:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:244B86C44661D0EC75EE470867543A91CF33AC42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212270   (1021450) от 12.04.2021
+
+Ferrein - Openclose (2012) Farver [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Downtempo, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me In (05:38)
+ 02. Hover (05:20)
+ 03. On The Bottom (05:00)
+ 04. Castle Of Air (06:07)(   Читать дальше...   )Жанр: Dub Techno, Downtempo, TechnoПродолжительность: 00:29:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77226741911A0A82C32C69704E4EC302C2527E17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461865   (1021628) от 11.04.2021
+
+Junior Boys - Collection 5 Releases (2004-2016) [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop, Indie Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Say That (4:56)
+02. Over It (3:45)
+03. C'Mon Baby (4:49)
+04. Baby Give Up On It (4:16)(   Читать дальше...   )Жанр: Electronic, Synthpop, Indie Pop |Продолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D94635C76D217AD37BE0626E813CE6B6F1812E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108211   (1021683) от 10.04.2021
 
 How To Disappear Completely (HTDC, FOG & HTDC) - Discography 33 Releases (2012-2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Post Rock, Experimental>
@@ -529,165 +691,6 @@ exm - Post Acuem (2021) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Glitch>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:174A1FAC98AD02AF0FC921EC06935AB42EA0CE11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279628   (1022170) от 07.04.2021
-
-Bucky - Discography 49 Releases (2012-2021) [FLAC|Lossless|WEB-DL|tracks] <UK Garage, Ambient, Future Garage, Downtempo>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zenith (03:57)Тип издания: WEBЖанр: UK Garage, Ambient, Future Garage, Downtempo •Продолжительность: 14:48:28 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6573967BEABA7008E433F2EE76980D9C5F5CE3D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201052   (1022258) от 07.04.2021
-
-Stasis Device - Discography 4 Releases (2009-2021) Solanic, Raumklang Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Experimental , Downtempo, Industrial>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sewaquo (05:11)
- 02. Molakul (05:44)
- 03. Erehps (05:26)
- 04. LakuLaku (05:33)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Ambient, Experimental, Downtempo, Industrial •Продолжительность: 02:43:00 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84018A6315D7DF91D76DEF285CBD2E81C0494FC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460892   (1022270) от 07.04.2021
-
-VA - Sunrise Morning Colours: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Hitching a Ride to Paradise - Original Mix (3:18)
-02. Dreamhunter - Good Morning - Original Mix (3:08)
-03. Schwarz & Funk - Fate of Destiny - Original Mix (6:05)
-04. Marga Sol - Morning Sun - Original Mix (4:23)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF78A948D380824A866EAF1DD7750D1CB069550A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460928   (1022302) от 07.04.2021
-
-The Blizzard - AVACast Guest Mix (2021-03-29) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Blizzard - Torden
-02. The Blizzard & The Madison - Sequoia
-03. The Blizzard - Sol
-04. The Blizzard - Snøfnugg(   Читать дальше...   )Жанр: TranceПродолжительность: 00:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6131CA723FBD3CD80DB8AE678A1D233C7AE0E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149180   (1022399) от 06.04.2021
-
-Ochre - Discography 28 Releases (2001-2021) Toytronic, Aura Materia, Benbecula [FLAC|Lossless|tracks+.cue, tracks] <IDM, Glitch, Ambient, Techno, Abstract, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Copacetia (07:50)
- 02. Yugen (05:14)
- 03. Calmed Robbery (Ochre remix) (05:38)
- 04. Bass Recorder (Ochre remix) (03:55)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Glitch, Ambient, Techno, Abstract •Продолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8DD977EFAC95E3092A6296CF0EC2108219E4A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304444   (1022411) от 06.04.2021
-
-Gradient - Discography Discography 17 Releases (2009-2021) U-Cover, Greyscale, Entropy Records, ZeECc [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cloud One (08:30)
- 02. Cloud One (Submoon Remix) (06:44)
- 03. Cloud Two (06:30)
- 04. Cloud Three (07:20)Тип издания: CD, WebЖанр: Dub Techno, Ambient •Продолжительность: 16:08:36 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B4DF040D7F074E3A369893ED0265018946DA798
 ```
 
 

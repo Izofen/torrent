@@ -1,3 +1,36 @@
+###  Публикация: 763112   (886636) от 05.03.2014
+
+VA - BRAVO Hits 84 (2014) [FLAC|Lossless|WEB-DL]<Pop, Top 40>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в мир BRAVO Hits 84 - самые большие звезды, лучшие "штурмовики" чартов и последние хиты на двойном CD! (   Читать дальше...   )01. Ed Sheeran - I See Fire (4:56)
+02. Katy Perry - Unconditionally (3:50)
+03. Imagine Dragons - Demons (2:57)
+04. OneRepublic - Burning Bridges (4:18)
+05. Söhne Mannheims - Großstadt (Single Edit) (3:48)
+06. Sido - Liebe (3:15)
+07. Marteria - Kids (2 Finger an den Kopf) (3:50)
+08. Max Herre - A-N-N-A (immer wenn es regnet) (MTV Unplugged / Radio Version) (3:51)
+09. Stromae - Formidable (3:35)
+10. Anna F. - Too Far (3:58)(   Читать дальше...   )Жанр: Pop, Top 40Продолжительность: 02:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578E3B7C81863ABBFB29B3DC6C1CED3360D088AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 763078   (886925) от 05.03.2014
 
 James Morrison - The Awakening (2011) [FLAC|Lossless]<Pop, Soft Rock, Soul>
@@ -701,33 +734,6 @@ Roxette - Greatest Hits 99 (1999) [FLAC|Lossless]<Pop-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E8CFB0C3F207268BADDA82A90AE1319E3706023
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869177   (892594) от 14.02.2015
-
-VA - Radio 538: Hitzone 72 (2015) 2CD[FLAC|Lossless]<Pop, Dance, Top40>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мне приходилось уже выкладывать из этой серии диск из своей коллекции (помнится купленный по случаю за границей). И диск заезжен у меня до дыр. Именно поэтому слежу за появлением новых релизов из этой серии. И Вам рекомендую.CD1:
-01. Omi - Cheerleader (Felix Jaehn Remix)  (3:02)
-02. David Guetta ft. Sam Martin - Dangerous  (3:25)
-03. Anouk & Douwe Bob - Hold Me  (3:51)(   Читать дальше...   )Жанр: Pop, Dance, Top40Продолжительность: 02:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FCB6525501A7F04A7F2A3E5ABF38B635085974
 ```
 
 

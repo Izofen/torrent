@@ -1,3 +1,165 @@
+###  Публикация: 1373096   (882088) от 05.04.2020
+
+Complicated - Time and Space (2019) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882088.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Like a Hurricane (6:37)
+2. Pieces (8:07)
+3. Intergalactic (7:06)
+4. Alien Conversation (6:19)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF813F2C6613D7B7B9439E7E8BC92A4EE18ACC32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373092   (882136) от 05.04.2020
+
+Complicated - Nature Harmony (2016) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882136.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Gate (Original Mix) (7:08)
+2. Matkot (Original Mix) (7:47)
+3. Complicated; Cosmic Tone - Stop In My Mind (Original Mix) (7:57)
+4. Distorted Reality (Original Mix) (7:43)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2AB594C07D13D56C525D144C4A6E446B9251D68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373010   (882200) от 05.04.2020
+
+Arktapes - Space Versions 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Techno Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled (Arktapes 001 A1 - Space Version) (09:14)
+ 02. Untitled (Arktapes 001 A2 - Space Version) (07:04)
+ 03. Untitled (Arktapes 001 B1 - Space Version) (11:35)
+ 04. Untitled (Arktapes 002 A1 - Space Version) (08:14)(   Читать дальше...   )Жанр: Ambient, Dub Techno, Techno AmbientПродолжительность: 02:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6037A0C4C02DA9FE1F83308A5A6482900FB24AE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495294   (882292) от 11.09.2021
+
+VA - Italia Synthetica 1981-1985 (2013) CD [MP3|320 Kbps] <Electronic, New Wave, Synth-pop, Italo-Disco>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neon - Lobotomy (5:50)
+02. Der Blaue Reiter - Lights Off (3:12)
+03. Ein-st-ein - Varsavia (4:42)
+04. Modo - Niagara Falls (4:01)(   Читать дальше...   )Жанр: Electronic, New Wave, Synth-pop, Italo-DiscoПродолжительность: 01:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B927C3459D05C85B05D8E31ECA5B9C6EF2187E5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995976   (882692) от 12.03.2016
+
+VA - Zoo Debts (2016) [MP3|320 кб/с] <PsyTrance, Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zen Mechanics, Headroom - CBR [08:44]
+02. U-Nique - Dreams Are Real [07:16]
+03. Echotek - Space Patrol [07:06]
+04. Timelock - TNT [06:54](   Читать дальше...   )Жанр: PsyTrance, TranceПродолжительность: 03:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FDA2DAC8D6033DE6738196218FFABE550AC7F28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995837   (882839) от 12.03.2016
+
+Dusty Kid - III (2014) [FLAC|Lossless|tracks] <Techno, Acid, Tech Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crepuscolaris (05:57)
+ 02. Far (06:48)
+ 03. Sandalyon (14:15)
+ 04. Raww Oohmm (03:56)(   Читать дальше...   )Жанр: Techno, Acid, Tech TranceПродолжительность: 01:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FBB9A595CE652D01CA5715404A8FA7A6ACE019
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103732   (883328) от 13.02.2017
 
 Above & Beyond - Anjunabeats, Volume 13 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
@@ -531,166 +693,6 @@ Dan Abrams (Shuttle358, Fenton, Dabrams) - Discography 12 Releases (1999-2021) 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B1D15F5C87BC9B8EE976814BC8BFB2B553F31CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373946   (884292) от 10.09.2021
-
-Sven Weisemann (Desolate, Jouem, Phidias) - Discography 43 Releases (2006-2021) Fauxpas Musik, Mojuba [FLAC|Lossless|tracks+.cue, tracks] <Tech House, Downtempo, IDM, UK Garage, Deep House, Ambi ...
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sceptrum (07:41)
- 02. Typhon (07:34)Тип издания: CD, Web, VinylЖанр: Tech House, Downtempo, IDM, UK Garage, Deep House, Ambient •Продолжительность: 19:39:35 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:027FAF08C05C17B4A28203216CFFCFD6AB9D6C34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995685   (884329) от 11.03.2016
-
-Man Of No Ego - Blinkers Removed (2015) [FLAC|Lossless|WEB-DL-24Bit|tracks] <Ambient, Psybient, Downtempo, Psychill>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celestial Medicine (07:22)
-02. Blinkers Removed (08:01)
-03. Tara (08:35)
-04. Harmony Of The Universe (08:45)(   Читать дальше...   )Жанр: Ambient, Psybient, Downtempo, PsychillПродолжительность: 01:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2544368EAF4B329981B50C9FEDF298AD02736D28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383880   (884429) от 10.09.2021
-
-Lou Karsh | Reptant - Discography 14 Releases (2016-2021) LKR Records, X-Kalay, Salt Mines [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, IDM, Techno, Breaks>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost In The Filter (05:21)
- 02. Time Blind (05:31)
- 03. Shermanic Ritual (06:09)
- 04. Reptilian Magnetism (04:37)Тип издания: WEBЖанр: Electro, Acid, IDM, Techno, Breaks •Продолжительность: 06:523:17 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF3DABEBA9E76C892EDA9208AC8988CBC803D4F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495158   (884450) от 10.09.2021
-
-Gregory - Unknown Universe (2021) [MP3|320 Kbps] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unknown Universe (6:17)
-02. Invasion Of Mars (4:44)
-03. New Adventures In Space (6:10)
-04. The Laser Cannon (4:29)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D5D121D654494D3F564217E78926E3F5760CBAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995125   (884500) от 11.03.2016
-
-Johnny Hates Jazz - Turn Back The Clock (1988) [FLAC|Lossless|tracks] <Europop, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебютный и лучший альбом!01. Shattered Dreams
-02. Heart Of Gold
-03. Turn Back The Clock
-04. Don't Say It's Love(   Читать дальше...   )Жанр: Europop, Synth-popПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD79C1F7DB8D57EB5FB87D5DC673BEC82145AB16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495111   (884539) от 10.09.2021
-
-VA - Scorchin' Sessions Vol. 1 (Mixed by Super8 & Tab) (2021) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BetweenUs - Lost Island (Mixed) (05:40)
-02. Sam Heyman - Corvus (Mixed) (04:54)
-03. Angel One - Each Of Us (Mixed) (02:42)
-04. Nick Hayes - Signal (Mixed) (04:07)(   Читать дальше...   )Жанр: EDM, Progressive House, TranceПродолжительность: 01:06:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57CA740DCA3AD89310D35B621A43AE17F95419AB
 ```
 
 

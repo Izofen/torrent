@@ -1,3 +1,165 @@
+###  Публикация: 1363630   (940849) от 29.02.2020
+
+Panda Eyes - Continue (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dubstep, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940849.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. One Smile (feat. Azuria Sky) [05:06]
+2. Turning Point [03:36]
+3. Continue (with Subkey) [05:00]
+4. Daydreamer [03:48](   Читать дальше...   )Жанр: Electronic, Dubstep, Electro HouseПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:555FA55CFDCF513454168D9571D389B3E3095629
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193443   (940922) от 29.02.2020
+
+Boreal Network - Discography 11 Releases (2007-2016) Retronym, Illuminated Paths [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Downtempo>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Itasca Road Trip (02:33)
+ 02. Kandiyohi (02:52)
+ 03. Badlands (03:22)
+ 04. Campstop Arcade (01:23)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Ambient, Downtempo •Продолжительность: 07:07:15 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A08B581A2BD54366950477FCAD367E33F04DE016
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363835   (940927) от 29.02.2020
+
+La Roux - Supervision (2020) [FLAC|Lossless|tracks + .cue] <Synth-pop, Dance-pop, Funk>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 21st Century (04:15)
+02. Do You Feel (05:00)
+03. Automatic Driver (05:05)
+04. I.W.O.L. (04:18)(   Читать дальше...   )Жанр: Synth-pop, Dance-pop, FunkПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9EBCBEF496978C9A84A8038525BA2ADAB51ECAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363790   (941024) от 29.02.2020
+
+Freeze Etch - All Context Vanishes (2020) Voidstar Productions [FLAC|Lossless|WEB-24Bit|tracks] <IDM, Ambient, Industrial, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Telos (05:18)
+ 02. Conscious Image (07:41)
+ 03. I Am Always The Same Person (01:50)
+ 04. Blunderbuss (08:11)(   Читать дальше...   )Жанр: IDM, Ambient, Industrial, ExperimentalПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C711C9D7DC34993236377DFB1A65DFC78C6E82EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363657   (941025) от 29.02.2020
+
+Will Rees - Live @ Trance Room, Uniclub Buenos Aires, Argentina 2020-02-22 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941025.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Brennan Grey - Capre Omne (Intro Edit)
+2. DJ Jordan - Direct (Indepth Remix)
+3. ID-ID
+4. Genix - Ba55 Camp(   Читать дальше...   )Жанр: TranceПродолжительность: 02:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B837FD941E01AACBC38A1FE89032D364B16DD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091986   (941044) от 10.01.2017
+
+VA - Music For Sex: Erotic Music 2017 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suntise - Erotic Wav  (2:44)
+02. Jentarix - Indian Summer  (3:54)
+03. Denis Arson - First Contact  (6:30)
+04. DJ Rostej - Minutes of Stories  (2:46)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6884D2525F4E2BCB01E440CD7FDB4518C5FAF34B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091733   (941210) от 10.01.2017
 
 BT - _ (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, IDM>
@@ -537,165 +699,6 @@ Propellerheads - Star Profile (2000) [MP3|320 Kbps] <Techno, Big Beat, Acid Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:857C546736E234DEE80E999CAA1112C69C2ED3D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363234   (942313) от 28.02.2020
-
-VA - DJ Tapolsky - Drama (2003) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ram Trilogy - Beastman [5:06]
-02. Ram Trilogy - Milky Way [3:54]
-03. Adam F feat. M.O.P. - Stand Clear (Andy C & Ant Miles Remix) [4:05]
-04. Adam F feat. Red Man - Smash Sumthin ()EIB( Remix) [2:58](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37EC164354937F2058EA9152EF88510096524585
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363238   (942412) от 28.02.2020
-
-DJ Tapolsky - Free My Soul Mix (2009) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Tapolsky - Untitled (1:01:03)Жанр: Drum & BassПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06C7DE0AE30DB8E2E856CD04AE5A1EC9044C5709
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362762   (942416) от 28.02.2020
-
-VA - DJ Tapolsky - Lomka (2001) [MP3|192 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aphrodite - Fanfare (6:38)
-02. Mulder - Hoover (4:51)
-03. Drunken Masters - How Much (3:49)
-04. E-Sassin - Wireframe (Teebee Remix) (4:38)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CAB37DF366B718E0C8E9260372AA0D09FD53121
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363281   (942484) от 28.02.2020
-
-Wrangler - A Situation (2020) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthropocene (05:24)
-02. How To Start a Revolution (04:40)
-03. Machines Designed (To Eat You Up) (05:43)
-04. Mess (07:09)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA849B38EFE7AEB771F6702A1BABD3098D51B5C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587128   (942495) от 09.01.2017
-
-Aurosonic - Etyology Sessions 001-193(Обновляемая) (2007-2016) [MP3|320 кб/с]<Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cerf, Mitiska, Jaren - Light The Skies (Harry Peat remix)
- 02. DJ Fire - Midnight In Beijing
- 03. Andrew Bennett - Menar (Markus Schulz remix)
- 04. ATB - Desperate Religion (Aurosonic remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 198:21:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A847F021CE563DD43E479E0350AE42AEE6E766CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362716   (942542) от 28.02.2020
-
-VA - Dj Бинокль - Fucking Society (2002) [MP3|320 Kbps] <House, Euro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Funk U Later - Something About You (DFR Mix)
-03. Jame Gumb - I Am (Sporting Mix)
-04. Reloop - Fucking Society (DJ Jean Mix)(   Читать дальше...   )Жанр: House, Euro HouseПродолжительность: 00:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD69EA65598EE4E284324FAB7D6CCCC1850273B
 ```
 
 

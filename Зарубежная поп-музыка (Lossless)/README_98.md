@@ -1,3 +1,30 @@
+###  Публикация: 1453167   (1027180) от 09.03.2021
+
+Lana Del Rey - Chemtrails Over The Country Club (2021) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Dress [00:05:33]
+02. Chemtrails Over The Country Club [00:04:31]
+03. Tulsa Jesus Freak [00:03:35]
+04. Let Me Love You Like A Woman [00:03:20](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62AA95887E026D359C3FF6FC254F67AFAB884F45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452703   (1027569) от 07.03.2021
 
 Celeste - Not Your Muse (2021) 2CD Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -670,33 +697,6 @@ La Toya Jackson - La Toya (1988) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7754D13592BCE51F2712B815DBF4EE874F833BAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620240   (1032355) от 19.03.2023
-
-Kylie Minogue - The Abbey Road Sessions (2012) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All The Lovers
-02. On A Night Like This
-03. Better The Devil You Know
-04. Hand On Your Heart(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6954BE1AB9892818BA3771FBC8B2F84D3B49CD0
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1506086   (801651) от 29.10.2021
+
+VA - Electro Lemon: Fresh House Session (2021) [MP3|320 Kbps] <Electro, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801651.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Frankie Lluc - Recreation Ego
+002. Small Tok - Play Me
+003. Pretty Pink - Let You Go
+004. Chappier - Resurge(   Читать дальше...   )Жанр: Electro, Future HouseПродолжительность: 09:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D914FE84387E9F57F9BD7CD65F9787D3678FE5B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199315   (801688) от 15.01.2018
 
 VA - Автозвук. Злючий Басс (Sound Clinic - Bass Edition) (2018) [MP3|320 Kbps] <Tech House, G-House, Bass House, Techno, Dark Progressive>
@@ -668,33 +695,6 @@ VA - Synth of Waves 4 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E3EA705A33AE9CC00C0E350478DC16C8893E755
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198981   (802849) от 14.01.2018
-
-VA - Record Super Chart #519 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dankann  -  How Deep Is Your Love  2:55
-02.  Mark Sixma & Emma Hewitt  -  Missing (Andrew Rayel & Mark Sixma Remix)  4:32
-03.  Stadiumx & Metrush  -  Spacebird  3:53
-04.  Tom Crusher  -  Higher  3:51(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5EDD777A8723DCEDC533325B0BA130E59C1C332
 ```
 
 

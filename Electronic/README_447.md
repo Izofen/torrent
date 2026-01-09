@@ -1,3 +1,165 @@
+###  Публикация: 1376402   (860486) от 17.04.2020
+
+Freedom Fighters - Era (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860486.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Freedom Fighters; Ryanosaurus - Dawn 'till Dusk (9:00)
+2. Freedom Fighters; Modus - Drumville (6:30)
+3. Freedom Fighters; Domestic; Sphera - One Level Down (7:00)
+4. Freedom Fighters; Modus - Uncharted Territory (9:03)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:076E0379C6AC524ABFC88006CAFCB3290829E61B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376196   (860488) от 17.04.2020
+
+VA - Psychedelic Selections Vol 005 (Compiled by Khromata) (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860488.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rocky Tilbor - 11911 (Original mix) (8:28)
+2. Martin Vice; Michael Banel; Silent Sphere - Space Travel (Original mix) (7:55)
+3. Flip-Flop - Blocks (Original mix) (6:34)
+4. Rinkadink; Silent Sphere - Hidden Patterns (Original mix) (6:39)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 03:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9329F88D39DFC30C6A268E11292259CF717A1F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376126   (860499) от 17.04.2020
+
+Tim Dash - Afterlight 001 (2020) unmixed [MP3|320 Kbps] <Deep Techno, Progressive House, Melodic Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Novakk - Hela (Ivory Hypnotic Treatment) (5:40)
+02. Booka Shade - Atlantic Beam (5:56)
+03. Enamour & Nox Vahn - Sleep Paralysis (5:39)
+04. Nico Morano & Radeckt - Resilio (Night Talk Remix) (6:44)(   Читать дальше...   )Жанр: Deep Techno, Progressive House, Melodic TechnoПродолжительность: 01:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C98D38DCE1D8E16B3E4A9E11722E35E93B02CBB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376414   (860614) от 17.04.2020
+
+VA - Best Of 5 Years Of Disco Balls Records, Pt. 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco, Indie-Dance, Jackin' House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J Nitti - Another Night Alone (Stephane Deschezeaux Remix) (6:57)
+02. Luigi Egitto - Temptation (Original Mix) (7:35)
+03. J Nitti - I Need You (Full Piano Mix) (5:53)
+04. Paco Caniza - Sax In St. Gaudens (Original Mix) (5:53)(   Читать дальше...   )Жанр: House, Nu-Disco, Indie-Dance, Jackin' HouseПродолжительность: 02:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4EB6C9695D9A503D981D0A6F5AAC2B8F2155B14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376410   (860615) от 17.04.2020
+
+VA - Best Of Disco Balls Records 2018, Pt. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco, Indie-Dance, Jackin' House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FederFunk - Please, Don't Stop The Disco ! (Original Mix) (5:18)
+02. Jon Lockley - Before All That (Original Mix) (7:30)
+03. Jerem A - I Need You (Zonum & Xavi V Remix) (5:51)
+04. Pyperb - Wainting For A Girl (Original Mix) (6:17)(   Читать дальше...   )Жанр: House, Nu-Disco, Indie-Dance, Jackin' HouseПродолжительность: 02:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0038C3E5A7F661B53A9A7DFF3765CD574CA843B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376405   (860616) от 17.04.2020
+
+VA - Best Of Disco Balls Records 2018, Pt. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco, Indie-Dance, Jackin' House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jerem A - Everybody (B2 Nu Disco Mix) (6:03)
+02. Tim Serra - Discoworld (Original Mix) (5:35)
+03. Filth & Smell - The Fifth Filthy Take (Original Mix) (5:41)
+04. Simioli - Funk Access (Original Mix) (5:26)(   Читать дальше...   )Жанр: House, Nu-Disco, Indie-Dance, Jackin' HouseПродолжительность: 02:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8142A0022992B57B413C3368B098D58DAC8E4805
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109050   (860909) от 26.02.2017
 
 Gydra - Unhinged (2017) EP [MP3|320 Kbps] <Drum & Bass>
@@ -533,166 +695,6 @@ Artful Dodger - It's All About the Stragglers (2001) [FLAC|Lossless|WEB-DL] <UK 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BA4A9A1872AED93938A379CE8782DEE284E8595
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376108   (862042) от 16.04.2020
-
-Pet Shop Boys - I Don't Wanna (2020) EP [MP3|320 Kbps] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862042.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I don't wanna (radio edit) [3:20]
- 2. New boy [4:11]
- 3. I don't wanna (Mano Le Tough remix) [7:25]
- 4. I don't wanna (David Jackson remix one) [6:19](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21A5AC5F71D63F6A3E8C010FC5B6C84478CB373
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358711   (862155) от 16.04.2020
-
-Tulpa | Dusha - Discography 12 Releases (2015-2020) Ovnimoon Records, Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, IDM, Downtempo, Psy-Trance>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dear (06:29)
- 02. Bahia (13:58)
- 03. Checks Cashed (12:24)
- 04. Infinite Light (17:05)Тип издания: WebЖанр: Techno/ExperimentalПродолжительность: 10:07:22 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B1DE6F1966DB99A0ECCEBA2B61A9B97826A92F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 881144   (862157) от 16.04.2020
-
-Zyxt - Discography 4 Releases (2013-2015) Component Recordings, Crime League, Pr0gramma [FLAC|Lossless|WEB-DL]<IDM, Ambient, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dress (04:30)
- 02. Red Trolley (06:28)Тип издания: WEBЖанр: IDM/AmbientПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D59FC3E6DB86FE25E8C03BAB832DF7E8944B41D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376097   (862265) от 16.04.2020
-
-Pacific Coliseum - Blue Universe (2019) Coastal Haze [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Balearic>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hotel (03:41)
- 02. Cloud Jam (05:06)
- 03. In Ubud (02:25)
- 04. Ridge Walk (03:48)(   Читать дальше...   )Жанр: Ambient, Downtempo, BalearicПродолжительность: 00:33:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5828899A4CBB00CC51E38607A2B3937C8264C93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375956   (862271) от 16.04.2020
-
-Lagowski - Secret Of Numbers (2020) Zoharum [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RUR (07:06)
- 02. Bomkele (08:50)
- 03. Pulse (06:51)
- 04. Huhu 5 mix 1b (12:20)(   Читать дальше...   )Жанр: Electro, TechnoПродолжительность: 01:16:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:508FE6CDF43DD89EDF9D6E3653E5320FE0608CB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108609   (862336) от 25.02.2017
-
-VA - Ethereal Techno #003 (2017) [FLAC|Lossless|WEB|tracks] <Techno, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Peters - Two of Us (Soul Button Remix) (8:27)
-02. Slow Hearts - Exium (7:30)
-03. Tim Engelhardt - Trust (8:38)
-04. Simon Sizer - Seven Against Thebes (8:53)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 02:23:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D24B33B8B0A964375A6A3D0A058DA85CE34481
 ```
 
 

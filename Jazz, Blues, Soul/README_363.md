@@ -1,3 +1,30 @@
+###  Публикация: 1302114   (582201) от 14.05.2019
+
+Dan Bubien & The Delta Struts - Thieves & Yesterdays (2019) [FLAC|Lossless|tracks + .cue] <Blues Rock, Americana, Roots>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling to the Ground (4:18)
+02. Gotta Hold On Me (4:51)
+03. Thieves & Yesterdays (3:48)
+04. Shake That Thing (5:34)(   Читать дальше...   )Жанр: Blues Rock, Americana, Roots RockПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A0421BA78F6CC15F93BAF83CB821282424E1DCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302189   (582316) от 14.05.2019
 
 Aldo Romano - Il Piacere (1978) 2001, Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
@@ -349,6 +376,33 @@ magnet:?xt=urn:btih:5E8901479E55CD28EFF970AE9F8B7C11AE551AA6
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 342689   (583257) от 08.08.2016
+
+John Coltrane - Blue Train (2007) 10CD Box Set [APE|Lossless|image + cue]<Jazz, Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_583257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на относительно короткую карьеру (он стал известен широкой публике только в возрасте 33 лет, а умер, не дожив до 41 года), Джон Колтрейн до сих пор является одной из самых известных и противоречивых фигур джазового мира. Он играл в разных, чуть ли не противоположных, стилях и это служило причиной столь же противоположных отзывов критиков о его музыке. Однако (   Читать дальше...   )01. On It (Hope) (9:05)
+02. Polka Dots And Moonbeams (Van Heusen - Blake) (8:40)
+03. Weeja (Hope) (11:10)
+04. Avalon (Jolson - Desylva - Rose) (9:41)(   Читать дальше...   )Жанр: Jazz, Bop, Hard BopПродолжительность: 09:57:53
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302008   (583277) от 13.05.2019
 
 Happy Day Singers - The Joy Of Gospel (2007) [FLAC|Lossless|image + .cue] <Gospel, Funk / Soul>
@@ -641,60 +695,6 @@ Glenn Miller - Moonlight Serenade (1939 - 1944) 2000, Past Perfect [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C7E72EC03A521BE40CFC11E8651E60973CE37E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553242   (583761) от 24.05.2022
-
-David Linx - Be My Guest: The Duos Project (2021) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Letter to Trevor (with Trevor Baldwin) (3:51)
-02. Hunter (with Or Solomon) (4:02)
-03. Pagina de Dor (with Hamilton De Holanda) (4:29)
-04. Close to You (with Magic Malik) (4:03)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:08:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDBCEE732B6F3E9B7C2BD4B9DD05C02A11E6EB5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553190   (583808) от 24.05.2022
-
-Sarah Vaughan - The Roulette Years, Vols. 1-2 (1960 - 1964) 1991, Blue Note [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Time We Say Goodbye [2:27]
-02. Great Day [2:13]
-03. Just in Time [2:21]
-04. You Stepped Out of a Dream [2:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED244966432DB782DA215B79CDB2BC386A57C50
 ```
 
 

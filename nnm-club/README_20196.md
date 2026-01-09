@@ -1,672 +1,696 @@
-###  Публикация: 1198005   (810367) от 10.01.2018
+###  Публикация: 1121755   (799666) от 03.04.2017
 
-Хоккей. Молодёжный Чемпионат мира 2018. Плей-офф. 1/2 финала. Швеция — США (04.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810367.jpg" />
-</div>
-
-
-###  Подробнее
-
-05 января 2018 года, пятница. 00:00 МСК
-42-й  Чемпионат мира по хоккею с шайбой среди молодёжных команд 2018 года
-Плей-офф. 1/2 финала.
-Швеция — США(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:862B26393F82A23F9BC62B5CA5A97EAAAFE05690
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197996   (810368) от 10.01.2018
-
-VA - Best of Nuevadark 2017 (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blufeld - Rakete Zum Mond (You Are My Salvation Remix) (10:46)
-02. Jetride - Sad Piano (Gordey Tsukanov Remix) (6:36)
-03. Mavrek - Burst on Fire (Inspireds Remix) (5:46)
-04. Blufeld - Rakete Zum Mond (Alan Cuevas Remix) (7:15)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F382ECBD729A127B4ECED7A427338C07628BE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198054   (810369) от 10.01.2018
-
-Лыжные гонки. Кубок мира 17-18. «Тур де Ски». Валь-ди-Фьемме (Италия). Женщины. Масс-старт. Классический стиль (06.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+QuickLens 1.3.8 [En]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810369.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799666.jpg" />
 </div>
 
 
 ###  Подробнее
 
-06 января 2018 года, суббота. 16:15 МСК
-5 Этап Кубока Мира по лыжным гонкам 2017-2018.
-«Тур де Ски». Валь-ди-Фьемме (Италия).
-Женщины. Масс-старт 10 км. Классический стильТелекомпания: Матч ТВ HD, Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BDD6294863C096A5488581AEE822673B97F8EDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198059   (810370) от 10.01.2018
-
-Лыжные гонки. Кубок мира 17-18. «Тур де Ски». Валь-ди-Фьемме (Италия). Мужчины. Масс-старт. Классический стиль (06.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810370.jpg" />
-</div>
-
-
-###  Подробнее
-
-06 января 2018 года, суббота. 17:45 МСК
-5 Этап Кубока Мира по лыжным гонкам 2017-2018.
-«Тур де Ски». Валь-ди-Фьемме (Италия).
-Мужчины. Масс-старт 15 км. Классический стильТелекомпания: Матч ТВ HD, Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B666D60415970621FFDEB7A6E7DC22B351C6C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198171   (810371) от 10.01.2018
-
-Горные лыжи. Кубок мира 2017–2018. Краньска Гора (Словения). Женщины. Гигантский слалом (06.01.2018) WEB-DL [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810371.jpg" />
-</div>
-
-
-###  Подробнее
-
-06 января 2018 года, суббота. 11:30 МСК
-Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
-Краньска Гора (Словения).
-Женщины. Гигантский слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FDC2D5B7CB1414F03281FF7ACEA61E2E4DA0703
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198202   (810372) от 10.01.2018
-
-Биатлон. Кубок Мира 2017-2018. 4-й Этап. Оберхоф (Германия). Мужчины. Эстафета (07.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810372.jpg" />
-</div>
-
-
-###  Подробнее
-
-07 января 2018 года, воскресенье. 16:30 МСК
-4-й этап Кубка Мира по биатлону 2017-2018. Оберхоф (Германия)
-Мужчины. Эстафета 4x7,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:31:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A6A88017FEA8E8DB2D2F48B447EF02EA83D7FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198210   (810373) от 10.01.2018
-
-Биатлон с Дмитрием Губерниевым. Сезон 2017-2018. 6 Выпуск (2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эфир от: 07.01.2018
-Для биатлонистов зима - это время мобилизации сил и полной концентрации. Для зрителей - начало интереснейших соревнований и сильных переживаний за сборную.Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:106F6A0991AE02B691B73053598690260525B1C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198174   (810374) от 10.01.2018
-
-Горные лыжи. Кубок мира 2017–2018. Аделбоден (Швейцария). Мужчины. Гигантский слалом (06.01.2018) WEB-DL [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810374.jpg" />
-</div>
-
-
-###  Подробнее
-
-06 января 2018 года, суббота. 12:30 МСК
-Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
-Аделбоден (Швейцария).
-Мужчины. Гигантский слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42A761AE152989D3B0DC52A76935D26F15728823
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 777689   (810377) от 16.04.2014
-
-ЗАО "Аксель Шпрингер Раша" | DVD-приложение к журналу Computer Bild № 08 Апрель (2014) [ISO]
-
->>Мультимедийные материалы
->>Приложения к журналам
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810377.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVD приложение к журналу «Computer Bild» – крупнейшему европейскому изданию с уникальной концепцией предназначенной для людей, которые интересуются компьютерами, Интернетом, средствами телекоммуникаций, аудио-, видео- и фототехникой. Каждые две недели читателям предлагаются новости индустрии, тесты оборудования и программ, обучающие курсы и практические советы.Жанр: DVD-приложение к журналуФормат: ISO
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4581C1754E8A08E427A7210F3FC2668449A5C570
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 657837   (810395) от 18.05.2013
-
-Журнал | Computerworld [Россия] №11 (796) (май 2013) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810395.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Computerworld» - ведущий международный еженедельник, посвященный информационным технологиям. В журнале вы найдете обзор важнейших событий ИТ-индустрии в России и в мире, материалы о новых технология.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:944B9A4100DF342BB54B1C3FB11B555C1C03A6AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 657542   (810396) от 18.05.2013
-
-Эллери Куин (Квин) | Четвертая сторона треугольника [2013] [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810396.jpg" />
-</div>
-
-
-###  Подробнее
-
-В романе "Четвертая сторона треугольника" убита молодая очаровательная женщина-знаменитость в мире высокой моды. Кому она могла стать помехой? Конкурентам? Или это сугубо частная драма? Э.Квин берется за дело и, как всегда, с блеском вычисляет преступника...
+Изучите пользовательский интерфейс  до пикселей
+Как пользователь-разработчик / разработчик пользовательского интерфейса вы всегда пытаетесь создать наилучшие интерфейсы. С помощью QuickLens вы можете убедиться, что ваша реализация соответствует дизайну.
 
-Эллери Квин — псевдоним двух кузенов: Фредерика Дэнни (1905–1982) и Манфреда Ли (1905–1971). Их (   Читать дальше...   )Жанр: ДетективПродолжительность: 08:19:31
+Мощная программа для масштабирования пикселей, получения образцов цветов, измерения расстояний, проверки выравнивания (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 августа 2016Разработчик: PIXELINGENE LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A47746295344B54650CFD8CBD55335D96C071F41
+magnet:?xt=urn:btih:385CFFC398F09610004FDF9699694EBCA426557C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 657853   (810406) от 18.05.2013
+###  Публикация: 1121665   (799667) от 03.04.2017
 
-Журнал | Elle Decor (US) №6 [июнь 2013] [PDF] [En]
+VA - Spring Party European EDM (2017) [MP3|320 Kbps] <Electro, Dance, Club House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799667.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gary Optim - Fervor (Original Mix)
+002. Simon W - Cradle
+003. Tech Duo - Few Hearts But Techno
+004. Victor Bergh - Vaed(   Читать дальше...   )Жанр: Electro, Dance, Club HouseПродолжительность: 10:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17784CF401E06FFFE97F10C5297ABA6144F936B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121816   (799668) от 03.04.2017
+
+Apple Jam - Beatlemagic (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересные диско-вариации тем Битлов в стиле Arabesque, ABBA и т.п.01. She Loves You (3:22)
+02. Lady Madonna (3:36)
+03. Eleanor Rigby (3:50)
+04. A Hard Days Night (3:44)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Pop, DiscoПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D75F93A6B20492ACE62DE87753E7E577A08F845
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121836   (799669) от 03.04.2017
+
+Газета | 1000 секретов [Украина] №6 (март 2017) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810406.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799669.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ELLE Decor - самый красивый и полезный журнал о современном интерьере. В журнале представлены: последние тенденции мебельного дизайна и декорирования, эксклюзивные интервью с известными архитекторами, дизайнерами и фотографии лучших домов США и всего мира.Формат: PDF
+«1000 секретов» - это полная энциклопедия домашнего хозяйства, в которой можно найти советы на все случаи жизни: по обустройству квартиры, по уходу за собой и растениями, о взаимоотношениях в семье, кулинарные рецепты и схемы вязания, а также многие другие. Перед вами издание, которое не только собирает по крупицам народную мудрость, но и дает возможность каждому (   Читать дальше...   )Жанр: Народные советыФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E921C39013E7389142EEE5C9D432CA685124B1F9
+magnet:?xt=urn:btih:3636289AC53E1820F4FB997872494B57F18C168E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504822   (810415) от 24.10.2021
+###  Публикация: 1121141   (799670) от 03.04.2017
 
-Следствие вели... (24.10.2021) WEBRip [H.264/1080p]
+Alaska - The Bronze Years (2001) [FLAC|Lossless|image + .cue] <Hard Rock>
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810415.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799670.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Черный доктор». Казань, 1985 год. В одной из квартир был убит всемирно известный казанский хирург — Григорий Михайлов. В этой истории удивительным образом переплелись зависть и месть, любовь и ненависть, а делом занимались лучшие сыщики, но преступника оказалось поймать гораздо сложнее, чем думали. Так почему же убили всемирно известного хирурга и что скрывала вдова (   Читать дальше...   )Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеСубтитры: РусскиеПродолжительность: 00:44:00
+1.Run With the Pack (Badhams, Hawthorn, Marsden) 3:49
+2.Woman Like You (Badhams) 3:37
+3.Where Did They Go (Bonneville Blues) (Badhams, Hawthorn, Marsden) 4:41
+4.School Girl (Hawthorn, Marsden, Sinfield) 5:07(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A396FE834A948F273FB2547710DE54431DDA8691
+magnet:?xt=urn:btih:4B746A36254B5598E3491FC0F4D84539AF456504
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504551   (810416) от 24.10.2021
+###  Публикация: 1121347   (799671) от 03.04.2017
 
-Not My God (ex-Marilyn Manson, Psyclon 9) - Not my God (2020) [FLAC 2.0|48/24|WEB-DL|tracks] <Dark Electro, Electro Industrial>
+VA - Dark Room Erotica Jazz Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Electronic
->>Experimental, Industrial (Hi-Res)
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810416.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Fiction
-2. Until the Pain Is Gone
-3. Sowing Discord
-4. Murder Suicide(   Читать дальше...   )Жанр: Dark Electro, Electro IndustrialПродолжительность: 00:59:54
+01. Seneca Reynolds – Deep Shield – Groovy Obsession Mix
+02. Dave Nimerfro – Get You into My Life – Saxuality Chill Lounge Mix
+03. Perelandra – Dancing with the Sun – Travelling Silvertones Mix
+04. Smooth Rebel – Turn out the Light – Secret Love Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9F6D1C08A0C134C5C2BEE1B8D2C0282AA23FFB9
+magnet:?xt=urn:btih:B38802A479822154FF2D9E6AC5D6969017AB0F2F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504681   (810417) от 24.10.2021
+###  Публикация: 1121756   (799672) от 03.04.2017
 
-VA - The Stars Align: EDM October Mixtape (2021) [MP3|320 Kbps] <Electro, Dance, Clubbing, House>
+VA - Paul Oakenfold: DJ Box March (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Layout - We Found Love (Rich James Remix) (04:41)
+02. Ben Gold - Atomic (Tempo Giusto extended Remix) (06:24)
+03. Solid Stone & Jennifer Rene - Heart Call (Jerome Isma-Ae Remix) (06:45)
+04. Magnus - Cyanosure (06:14)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19197F375EB22F9C75D2E61B4B2D48F6D7CCC8B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121697   (799673) от 03.04.2017
+
+What The Blood Revealed - EP 2 (2009) [MP3|320 Kbps] <post-rock, post-metal, instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Politics, Here Is Death
+02. The Corporation as We Know it is Dead, Dead, Dead
+03. A Million Explosions Live Inside EveryoneЖанр: post-rock, post-metal, instrumentalПродолжительность: 00:21:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8376C62097F9FB9C023D04CA3B9AA76736BC4C40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121837   (799674) от 03.04.2017
+
+DJ Feel - TranceMission (27-03-2017) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sander van Doorn - Need To Feel Loved (Lvndscape Remix)
+02. Frainbreeze & Lucid Blue - World Of Nothing (Original Mix)
+03. Adara - Oasis (Estiva Remix)
+04. Nic Toms - Dream Big (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C01CE8F6EAE7811E84C87AC0FE1DAC1A120FA37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121735   (799675) от 03.04.2017
+
+Sid Rumpo - First Offense (1974) Remastered, 1993, Mushroom [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spotlight (05:56)
+02. Breakin' My Back (04:14)
+03. Spider Curry (01:43)
+04. Sailing (08:31)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AAA69BC7FDF03E933BA9777E1C50A321DD5DDAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121693   (799676) от 03.04.2017
+
+What The Blood Revealed - EP 1 (2007) [MP3|320 Kbps] <post-rock, post-metal, instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evolution is Not a Theory
+02. Blood on the Turing Machine
+03. Modern/Latter Improvements to the Ptolemaic System
+04. They Will Sow Guns, We Will Reap BulletsЖанр: post-rock, post-metal, instrumentalПродолжительность: 00:27:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:118CDDA976B18572E141660A34BAFA96D18F6B6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121710   (799677) от 03.04.2017
+
+VA - Soft Chill House Beach Lounge Vol.2 (2017) [MP3|320 Kbps] <Chillhouse, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Clemens Rumpf - Feel So Good (Disco Blend Mix)  6:45
+02.  Bastixs - Muzik  5:17
+03.  Discey - Ashram (Vocal Edit)  7:04
+04.  Ritmo Fatalismo - Sangria After Midnight  6:00(   Читать дальше...   )Жанр: Chillhouse, LoungeПродолжительность: 02:28:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDED694E11B1269093C3EDDF9D580084F186AFD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121503   (799678) от 03.04.2017
+
+Second To Sun - Blackbound (2016) [FLAC|Lossless|WEB-DL|tracks] <Post Black Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799678.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Vasilisa (04:09)
+2. Chokk Kapper (03:33)
+3. Region 13 (04:03)
+4. The Yoke (04:48)(   Читать дальше...   )Жанр: Post Black Metal, Groove MetalПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13A074407EEED433259A9CC1F0352401E5244EE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121749   (799679) от 03.04.2017
+
+Vince Vallicelli Band (feat. James Thompson) - Toot Loh Doon Faruye (2016) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toot Loh Doon Faruye (04:20)
+02. Whysky (06:35)
+03. Last Train To Aalter (07:22)
+04. Night Train (04:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2BB7DCB0024553F290E1AF386E10EFB573ED607
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121717   (799680) от 03.04.2017
+
+VA - Vinyl Lounge Set (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirotures — Displace (Jazzing Cut)
+02. Shangly Joe — Elements Stunt (Main Mix)
+03. Rawback — Stand Alone (Deep Version)
+04. Monowork — Seem (Chillmix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:06:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DECDDAC778C19A1B7639473C6AB74BF49E95D236
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121570   (799681) от 03.04.2017
+
+VA - Beatport Trance  Pack (03.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Emotional, Blissful, Harmonic>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810417.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799681.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Nana K. - Old's Cool
-002. Davide Squillace - Smart Dance Stupid Floor
-003. Andaro - Sick & Tired
-004. Beatfreak - Our Dying Outcry(   Читать дальше...   )Жанр: Electro, Dance, Clubbing, HouseПродолжительность: 07:45:53
+01.  Sam Laxton - Local Anaesthetic (Extended Mix)  6:13
+02.  Type 41 - Aquis (Plutian pres. Astrion Remix)  8:38
+03.  Ozo Effy - Deep Reality (Ultimate Extended Remix)  6:55
+04.  Alexander Dyomin - Sunset On Green Street (Original Mix)  7:41(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Emotional, Blissful, HarmonicПродолжительность: 04:57:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0513745C061BFC6182143B2DB7C7BBAABF4BEF3E
+magnet:?xt=urn:btih:76AC48583812CC2E6D8439FF27E128144B6B01DC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504856   (810418) от 24.10.2021
+###  Публикация: 1121874   (799682) от 03.04.2017
 
-Легендарные рок-промоутеры / Watch Mavericks: The Legendary Promoters of Rock (2020) WEB-DL [H.264/720p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возрождая в памяти незабываемые живые концерты 1960-1970-х годов, этот фильм рассказывает историю промоутеров и агентов, положивших начало индустрии мировых рок-турне, раскрывая перед зрителем эту незаслуженно забытую, но немаловажную часть музыкальной индустрии. Картина повествует о двух основоположниках индустрии - Фрэнке Барзалоне, основателе агентства Premier (   Читать дальше...   )Производство: Великобритания, США, Mavericks, White LightЖанр: Документальный, история, музыкаРежиссер: Молли Бернштейн, Филип ДолинПеревод: Многоголосый профессиональный (Эй Би Видео)Субтитры: отсутствуютПродолжительность: 01:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B4201B004CB767F8F7A7F8B0D7DA2A3EACEB59D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504781   (810419) от 24.10.2021
-
-Александр Троицкий | Успевай. Как управлять временем, если ты еще не взрослый, но уже не ребенок (2021) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь — самый главный проект. Кем вы хотите стать? Чего добиться? А главное, как успеть подготовиться к своему будущему и не отказываться от маленьких радостей жизни? Заявляем, что в графике подростка должно быть время на ВКонтакте, Instagram и TikTok!
-В этой книге вы найдете советы и лайфхаки, как не утонуть в потоке задач, достигать целей и наслаждаться жизнью. (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40887CE54FADCD04C6618502A31EB35A5AB63C6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504572   (810420) от 24.10.2021
-
-VA - Music News vol.142 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+VA - Through The Clouds: April Trance Mix (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810420.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799682.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Danna Paola - A Un Beso (03:37)
- 002. Abreu feat. Evelina & Nelli Matula - Levoton Tytto (03:25)
- 003. Aiwa - Больше Не Напишу (02:48)
- 004. ALE - Spune Tu (03:11)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 06:57:17
+001. Markus Schulz - The Lost Oracle (Transmission 2016 Theme) (Extended Mix) 07:45
+002. Purenrg - Secret Of The Sahara (Radio Edit) 03:54
+003. Mellari - Sputnik (Original Mix) 08:59
+004. Solomon08 - Lavatella (Original Mix) 07:07(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 12:25:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F399FF3EE00D34748789BCF732C1BBE3CDA05279
+magnet:?xt=urn:btih:E01377A2A124CB87C6A053DE05B6369AF3A28BF6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504742   (810421) от 24.10.2021
+###  Публикация: 1121617   (799683) от 03.04.2017
 
-Александр Емельянов - В одиночке ''Над Тихим Доном'' (2004) [FLAC|Lossless|tracks + .cue]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Заколюченные дни
-02. В одиночке
-03. Над Тихим Доном
-04. Уходят поезда(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C0F176303985DB9B8DAE785221CBF28F61DB245
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504813   (810422) от 24.10.2021
-
-Electric Light Orchestra - Vocoder (2021) [AAC|~338 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Blue Sky (2012 Version) (3:42)
-02. Steppin' Out (4:40)
-03. Sweet Talkin' Woman (3:50)
-04. Confusion (3:41)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AAF90672F987791E3D339D36B1B3FC70B0FE801
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504841   (810423) от 24.10.2021
-
-Жизнь в большом городе. Барселона / The Life-Sized City. Barcelona (2020) HDTV [H.264/1080i] (сезон 3, серия 3 из 6)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас ждут большие города со своими маленькими особенностями! Открывайте новые города и окунитесь в бурлящую жизнь мегаполисов по всему миру.
-Урбанист Майкл Колвилл-Андерсен покажет жизнь в большом городе крупным планом. Он расскажет какими были города много лет назад, и как они выглядят сейчас. Промышленные гиганты и экологичные агломерации - за каждым современным (   Читать дальше...   )Производство: Канада, DBCom MediaЖанр: Документальный, история, путешествияРежиссер: Мириам Бертеле, Николя БушеПеревод: Двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2ACF0DFBB59EAB8D5E68A235B1D1CEA811F720
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504735   (810424) от 24.10.2021
-
-Tokyo Dawn Records - Molot GE 1.0.4 VST, VST3, AAX Retail [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tokyo Dawn Labs объявила о выпуске своего нового плагина динамического компрессора Molot GE, который отличается модернизированной концепцией, расширенной гибкостью и щедрой дозой рок-н-ролла.
-«Molot» - это название популярного динамического компрессора, выпущенного в 2011 году Владиславом Гончаровым.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A5A099B04F486FD83056422E1AC03028A839E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504286   (810425) от 24.10.2021
-
-VA - Season of the Halloween Witch (2021) 3CD[MP3|320 Kbps] <Rock, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nina Simone - I Put A Spell On You
-02. Michael Jackson - Thriller (Single Version)
-03. Ray Parker Jr. - Ghostbusters
-04. The Cranberries - Zombie(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 09:25:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCEE120A36E36908FCF5C7A5F62E8AFE2C9E4BA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504535   (810426) от 24.10.2021
-
-Creux Lies - Goodbye Divine (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Punk, Synthpop, New Wave>
+Second To Sun - Gal Agnostiske Drommer (2011) [FLAC|Lossless|WEB-DL|tracks] <Post Black Metal, Groove Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810426.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799683.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jungle (5:29)
- 02. Misunderstanding (3:52)
- 03. Becoming (5:10)
- 04. PS Goodnight (4:21)(   Читать дальше...   )Жанр: Alternative Rock, Post-Punk, Synthpop, New WaveПродолжительность: 00:35:50
+01. Introduksjon av fremmede sæd i Demonhertuginnen (04:32)
+02. Sote Utenomjordiske Roll (02:37)
+03. Legenden om Den Onde Jesu Kristus (04:04)
+04. 11.03.11 (00:34)(   Читать дальше...   )Жанр: Post Black Metal, Groove MetalПродолжительность: 00:40:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B31431B5A6898B0E641C053442240D5518C55BA
+magnet:?xt=urn:btih:156B7B480DA865FF54D85E718F1064D8DE70BC0A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504534   (810427) от 24.10.2021
+###  Публикация: 1121761   (799684) от 03.04.2017
 
-Not My God (ex-Marilyn Manson, Psyclon 9) - Simulacra (2021) [FLAC 2.0|44,1/24|WEB-DL|tracks] <Dark Electro, Electro Industrial>
+Fred Astaire - Fred Astaire's Finest Hour (1940-e - 1950-e) 2003, Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Mainstream Jazz>
 
->>Electronic
->>Experimental, Industrial (Hi-Res)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810427.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799684.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 IN SERVICE OF THE WOLF [00:03:14]
-02 CRISIS [00:03:20]
-03 ASHES [00:04:06]
-04 THE UNDERNEATH [00:04:03](   Читать дальше...   )Жанр: Dark Electro, Electro IndustrialПродолжительность: 00:37:21
+01.Steppin' Out with My Baby [02:26]
+ 02.Let's Call the Whole Thing Off [04:41]
+ 03.They Can't Take That Away from Me [02:34]
+ 04.Cheek to Cheek [05:44](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, Mainstream JazzПродолжительность: 01:00:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B6F91B32B1055B2E57B0D994DFB3BA022373669
+magnet:?xt=urn:btih:ABD25651B64B2C5AEB1E69B42FF867AF81377E96
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504584   (810428) от 24.10.2021
+###  Публикация: 1121758   (799685) от 03.04.2017
 
-Уш Лун | Мастерская чудес. Книга 1 (2021) [FB2, EPUB, MOBI]
+Mary Lou Williams - Plays In London (1953, 1954) 2016, Sony Music [FLAC|Lossless|image + .cue] <Bop, Piano Jazz>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810428.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799685.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Флорентина переехала к бабушке, и радоваться тут нечему: комната завалена старой рухлядью, в новой школе все какие-то вредные и даже в футбольную команду её не взяли. Флорентина уже совсем пала духом, когда однажды вдруг заметила у двери дома напротив… черепаху! Она потерялась? Или вернулась домой? Ведь в том старом особняке никто не живёт – так сказала бабушка. (   Читать дальше...   )Жанр: Детская литература/ПриключенияПеревод: Сергей РюминФормат: FB2, EPUB, MOBI
+01.Titoros [03:04]
+ 02.They Can't Take That Away from Me [03:01]
+ 03.Round About Midnight [04:36]
+ 04.Perdido [02:54](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:10:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0506E051D2321CA240C45DBAC992E6A8FE928EC0
+magnet:?xt=urn:btih:9572D3492DD13F623449ED68336C96F26563C6B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121862   (799686) от 03.04.2017
+
+DirtyHands - Dirtyhands (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting Out The Door (04:04)
+02. Rollin' On The Street (02:26)
+03. Outside Woman Blues (04:14)
+04. Dirties Like The Blonde (02:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F9F7DA0A3611E9257E9755B42A08F34D595BE44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121558   (799687) от 03.04.2017
+
+VA - The Gulf Of Pleasure (2017) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799687.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anatoliy Kurakin - Invasion
+002. Levent Lodos - Circle of Fifths
+003. Guido Boyes - Something (Original Mix)
+004. Michael Paul - Call Me On the Weekend(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C495E38F34E5478199A355C4C6C6329788D20223
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121660   (799688) от 03.04.2017
+
+Sutratma - Sutratma (2012) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Face of Stone (08:12)
+02. Whither I Am Compelled (09:18)
+03. From the Well (08:16)
+04. Whence I Emerged (10:03)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B14979E35E7BE6305FFC5D492804A909E19FB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121843   (799689) от 03.04.2017
+
+Art Pepper & Ted Brown - The Complete Free Wheeling Sessions (1956) 2006, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Aretha [05:03]
+ 02.Long Gone [04:54]
+ 03.Once We Were Young [03:52]
+ 04.Foolin Myself [04:37](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 01:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C9175CADB4718623E4D60CE8691D7DFF3DDA5E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121871   (799691) от 03.04.2017
+
+The Buddy DeFranco (De Franco) Quartet - Jazz Tones (1954) Remaster, 2012, Universal [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.When Your Lover Has Gone [06:33]
+ 02.The Things We Did Last Summer [08:04]
+ 03.Jack The Field Stalker [03:08]
+ 04.If I Should Lose You [04:25](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C30F5F598118DAA203F53BC01BFDE6818211AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121869   (799692) от 03.04.2017
+
+Stephane Grappelli - Le Toit de Paris (1969) 2002, RCA Victor [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Rain Check [02:39]
+ 02.Camelia [03:42]
+ 03.I Got It Bad (And That Ain't Good) [03:10]
+ 04.Andree [03:14](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0223119657B00EFD9CD5238F6A6E2117BA3072D
 ```
 
 

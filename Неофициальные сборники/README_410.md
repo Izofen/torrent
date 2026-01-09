@@ -1,3 +1,30 @@
+###  Публикация: 1139052   (661294) от 01.06.2017
+
+VA - Yin-Yang Deep House Music Vol.01 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661294.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sebastian Phillip - People in the Club
+002. Gasmic - Bass Overdose
+003. Ramon Tapia - Highway
+004. Sergio Veros - Fly Away(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ABB15C5BDEAFEA1F9490FC777B5709D2AE929CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139077   (661305) от 01.06.2017
 
 VA - Yin-Yang Deep House Music Vol.02 (2017) [MP3|320 Kbps] <Deep House>
@@ -656,33 +683,6 @@ VA - New Sounds & More Power Vol.12 (2017) [MP3|320 Kbps] <EBM, Futurepop, Synth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C6EE2E2BB03C97DBD62E3C095AA187088C2ADFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138569   (663171) от 30.05.2017
-
-VA - SpaceSynth & ItaloDisco Hits Vol.25 (ot Vitaly 72) (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ken Martina - Another Melody (Extended Remix) 8:00
-02.  Umberto Tozzi - Tu (Simon LeSaint Remix) 7:03
-03.  Linda Skywalker - Don't Fly Away 6:33
-04.  Modern Boots - Boulevard Of My Dreams (BCR Extended Version) 7:07(   Читать дальше...   )Жанр: Italo Disco, SpacesynthПродолжительность: 04:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC2F82360C6B8FC41746DDFC374D1F56B80FF35
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1202593   (789025) от 31.01.2018
+
+Cj Rcm - Vol.1 Legends Of Chillout Music (2018) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Autumn (Original Mix)  4:44
+02.  Chronicle (Chillout Mix)  4:18
+03.  Lullaby For The Sun (Original Mix)  6:17
+04.  Ai-Ai Bopem Chillout Remix  6:44(   Читать дальше...   )Жанр: Downtempo, Chillout, ElectronicПродолжительность: 01:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96F17E654E9D977A4DFD8A7D72F7D11FA7BD02E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203048   (789030) от 31.01.2018
+
+Tor - Blue Book (2016) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Trip Hop, Chillstep>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:05)
+ 02. Two Suns (04:34)
+ 03. Loop Theory (03:33)
+ 04. Days Gone (04:26)(   Читать дальше...   )Жанр: Downtempo, Trip Hop, ChillstepПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1767C0869E8616EDE0C38118F8B3CB8877DC723
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276178   (789039) от 14.01.2019
+
+VA - Mama Thresl, Vol.1: Urban Soul meets the Alps (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downbeat>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless Mountain - Deep Intro (feat Malou) [01:13]
+02. Satori - Days Without You (feat Miou Amadee - Crussen remix)[11:25]
+03. Escenda - Out Of Moves [05:08]
+04. Terranova - Prayer (feat Nicolette Krebitz & Udo Kier - Gui Boratto mix)[06:48](   Читать дальше...   )Жанр: Deep House, Tech House, DownbeatПродолжительность: 02:27:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D44BC8ED1B71DBC4B6BE3E334EF0C76B1471DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275941   (789043) от 14.01.2019
+
+Ross From Friends - Family Portrait (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Lo-Fi, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Birthday Nick
+02. Thank God I'm A Lizard
+03. Wear Me Down
+04. The Knife(   Читать дальше...   )Жанр: House, Deep House, Lo-Fi, Tech HouseПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A32C711E3DF7379C410554488CC96E27A9601D40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276071   (789048) от 14.01.2019
+
+VA - Dance Mix Vol.1 (2019) [MP3|320 Kbps] <House, Deep House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dynamic David feat. Livrer - Summer Breeze (Original Mix) 5:26
+02. Urban Trip - Last Days Of Summer (Original Mix) 5:43
+03. Shurik - Eternity (Original Vip Mix) 5:31
+04. A.M.X - Hot Summer (Original Groove Mix) 5:36(   Читать дальше...   )Жанр: House, Deep House, Progressive HouseПродолжительность: 02:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:670BED82D79A2FAD71CDD911679192D4530DE99D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276126   (789049) от 14.01.2019
+
+VA - Dance Mix Vol 3 (2019) [MP3|320 Kbps] <House, Dance, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Royal Music Paris - See What You Show Me (Original Mix) 6:45
+02. Davit Barqaia - F k What U Heard (Original Mix) 4:17
+03. Kevi Anavi - What's Up (Original Mix) 5:43
+04. Mimmo Menga - Say What (Original Mix) 6:23(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5CA830A2B0E7A7F8C733903F7B609D0A3411A00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276064   (789050) от 14.01.2019
 
 VA - Solamah Cille-Free Dance Vol.1 (2019) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -533,168 +695,6 @@ Bobina - Russia Goes Deeper 001 - 014 (2016 - 2018) [MP3|320 Kbps] <House,Deep H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAA9C1FC0065A0149AB0FA438D8FE802038B0747
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275890   (789394) от 13.01.2019
-
-Spacehawk - The Last Guardian (2019) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spacedisco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:27)
-02. From The Shadows (4:05)
-03. Sky Shield (4:13)
-04. Humanity (3:58)(   Читать дальше...   )Жанр: Spacesynth, SpacediscoПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:129D7FC84F39CE7CE1531A62DB921364A3B557ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275889   (789434) от 13.01.2019
-
-Spacehawk - The Last Guardian (2019) [MP3|320 Kbps] <Spacesynth, Spacedisco>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:27)
-02. From The Shadows (4:05)
-03. Sky Shield (4:13)
-04. Humanity (3:58)(   Читать дальше...   )Жанр: Spacesynth, SpacediscoПродолжительность: 00:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA8B098F61FCA7514150C1B45D403E8D99969121
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275811   (789443) от 13.01.2019
-
-VA - Zanzibar Cafe' Vol. 6 (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Electronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3Stars - Black Orange (Lounge Mix)
-02. 71 Style - Jump For It (Lounge Mix)
-03. Agio-Lax - Another Day In Paradise (Lounge Mix)
-04. Andy Triton - Never On Time (Lounge Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, ElectronicПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA1D6C0094D631B552664512BDC3DA01E833DFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275449   (789444) от 13.01.2019
-
-VA - Miami Beachin Vol.1 [Continuous Mix] Low Tide (2019) [MP3|320 Kbps] <House, IndieDance, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RhythmDB - Miami Beachin Vol 1 Low Tide (continuous mix) 56:36
-02. Angel Order & Johnny Mars feat. Alexea - Who Knew (LUCCA SAVI Remix) 2:43
-03. Angel Order & Jota Mendosa - Si Tu Supieras (E.Q. Remix) 3:46
-04. RhythmDB - Soundtrack 3 (Instrumental Mix) 3:32(   Читать дальше...   )Жанр: House, IndieDance, ElectronicПродолжительность: 02:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB76A33189E2E42FF0F836665138344DBCF1BE99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275765   (789445) от 13.01.2019
-
-VA - Disco House Cats, Vol. 1 (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Project - Talking (Brooklyn & Friends Disco Mix)
-02. Tony Afrique - Sont Claires (Disco Disco Mix)
-03. Gold Jeans - Waiting For The Day (Morning Mix)
-04. Emmanuelle Duvall - Hands Of Loving (Original Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:24:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007A595323D76EBE09BB4D3629EBA793F6A6AEC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275816   (789485) от 13.01.2019
-
-VA - The Best Of Disco Lab, Vol. 1 (2019) [MP3|320 Kbps] <Tech House, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maxdal - Guitar Groove (Original Mix)
-02. Maxdal - Strike (Original Mix)
-03. Maxdal - Our Love (Original Mix)
-04. Maxdal - Unstoppable (Original Mix) (feat. B.(   Читать дальше...   )Жанр: Tech House, HouseПродолжительность: 02:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:108992E3E2732F9024DCD551653D614A7B817730
 ```
 
 

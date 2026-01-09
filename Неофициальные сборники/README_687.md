@@ -1,3 +1,30 @@
+###  Публикация: 1606998   (1044252) от 24.01.2023
+
+VA - Simply Dance Vol. 06 (2022) [MP3|320 Kbps] <Europop, Dance, Club, Progressive>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Greenhouse - Feelin' Higher
+02. NAAC - Level Up
+03. Tatloo - Michael Giri
+04. Manjula Bangur - Haldi Ka Rang(   Читать дальше...   )Жанр: Europop, Dance, Club, ProgressiveПродолжительность: 01:28:24 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398E20DB31B12E77425E81A2CCE9ABE1F4DDF0B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606484   (1044373) от 22.01.2023
 
 VA - Classic Rock (2023) [MP3|320 Kbps] <Rock>
@@ -668,33 +695,6 @@ VA - Suflower Reggae (2023) [MP3|320 Kbps] <Reggae, Dub, Riddim>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05C58E61586408C9DE4E616F6F778E505D2759E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603468   (1045740) от 09.01.2023
-
-VA - Day In Hits 2023 Genres Navigator (2023) [MP3|320 Kbps] <Electro House, Techno, Afrobeat, Reggaeton>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wooddrowe - Sky Meet
-02. Oliver Tree & Robin Schulz - Miss You (GESES Remix) (Dirty)
-03. Wooddrowe - Sky Meet (Radio Edit)
-04. Route 94 feat. Jess Glynne vs. David Guetta & MORTEN - My Love (Rye & Josh Stylez 'Element' Edit)(   Читать дальше...   )Жанр: Electro House, Techno, Afrobeat, ReggaetonПродолжительность: 02:13:21 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F7BE2E1C837B022E73FC93AB59943987650D5E4
 ```
 
 

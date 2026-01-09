@@ -1,3 +1,30 @@
+###  Публикация: 1439748   (1039513) от 14.01.2021
+
+VA - National Pop Dance Music Vol.10 (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039513.jpg" />
+</div>
+
+
+###  Подробнее
+
+У каждого меломана есть свой личный плейлист самых любимых музыкальных композиций, которые не надоедают спустя годы и всегда звучат по-новому. И сегодня пополнить этот список представляется возможным еще больше, с 10-м выпуском сборника популярной музыки под названием "National Pop Dance Music".001. Heavy-K - Sele Sele
+002. Dj Space'c - Water Me
+003. Doubl3 Mask - Let You Go (Radio Edit)
+004. Ravi, Yeri - Sorrow(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91B53E1AA7C8AA5D1E075CFA11825DF9DFD6457C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438640   (1040468) от 10.01.2021
 
 VA - Русское Радио. Лучшее '2020 (2021) MP3 от DON Music [MP3|320 Kbps] <Поп>
@@ -614,6 +641,60 @@ VA - Свежий Русский Хит от ALEXnROCK часть 19 (2025) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6B44FC8727A10CC14D1B11D3D1B91F542E0CFE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846021   (1051027) от 
+
+VA - Зима на Love Radio (2026) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lyriq - Oh My Love (2:56)
+02. Katy Perry - bandaids (3:08)
+03. Полина Гагарина - Полина (3:30)
+04. Taylor Swift - The Fate of Ophelia (3:46)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1EAEDF5D3EF8947CC043E76063A6CD671428A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846746   (1051647) от 
+
+VA - Лучшие песни Love Radio за 2025 год (2026) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051647.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Лазарев - Тут или Там (3:24)
+002. Marshall Jefferson feat. Maesic & Salome Das - Life Is Simple (Move Your Body) (2:52)
+003. KATSEYE - Gabriela (3:17)
+004. Coldplay feat. Little Simz & Burna Boy & Elyanna & Martina Stoessel - We Pray (Tini Version) (3:53)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A9E932DDA13AE6D03882002BF0DE01585F36C5
 ```
 
 

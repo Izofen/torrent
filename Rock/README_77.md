@@ -1,3 +1,57 @@
+###  Публикация: 1208182   (780076) от 21.02.2018
+
+Stefan Kaiser - Dreaming in Pink Floyd (2018) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The third eye
+02. After the storm
+03. Prism part1
+04. Unique days(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08C500B994417BD9E2C760B06A289D48B9294D90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208142   (780104) от 21.02.2018
+
+Dizzy Reed - Rock 'N Roll Ain't Easy (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  This Don't Look Like Vegas (4:02)
+02.  Mother Theresa (4:45)
+03.  Cheers 2 R Oblivion (3:56)
+04.  Fragile Water (4:13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5585A27B301A004433FA00C704FCFC29FE864FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207510   (780574) от 18.02.2018
 
 Pop Evil - Lipstick on the Mirror (2008) Universal Republic Records, Pazzo Music, Jard Star [MP3|320 Kbps] <Rock, Hard Rock>
@@ -653,66 +707,6 @@ Hudson-Ford - Nickelodeon (1973) Reissue, 2015, Big Pink [MP3|320 Kbps] <Soft Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7EC4E4B682329DC9C374597229570B9EC415638
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199273   (782776) от 10.05.2010
-
-Shocking Blue - 2 Compilations & 1 Remastered (Japan Album) (1973-2008) [MP3|320 kbps]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год: 1973-2008Жанр: Classic RockПродолжительность: 01:17:34
-
-01 | Roll Engine Roll | 03:18
-02 | I Boll Weevil | 02:42
-03 | Pickin' Tomatoes | 03:22
-04 | Waterloo | 03:26
-05 | Harley Davidson | 02:40
-06 | Love Machine | 03:21
-07 | Fireball of Love | 03:02
-08 | Hot Sand | 02:40(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390440   (783107) от 15.06.2020
-
-Disheveled Cuss - Disheveled Cuss (2020) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Generic Song About You (04:21)
- 02. She Don't Want (02:26)
- 03. Wanna Be My Friend (04:09)
- 04. Nu Complication (02:51)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C87E85CCE5FFDF6CFDD9FD6A429A4601FFD98EA
 ```
 
 

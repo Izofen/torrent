@@ -1,3 +1,57 @@
+###  Публикация: 1394410   (763755) от 05.07.2020
+
+The Wolfhounds - Electric Music (2020) [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763755.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cant' See The Light (album version) (04:56)
+ 2. Like Driftwood (04:41)
+ 3. Song Of The Afghan Shopkeeper (after Ben Judah) (04:25)
+ 4. Lightning's Going To Strike Again (05:46)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A81480A22DEDF8E3671307A1A0DC6CCF999A28BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279946   (764305) от 31.01.2019
+
+Metallica - Helping Hands... Live & Acoustic at The Masonic (2019) [MP3|320 Kbps] <Rock, Acoustic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disposable Heroes
+02. When A Blind Man Cries
+03. The Unforgiven
+04. Please Don’t Judas Me(   Читать дальше...   )Жанр: Rock, Acoustic RockПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394ED89562C48F4BFA9805193B4C9E9AE247E44F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279779   (764549) от 31.01.2019
 
 Inkubus Sukkubus - Belladonna & Aconite (1993) Reissue, Remastered, 2011, Resurrection Records [MP3|320 Kbps] <Pagan Rock, Gothic Rock>
@@ -641,60 +695,6 @@ Exmagician - Scan The Blue (2016) [MP3|320 кб/с] <Psychedelic Rock, Psychedel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8868B318828AAFC7AA98302B98AE27E8EDF9525F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278388   (771711) от 25.01.2019
-
-Santana - In Search of Mona Lisa (2019) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771711.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Do You Remember Me
-2. In Search Of Mona Lisa
-3. Lovers From Another Time
-4. Do You Remember Me (Edit Version)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA5C7B4C00333647A3D5103F47F0D7332751283
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125255   (772099) от 14.04.2017
-
-The Headlines - In The End (2017) [MP3|320 Kbps] <Rock, Punkrock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the End (02:15)
-02. Still Alive (03:01)
-03. Upstarts (02:44)
-04. When the Lights Go Out (03:35)(   Читать дальше...   )Жанр: Rock, PunkrockПродолжительность: 00:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59E29C759763E0EB63678D35BCFF511697B9D5A
 ```
 
 

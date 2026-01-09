@@ -1,3 +1,87 @@
+###  Публикация: 1007732   (819161) от 16.04.2016
+
+The Florestan Trio - Schubert. Piano Trio No 2 In E Flat Major, D929 (2002) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Piano Trio No. 2 in E flat major, D929: 1. Allegro  15:43
+02.  Piano Trio No. 2 in E flat major, D929: 2. Andante con moto  8:34
+03.  Piano Trio No. 2 in E flat major, D929: 3. Scherzo: Allegro moderato  6:19
+04.  Piano Trio No. 2 in E flat major, D929: 4A. Finale: Allegro moderato (Final version)  12:57(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:58:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123B84395BC0CB8B1582EDA38D08D3D5FC75DB9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007827   (819312) от 16.04.2016
+
+Alfred Schnittke - Concerto Grosso no. 4 = Symphony no. 5, Pianissimo (Jarvi - Gothenburg SO) (1988) [FLAC|Lossless|tracks] <Classical, Symphony, Concerto>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto Grosso no. 4 = Symphony no. 5, 1988
+01 (1) Allegro
+02 (2) Allegretto
+03 (3) [3.1- Lento; 3.2- Allegro](   Читать дальше...   )Жанр: Classical, Symphony, ConcertoПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99831B0DA777CA943179BA8CB7197DEA69BE8461
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 880887   (820472) от 27.03.2015
+
+Arnold Schoenberg - Gurrelieder [2 SACDs] (2007) [DSD 5.1, 2.0 1bit/2822,4kHz | SACD-R] [FLAC|Lossless]<Classical - Vocal>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kомпозитор: Шёнберг Арнольд Франц Вальтер (1874-1951)
+Дирижер: Гилен Михель
+Исполнитель: Дин Смит Роберт, тенор ~ Динер Мелани, сопрано ~ Лукас Ралф, баритон ~ Неф Ивонн, меццо ~ Шмидт Андреас, баритон ~ Зигель Герхард, тенор
+Ансамбль: Хор Баварского радио ~ Хор Лейпцигского радио ~ Симфонический оркестр Юго-Западного радио Германии(   Читать дальше...   )Schoenberg: Gurre-Lieder
+Disc 1:
+Gurre-Lieder: Part I
+01. Orchestral Prelude (6:24)(   Читать дальше...   )Жанр: Classical - VocalПродолжительность: 02:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6196C6EB15FF3A72B68145630DE42D361674AF0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196603   (820518) от 04.01.2018
 
 New London Chorale - The Classic Christmas Collection (1998) [MP3|320 Kbps] <Сrossover Classical>
@@ -626,87 +710,6 @@ magnet:?xt=urn:btih:92BB29F3FF0330578EB35414DA760FC9B79F5EAA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FED2710CB9FBDBC6A627774D99370139615538A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379932   (833164) от 03.05.2020
-
-Chad Lawson - Home Sweet Home: The 2018 Lore Variations (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Home Sweet Home (6:25)
- 02. Knock, Knock (1:42)
- 03. The Good Neighbor (5:26)
- 04. A Visit Not Worthy of Attention (8:00)(   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 00:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28BEBD75AE7F4CBD00C232DB0257D9AC3907724
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114338   (833297) от 14.03.2017
-
-Luciano Pavarotti - Los Mayores Tenor Vivo en el Escenario (Live) (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ah, inseparabile ... E'Il sol dell'anima
-02. Un di, se ben rammentomi ... Bella figlia dell'amor
-03. Lunga da lei ... Dei miei bollenti spirit
-04. Che gelida manina(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D282533420B34312269191C6461729BBFDEDAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501276   (833639) от 11.10.2021
-
-VA - Beautiful Piano (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lang Lang - Suite bergamasque, L. 75: 3. Clair de lune (06:47)
-02. Yiruma - Berrylands Rd. (03:43)
-03. Stephan Moccio - Le Temps Qui Passe (03:27)
-04. Sophie Hutchings - Your Heart (05:23)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70CF81984E73841686D6C935483FE86926F58640
 ```
 
 

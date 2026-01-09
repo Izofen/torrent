@@ -1,3 +1,30 @@
+###  Публикация: 1089302   (951924) от 03.01.2017
+
+VA - Fun Disco House: Gross Funk Party (2017) [MP3|320 Kbps] <Nu Disco, Funky House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951924.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mazelo Nostra - Boogie Nights 5:03
+002. Off Da Hook - Journey To Paradise (Johan S Vocal Mix) 8:10
+003. The Boogeyman - All Music To Me (Original Mix) 8:32
+004. Drone In Ibiza - Back In That Days - Original Mix 6:09(   Читать дальше...   )Жанр: Nu Disco, Funky House, ElectroПродолжительность: 11:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:314EA4B6E6DDFE7DBB86622EF015603A550BBB8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089369   (951928) от 03.01.2017
 
 VA - Empire Records - Chill Out 6 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -668,33 +695,6 @@ VA - Зимние мега хиты. Версия 50/50 (2016) [MP3|256 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A511C556F283F8199A9C3E597FBB0C861C63639A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088908   (953739) от 02.01.2017
-
-VA - On The Wave Of My Memory: Hit 70-80s (2016) [MP3|320 Kbps] <Pop Rock, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953739.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Abc - Poison Arrow (Jazz Remix) 6:55
-002. Alphaville - Sounds Like A Melody (Special Long Version) 7:43
-003. Cock Robin - The Promise You Made (Extended Version) 6:34
-004. Cyndi Lauper - Girls Just Want To Have Fun (Extended Version) 6:03(   Читать дальше...   )Жанр: Pop Rock, ElectronicПродолжительность: 14:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2FA5336CA1CE2DA86893410BFE5C7CD9008F3E4
 ```
 
 

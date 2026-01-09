@@ -1,3 +1,30 @@
+###  Публикация: 1474718   (1012890) от 03.06.2021
+
+Matia Bazar - The Best Platinum Collection(18 Successi Originali) (2007) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stasera Che Sera (3:23)
+02. Per Un'Ora D'Amore (3:59)
+03. Cavallo Bianco (4:57)
+04. Ma Perche' (3:25)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF27F4033AF25894D1C56352B5E9589A467D04C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474128   (1013222) от 01.06.2021
 
 VA - Fresh Pop Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB>
@@ -669,33 +696,6 @@ Madonna - What It Feels Like For A Girl (2000) Reissue, 2021,  Rhino Records, Wa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:523981509925CB032313036776EA08AE26CCD8C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462534   (1021002) от 15.04.2021
-
-Taylor Swift - Fearless (Taylor's Version) (2008) 2CD / Target Exclusive / 2021 [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, & Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fearless (04:02)
-02. Fifteen (04:54)
-03. Love Story (03:56)
-04. Hey Stephen (04:14)(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 01:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85079D5BC4BB75110FB03B3680DC5C8A5733CCF7
 ```
 
 

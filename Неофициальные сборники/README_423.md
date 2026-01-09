@@ -1,3 +1,30 @@
+###  Публикация: 1290496   (678238) от 20.03.2019
+
+VA - YR Best Chillout Vol.38 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ATB - Feel Like Me (R.I.B & Soty Chillout Version) 1:35
+02. FATE - Black Magic (Original Mix) 3:00
+03. Katy Perry - Rise (Acoustic Version) (Ali Brustofski Сover) 3:16
+04. Ana Criado - Vulnerable (Nowhere To Hide) (Mark Otten Downtempo Remix) 5:02(   Читать дальше...   )Жанр: Chillout, Downtempo, Lounge, Trap, AmbientПродолжительность: 06:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:323DA300B372035F1942E7ADFC8715397C37696B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290596   (678252) от 20.03.2019
 
 VA - Running Workout 2019 [MP3|320 Kbps] <House, Dance>
@@ -669,33 +696,6 @@ VA - Dance Super Chart Vol.74 (2016) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67EBAEEA7544ACB0FC84C53BD635E88B5AB27FAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029504   (678605) от 28.06.2016
-
-VA - DJ World Places Miracle (2016) [MP3|320 кб/с] <Funky, Disco, Electronica, Tropical, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dustin Mccoi - What You Want (Dayne S Remix) 06:21
-02. Dimaro - Summer (Original Mix) 04:22
-03. Djerem - Never Look Back (Dave202 Remix) 04:40
-04. Dim Sum - High Love (Original Mix) 03:56(   Читать дальше...   )Жанр: Electronic, Disco, ClubПродолжительность: 09:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C06CDD47EB35BE2C04452592AF1749F35958B31
 ```
 
 

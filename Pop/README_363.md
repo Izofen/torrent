@@ -1,3 +1,246 @@
+###  Публикация: 1611665   (1040801) от 13.02.2023
+
+VA - I Singoli di Sanremo 2023 (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elodie - Due
+02. Ultimo - Alba
+03. Colapesce Di martino - Splash
+04. Lazza - Cenere(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E68FE84CFDCE992FADCE51A3950581038FB1C1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611457   (1040865) от 13.02.2023
+
+Tennis - Pollen (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forbidden Doors (3:54)
+02. Glorietta (4:01)
+03. Let's Make a Mistake Tonight (4:14)
+04. One Night with the Valet (1:53)(   Читать дальше...   )Жанр: Indie Pop, Indie RockПродолжительность: 00:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B063F424B76B088B8F826BE42D8BCC298BE1AC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438624   (1040886) от 09.01.2021
+
+VA - Gym Motivation Mix (2021) Explicit [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Griff - Forgive Myself (Jayda G Remix) (04:32)
+02. Tones and I - Fly Away (02:58)
+03. THAT KIND - Dreams (03:48)
+04. Dua Lipa - Break My Heart (Moodymann Remix) (05:52)(   Читать дальше...   )Жанр: PopПродолжительность: 02:07:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E27EE4ABA705371DF61D6A1C2D4F7142A526F799
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438581   (1040890) от 09.01.2021
+
+VA - Italian Classics (1998) 2CD [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alice - Per Elisa
+02. Alan Sorrenti - Tu Sei L'unica Donna Per Me
+03. Antonello Venditti - Buona Domenica
+04. Toto Cutugno - Soli(   Читать дальше...   )Жанр: PoрПродолжительность: 02:27:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E93EB4C1DC8DA26360474A5EC88B0BBE7717CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611635   (1041040) от 12.02.2023
+
+Secret Service - Secret Mission (2022) [FLAC|Lossless|image + .cue] <Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Mission 3:33
+02. How Can I Get Over You 4:05
+03. You Stole My Heart 3:43
+04. Jane 3:09(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4274F49CA4DF9CAA2984ED68C70BF435B58F40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438369   (1041069) от 08.01.2021
+
+VA - 80s Love Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spandau Ballet - True (Single Edit) (05:29)
+02. Chicago - Hard to Say I'm Sorry (2007 Remaster) (03:41)
+03. Foreigner - Waiting for a Girl like You (04:49)
+04. Debbie Gibson - Lost in Your Eyes (03:33)(   Читать дальше...   )Жанр: PopПродолжительность: 01:35:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27EDFF57D74DD1856B62F907E2B7C1EA1FECC00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438472   (1041075) от 08.01.2021
+
+D. White - How Are You? (2020) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyber World (5:27)
+02. La-La-La (7:01)
+03. Don't Be Shy (5:27)
+04. Faster (7:34)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:16:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C525BBD5C1119FE037172488D480E9993E7572F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438387   (1041076) от 08.01.2021
+
+Barry Gibb & Friends - Greenfields: The Gibb Brothers' Songbook (Vol. 1) (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I’ve Gotta Get A Message To You (feat. Keith Urban)
+02. Words Of A Fool (feat. Jason Isbell)
+03. Run To Me (feat. Brandi Carlile)
+04. Too Much Heaven (feat. Alison Krauss)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D585CC806C484F475089EB926DB3DAF848558529
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611667   (1041126) от 12.02.2023
+
+Валерия - 16 Альбомов (1992-2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Океаны
+02. Ничего личного
+03. Можно я побуду счастливой?
+04. С такими, как ты(   Читать дальше...   )Жанр: PopПродолжительность: 14:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39271EB40CED4E5889980E07AD235C69491C7EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438466   (1041146) от 08.01.2021
 
 Seemone - Seemone (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Vocal, Instrumental>
@@ -453,249 +696,6 @@ The J. Geils Band - Freeze Frame (серия "Другие восьмидеся�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78A967A2142F4AF3133800D316D612DE8441E162
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437213   (1042503) от 03.01.2021
-
-Группа «Экспресс» - Застольные песни, часть 2 (2020) [MP3|320 Kbps] <Pop, Folk>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042503.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Выйду на улицу
-2. Марусенька
-3. Верила, верила, верю
-4. Милый мой дедочек(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:907F4B5E1AF427A4F6446186AEEADC5E6347B224
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437106   (1042535) от 03.01.2021
-
-VA - From Sweden With Love - The Next Generation (2006) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Knife / Silent Shout 04:53
-02. Peter Bjorn and John / Young Folks 04:39
-03. Vapnet / Färjemansleden 03:35
-04. Timo Räisänen / Let's Kill Ourselves a Son 03:15(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE62E4DC44BAACFF6CBCE60A359D3901C3841F57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437002   (1042555) от 03.01.2021
-
-Karizma Duo - Late Night Karizma (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sail On (4:03)
-02. Dream a Little Dream of Me (3:14)
-03. Feel (3:15)
-04. Mandy (2:50)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A9C20263B498DDA335B04A93872C9D5C8FDFB60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609969   (1042856) от 05.02.2023
-
-Chilly - Devils Dance (1983) 2023 Reissue, Remastered, Unofficial [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devils Dance
-02. One Moment One Second
-03. Love On The Rebound
-04. Peep Peep(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:832898A3436C54DA7F7C8E77C85C6DA7416DE163
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609818   (1042859) от 05.02.2023
-
-VA - Romantic Collection. Volume 3 (1997) [OGG Vorbis|480 Kbps] <Pop Rock, Swing, Blues Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beatles — Yesterday
-02. The Platters — Only You
-03. Lois Armstrong — Go Down Moses
-04. Frank Sinatra — Stranges In The Night(   Читать дальше...   )Жанр: Pop Rock, Swing, Blues RockПродолжительность: 01:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6B5B88A948D89085D94500A19B024CD07E3E8E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610046   (1042868) от 05.02.2023
-
-VA - Romantic Collection. Golden (1995) [OGG Vorbis|480 Kbps] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Just Called To Say I Love You
-02. Don't Stop The Dance
-03. Shape Of My Heart
-04. Blessed(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 02:24:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD76047B251E8E250C35E77C4BBD7DA742121861
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610065   (1042899) от 05.02.2023
-
-Bryan Adams - Cuts Like A Knife - 40th Anniversary, Live From The Royal Albert Hall (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Only One (Live at The Royal Albert Hall) [00:03:00]
-02. Take Me Back (Live at The Royal Albert Hall) [00:04:20]
-03. This Time (Live at The Royal Albert Hall) [00:03:23]
-04. I'm Ready (Live At The Royal Albert Hall) [00:04:02](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144F9DAB9A630E425CB4C96F34D8A20E82D2A6D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609612   (1043144) от 04.02.2023
-
-VA - timeless pop songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duran Duran - Girls on Film (2010 Remaster) (3:32)
-02. James Blunt - You're Beautiful (3:29)
-03. Bruno Mars - Just the Way You Are (3:40)
-04. Ava Max - Kings & Queens (2:42)(   Читать дальше...   )Жанр: PopПродолжительность: 02:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F06A75D6A00FE3944E9F6679753C97B53215F58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609766   (1043151) от 04.02.2023
-
-VA - Ciao Italia (1997) 3CD Box Set (1997) [MP3|320 Kbps] <Рор>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adriano Celentano - Azzurro
-02. Lucio Battisti - Emozioni
-03. Ricchi E Poveri - M'Innamoro Di Te
-04. Patty Pravo - Pazza Idea(   Читать дальше...   )Жанр: Рор
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D091D9F48D34FB9F9767BE5343438CB163A451A6
 ```
 
 

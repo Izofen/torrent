@@ -1,3 +1,246 @@
+###  Публикация: 906976   (641476) от 10.06.2015
+
+Rick Astley - The Best Of (2014) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Gonna Give You Up
+02. Whenever You Need Somebody (Radio Edit)
+03. When I Fall In Love
+04. My Arms Keep Missing You(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F17E5BFE9E8F2A58FB70424974BB96AB8956A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905846   (641520) от 10.06.2015
+
+Tom Jones - Delilah (2015) [FLAC|tracks+.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delilah
+02. Help Yourself
+03. She's A Lady
+04. What's New Pussycat(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F6BAAF62C249BD93E450365DE54E004D516E44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907016   (641619) от 10.06.2015
+
+Юлия Ковальчук - JK2015 (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В дым...
+02. Стать чужими
+03. В заметки
+04. Шоколад(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F2FB87FE8B018F19F4A4300CA3706A2D3D13BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906303   (641623) от 10.06.2015
+
+The Supremes - At The Copa: Expanded Edition (2012) 2CD [FLAC|Lossless]<Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641623.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+ORIGINAL STEREO LP (1965)
+1. Opening Introduction
+2. Put On A Happy Face(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 02:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56DFA77C95BBBED1FCAC309C38D00816C5E7CCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905800   (641698) от 10.06.2015
+
+Ульяна КаракоZ - New Angels (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Angels
+ 02. Каждый по себе
+ 03. Стефаниада
+ 04. Русалка(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94B7196C858F2246EE305EA03CA6A3381677887B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906877   (641699) от 10.06.2015
+
+QED - Animal Magic (1984) [OGG|475-526 кб/с]<Electronic, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Solo And More	03:30
+02.	Sayonara	04:26
+03.	Barbie Doll	04:45
+04.	This One	03:51(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C3EE94D1B5FC4FE0CF74BEC79E8DA64DC534D8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032730   (641902) от 09.07.2016
+
+Shura - Nothing's Real (2016) [FLAC|Lossless|WEB-DL|tracks] <80's Synthpop, Indietronica, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (i)
+02. Nothing's Real
+03. What's It Gonna Be?
+04. Touch(   Читать дальше...   )Жанр: 80's Synthpop, Indietronica, Female VocalПродолжительность: 00:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E1AC73824F65761388CF6A79EBA771DF78AFA2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032812   (641903) от 09.07.2016
+
+Русский стилль - Ты позови меня... (2012) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Снег во дворе [04:46]
+02. А в саду ромашки [04:20]
+03. Уезжаешь [04:38]
+04. Ты позови меня (с Олегом Пахомовым) [03:50](   Читать дальше...   )Жанр: PopПродолжительность: 01:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0D240ED1CF4B84475948A955795A82BCC4F00A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032876   (641915) от 09.07.2016
+
+Shura - Nothing's Real (2016) [MP3|320 Kbps] <80's Synthpop, Indietronica, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (i)
+02. Nothing's Real
+03. What's It Gonna Be?
+04. Touch(   Читать дальше...   )Жанр: 80's Synthpop, Indietronica, Female VocalПродолжительность: 00:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:953E409F6C8E32B9D47F37D390ECC68A55ABE5B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032923   (642109) от 09.07.2016
 
 Cristina - Contremano (1982) [MP3|320 Kbps] <Electronic, Pop, Italo-pop>
@@ -458,249 +701,6 @@ Loretta - The Stars My Destination (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC6C4C71C745376F77C28428A193FD1C5DAB3A32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032415   (643557) от 08.07.2016
-
-Люди встречаются - Люди встречаются (2016) [MP3|320 Kbps] <Pop, Retro>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лето (04:23)
-02. Белка в колесе (03:37)
-03. Чернобровая дивчина (04:12)
-04. Лагуна (04:09)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:782C1FB3CF55ADA4AABD688159DC7F76E66BA56D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906630   (643570) от 09.06.2015
-
-Tove Styrke - Kiddo (2015) [OGG|489-534 кб/с]<Electropop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Got No... (03:52)
-02. Snaren (03:01)
-03. Ego (03:48)
-04. Samurai Boy (03:27)(   Читать дальше...   )Жанр: ElectropopПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:056DBC37F83459CFCF7F3C2C60E893BD341DB62E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032649   (643685) от 08.07.2016
-
-Алла Горбачёва - Я приду! (1997) [FLAC|Lossless|image + .cue] <pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Где-то рядом (4:10)
-02. Прощай (4:04)
-03. Напиши (3:59)
-04. Зовущая любовь (3:55)(   Читать дальше...   )Жанр: popПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:445578D4E1C3C4AC229B100950F7BEC508E4B84D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032508   (643691) от 08.07.2016
-
-VA - Disco 2.0 - Fever's Risin' Again (2016) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'Imperatrice - La Lune (3:13)
-02. Bon Voyage Organisation - Shenzhen V (5:57)
-03. Marvin & Guy - Makin' Love (9:13)
-04. Monika - Secret In The Dark (The Juan MacLean edit) (6:28)(   Читать дальше...   )Производство: WeWantSoundsЖанр: Disco, Nu-DiscoПродолжительность: 01:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9DC5FD5970380CEC43EDFCB0970AE55A303AD47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032774   (643911) от 08.07.2016
-
-G.G. Tonet - Why (1980) [MP3|320 Kbps] <Electronic, Experimental, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1947 (5:12)
-02. Dedicated To Norbert Wiener (5:35)
-03. Marketing (5:02)
-04. Total Time (3:52)(   Читать дальше...   )Жанр: Electronic, Experimental, DiscoПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A03B26CD68D6B546FA9569023AD4784C0D1B595D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141594   (644355) от 13.06.2017
-
-London Grammar - Truth Is A Beautiful Thing (2017) Deluxe [FLAC|Lossless|tracks] <Indie-Pop, Alternative>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rooting for You [04:29]
-02. Big Picture [04:41]
-03. Wild Eyed [04:28]
-04. Oh Woman Oh Man [04:37](   Читать дальше...   )Жанр: Indie-Pop, AlternativeПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50507A91EC85B22AE476ED62EB2C4499B111B9CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292557   (644459) от 30.03.2019
-
-Billie Eilish - When We All Fall Asleep, Where Do We Go? (2019) [FLAC|Lossless|tracks + .cue] <Pop, Alternative, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. !!!!!!! (00:13)
-02. Bad Guy (03:14)
-03. Xanny (04:03)
-04. You Should See Me in a Crown (03:00)(   Читать дальше...   )Жанр: Pop, Alternative, ElectronicПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44694ED7AFA2EFB3836629DAB6C74C11C5CABAB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142238   (644595) от 13.06.2017
-
-VA - InAkustik Reference Sound Edition: Great Cover Versions (HQCD) (2013) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644595.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:20] 01. Chris Farlowe & The Thunderbirds - All the Way Lover
-[4:13] 02. Friend N Fellow - Here Comes the Rain Again
-[4:42] 03. Sophie B. Hawkins - Damn I Wish I Was Your Lover (Acoustic)
-[5:31] 04. Chris Thompson - Davy's on the Road Again(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D950C6257F9AB71FDF9B2430FEE194AEFA5A71A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292596   (644691) от 30.03.2019
-
-VA – Ваши любимые песни... (2001) [FLAC|Lossless|image + .cue]<Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В. Легкоступова - Чардаш
-02. В. Толкунова - Носики-курносики
-03. Виа Сябры - Лягу прилягу
-04. Г. Великанова - Ландыши(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76B847F7105DA4B426E62183062C5E6FEA6BF57F
 ```
 
 

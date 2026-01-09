@@ -1,3 +1,165 @@
+###  Публикация: 997613   (873764) от 17.03.2016
+
+Pet Shop Boys - The Pop Kids (Remixes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Pop Kids (Offer Nissim Drama Mix) (06:30)
+02. The Pop Kids (MK Dub Radio Edit) (03:35)
+03. The Pop Kids (PSB Deep Dub Radio Edit) (03:17)
+04. The Pop Kids (MK Dub) (07:18)Жанр: Progressive House, Electro HouseПродолжительность: 00:20:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133D09C4277A7376E519EBFEF0AD33992EE55934
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997673   (873768) от 17.03.2016
+
+Who Ha - Synthwave Belongs In A Museum (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Retro Synth, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Synthwave Belongs In A Museum
+02. Magenta Teal Desert Cruise
+03. Cool Teenage High School Jacket
+04. Concordia Station(   Читать дальше...   )Жанр: Retro Synth, SynthwaveПродолжительность: 00:26:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF9FA573B8C8F29A588C1B5F3C23D4416DDEBA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106503   (873823) от 19.02.2017
+
+Forrest Fang - Following The Ether Sun (2017) [MP3|320 Kbps] <Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Edge Of A Moment 7:38
+02. Midnight Rain 7:58
+03. Chiaroscuro 7:36
+04. The Last Technicolor Dream 10:23(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:12:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99ACD1FA8ABDBBE4B87DDDD24241FCEDF086677E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106188   (873826) от 19.02.2017
+
+VA - Cruise & Chill Vol.1 (Summer Lounge Tunes) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tom Strobe - Love Makes Me Sad  2:50
+02.  Marga Sol - Children  6:42
+03.  Submersion - My Little Beach (Original Chillout Mix)  5:18
+04.  Denis Neve - Vq  4:00(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:28:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5181BC973CCE604002DBF8D7AA22B4E4236244
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997437   (873905) от 17.03.2016
+
+VA - Mindfulness Answer Chilltime (Lounge Selection) (2016) [MP3|320 кб/с] <Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady White - Let Me Try (Ripping Mix) (03:32)
+02. Chad - Wall Sitar (Short Melodi Mix) (03:22)
+03. Sangar - Love Again (Radio Version) (03:06)
+04. Mark Down - Right Control (Ibiza Cut Mix) (03:10)(   Читать дальше...   )Производство: CleverlandЖанр: Lounge, Chill OutПродолжительность: 00:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC6016AFB95573968F5FCCEA072202AEC2A181EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374215   (874312) от 09.04.2020
+
+Andrea - Ritorno (2020) Ilian Tape [FLAC 2.0|44.1/24|tracks|WEB-DL] <Breakbeat, Ambient, IDM, Downtempo>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Attimo (04:44)
+ 02. SKYLN (04:54)
+ 03. LS September (05:13)
+ 04. TrackQY (06:13)(   Читать дальше...   )Жанр: Breakbeat, Ambient, IDM, DowntempoПродолжительность: 00:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED406E89A68094026FEBF53DB339B2774209DBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371496   (874571) от 09.04.2020
 
 Brainwaltzera - Discography 14 Releases (2016-2020) Analogical Force, Film, Furthur Electronix [FLAC|Lossless|tracks] <IDM, Electro, Techno, Experimental>
@@ -531,168 +693,6 @@ Amtrac - Oddyssey (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro, Deep House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49C772578124CD08DC2DCB5A3F0BBA0DF654A525
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996956   (877318) от 15.03.2016
-
-VA - Ultra Music Festival 2016 (2016) Compilation [FLAC|Lossless|tracks] <Progressive House, Electro House, EDM>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Kygo Ft Maty Noyes - Stay [3:59]
-02.Carnage Ft Tomas Barfod & Nina Kinert - November Skies (Radio Edit) [3:22]
-03.Deorro Ft I-Ez - Haters [4:08]
-04.Louis The Child Ft K.Flay - It's Strange [4:06](   Читать дальше...   )Жанр: Progressive House, Electro House, EDMПродолжительность: 00:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A398DE00C298FCA231A7942346609578EEC8B2C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495787   (877449) от 14.09.2021
-
-Turboslash - Speed (2020) [MP3|320 Kbps] <Synthwave, Retrowave, Darksynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far Away (3:43)
-02. MEGADRIVE Overdose (3:36)
-03. RoadRage (3:32)
-04. GodMode Domination (3:48)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DarksynthПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A2135698760E51E0D48E5AAAF3E8FBCB5EFCC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495806   (877453) от 14.09.2021
-
-Eekkoo - The 4th Season (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change (5:15)
- 02. The Game (ft. Deji Siegert) (3:14)
- 03. Barefoot (5:24)
- 04. Falling (ft. Graham Baxter) (6:49)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B450E415689C00941AC996D173768C7F07482D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104692   (877547) от 16.02.2017
-
-Depeche Mode - Greatest Hits. Volume 1,2 (2009) Compilation, 4CD [FLAC|Lossless|image + .cue] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stripped (4:19)
- 02. Behind The Wheel (Remix) (4:04)
- 03. A Question Of Time (4:11)
- 04. Strangelove (3:49)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 05:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E6D2BDD0286342F83EA2B2CF0BB6BCBD88A01EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996955   (877658) от 15.03.2016
-
-Astropilot & Friends - Soul Surfers (2016) [MP3|320 кб/с] <Psybient, Downtempo, Ambient, Progressive Trance>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AstroPilot - The Bliss Of Now
-02. AstroPilot and Lab's Cloud - Numen
-03. AstroPilot and Suduaya - Soul Surfers
-04. AstroPilot and Trylon - Entering Godmode(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 01:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D51AB74B018753C4A7C6B6F11BEF1809FEAD8202
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995934   (877664) от 15.03.2016
-
-VA -  Drumsterdam (2016) [MP3|320 кб/с] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Signal - 8 Levels
-02. ChaseR - Obsession
-03. Deezibel - Diesel Power
-04. Deone - Feelin Good(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB8878F213AF894C01EAE8105C15550926F44C9E
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1211481   (777277) от 08.03.2018
+
+VA - Spring 2018 Collection (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Magda Shortankard  -  Raiders (Original Mix)  4:43
+02.  Bob Angetti  -  Eclipse Serenade (Original Mix)  5:19
+03.  Alonso Di Uomo  -  Caracas (Original Mix)  4:33
+04.  Durga Amata  -  Night Arrows (Original Mix)  5:07(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0FDC010D8BFC8939B3752BAA08D18C0C699CFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211463   (777279) от 08.03.2018
+
+VA - Individual Collection Vol.2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Stevems  -  Throught A Temporary Love (Original Mix)  4:20
+02.  InWinter  -  I Miss You (Original Mix)  8:20
+03.  InWinter  -  The Sea Of Paper Ships (Original Mix)  8:14
+04.  Andrew Gate  -  Flight To Infinity (Original Mix)  6:53(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:23:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29134893615E10FCA1B9BC82074724CA004D69E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211477   (777280) от 08.03.2018
+
+VA - Spatium Options Vol.01 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Seven24  -  Snow (Original Mix)  3:40
+02.  Random J  -  A Strange Dream (Original Mix)  2:45
+03.  Soty  -  Butterflies (Original Mix)  4:17
+04.  Der Luchs  -  Courtney Jines (Original Mix)  4:31(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33A28C7899CC395969B837F7B022E8D4062B875
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211526   (777282) от 08.03.2018
+
+VA - Progressive Trance Vol.2 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer feat. Christina Novelli  -  Fireflies (Original Mix)  3:58
+02.  LTN  -  Wind & Cloud (Extended Mix)  6:53
+03.  Weared  -  Coliseum (Extended Mix)  5:40
+04.  Adip Kiyoi & VIKA  -  Soul In The Dark (Extended Mix)  5:25(   Читать дальше...   )Жанр: TranceПродолжительность: 01:28:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075C9957E2A8B74F03812A04A1F44515F2AA8888
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013383   (777296) от 05.05.2016
+
+VA - Relax 2 Sax - Sensual Background Jazz Lounge Music for Perfect Chill Out (2015) [MP3|320 кб/с] <Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazzadelic - Bridge to the Devine - Golden Sunset Mix
+02. Unisax - Living on the Inside - Cool and Smooth Mix
+03. Bent Over - Salamander - Groovy Obsession Mix
+04. Perelandra - The Lights of a Distant Bay - Smooth Jazzy Bar Mix(   Читать дальше...   )Жанр: LoungeПродолжительность: 01:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BDD9DFF4BEB1617DE59F768FC0393B30A8C82AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013232   (777335) от 05.05.2016
+
+VA - Ibiza Techhouse Weekend Session (2016) [MP3|320 кб/с] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Self Explanatory - Backwater
+02. Unexpected Marvel - The Search
+03. Spiced Boogie - Another Way
+04. Riffle Shuffle - Warning Function(   Читать дальше...   )Жанр: HouseПродолжительность: 02:18:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A5BBD0B5DA40C372B09B6CAE04007E147FC6AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013869   (777339) от 05.05.2016
 
 Haldo, Clelia Liguori & Erika Scherlin - Napoli Lounge # 1 (2016) [MP3|320 кб/с] <Lounge, Chill Out, Easy Listening>
@@ -530,168 +692,6 @@ Zen - Dark Blue (2018) Altar Techno [FLAC|Lossless|WEB-DL|tracks] <Techno, Psyte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58AA92B58D8AC69ED0751F4D27563BCC6B48DD0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211041   (778246) от 05.03.2018
-
-VA - Chilling Sounds Vol.9 (2018) [MP3|320 Kbps] <Chillout, Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  MGA  -  Scorpion (Original Mix)  3:30
-02.  Breezy BZ  -  Breezy Bz (Original Mix)  6:24
-03.  Cellisto  -  Melancholy (Original Mix)  5:46
-04.  CJ Wetal  -  Paradise Dawn (Original Mix)  4:34(   Читать дальше...   )Жанр: Chillout, Balearic, DowntempoПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E654B34A4CB30D48207D159FD3AA10928193C93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211049   (778247) от 05.03.2018
-
-VA - Chillout Sounds Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  James Mac feat. Rozie Gyems  -  I Need Your Love (VIP Mix)  4:48
-02.  Marc Moosbrugger  -  Turn It Up (Original Mix)  4:07
-03.  Paula P'cay & DJ Aristocrat  -  Nobody (Original Mix)  4:44
-04.  Nikko Culture  -  Are You Remember (Original Mix)  6:56(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79BEBD8178394AE38EFAF6710208E2AEA6B826E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210860   (778268) от 05.03.2018
-
-VA - Suanda Music Radio Top 15 March (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer feat. Betsie Larkin  -  Unite (Omnia Extended Remix)  4:45
-02.  Ahmed Helmy & Mhammed El Alami  -  Helena (Extended Mix)  6:05
-03.  Gamma & Attila Syah feat. Cari  -  Every Goodbye (Extended Mix)  7:18
-04.  Estigma  -  Until Dawn (Extended Mix)  7:25(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F86C94E0F0F782FF5F9488E28E34E2780E9C9B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211022   (778274) от 05.03.2018
-
-VA - Progressive Club Vol.18 (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Andy Pitch  -  Java Jaipong (Original Mix)  7:00
-02.  Ralph Souza  -  Fire (Original Mix)  5:19
-03.  LO.CO  -  Feet (Original Mix)  8:07
-04.  Big Gun feat. Peter Noordermeer  -  Slaves To The Social (Original Mix)  4:08(   Читать дальше...   )Жанр: HouseПродолжительность: 01:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D83DE7B93C72DBC38A506385FA35F7D2DDD3D08D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012858   (778295) от 02.05.2016
-
-Moonbeam - Eclipse (2016) [FLAC|Lossless|tracks] <Progressive House, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From the Ashes (feat. Avis Vox) (Russian Version) (04:54)
-02. Bring Me the Night (feat. Eva Pavlova) (04:39)
-03. Fighters (feat. Pryce Oliver) (05:19)
-04. Gravity (05:45)(   Читать дальше...   )Производство: Moonbeam DigitalЖанр: Progressive House, ElectronicПродолжительность: 01:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D465BF06D201C17DA4E532A0CC0408233C3402D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012920   (778358) от 02.05.2016
-
-VA - Deep House Edition #002 (2016) [MP3|320 кб/с] <Deep House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaques Le Noir - In My Dream (05:29)
-02. Mike Dokos - Will I Get Home (05:50)
-03. Oscar Gs - Give Me Love (06:29)
-04. Renoa - On Se Air (06:55)(   Читать дальше...   )Производство: Jango ReplayЖанр: Deep House, Club HouseПродолжительность: 01:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:045B69038ED1DCD131A4F56FC05BD59AD7CE8233
 ```
 
 

@@ -106,3 +106,84 @@ magnet:?xt=urn:btih:DB6A94243FCC6591B1BE86BA880F5A5E8FC33F30
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846798   (1051578) от 
+
+Linkin Park - Songs From The Underground (2008) Japan, WPCR-13468, 2009 [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Announcement Service Public (2:26)
+02. QWERTY (Studio Version) (3:23)
+03. And One (4:31)
+04. Sold My Soul To Yo Mama (1:59)(   Читать дальше...   )Тип издания: JewelcaseЖанр: Alternative / Nu-Metal, Alternative RockПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3670C031775E29673AF605F4C8AC1785C39E35C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846791   (1051580) от 
+
+Linkin Park - Recharged (2013) Brazil, 0093624941606, AB0003000 Pressing [FLAC|Lossless|image + .cue] <Electro House, Brostep, Electronic Dance Music>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Light That Never Comes (Linkin Park X Steve Aoki) (3:50)
+02. Castle Of Glass (M. Shinoda) (6:20)
+03. Lost In The Echo (Killsonik) (5:10)
+04. Victimized (M. Shinoda) (3:01)(   Читать дальше...   )Тип издания: JewelcaseЖанр: Electro House, Brostep, Electronic Dance MusicПродолжительность: 01:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A1F0F9A869B9DD0D32A139112414A0C2CE69A99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846793   (1051581) от 
+
+Jay-Z / Linkin Park - Collision Course (2004) Brazil, 936248963-2, AA0050000 Pressing [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal, Hip Hop, Mashup>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirt Off Your Shoulder / Lying From You (4:05)
+02. Big Pimpin' / Papercut (2:36)
+03. Jigga What / Faint (3:31)
+04. Numb / Encore (3:25)(   Читать дальше...   )Тип издания: JewelcaseЖанр: Alternative / Nu-Metal, Hip Hop, MashupПродолжительность: 00:21:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C17E36F6047FB8295209DC8100C837DDBB32DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

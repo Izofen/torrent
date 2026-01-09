@@ -1,3 +1,165 @@
+###  Публикация: 1014850   (776166) от 08.05.2016
+
+VA - Serenity Sexy Lounge & Chill out Pearls Vol 5 (2016) [MP3|320 кб/с] <Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Golden Jade - Wonderkind (04:51)
+02. Jeffrey Campbell - Time (03:55)
+03. Ted Mitch - Everybody's Talking (04:17)
+04. Brandon Love - Jamming (03:27)(   Читать дальше...   )Производство: White Isle RecordingsЖанр: Downtempo, Lounge, Chill OutПродолжительность: 01:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6569F29B3FD681B755214D2076F69F300BAED7FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014696   (776178) от 08.05.2016
+
+VA - Best Sound of Chill & Lounge (2016) [MP3|320 кб/с] <Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soundset City - I Can't See Your Heart (Jazzy System Vocal Mix) 3:56
+02. Velvet Dreamer - Love Is a Temple 5:25
+03. Richard Bonnee - Abstract Matrix (Deep Sphere Sky Mix) 4:18
+04. The Space Ensemble Project - Skyline (Filtersweeps Groove Cut) 5:00(   Читать дальше...   )Жанр: Chill OutПродолжительность: 02:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFCCF2717A2983EEE0D72E84DB8D770CB844C943
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014572   (776482) от 07.05.2016
+
+VA - Best of Chill Out Vocal Trance (2016) [MP3|320 кб/с] <Vocal Trance, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tenishia - Ever True (Chill Out Mix) 4:49
+02. Aurosonic - They Wait For Us (Chill Out Mix) 6:13
+03. Julian Vincent - Lost In Space (Moonnight Remix) 4:45
+04. Dart Rayne - Shelter Me (Moonnight Remix) 4:46(   Читать дальше...   )Жанр: Vocal Trance, Chill OutПродолжительность: 01:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:362C75F25C551CCE518587DC5D92DEDB150DE1EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014279   (776484) от 07.05.2016
+
+zerO One - Signals (2015) [FLAC|Lossless|tracks] <Chillout, Electronic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. zulu (4:47)
+ 02. mars (4:32)
+ 03. data (4:27)
+ 04. signals (4:06)(   Читать дальше...   )Жанр: Chillout, Electronic, DowntempoПродолжительность: 01:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6B39706A44031680747C7A94C576938C95D59A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211762   (776541) от 10.03.2018
+
+VA - Miami Opening Party (2018) [MP3|320 Kbps] <House, Club, Nu Disco, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abel The Kid - In My House 6:27
+02. Fit For Sound - Deeper Feeling (Club Mix) 6:14
+03. Luxx Daze - I Used To Love You Baby 3:44
+04. Bikini Beats - Saturday Night (Disco Mix) 4:52(   Читать дальше...   )Жанр: Funky, Club, Nu Disco, GrooveПродолжительность: 04:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9467A50D30E46941729D2187CDFE23C780930D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211756   (776554) от 10.03.2018
+
+VA - Festival Anthems Vol.3 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer & Vito Fognini  -  Ambition (Eximinds Extended Remix)  4:45
+02.  Frainbreeze  -  Black Eagle (Ahmed Helmy Extended Remix)  5:49
+03.  Feel  -  The Nutcracker (Extended Mix)  5:36
+04.  Mino Safy  -  Persistence (Original Mix)  3:33(   Читать дальше...   )Жанр: TranceПродолжительность: 01:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B02A1C521C469907B9A32F0AEEFEF266090354
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014492   (776576) от 07.05.2016
 
 VA - Elliptical Sun Sampler 016 (2016) [MP3|320 кб/с] <House, Progressve House>
@@ -533,168 +695,6 @@ VA - Lounge Tonight (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9712D84DADFE58A9B28559B774EBCFB7662265C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211481   (777277) от 08.03.2018
-
-VA - Spring 2018 Collection (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Magda Shortankard  -  Raiders (Original Mix)  4:43
-02.  Bob Angetti  -  Eclipse Serenade (Original Mix)  5:19
-03.  Alonso Di Uomo  -  Caracas (Original Mix)  4:33
-04.  Durga Amata  -  Night Arrows (Original Mix)  5:07(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F0FDC010D8BFC8939B3752BAA08D18C0C699CFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211463   (777279) от 08.03.2018
-
-VA - Individual Collection Vol.2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Stevems  -  Throught A Temporary Love (Original Mix)  4:20
-02.  InWinter  -  I Miss You (Original Mix)  8:20
-03.  InWinter  -  The Sea Of Paper Ships (Original Mix)  8:14
-04.  Andrew Gate  -  Flight To Infinity (Original Mix)  6:53(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:23:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29134893615E10FCA1B9BC82074724CA004D69E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211477   (777280) от 08.03.2018
-
-VA - Spatium Options Vol.01 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Seven24  -  Snow (Original Mix)  3:40
-02.  Random J  -  A Strange Dream (Original Mix)  2:45
-03.  Soty  -  Butterflies (Original Mix)  4:17
-04.  Der Luchs  -  Courtney Jines (Original Mix)  4:31(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33A28C7899CC395969B837F7B022E8D4062B875
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211526   (777282) от 08.03.2018
-
-VA - Progressive Trance Vol.2 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer feat. Christina Novelli  -  Fireflies (Original Mix)  3:58
-02.  LTN  -  Wind & Cloud (Extended Mix)  6:53
-03.  Weared  -  Coliseum (Extended Mix)  5:40
-04.  Adip Kiyoi & VIKA  -  Soul In The Dark (Extended Mix)  5:25(   Читать дальше...   )Жанр: TranceПродолжительность: 01:28:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075C9957E2A8B74F03812A04A1F44515F2AA8888
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013383   (777296) от 05.05.2016
-
-VA - Relax 2 Sax - Sensual Background Jazz Lounge Music for Perfect Chill Out (2015) [MP3|320 кб/с] <Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazzadelic - Bridge to the Devine - Golden Sunset Mix
-02. Unisax - Living on the Inside - Cool and Smooth Mix
-03. Bent Over - Salamander - Groovy Obsession Mix
-04. Perelandra - The Lights of a Distant Bay - Smooth Jazzy Bar Mix(   Читать дальше...   )Жанр: LoungeПродолжительность: 01:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BDD9DFF4BEB1617DE59F768FC0393B30A8C82AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013232   (777335) от 05.05.2016
-
-VA - Ibiza Techhouse Weekend Session (2016) [MP3|320 кб/с] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Self Explanatory - Backwater
-02. Unexpected Marvel - The Search
-03. Spiced Boogie - Another Way
-04. Riffle Shuffle - Warning Function(   Читать дальше...   )Жанр: HouseПродолжительность: 02:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A5BBD0B5DA40C372B09B6CAE04007E147FC6AD
 ```
 
 

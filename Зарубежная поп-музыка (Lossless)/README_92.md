@@ -1,3 +1,30 @@
+###  Публикация: 975967   (970804) от 16.01.2016
+
+VA - Top Latino 2000 (2000) [FLAC|Lossless|tracks + .cue] <Latin, Merengue, Afro-Cuban>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gloria Estefan - No me dejes de querer (3:27)
+02. Chayanne - Boom boom (4:25)
+03. Ricky Martin - La diosa del carnaval (Spanish Eyes) (4:04)
+04. Azucar Moreno - Mamma mía (4:16)(   Читать дальше...   )Жанр: Latin, Merengue, Afro-Cuban, Europop, Salsa, BalladПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D238F66DABF2A9D6A156E174DE0AAA8B46550AB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975970   (970818) от 16.01.2016
 
 Alessandra Amoroso - Vivere a colori (2016) [FLAC|Lossless|tracks] <Pop, Vocal
@@ -714,33 +741,6 @@ Richard Marx - Beautiful Goodbye (2014) Target Exclusive Edition [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26BD60955CDB454FAFC2682FBF97FAC0F9A878B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974348   (975796) от 12.01.2016
-
-Dolcenera - Le stelle non tremano (2015) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Niente al mondo
-02. Immenso
-03. Un peccato
-04. Figli del caos(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52FF320B2A8FB4E6810428D4CF1C057F1366DB49
 ```
 
 

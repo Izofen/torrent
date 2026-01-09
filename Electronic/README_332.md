@@ -1,3 +1,165 @@
+###  Публикация: 903710   (655688) от 02.06.2015
+
+VA - Evening Lounge Absolute Chill Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spiridion - Beyond The Shyness
+02. Dr. Diver - Check-In
+03. Bananaquit - Walking Down In Trellis Bay
+04. Popy Zeddil - Expectations(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7892075D4C18181D3B4D2560770835C2211EECD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903413   (655689) от 02.06.2015
+
+VA - London Cafe Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Piccino - Summer Jazz
+02. Fineconfine - Drops
+03. Fineconfine - Engine On
+04. Prince Jay - Maya(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:884A3AAEA90CDC29B69468ACCACBC3B6B29CFAA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226240   (655839) от 20.05.2018
+
+VA - The Best Of Nu Communicate (Spring Edition) (2018) [FLAC|Lossless|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7 Baltic – Guantanamo (Original Mix)
+02. Active Limbic System – North Atlantic (Photographer Remix)
+03. Alexander One & Davide Battista – Distant Echoes (Original Mix)
+04. BDH – Distance (DenSity FuZion Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D5E6AF5E2E46B2A97DD342D7AE0C34E4077213
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226252   (655847) от 20.05.2018
+
+VA - Ori Uplift & DJ Ruby - Uplifting Only 275 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeitam Osheen - Anck Su Namun (Intro Mix)
+02. PRE-RELEASE PICK: Roman Messer & Betsie Larkin - Unite (Steve Allen Extended Remix)
+03. Orla Feeney feat. Susan McDaid - Can't Give Up (Estigma & Pinkque present Hybrid Theory Remix)
+04. Christopher Corrigan - Sleepless Nights (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69D5F90B9D025B5B1932319737D0395B198F4310
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140523   (655894) от 06.06.2017
+
+VA - Ibiza Chillout 2017 [MP3|320 Kbps] <Easy listening, Smooth Jazz, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spinne – Daemmerung 04:59
+02. Spinne – Global People 04:56
+03. Monodeluxe – Groove On 06:24
+04. Vitali And His Lounge Orchestra – La Strada 04:53(   Читать дальше...   )Жанр: Easy listening, Smooth Jazz, ChilloutПродолжительность: 02:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739AA466FBA37DE6F0363CF3AB22A4F8369AE686
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140420   (655895) от 06.06.2017
+
+VA - Tree Of Life Vol.1 (Selection Of Wonderful Calm Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sami Sivananda - Lotus Yoga 4:22
+02.  Guna Nada Das - Beyond The Sky 4:43
+03.  Sunyata Project - Words Of Vishnu (Ibiza Ethno Mix) 7:17
+04.  Chris Le Blanc - Stranded 5:10(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13EA3CF14B0A912CA2F7ED0A8BF4F3664D7ACAB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140342   (655896) от 06.06.2017
 
 VA - Boutique Lounge Vol.3 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -538,168 +700,6 @@ Markus Schulz:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F08BB4C255A2EC360A8B4134D78EC849128027DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226153   (657075) от 19.05.2018
-
-VA - Black Hole Trance Music 05-18 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christina Novelli & HAKA - Worlds Collide (Extended Mix)
-02. Clef & Canberra - Wonder Years (Extended Mix)
-03. Marcus Santoro - Whispers (Extended Mix)
-04. Dennis Sheperd & DIM3NSION - Amigos (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E061AB79944B5C43B1B1D972579699325C8A67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226246   (657086) от 19.05.2018
-
-VA - Trance Favorites Episode 013 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dominik Von Francois - 100 States Of Trance (Cosmic Heaven Remix)
-02. Samvel - Arctic Echoes (Mosahar Remix)
-03. AQUADREAMR - Existential (Original Mix)
-04. Noize Compressor - Black & Chrome (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA8B6FFC69AB6353AE5A0278BF740CB261C5543
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226262   (657136) от 19.05.2018
-
-Veselin Tasev - My Universe (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Land Of The Proto-Bulgarians (Original Mix)
-02. My Universe (Original Mix)
-03. Eleven Years (Original Mix)
-04. Fly Of Six Chords (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89CBA2929E6B2083F8ECEFC8A837A7F45B15384B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226187   (657137) от 19.05.2018
-
-DiNT - Hooker (2018) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hooker (05:45)
- 02. Shovel (05:45)
- 03. Skewer (10:09)
- 04. Shovel (Ontal Remix) (04:49)(   Читать дальше...   )Жанр: Techno, Industrial, ExperimentalПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D79D7E400EA573C843699C80341ABC12460D7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539487   (657210) от 26.03.2022
-
-VA - Sports Megamix 2022 [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Spencer - Let It Go (Extended Mix) 4:14
-02. The Disco Boys - Funk Decision (Extended Mix) 4:33
-03. Coca Dillaz - Show Me (Radio Edit) 3:11
-04. Skeeter - Fresh (Original Mix) 5:15(   Читать дальше...   )Жанр: House, DanceПродолжительность: 04:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13F0FFA7492D8E48A754C5C8C4E8321FCEEF3C80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539554   (657212) от 26.03.2022
-
-VA - Vocal Trance Hits 2022 Vol 1 [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & Sam Gray - Human Touch (Extended Club Mix) (4:13)
-02. Roger Shah & Sian Evans - Hide U (Jerome Isma-Ae Extended 2022 Remix) (7:48)
-03. AVIRA feat. Sam Martin - Change My World (Extended Mix) (6:46)
-04. Chicane - Sailing (Back Pedal Brakes Extended Remix) (4:15)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:09:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D5F6241DFAB7E124CF3CA6EF0A242CF880988F
 ```
 
 

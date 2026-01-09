@@ -1,3 +1,30 @@
+###  Публикация: 1134388   (689377) от 15.05.2017
+
+Альберт Артемьев - В лабиринте (2017) [MP3|192 Kbps] <New Age>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - В лабиринте
+02 - Знамение
+03 - Маленький ангел
+04 - В плену времени(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:232FF4B10F3D9C372E304C2D8E64E15BB99A917C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221954   (689433) от 27.04.2018
 
 VA - The Light And Warm (2018) [MP3|320 Kbps] <New Age, Ambient, Relaxation,>
@@ -677,33 +704,6 @@ VA - Сотка блатных душевных песен Шансона вып
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BE6148EEA9BFC2D2DBE63F538FB8CCE77CB2B4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133928   (691405) от 14.05.2017
-
-VA - Record Super Chart #486 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Matt Nash - Know My Love  4:23
-02.  Martin Garrix & Brooks - Byte  4:45
-03.  KSHMR & Crossnaders feat. Micky Blue - Back To Me  2:59
-04.  Bougenvilla & LZRZ - No Sleep  4:26(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46566370739C6775DF79D94C38AB18E6EB059955
 ```
 
 

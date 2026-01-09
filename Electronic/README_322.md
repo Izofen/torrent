@@ -1,3 +1,168 @@
+###  Публикация: 1228455   (635690) от 01.06.2018
+
+Morcheeba - Blaze Away (2018) Fly Agaric Records [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Undo (03:45)
+ 02. Blaze Away (feat. Roots Manuva) (04:04)
+ 03. Love Dub (03:49)
+ 04. It's Summertime (03:39)(   Читать дальше...   )Жанр: Trip Hop, DowntempoПродолжительность: 00:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A24B81C63DD37A475CBE509C3FBA619055A4F71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519394   (635764) от 07.07.2012
+
+Various Artist - Ibiza 2012 Back to the Island (2012) [MP3|320 кб/с]<Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankox – Kaikuse (El Tigre) (5:46)
+ 02. Francesco Diaz – Timbuktu (6:15)
+ 03. Danny Howard – Red Man Rising (7:20)
+ 04. Argento – Rising Stars (Duher & D-Frost Remix) (6:16)
+ 05. Marc One – No Regrets (4:55)
+ 06. Futuristic Polar Bears – Shiva (Dache & Shaw Remix) (6:03)
+ 07. Denine – Save It (6:56)
+ 08. Derek Howell – Stride (DubVision Remix) (8:18)
+ 09. Josha – Be Ya (Alex Stein & Vogue Remix) (5:51)
+ 10. Fog – Mood Structure (Andrea Bertolini Remix) (6:23)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A509B557E8F933E80CCD2FE4B30FC4B2D842F0C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025449   (635825) от 01.06.2018
+
+the_empath - Discography 9 Releases (1999-2016) Subroom Medialab, Hymen Records [FLAC|Lossless|WEB-DL|tracks+.cue, tracks] <IDM, Ambient, Abstract, Industrial>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into TheТип издания: CD, Web, VinylЖанр: IDM, Ambient, Glitch, Abstract, Industrial |Продолжительность: 00:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E7061F16B618EA202E20D3B31837443F24CE7DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228107   (635942) от 01.06.2018
+
+VA - Secrets of Time Relaxation (2018) [MP3|320 Kbps] <Ambient, Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrico Donner - Modern Identities
+02. Funkshiner - Ischia
+03. Man Of Leisure - Heated Exchanges
+04. Mephia - Lume de Voce(   Читать дальше...   )Жанр: Ambient, Chillout, Lounge, DowntempoПродолжительность: 01:29:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C6E657EF77A56DEA7F76B2D3BCE13F7B2BCD2D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228585   (635944) от 01.06.2018
+
+Woob - 新 プログラム (2018) Time Limited [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 変わり目 (1:42)
+02. Yoku Yatta (12:40)
+03. 到着 (4:10)
+04. コントロールを取り戻す (2:45)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB07EB1225187B26610A30AF9DA55506E88611FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228494   (635950) от 01.06.2018
+
+VA - Trance Festival Ibiza (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iris Dee Jay & Robert Holland feat. Erin - Faster (Type 41 Remix) 6:42
+02. Bernd Loorbach - Cafe Del Mar (TbO & Vega Trance Mix) 4:57
+03. The North Works feat. Jenny - We Are Back (Vocal Edit) 4:25
+04. Aruso - On My Own (Festival Version) 6:48(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6930D5BC7805D80B058A7E6C6F83B0594910621A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907993   (636153) от 13.06.2015
 
 VA - Hawaiian Sunset - Lounge & Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -533,168 +698,6 @@ Fennesz - Agora (2019) Touch [FLAC|Lossless|tracks+.cue] <Ambient, Experimental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CD6800EDFAC724C2B16BC3AE229B1D13068A05D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293153   (639197) от 02.04.2019
-
-VA - The Fire This Time (2002) Hidden Art [FLAC|Lossless|WEB-DL|tracks+.cue] <IDM, Techno, Field Recording, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Stearns - From The Cradle… (03:48)
- 02. The Higher Intelligence Agency - Lines In The Sand (05:40)
- 03. Soma - Get Thee Behind Me (05:23)
- 04. Orbital - The Box (Re-Mixed by Bump 'n' Grind) (05:42)(   Читать дальше...   )Тип издания: CDЖанр: IDM, Techno, Field Recording, Ambient •Продолжительность: 01:17:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CED39030AC21EDF737821255222F4566AB41187
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142989   (639214) от 16.06.2017
-
-Way Out West - Tuesday Maybe (2017) [FLAC|Lossless|WEB|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running Away (feat. Eli & Fur) (5:00)
-02. Set My Mind (3:42)
-03. Oceans (feat. Liu Bei) (5:00)
-04. Lullaby Horizon (5:13)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9ACBB96D3519DCD98A6B960CF7E0230BC49A1F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142984   (639340) от 16.06.2017
-
-DJ Sports - Modern Species (2017) [MP3|320 Kbps] <House, Jungle, Ambient>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World A
-02. Stellar Clusters
-03. Fertile Crescent
-04. Entry Mode(   Читать дальше...   )Жанр: House, Jungle, AmbientПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E54FCE9E3BAE08E7CE9983F58FDB2976A5D219B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143072   (639345) от 16.06.2017
-
-VA - Ibiza Chill House Sensations (2017) [MP3|320 Kbps] <Deep House, Chillhouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Desaparecidos - Ibiza (Mirko Boni, Benny Camaro & Frankie Gada Remix)  5:48
-02.  C.A.P. - Dragostea Din Tei (Lounge Harlem Mix)  3:48
-03.  Giuseppe Magnatti - Around You (Original Mix)  7:03
-04.  Nogun - Cloud Child (Lanfranchi & Farina Original Mix)  5:32(   Читать дальше...   )Жанр: Deep House, ChillhouseПродолжительность: 03:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E54FFE37AEF31151063800CCC6580DBC51115BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228136   (639396) от 30.05.2018
-
-VA - Trance Euphoria Vol.1 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tranc Eye - Sunset in Your Eyes (Radio Edit)
-02. Litagoria - The First Step (Avalona Radio Edit)
-03. Changer - Sunrise Breeze (Mike Oceanic Emotional Remix Edit)
-04. Etania - Warriors of Love (Radio Edit)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 02:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC17453F121F92FC9A4D0E116730C99005523E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228081   (639403) от 30.05.2018
-
-Orjan Nilsen - Prism (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swoosh (Intro Extended Mix)
-02. That One Night (Extended Mix)
-03. Hi There Radio (Been Too Long) (Feat. Mike James)
-04. Iconic (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A5B14F8073918620CA1D4477D294B702BDE320
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 908331   (633475) от 14.06.2015
+
+Lumen - Всегда 17 - всегда война (Live) (2015) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Далеко
+03. Дотянуться до звезды
+04. Слова(   Читать дальше...   )Жанр: RockПродолжительность: 01:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79598EF5539211C81CADA0465DFD24BD3B3370E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228723   (633548) от 02.06.2018
 
 VA - Лучшие из лучших: Горячие хиты радиостанций (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -699,33 +726,6 @@ VA - The Best - In Music We Trust Vol.2 (2016) [MP3|320 Kbps] <House, Club, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8C55B3A92EF18C93D8C141F7522BE7D0CE21092
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034330   (634305) от 13.07.2016
-
-VA - Velvet Moonlight: Relax Partiture (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634305.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bessi B. - Do You Remember Me
-002. Stars Over Foy - Until We Meet Again in Heaven
-003. Alex Naevecke - Summerlove
-004. Meloso Trio - Candlelight(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768677830C3250C255D7BFD51313E4DE4EDE15D4
 ```
 
 

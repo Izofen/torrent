@@ -1,3 +1,30 @@
+###  Публикация: 1034330   (634305) от 13.07.2016
+
+VA - Velvet Moonlight: Relax Partiture (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634305.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bessi B. - Do You Remember Me
+002. Stars Over Foy - Until We Meet Again in Heaven
+003. Alex Naevecke - Summerlove
+004. Meloso Trio - Candlelight(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768677830C3250C255D7BFD51313E4DE4EDE15D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034742   (634316) от 13.07.2016
 
 VA - Motion Of Nature (2016) [MP3|240-320 Kbps] <Dance, Club, Electro House>
@@ -683,33 +710,6 @@ VA - Dance - Pop Vol. 2 (2019) [MP3|320 Kbps] <Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCBA6A681EBC1CFCCDEFAFB3157ED44934D6944C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293531   (635672) от 04.04.2019
-
-VA - Soap Buble: Clubbing Electro House (2019) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635672.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Leonardo Pancaldi - Nothing You Can Save
-002. David Rull - Be Water My Friend
-003. Ant. Shumak - Objective Dream (Original Mix)
-004. Stil & Bense - Serenade(   Читать дальше...   )Жанр: HouseПродолжительность: 10:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE9C3D0594B0980B4BE9CAE5C162144B84F5EDBB
 ```
 
 

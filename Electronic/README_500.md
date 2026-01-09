@@ -1,3 +1,163 @@
+###  Публикация: 1481500   (1008321) от 03.07.2021
+
+Om Unit - The Mahakala VIP's (2021) Bandcamp Exclusive [FLAC 2.0|44.1/24|tracks|WEB-DL] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timelines (The Mahakala VIP) (05:08)
+ 02. Sleepwalkers (The Mahakala VIP) (05:28)Жанр: Drum & BassПродолжительность: 00:10:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B71295415CFB47F6436212F948590AEE3456E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481458   (1008338) от 03.07.2021
+
+Before Tigers - Missing My Future (2021) 79Ancestors [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Glitch, IDM, Minimal>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ravages (08:36)
+ 02. Envol (06:30)
+ 03. R/Hope (03:52)
+ 04. Look at Me (05:08)(   Читать дальше...   )Жанр: Ambient, Glitch, IDM, MinimalПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D821F1E21C21C34EA6DCA3549B380FB4D0B0F78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080049   (1008383) от 02.07.2021
+
+Ben Frost - Discography 33 Releases (2001-2021) [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Ambient, Noise, Drone>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is Not Christmas (00:55)
+ 02. Welcome To Fortitude (01:41)
+ 03. Mammoth Suite (02:03)
+ 04. Bear Alarm (01:38)(   Читать дальше...   )Тип издания: CD, WebЖанр: Experimental, Ambient, Noise, Industrial, Drone, Modern Classical •Продолжительность: 21:52:12  •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC59B8061C5D8E5035A165D34130A3D96C305600
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246856   (1008419) от 02.07.2021
+
+Krystian Shek | Tosa Inu - Discography 40 Releases (2003-2021) [FLAC|Lossless|tracks+.cue, tracks] <Downtempo, Dub, IDM, Trip Hop, Techno, House, Experimental, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tri (05:05)
+ 02. Habitat (feat. Surya) (04:19)
+ 03. Black Chocolate (03:54)
+ 04. Cake Daddy (04:13)(   Читать дальше...   )Тип издания: CD, WebЖанр: Downtempo, Dub, IDM, Trip Hop, Techno, House, Experimental, Ambient •Продолжительность: 21:46:35 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9CC7B194FCC258DAF89E0EBABC2B6841DB57A79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481192   (1008460) от 02.07.2021
+
+AlimkhanOV A. - We Are The Universe (2021) [MP3|320 Kbps] <Spacesynth, Synthdance>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulsar (4:06)
+02. We Are The Universe (3:33)
+03. Moon Rays (4:20)
+04. Fly With Me (feat. Svetlana Astor) (4:26)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 01:05:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:160B79F44EFBEF0DDC4858D62396221ED87DF8B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481263   (1008473) от 02.07.2021
+
+VA - Twisted (10 Year Anniversary) (2007) Twisted Records [FLAC|Lossless|tracks+.cue] <Psy-Trance, Psychill, Psydub>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Younger Brother - I Am A Freak (09:02)
+ 02. Hallucinogen - Shabby Trance (06:51)
+ 03. Prometheus - Arcadia Magik (08:50)
+ 04. Koxbox - Side FX (08:00)(   Читать дальше...   )Жанр: Psy-Trance, Psychill, PsydubПродолжительность: 01:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90482D2591138B70788CB558ACD2DEFE8F175E19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481205   (1008490) от 02.07.2021
 
 Evade Robots - Voids (2021) Low Recordings [FLAC|Lossless|WEB-DL|tracks] <Breaks, Deep House>
@@ -532,168 +692,6 @@ Bot1500 - Discography 9 Releases (2016-2021) Analogical Force, Furthur Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89E19F2F062A337D1DAD6C95CD074E2A41BAF9A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110717   (1009387) от 25.06.2021
-
-Microlith | Rhys Celeste - Discography 13 Releases (2014-2021) CPU Records, mindcolormusic, Fundamental Records [FLAC|Lossless|WEB-DL|tracks] <Electro, Ambient, IDM, Acid, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled 87 7 (04:27)
- 02. Untitled 8 9 (06:50)
- 03. Untitled 23 2 (07:23)
- 04. Untitled 102 3 (02:00)(   Читать дальше...   )Тип издания: WebЖанр: Electro, Ambient, IDM, Acid, Techno •Продолжительность: 08:29:13 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:070A14523F2F2FEBCF6A3F797EB7D86D567A3434
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479746   (1009411) от 25.06.2021
-
-VA - Female Vocal Trance 2021 [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic & Fenna Day - You'll Be Fine (4:13)
-02. C-Systems & Hanna Finsen - Feeling Fine (3:51)
-03. Costa & Sarah Russell - I Remember (3:39)
-04. Zetandel & Tiff Lacey - Higher Ground (Costa & Aurosonic Remix) (3:45)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7E81201D779976DE5F31F031374ED67DD0C4159
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479624   (1009413) от 25.06.2021
-
-Eli & Fur - Found In The Wild (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire To Fire (3:25)
- 02. Wild Skies (3:24)
- 03. In Too Deep (feat. Holly Martin) (4:42)
- 04. Carbon (4:30)(   Читать дальше...   )Жанр: EDM, Deep House, HouseПродолжительность: 00:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:685BB2DABAEE4D3403FE01F88445CD526F2F4A02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450470   (1009428) от 25.06.2021
-
-Liebknecht (Daniel Myer & Rinaldo Bite) - Discography 8 Releases (2017-2021) Hard Electronic [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial, Electro>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 6 Months (Danzig Demo 2015) (05:20)
- 02. 6 Months (Danzig Demo 2016) (07:58)
- 03. Arnold (Demo 2014) (06:12)
- 04. Conjunction (Demo 2014) (01:48)(   Читать дальше...   )Жанр: Techno, Industrial, Electro •Продолжительность: 04:22:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D384C90AAB5D819E20C478323B791A0B15E67C1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456946   (1009432) от 25.06.2021
-
-Gimmik - Discography 15 Releases (1997-2021) Worm Interface, Toytronic, n5MD [FLAC|Lossless|tracks+.cue, tracks] <IDM, Glitch, Abstract, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Floating Clear (1998) (04:13)
- 02. Share Some Grammar (1995) (05:54)
- 03. Typologic (1999) (03:54)
- 04. Diving-Pool (Num Num RMX) (2000) (04:11)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM, Glitch, Abstract, Ambient •Продолжительность: 08:48:28 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5790BC017DA3EEDC3AA0729DCD702B6665167AF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479752   (1009460) от 25.06.2021
-
-Mause - Run/Stop EP & Remixes (2021) Massage Brain Cult [FLAC|Lossless|WEB-DL|tracks] <IDM, Acid, Drum & Bass, Breakcore, Electro, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DMX Acidheim (04:17)
- 02. Evas Bounce (06:09)
- 03. Errire (04:58)
- 04. Dolpin Funk1 (05:48)(   Читать дальше...   )Жанр: IDM, Acid, Drum & Bass, Breakcore, Electro, AmbientПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4816753AF1FB09EB8B7A0594A850758496F346
 ```
 
 

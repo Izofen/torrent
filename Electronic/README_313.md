@@ -1,3 +1,138 @@
+###  Публикация: 209157   (616642) от 14.04.2019
+
+VA - Pumping Storm 7 Special Release (2010) [MP3|160-320 kbps]<Hardbass, Pumping House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616642.jpg" />
+</div>
+
+
+###  Подробнее
+
+00. INTRO PUMPING STORM 7!
+01. XS Project – The Real Bass!
+02. XS Project – Pumping Storm ( Dj Relakz Rmx )
+03. BEAT OF BASS (feat. Dj dANGER) – Hard Bass Power(   Читать дальше...   )Жанр: Hardbass, Pumping HouseПродолжительность: 01:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D8D1C2B9A8B1045C3896231BF5CB7BFCA35B9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295907   (616909) от 14.04.2019
+
+VA - Trance Top 1000: Chill Edition (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Trance>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren feat. Trevor Guthrie - This Is What It Feels Like (John Ewbank Classical Remix)
+02. Chicane feat. Moya Brennan - Saltwater (The Thrillseekers Remix)
+03. Gareth Emery - I Could Be Stronger (But Only For You) (Original Mix)
+04. Delerium feat. Sarah McLachlan - Silence (Acoustic Mix)(   Читать дальше...   )Жанр: Downtempo, ChillOut, TranceПродолжительность: 03:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E5D7722C13CAAFAD6911449B1441C4C878AD1DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143435   (616922) от 14.04.2019
+
+Jaime Irles (Known Rebel) - Discography (2015-2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, IDM, Breaks, Techno, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fierce (04:42)
+ 02. Getaway (Feat. Orgar) (03:32)
+ 03. Undo (Feat. Orgar) (04:30)
+ 04. Hypnos (Feat. German Escandell) (05:56)(   Читать дальше...   )Тип издания: WEBЖанр: Breaks/Downtempo/IDM/Techno/AmbientПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5DCD2C19FBC9B80142BCF6F457000687CD25E88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295801   (617017) от 14.04.2019
+
+VA - Black Hole Trance Music (04-19) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate & Foret - Need To Feel Loved (Extended Mix) 06:52
+02. Dustin Husain - Hour Of Twilight (Extended Mix) 07:15
+03. Eddie Murray feat. Veronica Moran - Adrift (Extended Mix) 06:43
+04. Formal One - Be Like Me (Extended Mix) 06:15(   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78DD0C7E256DF3A66BEA6BF488B5ED7BCD97752B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295761   (617089) от 14.04.2019
+
+VA - The Beatless Collection Vol. 1 (2008) Elektrolux [FLAC|Lossless|tracks+.cue] <Ambient, Downtempo, Electro>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subsonic Park - X-ident (06:18)
+ 02. Joris Voorn - This Is Our Fiction (02:00)
+ 03. Hiroshi Watanabe - Genesis (Beatless Version) (05:22)
+ 04. Subsonic Park - After Dark (Video Edit) (08:15)(   Читать дальше...   )Жанр: Ambient, Downtempo, ElectroПродолжительность: 01:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F46CD9F7BEEABC17C752E858034E55A5C50564
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230290   (617199) от 11.06.2018
 
 Lowfish - Hypersensitivity (2018) Suction Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Electro>
@@ -555,141 +690,6 @@ VA - Chillout King Ibiza (Club Del Mar) (2015) [MP3|320 кб/с]<Downtempo, Chil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78C2F4473448D54A7A30EB9A0582868ECE8A1569
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910525   (618499) от 22.06.2015
-
-Stimulus Timbre - Life's Most Wonderful Place (2015) [MP3|320 кб/с]<Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life's Most Wonderful Place
- 02. Flowing in Your Mind
- 03. Signs
- 04. Silent Days(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 00:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B24BC2A45DB0FEBA17367A91F365C06C3425288
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295318   (618603) от 13.04.2019
-
-DJ Smash - Twenty Three (Special Burger King Edition) (2011) Special Edition [FLAC|Lossless|tracks + .cue] <House, Electronic, Pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I Need You (Feat. Terri B! & MC Shayon) (4:08)
-02.Show Me To Your Love (Feat. Los Devchatos) (3:25)
-03.From Russia With Love (Feat. Los Devchatos) (3:17)
-04.Этой ночью (Feat. Лариса Долина) (3:47)(   Читать дальше...   )Жанр: House, Electronic, PopПродолжительность: 00:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FEEFE82D4A614AB7DE66823DCF0FFD30ECEB602
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295455   (618605) от 13.04.2019
-
-The Chemical Brothers - No Geography (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Big Beat, Techno>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eve of Destruction (4:40)
-02. Bango (4:07)
-03. No Geography (3:10)
-04. Got to Keep On (5:17)(   Читать дальше...   )Жанр: Electronic, Big Beat, TechnoПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B860A0E08D86CC2AA3609D0A3996877F806296C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230133   (618694) от 10.06.2018
-
-VA - Be Free 5 Years (2018) Be Free Recordings [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darse – Alone | Love Over Entropy Remix (07:37)
-02. Dave Nyx Aether – Forgive Me | Talul Remix (06:56)
-03. Eleonora – With You Here | Javier Orduna Remix (07:13)
-04. Gianluca Corvesi – Viaggio | Gabriele Carasco Meet Sehija Remix (09:15)(   Читать дальше...   )Жанр: Deep Progressive House, Tech House, Nu DiscoПродолжительность: 03:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7235ACE3404DBFA835C339CE54D8BE8372263041
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295695   (618814) от 13.04.2019
-
-Pushkin - Sertra Line (2019) [FLAC|Lossless|tracks + .cue] <Electronic, IDM, Techno>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Departure (04:59)
-02. Lounge (03:28)
-03. Alien Highway (03:59)
-04. The Sun Came Out (04:40)(   Читать дальше...   )Жанр: Electronic, IDM, TechnoПродолжительность: 00:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3621B8D112217FB03C89A3129533D030726E8CC
 ```
 
 

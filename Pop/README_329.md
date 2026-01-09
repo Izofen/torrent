@@ -1,3 +1,243 @@
+###  Публикация: 88838   (944941) от 26.02.2020
+
+Chilly - Showbiz (1980) [FLAC|951 Kbps]<Pop/Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There's No Business Like Showbusiness (0:20)
+02. Showbiz (1:39)
+03. Rock'N'Roll Sally (2:32)
+04. Taxman (3:17)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A79599E88E86ED8CF9BD08D4F2E4BCEEE78950
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983122   (945221) от 05.02.2016
+
+Adele - When We Were Young (2016) Single [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When We Were Young (04:51)Жанр: PopПродолжительность: 00:04:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1441474AFB0306FE70C588D876D3F769E10B3B59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982933   (945295) от 05.02.2016
+
+Suzanne Vega - Retrospective: The Best Of Suzanne Vega (2003) [FLAC|Lossless|image + .cue] <Folk Rock, Indie Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luka
+02. Tom's Diner (DNA Featuring Suzanne Vega)
+03. Marlene On The Wall
+04. Caramel(   Читать дальше...   )Жанр: Folk Rock, Indie Rock, Pop RockПродолжительность: 01:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B90DF1F2C3F1162E88EBC306ED04C4514B1DF48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363045   (945332) от 26.02.2020
+
+Discognosis - Discognosis (1977) LP [MP3|320 Kbps] <Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект от авторов и продюсеров Rinder & Lewis.01. Discognosis (4:41)
+02. Poison Ivy (3:24)
+03. One On One (4:14)
+04. Step By Step (2:57)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACE9A5E8CD8BB0405EB3172EF4FA0FAA78B17BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983140   (945468) от 05.02.2016
+
+VA - It Had To Be You • The Ultimate Love Songs (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Coldplay - Fix You [4:55]
+02.Lily Allen - Somewhere Only We Know [3:30]
+03.Gabrielle Aplin - The Power Of Love [4:06]
+04.Labrinth feat. Emeli Sande - Beneath Your Beautiful [3:58](   Читать дальше...   )Жанр: Pop, Pop Rock, Ballad |Продолжительность: 03:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D0908087D68FDC080EAFDB9A12133EBB0453CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983127   (945545) от 05.02.2016
+
+Beach House - Teen Dream (2010) [MP3|320 кб/с] <Dream Pop, Indie Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zebra (04:41)
+02. Silver Soul (04:51)
+03. Norway (03:49)
+04. Walk In The Park (05:14)(   Читать дальше...   )Жанр: Dream Pop, Indie RockПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE8C109D668DE2B73928C83FEDE2F5D5DE23B50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063973   (945585) от 07.01.2017
+
+Наталья Ветлицкая - De Luxe Collection (2002) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Половинки
+02. Я жду звонка
+03. Грусть
+04. Мальчики(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6DA37087B91B96DA74D64420825AA1E7F9EDE7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090682   (945885) от 07.01.2017
+
+Hypnosis - Greatest Hits & Remixes (2016) [MP3|320 Kbps] <Italo Disco, Spacesynth, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulstar (Disco Mix) [08:15]
+02. Droid (Extended Swedish Remix) [08:25]
+03. Automatic Piano (Maxi Version) [05:10]
+04. Oxygene (Maxi Version) [08:10](   Читать дальше...   )Жанр: Italo Disco, Spacesynth, SynthpopПродолжительность: 02:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB4F3E7B5DFDBF6F05549542E68089E7643AA487
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 751137   (946404) от 30.01.2014
+
+C.C. Catch - Maxi Hit-Sensation: Nonstop DJ-Mix+Extra Bass (2006) [FLAC|Lossless]<Disco, Euro House, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soul Suvivor (Long Version)   (4:58)
+02.  Midnight Gambler (Long Version)   (4:11)
+03.  Back Seat Of Your Cadillac (Extended Version)   (4:35)
+04.  Good Guys Only Win In Movies (Maxi-Version)   (4:40)(   Читать дальше...   )Жанр: Disco, Euro House, Synth-popПродолжительность: 01:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8072CCB58BA46E6CDDF92FF265F8087C88FC3863
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362879   (946462) от 25.02.2020
 
 Рома Жуков - Первый снег (1988) JAM, 2019, Remaster [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -453,249 +693,6 @@ Ace Of Base - 37 альбомов (1993-2010) [FLAC|Lossless]<Eurodance>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362315   (949340) от 23.02.2020
-
-Мираж - Звездная галерея (2002) [FLAC|Lossless|image + .cue] <Pop, Eurodisco>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Наступает ночь (4:19)
-02. Музыка нас связала (4:27)
-03. Звезды нас ждут (5:44)
-04. Я жду тебя (dance remix) (3:53)(   Читать дальше...   )Жанр: Pop, EurodiscoПродолжительность: 01:14:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25CCB063CE345936953DFDA0162B9A69F37BF869
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362487   (949433) от 23.02.2020
-
-Al Bano & Romina Power - Raccogli l'attimo (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raccogli l'attimo
-02. Per troppo amore
-03. La luce che hai
-04. Fuori pericolo(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F338B5D94AD10D5806543AF7C05632915955BC5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362401   (949488) от 23.02.2020
-
-Grimes - Miss Anthropocene (2020) [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Heavy I Fell Through The Earth (6:08)
-02. Darkseid (feat. 潘PAN) (3:44)
-03. Delete Forever (3:57)
-04. Violence (feat. i_o) (3:41)(   Читать дальше...   )Производство: 4AD, Crystal Math Music – CM80207CDЖанр: Pop, Indie Pop, Electronic, Synthpop, IndustrialПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9BFE07AC5A0483211A0EE6E378D72E0479736B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362337   (949492) от 23.02.2020
-
-VA - Great Songs (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben E. King - Stand By Me 2:55
-02. The Monkees - I'm A Believer (2006 Remaster) 2:47
-03. Alanis Morissette - Ironic 3:49
-04. Aretha Franklin - I Say A Little Prayer 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 03:20:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF255B2C588304B2BF61054608A8A792661DF12F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362415   (949561) от 23.02.2020
-
-Poppy - I Disagree (2020) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Hardcore>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concrete (3:20)
-02. I Disagree (3:13)
-03. BLOODMONEY (3:02)
-04. Anything Like Me (3:19)(   Читать дальше...   )Производство: Sumerian Records – SUM1247Жанр: Pop, Rock, HardcoreПродолжительность: 00:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F8F8B0138A398D010B1E192459A6DAD578B77F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362420   (949590) от 23.02.2020
-
-Selena Gomez - Rare (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rare (3:41)
-02. Dance Again (2:50)
-03. Look At Her Now (2:43)
-04. Lose You To Love Me (3:26)(   Читать дальше...   )Производство: Interscope Records – B003154102Жанр: PopПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57480E3AA00F3E83B72CF47CAD11CB8A8C74581
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361729   (949598) от 23.02.2020
-
-Justin Bieber - Changes (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Around Me (02:16)
-02. Habitual (02:48)
-03. Come Around Me (03:20)
-04. Intentions (feat. Quavo) (03:32)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70CD9690111269209668D630902EB17CFD5CF55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362353   (949696) от 23.02.2020
-
-Dubstar - Stars (1995) Single [FLAC|Lossless|tracks + .cue] <Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stars (Original Mix) (4:12)
-02. Stars (Sky Edit) (4:32)
-03. Stars (Mother Dub) (6:27)
-04. Stars (Search & Destroy Full Vox Mix) (7:35)(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 00:29:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C668BA04F6B247AAC5985B827CCAF38CE1D48514
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981998   (949808) от 02.02.2016
-
-Francesca Belmonte - Anima (2015) Deluxe Edition [MP3|320 кб/с] <Alternative Pop, Trip-Hop, Electro>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебютный альбом постоянной спутницы Tricky!01. Intro 00:39
-02. Hiding in the Rushes 03:24
-03. Stole 03:27
-04. Keep Moving 03:52(   Читать дальше...   )Жанр: Alternative Pop, Trip-Hop, ElectroПродолжительность: 01:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6207F1988EDF51FEACA2410D902830F45DC8057B
 ```
 
 

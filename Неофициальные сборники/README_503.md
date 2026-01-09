@@ -1,3 +1,30 @@
+###  Публикация: 1209098   (779484) от 25.02.2018
+
+VA - Русский Металл - Коллекция (2018) [MP3|320 Kbps] <Rock, Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779484.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Арктида - Орлиное сердце (Stratovarius cover)
+002. Артур Беркут - Право Дано
+003. Гран-Куражъ - Кто Есть Кто
+004. Крылья - Дух Рок-Н-Ролла(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 16:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D9F230FADB1504C519CD5156123E758FAC35E3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209135   (779529) от 25.02.2018
 
 VA - PSY: Megapack Psychodelic Trance (2018) [MP3|320 Kbps] <Psy Trance, Psychodelic>
@@ -668,32 +695,6 @@ VA - Empire Records - Night Wave (2018) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91766F32E85D0B813B9CB7A657EAE002509786CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207585   (780448) от 18.02.2018
-
-Gon Haziri feat Luar - DY (2018) Remix [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780448.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. DY
-2. DJ Mexx & DJ Karimov
-3. Up MusicЖанр: Club, DanceПродолжительность: 00:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEFDA315B4AC72780FF4CE39BB8141D5CCF85AC0
 ```
 
 

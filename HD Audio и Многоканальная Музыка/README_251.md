@@ -1,3 +1,36 @@
+###  Публикация: 657142   (813537) от 16.05.2013
+
+Alice Cooper - Welcome To My Nightmare (1975) [FLAC 2.0 24/96 |tracks (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To My Nightmare (5:16)
+02. Devil's Food (3:35)
+03. The Black Widow (3:37)
+04. Some Folks (4:15)
+05. Only Women Bleed (5:46)
+06. Department Of Youth (3:18)
+07. Cold Ethyl (2:53)
+08. Years Ago (2:51)
+09. Steven (5:47)
+10. The Awakening (2:25)(   Читать дальше...   )Жанр: Rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65DA53995E74B98AA39E14DC51B0B5FA07B18EEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008740   (813553) от 19.04.2016
 
 Smokie - The Montreux Album, The Other Side Of The Road (1978, 1979) [PCM 2.0|96/24|Audio-DVD|Vinyl-Rip] <Rock>
@@ -661,33 +694,6 @@ A4 Get Me To The Church On Time(   Читать дальше...   )Жанр: Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48CC122481EBADF9A26BC30B274DDFBE5072DCCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114400   (831490) от 15.03.2017
-
-The Alan Parsons Project - The Best Of The Parsons Project (1983) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wouldn't Want To Be Like You (3:11)
-02. Eye In The Sky (4:35)
-03. Games People Play (4:20)
-04. Time (4:58)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DA31FBBE59C2E269055BEB99D758534D438B3DD
 ```
 
 

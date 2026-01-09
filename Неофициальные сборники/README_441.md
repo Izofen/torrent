@@ -1,3 +1,30 @@
+###  Публикация: 1132208   (702575) от 08.05.2017
+
+VA - 90's Eurodance (2017) [MP3|320 Kbps] <Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  2 Unlimited - The Real Thing  3:41
+02.  La Bouche - Be My Lover (Radio Edit)  3:59
+03.  Alexia - Me And You (Radio Version)  4:06
+04.  Robert Miles - Children (Radio Edit)  4:07(   Читать дальше...   )Жанр: EurodanceПродолжительность: 03:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B052CA50DB7F14F05B776C6649395DF3007F98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131945   (702594) от 08.05.2017
 
 VA - Радио Энерджи ТОП 30 Май (2017) [MP3|320 Kbps] <Pop, House, Dance>
@@ -670,33 +697,6 @@ VA - Молодежная тусовка. Летнее настроение (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5C4D8015C608E25088BF452C53361783E417C0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026339   (704073) от 15.06.2016
-
-VA - Trip to Ibiza 2014 - Soulful Deep-House. Volume 1: by Day (2016) [MP3|320 кб/с] <Deep-House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Alter - Be the First  05:58min
-02. Cyclist & Maiko - Sunrise (original club mix)  05:04min
-03. Serkan Turkoglu - Zagzagel  06:35min
-04. Andy Lansky - Barcelona Cab Driving  07:04min(   Читать дальше...   )Жанр: Deep-HouseПродолжительность: 04:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA3C12ECCC00AAE7B231A1FEE627C1877F40D055
 ```
 
 

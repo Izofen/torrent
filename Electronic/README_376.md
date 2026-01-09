@@ -1,3 +1,164 @@
+###  Публикация: 1049577   (751564) от 12.07.2020
+
+my.head - Discography 18 Releases (2012-2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, 2-Step, Future Garage>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Your Typical Soundtrack (56:18)
+
+01. Dark: Ben Frost - Alles Ist Miteinander Verbunden
+02. Arrival: Johann Johannsson - First Encounter(   Читать дальше...   )Тип издания: WebЖанр: Ambient, 2-Step, Future Garage •Продолжительность: 05:17:55 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14FF9C54E5E4CA8D2EB5877E002FB52F05D30D10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246468   (751604) от 08.02.2019
+
+Sexy Suicide (ex-Neon Romance) - 2 Albums, 2 Singles (2014-2018) [MP3|320 кб/с] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изначально группа называлась "Neon Romance", и была основана в начале 2012 года. "Neon Romance" сформировалась по инициативе Варфоломея Саламона и Майкла Капусцинского. Спустя время к группе присоединяется Марика Томчик, которая становится официальной вокалисткой. В течение некоторого времени ребята трудились над своим дебютником "Midnight (   Читать дальше...   )Neon Romance - 2014 - Midnight Stories
+Sexy Suicide - 2016 - Intruder
+Sexy Suicide - 2018 - Iron City (Love Song) (Single)
+Sexy Suicide - 2018 - Techno Scar (Single)Жанр: Synthpop •Продолжительность: 01:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079B0B3F7F18758C9761F75115A7C271D3E6E671
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281483   (751610) от 08.02.2019
+
+Pet Shop Boys - Agenda (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Stupidity A Chance
+02. On Social Media
+03. What Are We Going To Do About The Rich?
+04. The Forgotten ChildЖанр: SynthpopПродолжительность: 00:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A889C0101D759859D056DA9285D458D5FDF05655
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040211   (751686) от 12.07.2020
+
+Nearfield - Discography 14 Releases (2012-2020) People Can Listen [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. H.1 (05:07)
+ 02. Pu.94 (05:53)
+ 03. O.8 (06:21)Тип издания: WEB •Жанр: IDM, Downtempo, Glitch, Abstract, Ambient •Продолжительность: 08:18:40 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC23112753EA44A05EB451415BE867EB62C4D2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036002   (751727) от 08.02.2019
+
+Unit - Discography 3 Releases (1999-2004) Caipirinha Productions, Co.Ad.Audio [FLAC|Lossless|tracks+.cue] <IDM, Ambient, Drum n Bass, Glitch>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Arrival Is Our Arrival (03:37)
+ 02. Tidal (07:11)
+ 03. Tuscan Steak (07:17)
+ 04. Meet Yourself (05:46)(   Читать дальше...   )Тип издания: CDЖанр: IDM/Ambient/GlitchПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B7234658923DD71F0B74D5C9998CF8303818734
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019019   (752101) от 22.05.2016
+
+The Lost Sun - Spectral Voice From Newborn Star (2016) [MP3|320 кб/с] <Space Ambient, Atmospheric Black Metal>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752101.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Spectral Voice From Newborn Star
+2. Embraced By The Black Void
+3. Lone Wandering Among Pale Stars
+4. Ode To Dead Sun(   Читать дальше...   )Жанр: Space Ambient, Atmospheric Black MetalПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D47CEA0493E0F70B702C6A27776F408138C87E64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395830   (752116) от 12.07.2020
 
 VA - Jaytech Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House & Trance>
@@ -531,168 +692,6 @@ VA - Spring Tube Sampler 07 (2016) [MP3|320 кб/с] <Deep House, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18F332D9E7C7D1062D4016E00E4B4586B2D8BBEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018941   (754100) от 21.05.2016
-
-VA - Tribal House Sensations Vol. 3 (2016) [MP3|320 кб/с] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ricky Vario - Extreme Beats (Original Mix)
-02. Mark De Lord - Wireless Drum (Original Mix)
-03. Fernando Venga - Tribal Tuning (Original Mix)
-04. Juan Salva - Percussion Tribe (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F520B6CA199B93A4A7EF34773AB98FD68B0F0548
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018613   (754147) от 21.05.2016
-
-VA - Black Hole House Music 05-16 (2016) [MP3|320 кб/с] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manufactured Superstars - Carry You Home (Disco Fries Remix) (feat. Iossa) 4:32
-02. Betsie Larkin - We Are the Sound (Futuristic Polar Bears Remix) 4:26
-03. Gunslinger - Roadhouse 4:09
-04. Max Graham - Amnesia (Original Mix) 6:16(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A06A06C6FD5BB389D4BE9F2F5A654EC627A191
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281067   (754842) от 06.02.2019
-
-Hello Meteor - Dusk Aquarium (Bandcamp Exclusive) (2019) Evergreen Prefecture [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Breaks, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Was Dancing Then (02:06)
- 02. Coral Blush (05:32)
- 03. The Hands of the Sky (04:40)
- 04. Radiant Persephone (03:31)(   Читать дальше...   )Жанр: Ambient, Breaks, DowntempoПродолжительность: 01:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1F903CF3BAB25ADA7DCF4632273AEFB0DD6077C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215888   (754851) от 28.03.2018
-
-Robert Babicz - A Moment of Loud Silence (2016) Traum Schallplatten [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Tech House, Progressive House>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Fly to the End of the World (4:54)
-02. So Many Ways (3:41)
-03. Curious Heart (4:59)
-04. Bloom (3:18)(   Читать дальше...   )Жанр: Ambient, Downtempo, Tech House, Progressive HouseПродолжительность: 01:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A00534F7AFADD84A41C5888BB4D626FA54E5FF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216043   (754859) от 28.03.2018
-
-VA - Spring Break Is Coming (Tech House Fever Is All Over) (2018) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hans Tool - Using 3:09
-02. Hacer Hould - Essential 3:09
-03. Grupps - Clap 3:09
-04. Gino Patricio - Plurison 3:09(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5D7992FB9677ADC2345AAEB830B803D1E5C322A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216029   (754860) от 28.03.2018
-
-Veky - Alone (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VEKY – Alone (Original Mix)
-02. Amind Two Guys – Voices In The Darkness (VEKY Remix)
-03. VEKY – Escape (Original Mix)
-04. VEKY – Feel (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05EC7BBF9FE9DA576859401B8018EAF3E18310E3
 ```
 
 

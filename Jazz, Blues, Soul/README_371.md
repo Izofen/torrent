@@ -1,3 +1,57 @@
+###  Публикация: 1232968   (595094) от 27.06.2018
+
+Sarah Vaughan And Her Trio - At Mister Kelly's (1957) 1987, Emarcy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. September In The Rain [3:43]
+02. Willow Weep For Me [5:14]
+03. Just One Of Those Things [3:10]
+04. Be Anything But Darling Be Mine [4:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE89978A58E571F42AEC5313936F06C8A9815359
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548318   (595095) от 05.05.2022
+
+Erroll Garner - Portrait (1944 - 1954) 10CD, 2003, Documents [FLAC|Lossless|image + .cue] <Swing, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595095.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 - I Hear A Rhapsody:
+01. Perdido [2:45]
+02. I Hear A Rhapsody (Parts 1&2) [8:19]
+03. You Where Born To Be Kissed [5:14](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 09:21:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6474D1309256D5D68B070629F0327A4FDBF0BECF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232965   (595096) от 27.06.2018
 
 Harold Land - Choma (Burn) (1971) 2014, Boplicity [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -287,6 +341,72 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3776A88472A964626CFBEF38D8565EDD20B6C3BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526776   (595825) от 25.07.2012
+
+Igor Matković - Sonic Motion (2012) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_595825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. State of Mind
+02. Sonic Space
+03. Intuition
+04. On the Edge
+05. Blue Flow
+06. Approaching Chaos
+07. Inner Voice
+08. Mood Channel
+09. Doors to Open
+10. Keep It ThereЖанр: JazzПродолжительность: 00:57:02
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526817   (595835) от 25.07.2012
+
+VA - Cafe New York (2005) [FLAC|Lossless]<Big Band, Swing, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_595835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guy Mitchell - My truly, truly fair [02:48]
+02. Frankie Laine - Jealousy [03:16]
+03. Ella Fitzgerald - I'm making believe [03:13]
+04. Johnnie Ray - All of me [02:10]
+05. Jo Stafford, Johnny Mercer & The Pied Pipers - Candy [03:15]
+06. Jeri Southern - I've got five dollars [01:32]
+07. Leas Paul & Mary Ford - Vaya Con Dias [02:54]
+08. Perry Como - Don't let the stars get in your eyes [02:42]
+09. The Andrew Sisters - I can dream, Can't I? [02:41]
+10. Charlie Barnet - Skyliner [03:03](   Читать дальше...   )Жанр: Big Band, Swing, VocalПродолжительность: 01:10:42
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -583,114 +703,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A4186CCECFFE294CFFE21FAE2A5D58D2319ECA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299686   (597664) от 02.05.2019
-
-Giorgia Stella - Sexy musica (Improvisation jazz) (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amore appassionato (03:21)
-02. Tocco rilassante (03:40)
-03. Giochi di amore (03:27)
-04. Amore mio (03:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F189948E4BD60BB0AFEA11A5864F633604D3EC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039216   (597806) от 31.07.2016
-
-Gianni Vancini - Acustico (2016) [MP3|320 Kbps] <Jazz, Instrumental>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quando
-02. Cannonball
-03. Caffe centrale (feat. Giacomo da Ros)
-04. All of My Life(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44CFD96D53DB3A895D6E0BBBF18A13A35E6E88AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299679   (598416) от 02.05.2019
-
-Tamir Hendelman - Destinations (2010) Resonance Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wrap Your Troubles in Dreams [5:44]
-02. Passarim [5:53]
-03. Soft Winds [6:16]
-04. Le Tombeau de Couperin [5:37](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A0988481C4EA2683B6F5706435A7E7E6D70249
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299573   (598417) от 02.05.2019
-
-David Ian - Valentine's Day (2014) Prescott Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autumn Leaves [3:35]
-02. My Funny Valentine (feat. Kevin Max) [4:04]
-03. Stella by Starlight [2:32]
-04. Solitude (feat. Acacia) [2:19](   Читать дальше...   )Жанр: Mainstream Jazz, Piano Jazz, Vocal JazzПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B19E5E2D924ED03FB942FE844AF1A28163EA643
 ```
 
 

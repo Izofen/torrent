@@ -1,3 +1,165 @@
+###  Публикация: 1282599   (743745) от 13.02.2019
+
+Not Waving - Futuro (Music For The Waldorf Project) (2019) Ecstatic [FLAC|Lossless|WEB-DL|tracks] <Ambient, Abstract, Experimental, Soundtrack>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emotion 1.7 Cleanse (06:54)
+ 02. Emotion 1.4 Decontamination (05:21)
+ 03. Transitions 2/3 Alarm Sound (05:20)
+ 04. Blue (06:20)(   Читать дальше...   )Жанр: Ambient, Abstract, Experimental, SoundtrackПродолжительность: 01:09:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D13C6DCF7BB5E9DDB64921C6245AE9142210CF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282772   (743746) от 13.02.2019
+
+VA - Damaged 100 (Mixed by Jordan Suckley & Alex Di Stefano) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chester Cat – The People (Intro Mix)
+02. Iain M – Stem Cell (Extended Mix)
+03. Sygma – Magnetic (Original Mix)
+04. Jordan Suckley – Moskva (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D740516CDA548A2CF53E7594477BDB1884D214
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282567   (743749) от 13.02.2019
+
+Ed Lynam - Live @ Gallery At Ministry Of Sound London (2019-02-01) (Classics Set)[MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pink Floyd vs. Underworld - Brown Acid (A Side Mix)
+02. Sinead O'Connor - Troy (Push Remix)
+03. Sister Bliss - Sister Sister
+04. Aurora - Hear You Calling (Dark Moon Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F31FA779FB588FBDF823D4A0CB23DEA914B2583
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282766   (743843) от 13.02.2019
+
+Hi_Tack - Say Say Say (Waiting 4 U) (2006) Enhanced [MP3|~245 Kbps (V0)] <House, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say Say Say (Wayting 4 U) (2:50)
+02. Oh la la (feat. Morandi) (6:12)
+03. Love Sensation (feat. Loleatta Holloway) (3:01)
+04. Somebodys Watching Me (feat. Beatfreakz) (2:44)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ACB76FA9465303266D36E4DC07E8BA3CFB74201
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396873   (744009) от 17.07.2020
+
+VA - Goa Trance, Vol. 43 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744009.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Orisma - Travel Beyond (8:00)
+2. Formula None - From Within (6:31)
+3. Estefano Haze; Multiphase - A New Paradigm (7:53)
+4. Serenity Flux - Yallah (7:08)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:15:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6A303E168B83CA0C656222CACED3F62A05C1ADD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396792   (744086) от 17.07.2020
+
+Cult48 - Catalog 1 (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, IDM, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Calls To Deep (02:16)
+ 02. August 84 (05:32)
+ 03. Dusk (01:08)
+ 04. 251070 (01:51)(   Читать дальше...   )Жанр: Ambient, IDM, DowntempoПродолжительность: 00:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D09D776A78C1E48210AF41ABB5C4D2A945FCB197
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396816   (744195) от 17.07.2020
 
 O-Wells - Ebecs (2020) Die Orakel [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Techno, Electro>
@@ -530,159 +692,6 @@ Bernd Filz - A Good Stuff (2016) [MP3|320 кб/с] <Electronic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8ED696962D2AAB3984130B8F9B684F7F72E3AEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396601   (745579) от 16.07.2020
-
-Matt Fax - Progressions (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Fax - Vanishing (1:16)
-02. Matt Fax & LEVV - Always You (4:17)
-03. Matt Fax - Light On (4:29)
-04. Matt Fax - Abenaki (3:20)(   Читать дальше...   )Жанр: Progressive House, Tech House, ElectroПродолжительность: 01:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9FA38206333A3C74635312A330C576C6FB98EBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396775   (745582) от 16.07.2020
-
-Matt Fax - Contrast (Remixed) (2018) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aeolis Mons I (Monika Remix) (3:35)
- 02. The Chase (Jaytech Remix) (4:33)
- 03. Kinetic (Estiva Remix) (3:19)
- 04. Close 2 U (Anden Remix) (3:48)(   Читать дальше...   )Жанр: EDM, Progressive House, Deep HouseПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42E2B8EAE24EDC27C641E93650EF689E1986CF3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396628   (745587) от 16.07.2020
-
-Matt Fax - Contrast (2017) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aeolis Mons I (Original Mix) (2:47)
- 02. The Chase (Original Mix) (4:04)
- 03. Kinetic (Original Mix) (3:18)
- 04. Close 2 U (Original Mix) (3:52)(   Читать дальше...   )Жанр: EDM, Progressive House, DowntempoПродолжительность: 01:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E7D74D322B4AC8DC6E3CBA2688F12E49F2FF96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 664854   (745681) от 05.06.2013
-
-Stimming - Stimming (2013) [FLAC|Lossless]<Tech House, Deep House, Minimal Techno, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_745681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Tech House, Deep House, Minimal Techno, ElectronicПродолжительность: 01:07:18
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217038   (746122) от 02.04.2018
-
-La Caina (ex resident of Cafe Del Mar) - Discography 4 Releases (2006-2015) [MP3|320 Kbps] <Lounge, Nu-Jazz, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Lounge, Nu-Jazz, Chillout, DowntempoПродолжительность: 03:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06BFBB515BE74C1F1CC8B0783B9CB60C3868795C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217036   (746125) от 02.04.2018
-
-DAB / Digital Analog Band (ex resident of Cafe Del Mar) - Discography 3 Releases (2003-2011) [MP3|320 Kbps] <Chillout, Downtempo, Triphop>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Chillout, Downtempo, Triphop, Ambient, ElectronicПродолжительность: 02:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6C8407E59A61D74BF589D55C99115C6FB41E22
 ```
 
 

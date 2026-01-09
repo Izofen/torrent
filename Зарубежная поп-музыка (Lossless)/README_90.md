@@ -1,3 +1,30 @@
+###  Публикация: 1362415   (949561) от 23.02.2020
+
+Poppy - I Disagree (2020) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Hardcore>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concrete (3:20)
+02. I Disagree (3:13)
+03. BLOODMONEY (3:02)
+04. Anything Like Me (3:19)(   Читать дальше...   )Производство: Sumerian Records – SUM1247Жанр: Pop, Rock, HardcoreПродолжительность: 00:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8F8B0138A398D010B1E192459A6DAD578B77F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362420   (949590) от 23.02.2020
 
 Selena Gomez - Rare (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop>
@@ -665,33 +692,6 @@ Carrie Underwood - Storyteller (2015) [FLAC|Lossless|tracks] <Pop, Pop Rock, Cou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F335BA23B70E3386F345554634CC418537FD068
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359982   (963264) от 13.02.2020
-
-Tennis - Swimmer (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Haunt You (02:32)
-02. Need Your Love (03:51)
-03. How to Forgive (03:36)
-04. Runner (03:36)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8AEF7031E4B985FCC0015299CA50F949166B4A4
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1279715   (764534) от 31.01.2019
+
+VA - Hands Up Dance Music (2019) [MP3|320 Kbps] <Dance, Club, Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764534.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cezаrаni - Brаve
+002. Briаn Theоdоre - Originаl Gаngstа Mke
+003. Christiаn Bаrtаsek - Hаnds Uр
+004. Abсd - Pаssiоn(   Читать дальше...   )Жанр: Dance, Club, Electro HouseПродолжительность: 08 :19 :02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547CABCE8BED753E7372467E23773B92AA08DB95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279639   (764548) от 31.01.2019
 
 VA - Empire Records - Fake 4 (2019) [MP3|320 Kbps] <Trance, Dance>
@@ -665,33 +692,6 @@ VA - I Love Music! - Heavy Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Heavy Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:002FD3383C586E6FF7815F6A7F9BB1B6CD412E0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126467   (765375) от 18.04.2017
-
-VA - I Love Music! - Gothic Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Gothic Metal, Doom Metal, Symphonic Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765375.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Batalion d'Amour - Bez Nas 5:56
-002. Bitterfeldt - Eines Tages 8:47
-003. Bitterfeldt - Nordlicht 9:35
-004. Bliss In The Abyss - The Book Of Silence 7:16(   Читать дальше...   )Жанр: Gothic Metal, Doom Metal, Symphonic MetalПродолжительность: 08:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA455D1583DFC31737EB75AFA46392C33FF99116
 ```
 
 

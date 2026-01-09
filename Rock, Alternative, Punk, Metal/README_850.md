@@ -1,3 +1,57 @@
+###  Публикация: 1039645   (594438) от 02.08.2016
+
+Catfish and the Bottlemen - The Ride (2016) [FLAC|Lossless|tracks] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7
+02. Twice
+03. Soundcheck
+04. Postpone(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:190FB889D670A2164EB55C3845BC9A76274F4EBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039562   (594502) от 02.08.2016
+
+VA - Stars Of Rockabilly (2016) 3CD [FLAC|Lossless|image + .cue] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eddie Cochran - Jeanie Jeanie Jeanie
+02. Gene Vincent - Who Slapped John?
+03. Wanda Jackson - Fujiyama Mama
+04. Johnny Horton - Honky Tonk Man(   Читать дальше...   )Жанр: RockabillyПродолжительность: 02:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A95A810D198AD67DF281EFAE4A055513403122
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039714   (594506) от 02.08.2016
 
 Vivaldi Metal Project - The Four Seasons (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Symphonic Metal, Neo-Classical Metal>
@@ -638,60 +692,6 @@ Metalwings - Fallen Angel In The Hell (2016) EP [FLAC|Lossless|WEB-DL|tracks] <S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:581CFD9F2ED4D4048FD6CF9C9838145B76CC95E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232909   (595014) от 27.06.2018
-
-Josie & The Outlaw - Wrong Turn (2018) [MP3|320 Kbps] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Picking Up The Pieces (03:21)
-02. All I Could Do Was Cry (02:17)
-03. Number 9 (03:20)
-04. Wrong Turn (02:26)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768AA918B28A8CDC3A2A77933BD0FAD4446B54B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915052   (595044) от 04.07.2015
-
-Smoke No. 7 - Old Bones (2015) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manic
-02. Katie's in the Basement
-03. Succubus
-04. Doctor Doctor(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A1128C38ED1FB4A87280368095776DB29CAA7E
 ```
 
 

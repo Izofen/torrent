@@ -1,3 +1,30 @@
+###  Публикация: 1000985   (855530) от 27.03.2016
+
+VA - Весенние хиты в тачку 2016 (2016) [MP3|320 кб/с] <Dance, House, Pop, Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855530.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lounge Groove Avenue — Sweet Summer Days (02:20)
+2. AronChupa feat. Little Sis Nora — Little swing (02:31)
+3. Oтпетые мошенники — А у реки (02:31)
+4. Lеприконсы — Девчонки Полюбили Не Меня (02:31)(   Читать дальше...   )Жанр: Dance, House, Pop, BluesПродолжительность: 08:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA9725E9812516DA582B5DA5544A38CC1ED616ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001024   (855532) от 27.03.2016
 
 VA - Dr. Metal Presents: Vol.7 (2016) [MP3|224 кб/с] <Heavy, Speed, Power Metal>
@@ -667,33 +694,6 @@ VA - Club Dance Hits DFM (2016) [MP3|320 кб/с] <Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB1673144C10CF56ABA5E8562BFE20C184DAF789
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109653   (857367) от 28.02.2017
-
-VA - Running Of Dance Hits Friends (2017) [MP3|320 Kbps] <Pop, House, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kygo & Selena Gomez - It Aint Me (Snip Hitz)  5:19
-02.  Pitbull & Stephen Marley - Options (Intro Dirty)  5:18
-03.  Deorro & Lesley Roy - Tell Me Lies (Radio Edit)  3:20
-04.  FloRida & Sage The Gemini - Game Time  3:12(   Читать дальше...   )Жанр: Pop, House, Club, DanceПродолжительность: 03:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B282700F771FC9FC7B4B513139BEF8CDA7BE8EC
 ```
 
 

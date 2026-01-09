@@ -1,3 +1,30 @@
+###  Публикация: 1553662   (581882) от 26.05.2022
+
+Michael Schenker Group - Universal (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emergency (feat. Barry Sparks & Simon Phillips) (3:49)
+02. Under Attack (4:37)
+03. Calling Baal (feat. Tony Carey) (0:39)
+04. A King Has Gone (feat. Michael Kiske, Bobby Rondinelli, Bob Daisley & Tony Carey) (4:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE4EE17E6DCECF6EEA6FA12E4D4F148D4F44DB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 358921   (581900) от 06.07.2011
 
 CG Bros - Жизнь За Зря (2011) [MP3|320 kbps]<Punk-Rock>
@@ -695,33 +722,6 @@ magnet:?xt=urn:btih:502FE046920491BDA01112DB90664EAF15E0F1F3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB642A6D0660EF751F74238E91914932B71A649C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919056   (582800) от 19.07.2015
-
-Santana - Les Genies du Rock - Santana Jam (1995) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Get Ourselves Together [02:05]
-02. Acapulco Sunrise [02:31]
-03. Latin Tropical [11:23]
-04. Santana Jam [14:41](   Читать дальше...   )Жанр: RockПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A68CC8756C9DF775635AB1F8394E69D553791E
 ```
 
 

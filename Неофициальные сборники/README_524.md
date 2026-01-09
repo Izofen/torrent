@@ -1,3 +1,30 @@
+###  Публикация: 1012067   (795568) от 29.04.2016
+
+VA - Acoustic Sunrise (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erato - Thrill of Making Out
+02. Lena Swanberg - Dream On
+03. Titiyo - Come Along
+04. Isak - The One(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B81BCA50D33CCC6E6476D521944B07B727EE486
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011764   (795575) от 29.04.2016
 
 VA - Ibiza 2015. Massive Energy Flux. Vol.1 (2015) [MP3|256-320 кб/с] <Techno-House>
@@ -668,33 +695,6 @@ VA - Beatport Club House: Electro Sound Pack #93 (2020) [MP3|320 Kbps] <Club, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:930434FC9706E72885FF805A8B42BC66C4B0867E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385976   (795886) от 27.05.2020
-
-VA - Acoustic Chill (2020) [MP3|320 Kbps] <RnB, Pop, Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passenger - London In The Spring 2:58
-02. Syml - Here Comes The Sun 3:02
-03. Wild Rivers - Small Talk 2:46
-04. Jónsi - Exhale 5:12(   Читать дальше...   )Жанр: RnB, Pop, BluesПродолжительность: 03:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8809C18DBD474A0A89686AFED034A8859DE60962
 ```
 
 

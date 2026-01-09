@@ -1,3 +1,30 @@
+###  Публикация: 971759   (985239) от 03.01.2016
+
+VA - Top 100 Club Tracks (December 2015) (2015) [MP3|320 кб/с] <Dance, Club, Club House, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A & D - Dancing In My Head (Original Mix)
+02. Adele - Hello (Dj Denis Rublev & TPaul Sax Mix)
+03. Adele - Hello (Layn Korel Remix) [2015]
+04. Antoine Cortez - Spektrum (Original mix)(   Читать дальше...   )Жанр: Dance, Club, Club House, ElectroПродолжительность: 08:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D762DCA0147B67C0B9EDFB8173304A83C1C43B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971570   (985684) от 03.01.2016
 
 VA - DFM. Новогодний эфир (2015) [MP3|233-320 кб/с] <Pop, Dance>
@@ -683,33 +710,6 @@ VA - Sunday Brunch Lounge (Chilled Jazzy Weekend Lounge) (2015) [MP3|320 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA607439FFCB16FDA040AE0A2E1C3CEFF040FEF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971290   (987660) от 02.01.2016
-
-VA - Suenos de California Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ladale - Unfulfilled [05:13]
-02. Laurent de Paris - Pianoes [05:08]
-03. Andrew Hoek - Reversum [02:49]
-04. Bikini Beats - Diamond Heart [04:30](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD791C1CDD8679AFFFAE65E796371034BD750A6
 ```
 
 

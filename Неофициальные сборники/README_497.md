@@ -1,3 +1,30 @@
+###  Публикация: 1212344   (776005) от 11.03.2018
+
+VA - Instrumental Piano: Neo Classical Collection (2018) [MP3|320 Kbps] <Instrumental, Neoclassical, Piano>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776005.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Music Lab Collective  -  7 Years (Lukas Graham)  2:44
+002.  Phil Collins  -  Another Day In Paradise (Piano Cover)  5:08
+003.  Gregory Aigersson  -  De-Stress  3:15
+004.  Rick Wakeman  -  Life On Mars (David Bowie)  3:23(   Читать дальше...   )Жанр: Instrumental, Neoclassical, PianoПродолжительность: 07:21:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE080B5E00C2A550C493B37F147C777F14101AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212354   (776007) от 11.03.2018
 
 VA - Women Blues (2000-2016) (2018) 2CD  [MP3|320 Kbps] <Blues, Blues-Rock>
@@ -668,33 +695,6 @@ VA - Floating Beings - Psy Trance Mix (2016) [MP3|320 кб/с] <Psy Trance, Psyh
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E38A84050321E277C0E466A85C233A87BCD525E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014480   (776207) от 08.05.2016
-
-VA - Trance Maniacs Party - Melody Of Heartbeat #163 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Essonita feat. Irina Makosh - Letter To Angel (Original Mix) 6:27
-02. Beat Service - Not This Time - Original 5:55
-03. Squarz Kamel, Love Dimension - Say Me (Original Mix) 6:29
-04. Eminence Ft. Holly Drummond - Ultraviolet (Cold Rush Remix) 7:28(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E1686D1E5C38099CFB1C3ABFB974BDEB13CD61
 ```
 
 

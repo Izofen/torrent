@@ -1,3 +1,163 @@
+###  Публикация: 1025836   (715753) от 01.05.2017
+
+Label Pack - Rielism - 45 Releases (2015-2017) [MP3|320 кб/с] <Trance>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GoRiel (07:01)
+02. GoRiel (JOC deconstruction) (05:50)Жанр: TranceПродолжительность: 05:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8326881C29A15EA88D3CCF64C2533C4BCD85077
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024195   (715834) от 09.06.2016
+
+Meteora - Gradients II Westerlies (2016) [MP3|320 кб/с] <Electronic, Spacesynth, Synthpop>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyclone Belt
+02. Twisting Monster
+03. Westerlies
+04. Cataclysm(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 01:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BB58EA58471BAD1A79B1025EE0B4E35605670A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219292   (715846) от 13.04.2018
+
+VA - After Work Chillout Vol.1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Makia Blue - Thought Carousel [04:22]
+02. Dyodho - Eternity (extended Chillout mix) [07:30]
+03. The Big Break Lounge - Beautiful Time [04:52]
+04. Heisenwerk - Maximum Chillout [03:49](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D66DDAA8977BA316281F31E2A99CEEAEFA2A76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219175   (715847) от 13.04.2018
+
+VA - Black Hole Trance Music 04 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate & JES - If Not Now (Extended Club Mix)
+02. Ferry Corsten & Paul Oakenfold - A Slice Of Heaven (Extended Mix)
+03. ACAYA - Evermore (Extended Mix)
+04. Dave Neven - Meraki (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D56F1CED2AA7FA4712DB9FBD0BB62D34B04E7993
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219234   (715850) от 13.04.2018
+
+Thyladomid - Interstellar Destiny (2015) Diynamic Music [FLAC|Lossless|tracks+.cue] <Deep House, Psychill, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intergalactic Spring (01:17)
+02. Generation Y (03:47)
+03. Brotherhood (06:55)
+04. Inner Space (05:50)(   Читать дальше...   )Жанр: Deep House, Psychill, AmbientПродолжительность: 01:18:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58904E433E89F49239F34DB859C8EBE527FBC938
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219183   (715855) от 13.04.2018
+
+VA - Markus Schulz & Dennis Sheperd - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz
+01. Cosmic Gate and Super8 & Tab - Noom (Estiva Remix)
+02. Dylhen - Brouhaha (World Premiere)
+03. Ferry Corsten & DIM3NSION - Safe with Me(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5DC380DD3EA3AA4CD14B3882F1F46F7F1A5C73F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219157   (715856) от 13.04.2018
 
 Simon Cummings - 間 (2018) Crónica [FLAC|Lossless|WEB-DL|tracks] <Abstract, Experimental, Ambient>
@@ -529,165 +689,6 @@ VA - Mysteries of Psytrance Vol. 6 (Compiled By Ovnimoon)(2017) [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B278DCD91777AF7AB8AA0FB47D2C528E9DEA757A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129852   (718709) от 30.04.2017
-
-Sverre Knut Johansen - Contact (2017) [MP3|320 Kbps] <Electronic, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Contact 4:18
-02 Hope 4:43
-03 Journey Through Space 6:44
-04 Apocalypse 6:44(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD441574E24BB018995CC754FCFEAFD0226B96D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984165   (718718) от 05.08.2020
-
-Spatialize - Discography 9 Releases (2004-2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Dub, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scarlet Sundown (06:31)
- 02. Fluid Blue (05:11)
- 03. Clarity (Original Version) (06:10)
- 04. Praise (04:07)(   Читать дальше...   )Тип издания: WEBЖанр: Psychill, Downtempo, Dub, Ambient •Продолжительность: 06:09:35 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A355761571A799DDCEC088ED6D4AF51BC811731
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230307   (718811) от 27.02.2019
-
-Trifonic - Discography 11 Releases (2008-2019) Trifonic Music LLC [FLAC|Lossless|tracks+.cue, tracks] <IDM, Post Rock, Downtempo, Glitch, House>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightrun (Comaduster Remix) (05:01)Тип издания: CD, WebЖанр: IDM/Downtempo/AmbientПродолжительность: 00:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D127D49D28F2E33296154E7CCAE0729C91F6C7F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129743   (718830) от 30.04.2017
-
-Alina Baraz & Galimatias - Urban Flora (2015) [MP3|320 Kbps] <Electronic, R&B, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Show Me
-02. Drift
-03. Can I
-04. Fantasy(   Читать дальше...   )Жанр: Electronic, R&B, Soul, DowntempoПродолжительность: 00:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6034F11DB33C9A7694F09E69269BE8D6AA5BCFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129914   (718835) от 30.04.2017
-
-VA - Chilli Vanilli Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mykel Mars - Good Time (Chillout Deluxe Mix)  5:39
-02.  More Flowers - Capetown Sunset (Urban Chillout Mix)  5:24
-03.  Bobby Escobar - Playa (White Sand Mix)  4:44
-04.  Agent Juno - Sunstorm (Ambient Chillout Mix)  5:31(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52A62A45EDD283CF5D7D641E0D593189C41762A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129480   (718839) от 30.04.2017
-
-Keosz - Ava (2017) [MP3|320 Kbps] <Ambient, Dark Ambient, Drone>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aquitted from Illness (5:29)
-02. All I Had To Do (4:46)
-03. AVA (3:55)
-04. Downfall (5:54)(   Читать дальше...   )Жанр: Ambient, Dark Ambient, DroneПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F50FDA4996676D1CE2F9A89ABBBC0F1AE944F882
 ```
 
 

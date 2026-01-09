@@ -1,3 +1,81 @@
+###  Публикация: 167580   (670680) от 20.05.2015
+
+Совместный проект Юга де Курсона (Huges de Courson) и Ахмеда аль Магреби (Ahmed al Maghreby) - Моцарт в Египте / Mozart in Egypt (1997) [FLAC|Lossless]<Classic - Ethnic>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_670680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classic - EthnicПродолжительность: 01:07:57
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223408   (671430) от 06.05.2018
+
+VA - Piano Cloud Series - Volume Three (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, Minimal>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akira Kosemura - Resonance
+02. Sophie Hutchings - Tail Lights
+03. Bruno Bavota - Passi
+04. Piano Novel - The Forgotten Keys(   Читать дальше...   )Жанр: Modern Classical, Piano, MinimalПродолжительность: 01:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C0D3B38DA0E4C99E359EC68E7425E15F698B468
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223424   (671515) от 06.05.2018
+
+The New London Chorale - The Classic Christmas Collection (1998) [FLAC|Lossless|image + .cue] <Сrossover Classical, Traditional>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For unto us
+02. Stille Nacht
+03. Winter wonderland
+04. Oh Tannenbaum(   Читать дальше...   )Жанр: Сrossover Classical, TraditionalПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D184D4673B5D3F88EE01323935D656A1281A890F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223769   (671516) от 06.05.2018
 
 VA - Angelica (1997) Compilation [FLAC|Lossless|image + .cue] <Rock, Crossover Classical, Vocal>
@@ -622,87 +700,6 @@ VA - Piano Cloud Series - Volume Two (2016) [FLAC|Lossless|WEB-DL|tracks] <Moder
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4627024D95B8964592DDA18DF88605A4F41749A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 74433   (693618) от 18.08.2020
-
-Telarc: Sampler Five Plus, Sound Effects Library [1996] [flac] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Newman / 20th Century Fox Fanfare    [0:00:25.55]
-      Kunzel / Cincinnati Pops Orchestra
-
-02. Williams / Music from Space Camp    [0:04:01.57](   Читать дальше...   )Жанр: ClassicalПродолжительность: 68:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6648C7EA95E09C097F5C87F8ECEFC959E7C46C48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027856   (694170) от 20.06.2016
-
-Anderson & Roe Piano Duo - The Art of Bach (2015) [FLAC|Lossless|tracks] <Classical, Keyboard>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gottes Zeit ist die allerbeste Zeit, BWV 106 'Actus tragicus' 
-01.  BWV 106 - Sonatina in E flat  02:30
-Concerto for 2 Harpsichords in C major, BWV 1061
-02.  BWV 1061A- 1. (Allegro)    07:07(   Читать дальше...   )Жанр: Classical, KeyboardПродолжительность: 01:14:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DBA9268199177AF8AE0BB1D23095559F12CC40F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027848   (694292) от 20.06.2016
-
-Ensemble Il Trittico, David Greenlees - Joseph Joachim Raff: Piano Quartets (2011) [FLAC|Lossless|tracks] <Classical, Chamber Music>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Quartet in G major, Op. 202, No. 1
-01.  Op.202, No.1 - 1. Allegro    12:49
-02.  Op.202, No.1 - 2. Allegro molto    05:46
-03.  Op.202, No.1 - 3. Andante quasi Adagio    11:43(   Читать дальше...   )Жанр: Classical, Chamber MusicПродолжительность: 01:18:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D95F7530825EA162A7C6A6648331332CC2ADB4E
 ```
 
 

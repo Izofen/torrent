@@ -1,3 +1,165 @@
+###  Публикация: 1606259   (1044160) от 25.01.2023
+
+VA - Black Hole Trance Music 01-23 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Durand & Clara Yates - Million Stars (Extended Mix) [07:47]
+02. Fisherman & Nifra - Passion (Extended Mix) [06:32]
+03. Alex Kunnari & AK & Christian Burns - Anywhere With You (Extended Mix) [05:13]
+04. Johan Gielen & Tastexperience - Serenity (Extended Mix) [07:37](   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ABE874D347A56199200D4BB19244692B8E556FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607194   (1044162) от 25.01.2023
+
+Dj Nikk - The Millenniummmix (2000) [FLAC|Lossless|tracks + .cue] <House, Hard House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mac Zimms - Ancient Myth [6:28]
+02. Nether Man - Made To Move [4:09]
+03. Phlash - Under My Control [5:42]
+04. ID - ID [5:52](   Читать дальше...   )Жанр: House, Hard House, TranceПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CEE52F090F6665B1AECC474F2D4123F8F93CA43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606283   (1044164) от 25.01.2023
+
+VA - Black Hole House Music 01-23 (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will Atkinson, Gary Go - If I Spoke Your Language (Grum Extended Remix) [06:15]
+02. Michael Feiner - Follow (Club Mix) [03:39]
+03. Siskin - Always You (Extended Mix) [08:48]
+04. Betweenus & VJS - Floating (Extended Mix) [05:13](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1927FCA016E35ED9C8FA6C2E425A115CC2AC19E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606647   (1044285) от 23.01.2023
+
+Laibach - 8 Relises (2018-2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Neo-Classical, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов
+Laibach - 2018 - The Sound of Music
+Laibach - 2019 - Party Songs
+Laibach - 2019 - So Long, Farewell (Single)(   Читать дальше...   )Жанр: Industrial, Neo-Classical, ExperimentalПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03FAC31E41B9E153233D71840965CBAA2C104B8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606789   (1044301) от 23.01.2023
+
+VA - Black Hole House Music 01-23 (2023) [FLAC|Lossless|WEB-DL|tracks] <EDM, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Will Atkinson, Gary Go -  If I Spoke Your Language (Grum Extended Remix)  (6:16)
+02.  Michael Feiner -  Follow (Club Mix)  (3:39)
+03.  Siskin -  Always You (Extended Mix)  (8:48)
+04.  BetweenUs, VJS -  Floating (Extended Mix)  (5:14)(   Читать дальше...   )Жанр: EDM, Club HouseПродолжительность: 02:17:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F1770163F069F9DFE3CA8BFE3D3D8A1D0CAAA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606516   (1044429) от 22.01.2023
+
+Laibach - REvisited (2 Relises) (2020) [MP3|320 Kbps] <Industrial, Ambient, Spoken Word>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boji Revisited [00:06:21]
+02. Mi Kujemo Bodočnost Revisited [00:08:09]
+03. Smrt Za Smrt Revisited [00:06:31]
+04. Država Revisited [00:05:20](   Читать дальше...   )Жанр: Industrial, Ambient, Spoken WordПродолжительность: 2 CD, 04:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:340A5AB01DC827BAE3E13365AA91602BB2FC626C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606157   (1044450) от 22.01.2023
 
 VA - Armada Chill - Winter 2023 [MP3|320 Kbps] <Progressive House, Organic House, Melodic House>
@@ -532,168 +694,6 @@ VA - Ночной клуб Vol. 1&2 (1999) [FLAC|Lossless|tracks + .cue] <Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7785158DAE4811D3BC33792F8B24FB502B76BDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603260   (1045811) от 08.01.2023
-
-VA - Spacedance, Vol. 4 (2022) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spacesynth, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Futurespace - Around The World (Extended Dance Version) (5:28)
-02. Daylight - Robots (Extended Italo Dance Mix) (5:23)
-03. Futurespace - Heartbeat (Instrumental Version) (5:10)
-04. Based on Bass - Human Interface (Instrumental Version) (5:01)(   Читать дальше...   )Жанр: Spacedance, Spacesynth, RetrowaveПродолжительность: 01:21:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:541E72772F03FEF906A7A84080EDA1A8E1A32531
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602951   (1045846) от 08.01.2023
-
-VA - Lounge Music Bar and Cafe (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vis Et Spes - Served With A Flourish (6:03)
-02. Aqua Mundi - Pescadores De Altura (5:54)
-03. Roesselsprung - Among The Firs (5:46)
-04. Ackeret - Surprisingly (6:03)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2355D6177DD999A887A3FBCA7D3747A43837FDDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603257   (1045848) от 08.01.2023
-
-GARRISON (Игорь Савосин) - Musical Contact (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Psybient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Water (4:24)
-02. Astral Space (6:07)
-03. Enigma (4:08)
-04. Positive Energy (4:51)(   Читать дальше...   )Жанр: Chillout, Lounge, PsybientПродолжительность: 00:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57E3D608D58E818635B98FB1251430063DE8236
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603021   (1045849) от 08.01.2023
-
-VA - Ibiza Session 2023 - For DJs Only [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam One - E Samba (Club Mix 2022) (6:08)
-02. Ruli feat. Iva Rii - Revolution (Extended Mix) (5:58)
-03. Quinten 909 & Silver Disco - Call Me (Original Mix) (5:26)
-04. Too Max - Adrenaline (Piano House Extended Mix) (4:07)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:13:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2254F07FA41566C036A79CC7DE719BCA80CC107
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602958   (1045850) от 08.01.2023
-
-VA - Sunrise Lounge & Chillout, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rob Downbeat - Cosmicon (5:10)
-02. Dulcis Domus - 19:42 P.m. (7:22)
-03. Kenny Laakkinen - Winner Lounge (6:35)
-04. Blue Wave - Eu Gosto De Voce (5:51)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 03:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40DBFC28AECD37CB9DA292842BAF5165938D8DE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602947   (1045860) от 08.01.2023
-
-VA - Lounge & Chill Out Moods, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guenter Haas - Without You (Remastered) (5:21)
-02. Sunset Boulevard Project - Guitarra Y Sol (4:30)
-03. Project Blue Sun - Dame Tu Amor (6:18)
-04. Smooth Deluxe & Josephine Sinclar - My People (5:27)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 02:15:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09685FE77F9996A586AEF0590F586AC8875B0AC2
 ```
 
 

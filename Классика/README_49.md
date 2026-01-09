@@ -1,3 +1,84 @@
+###  Публикация: 1093892   (932082) от 16.01.2017
+
+Dan Laurin - Telemann, Corelli & Bach (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical, Chamber Music>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Höör Barock - Concerto for 2 Recorders & 2 Oboes in B-Flat Major, TWV 54:B2: I. Andante [00:06:00]
+02. Dan Laurin - Concerto grosso in G Minor, Op. 6 No. 8 "Christmas Concerto": I. Vivace - Grave [00:02:39]
+03. Höör Barock - Ouverture-Suite in C Major, TWV 55:C3: I. Ouverture [00:01:58]
+04. Anna Paradiso - Keyboard Concerto in (   Читать дальше...   )Жанр: Classical, Chamber MusicПродолжительность: 01:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0FDB82EBBFDDA050D97CC85A963578740526E7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093430   (933324) от 15.01.2017
+
+Rick Wakeman - Piano Portraits (2017) [MP3|320 Kbps] <Classical, Piano>
+
+>>Классика
+>>Фортепиано
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Help 03:55
+02. Stairway To Heaven 06:12
+03. Life On Mars 03:23
+04. Im Not In Love 03:10(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBCB9FEFA53DB7ED90ED51F16AEC3EAFD684635E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985333   (935143) от 11.02.2016
+
+Escala - Quadrasonic (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Pop>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aerodynamic
+02. Bittersweet Symphony
+03. Hysteria
+04. Libertango(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B716EB0CAA352129E2E8C2A8D3F008CE30CAD3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 285209   (935232) от 21.01.2011
 
 Jon Lord & Royal Liverpool Philarmonic Orcestra - To Notice Such Things (2010) [FLAC|Lossless]<Classical>
@@ -625,87 +706,6 @@ Vitalij Margulis / Виталий Маргулис - Frederic Chopin / Фред�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4546C1506A9C290C96CC4CFB25FDEA2819EAD212
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088473   (953609) от 02.01.2017
-
-Damien Poisblaud - Chant Grégorien - Abbaye du Thoronet (1990) PAVANE Records [FLAC|Lossless|image + .cue] <Григорианский хорал>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953609.jpg" />
-</div>
-
-
-###  Подробнее
-
-GREGORIAN CHANT
-1. Gradual "Beata gens"
-2. Introit "Loquebar"
-3. Gradual "Adjuvabit"(   Читать дальше...   )Жанр: Григорианский хоралПродолжительность: 01:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A155AC2395914787DC46900066835CD30DC0D55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089103   (953685) от 02.01.2017
-
-Josquin Desprez - Missa Gaudeamus (1990) [FLAC|Lossless|image + .cue] <Classical sacred>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Josquin Desprez
-1 Introitus Gaudeamus omnus in domino
-
-Josquin Desprez: Missa "Gaudeamus"(   Читать дальше...   )Жанр: Classical sacredПродолжительность: 01:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AC8EB28DFD88CCBAFF04D9FAF8CCDF001651221
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980572   (954598) от 30.01.2016
-
-Святослав Рихтер, Lovro von Matacic, Orchestre Nacional de l'Opera de Monte Carlo - Grieg, Schumann: Piano Concertos  [FLAC|tracs + .cue] <Classical>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grieg - Piano Concerto in A minor, op. 16
-01 (1) Allegro molto moderato
-02 (2) Adagio
-03 (3) Adagio moderato molto e marcatoЖанр: ClassicalПродолжительность: 01:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E869D5ACFCD0208E1C23312607CA15BE65EBEE01
 ```
 
 

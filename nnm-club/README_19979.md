@@ -1,667 +1,684 @@
-###  Публикация: 1121494   (800645) от 02.04.2017
+###  Публикация: 1200634   (793705) от 23.01.2018
 
-Default Folder X 5.1.4 [Multi]
+Мсье Ир / Monsieur Hire (1989) BDRemux [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тихий одинокий холостяк месье Ир, которого подозревают в убийстве девушки, любит тайно наблюдать через окно за своей молодой соседкой Алисой, живущей в доме напротив. Однажды, заметив его при вспышке молнии во время грозы, Алиса приходит к нему домой, чтобы узнать, почему он за ней шпионит...Производство: Франция,  Centre National de la Cinématographie (CNC), Cinéa, FR3 Films
+ProductionЖанр: Триллер, драма, мелодрама, криминалРежиссер: Патрис ЛеконтАктеры: Мишель Блан, Сандрин Боннэр, Люк Тюйе, Андре Вильм, Эрик Беренжер, Мариэль Бертон, Филипп Дормуа, Мари Гайдю, Мишель Морано, Нора НоэльПеревод: Многоголосый, авторскийСубтитры: Японские, русские, русские (комментарий режиссера)Продолжительность: 01:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987F886576249B98A26DAD6CF5D2C64A87A83106
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122510   (793706) от 06.04.2017
+
+Dirty South - Live @ Soundcheck Nightclub (2016) [MP3|320 Kbps] <House, Tech House, Progressive House>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800645.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793706.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Default Folder X - Расширяет функциональные возможности окна открытия/сохранения, прикрепляя к нему дополнительную панель. Эта панель обеспечивает быстрый доступ к различным папкам (избранное, последние использованные и т.д.), командам (управление файлами и папками в окне) и настройкам. Помимо этого стоит отметить возможность быстрого предпросмотра мультимедийных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 марта 2017Разработчик: St. Clair SoftwareПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Французский и др.
+01. Dirty South ft. Rudy - Just Dream (Intro Version)
+02. Lane 8 - Fingerprint (Dirty South Cut)
+03. Groove Armada - Superstylin' (Riva Starr Edit)
+04. Oxia - Domino (Zonderling Edit)(   Читать дальше...   )Жанр: House, Tech House, Progressive HouseПродолжительность: 01:00:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5AF9FFE1D6D63C66326FBEBE5A812DAC8A1AE563
+magnet:?xt=urn:btih:6C62CB67934F08059535C6A4D3F1223C13DEE35C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121003   (800646) от 02.04.2017
+###  Публикация: 1122875   (793707) от 06.04.2017
 
-VA - Лучший весенний хит выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
+SIG:AR:TYR - Beyond The North Winds (2008) [APE|Lossless|image + .cue] <Epic Viking Metal>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800646.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793707.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Саша Санта - Попрошу 3:25
-002. Автобус - Слышишь 3:26
-003. Дмитрий Колобов - Мадемуазель 5:03
-004. Юлианна Караулова - Чувство Ю 1:32(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:01
+1. King Of The World (09:33)
+2. Beyond The North Winds (08:21)
+3. Pale Autumnal Moon (03:08)
+4. Under The Mountain (09:16)(   Читать дальше...   )Жанр: Epic Viking MetalПродолжительность: 00:54:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFE4F04CFB0778C8802B431B49588E6891632DCD
+magnet:?xt=urn:btih:33E1A647190293E16291FE89DEBAEBF06CE06DBF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120888   (800647) от 02.04.2017
+###  Публикация: 1122873   (793708) от 06.04.2017
 
-VA - Easy Sun Lounger Born To Be Cool Chillin Vol.4 (Finest Chill Out Lounge and Ambient Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+SIG:AR:TYR - Godsaga (2010) [FLAC|Lossless|image + .cue] <Epic Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793708.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nights All Nine (02:37)
+2. Midwinter Sacrifice (05:37)
+3. Blood of the North (07:35)
+4. Black Sun's Bane (05:02)(   Читать дальше...   )Жанр: Epic Viking MetalПродолжительность: 00:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7772AE1C5637DBDDB1A4B64AC7525460733976E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122632   (793709) от 06.04.2017
+
+The Crest - Vain City Chronicles (2005) [WavPack|Lossless|image + .cue] <Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run Like Blazes (04:09)
+02. My War (04:00)
+03. Silent (04:19)
+04. Another Life (04:22)(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8287649BF8BEC69C234B5F3C173FC5C01A039071
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122767   (793710) от 06.04.2017
+
+Cephalic Carnage - Misled by Certainty (2010) [FLAC|Lossless|image + .cue] <Technical Grindcore, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Incorrigible Flame 04:30
+02. Warbots A.M. 04:38
+03. Abraxas Of Filth 03:44
+04. Pure Horses 00:37(   Читать дальше...   )Жанр: Technical Grindcore, Death MetalПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F373A5A3683F460F4ACFDBACB51989F0E31DCE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122885   (793711) от 06.04.2017
+
+SIG:AR:TYR - Sailing The Seas Of Fate (2005) [WavPack|Lossless|image + .cue] <Epic Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793711.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dreaming of the Dawn (09:11)
+2. Frost on Dead Leaves (03:56)
+3. Under the Dragon Star (04:42)
+4. Snowborne (04:20)(   Читать дальше...   )Жанр: Epic Viking MetalПродолжительность: 00:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9186D4B116EF3769DE06F192848600388ACFEA9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121615   (793712) от 06.04.2017
+
+VA - wave 001 (2016) [MP3|192-320 Kbps] <Electronic>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800647.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793712.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  York & Anthya - The Horizon Of Mars  5:39
-02.  351 Lake Shore Drive - Sunrise  5:37
-03.  Inventors Of The Sun - Wonder Of Romance  5:19
-04.  Lazy Hammock - Naked Being  4:42(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:33:11
+01. Øfdream - Indicate
+02. haven - If You Leave
+03. Trash Lord - Hexagram
+04. Foxwedding - Hell Of A Thing(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:41:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BBF6A6F422B95C822E5A8DBDD8B35A13887C69D
+magnet:?xt=urn:btih:0FA98218DDBEAD6E46DC7B95AEBB4C4296750E62
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121139   (800648) от 02.04.2017
+###  Публикация: 1122900   (793713) от 06.04.2017
 
-In Mourning - Shrouded Divine (2008) [FLAC|Lossless|image + .cue] <Progressive Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shrouded Divine 07:11
-02. Amnesia 03:35
-03. In the Failing Hour 04:21
-04. By Others Considered 06:24(   Читать дальше...   )Жанр: Progressive Melodic Death MetalПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280521713D7F8C8DB973A26A1BF22E6AB615AF88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120999   (800649) от 02.04.2017
-
-VA - Звездная тусовочка. Часть № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800649.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Ломинский - Марина 2:59
-002. Леля - Грешная 3:43
-003. Саванна - Свободная 3:41
-004. Loka Up Feat. Anthony El Mejor - Дай Огня 3:33(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170DDEE14ED39AA28ABBA0C935E83E6A7FB0B2CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121379   (800651) от 02.04.2017
-
-VA - Ferry Corsten presents:Corstenas Countdown March (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto - Ten Seconds Before Sunrise (Moska Remix) (05:07)
-02. Solid Stone & Tiffany Johnston - Tempted (Extended Mix) (05:49)
-03. Max Millian - Evolve (Extended Mix) (06:09)
-04. Dan Dobson - Pressurized (Original Mix) (06:40)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC582BA4E503B92AB8264DB3F7FAAB037154D95C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120993   (800652) от 02.04.2017
-
-VA - Положительный заряд Hit FM. Версия № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800652.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Карина Зверева - Табу 3:10
-002. Бордо - Осталось 3:49
-003. Денис Кочержук - Нежность Твоих Губ 3:48
-004. Блокбастер - Лето 3:47(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83CF91A1FDD86E33A75A6A0A15F525D29EB857C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121397   (800653) от 02.04.2017
-
-K90 - Futureproof (2017) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Of Us (Wall Of Sound album edit) (04:40)
-02. Pandamonia (FP album edit) (04:45)
-03. Rendition (original album mix) (04:19)
-04. A-Eye (Trance-Eye album mix) (05:06)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BED2CD07E70072E625011417D82FC95D0C533C97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121313   (800654) от 02.04.2017
-
-Fred Astaire - My Greatest Songs (1930-e - 1940-e) 1999, MCD [FLAC|Lossless|image + .cue] <Vocal Jazz, Big Band, Dance Band>
+Billy Cobham - Life & Times (1976) 2000, Wounded Bird [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz Rock>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800654.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793713.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Since I Kissed My Baby Goodbye [03:01]
- 02.So Near And Yet So Far [03:10]
- 03.The Wedding Cake Walk [02:34]
- 04.Dream Dancing [02:47](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, Dance BandПродолжительность: 00:43:50
+01.Life & Times [07:02]
+ 02.29 [02:35]
+ 03.a) Siesta b) Wake Up!!!!!! That's What You Said [03:58]
+ 04.East Bay [06:12](   Читать дальше...   )Жанр: Jazz Fusion, Jazz RockПродолжительность: 00:39:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:589F95F394311EA786B68CD660BC6E75BAF77389
+magnet:?xt=urn:btih:CD176ECEF720765DAE831E8A723FD165C44AD439
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120687   (800655) от 02.04.2017
+###  Публикация: 1122964   (793714) от 06.04.2017
 
-VA - AVA Seasons Selected By Mike Saint Jules - Spring (2017) [MP3|320 Kbps] <Trance>
+VA - Coastal Selections 003 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Markus Hakala - Anguilla (Original Mix)  6:33
+02.  Entis - Lily (Original Mix)  6:35
+03.  Lumidelic - Secrets Of Nature (Original Mix)  7:58
+04.  Joshua Ollerton - Laura (Original Mix)  6:57(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:609428C88F841A8C5A917F52A6A2537845A352C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122323   (793715) от 06.04.2017
+
+Кёрлинг. Чемпионат Мира 2017. Женщины. Пекин (Китай). 2 Сессия. Корея — Россия (18.03.2017) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793715.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 марта 2017 года, суббота. 14:00 МСК
+Чемпионат мира по кёрлингу среди женщин 2017. Пекин (Китай)
+Предварительный этап. 2 Сессия
+Корея — Россия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65CDD8EC763F51313D38943ADE67575177CF6EDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123001   (793716) от 06.04.2017
+
+VA - Digital Society Recordings Vol.1 (2017) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800655.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793716.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Somna & Diana Leah - Fell For You (Mike Saint-Jules Interstellar Extended Mix)  6:56
-02.  Andy Moor vs Orkidea - Year Zero (VENIICE Remix)  5:08
-03.  Mike Saint-Jules & Amy Kirkpatrick - Galaxy (Monoverse Remix)  6:54
-04.  Eloquentia - All Alone (Original Mix) (feat. Victoriya)  3:43(   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:35
+01. Temple One - Maverick (Original Mix)
+02. Ciaran McAuley - Tears (Original Mix)
+03. Fabio XB & Liuck - Step Into The Light (feat Christina Novelli - Mark W Remix)
+04. Ronski Speed - Set Me To Light (feat Linnea Schossow - Amir Hussain Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:35:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F108CB51ABC1EDDC3267E29D42C22F27E796FD14
+magnet:?xt=urn:btih:2560675CE830A2F816215951AE545521677D7B4E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121142   (800656) от 02.04.2017
+###  Публикация: 1122883   (793717) от 06.04.2017
 
-Golgotha - Melancholy (1995) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
+Ike Quebec - With A Song In My Heart (1962) Remaster, 2012, EMI Music [FLAC|Lossless|tracks + .cue] <Hard Bop>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800656.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793717.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lonely 08:57
-02. Lake of Memories 05:54
-03. Nothing 06:34
-04. Raceflections 05:44(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:53:04
+01.How Long Has This Been Going On [06:02]
+ 02.With A Song In My Heart [03:59]
+ 03.Imagination [05:12]
+ 04.What Is There To Say [04:36](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B2EDBF4622FC9C411176595238A4B37A8603F54
+magnet:?xt=urn:btih:17935377532AF57AA214494486F6D0F5A63802AB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121130   (800657) от 02.04.2017
+###  Публикация: 1122977   (793718) от 06.04.2017
 
-VA - Trance Essential Series Vol.2 (2017) [MP3|320 Kbps] <Trance>
+VA - Suanda Music Radio Top 10 (March) (2017) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800657.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793718.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Nebula 66 - Consciousness (Original Mix)  6:58
-02.  ADL - Fading Memory (Luca de Maas Remix) (feat. Angel Falls)  9:43
-03.  Nebula 66 - Burning Heart (Original Mix)  3:48
-04.  DJ Michael Angello - Holographic Universe (Etheria Remix) (feat. Louise Browne)  6:55(   Читать дальше...   )Жанр: TranceПродолжительность: 02:34:36
+01. Photographer - Infinity (Roman Messer Radio Edit)
+02. FloE & DJ T.H - Like A Miracle (feat Kate Miles - Denis Kenzo Remix)
+03. NoMosk - Duel (Original Mix)
+04. Attila Syah & Cari - Dark Side Of The Moon (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:57:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25180C7764AE77C7461EE2C698ACB566B8DCC61A
+magnet:?xt=urn:btih:E0B37562708AA70827D71819F7B105DFA3ECA737
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121152   (800658) от 02.04.2017
+###  Публикация: 1122904   (793719) от 06.04.2017
 
-Demented Ted - Promises Impure (1993) [APE|Lossless|image + .cue] <Death Metal>
+Edward Simon - Poesia (2009) CAM Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800658.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793719.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Existence Lies Beneath
-02. Despair
-03. Psychopathology
-04. Incisions(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36:23
+01.My Love For You (take 1) [03:30]
+ 02.Winter [07:09]
+ 03.Giant Steps [09:47]
+ 04.One for J.P. [05:19](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:54:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CDE81572803C34FF496818D49813E852B9E9D894
+magnet:?xt=urn:btih:DC48F247A79DC3F74891F2835C46E81535D6E96F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197212   (800659) от 30.10.2021
+###  Публикация: 1122971   (793720) от 06.04.2017
 
-Лачуга должника (2017) WEB-DL [H.264/1080p-LQ] (серии 1-8 из 8)
+The Bob Brookmeyer Quartet - Oslo (1986) 1997,  Concord [FLAC|Lossless|tracks + .cue] <Post-Bop,Cool, West Coast Jaz>
 
->>3
->>4
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800659.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793720.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По мотивам одноименного романа Вадима Шефнера.
-XXII век. На Земле воцарился коммунизм. Павел Белобрысов — человек, получивший возможность прожить миллион лет, отправляется в экспедицию, посвященную поиску планеты Ялмез, зеркально отражающей жизнь на Земле. Там он надеется отыскать своего давным-давно умершего брата-близнеца…Производство: РоссияЖанр: драма, фантастикаРежиссер: Александр КоттАктеры: Павел Деревянко, Евгений Пронин, Ирина Старшенбаум, Евгений Стычкин, Сергей Бурунов, Сергей Романович, Мирон Тарасов, Матвей Тарасов, Елена Руфанова, Снежана Тулубьева и др.Продолжительность: ~00:52:00 серия
+01. With The Wind And The Rain In Your Hair (5:18)
+02. Oslo (5:11)
+03. Later Blues (5:07)
+04. Detour Ahead (8:14)(   Читать дальше...   )Жанр: Post-Bop,Cool, West Coast JazПродолжительность: 00:44:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:570D69A2CAE6DADECEDD3C1E735987D8EA6326FF
+magnet:?xt=urn:btih:8C3365517ABC0CBAB91A81BDD662F6E26541B77D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504658   (800660) от 30.10.2021
+###  Публикация: 1012622   (793721) от 01.05.2016
 
-Я не террорист. История моей смерти / Men terrorchi emasman (2021) WEBRip [H.264/1080p-LQ]
+VA - Deep House Edition #001 (2016) [MP3|320 кб/с] <Deep House, Club House>
 
->>След.
->>Фильмы ближнего зарубежья
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800660.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793721.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Я не террорист. История моей смерти - остросюжетная военная драма, основанная на реальных событиях. В нем рассказывается о трагической судьбе тех, кто примкнул к террористическим группировкам.Производство: Узбекистан / Агентство кинематографии Республики Узбекистан, Узбекфильм, Искандарий висуалЖанр: Боевик, драма, военныйРежиссер: Мухаммад Али ИскандаровАктеры: Нурмухаммад Хуснутдинов, Саддридин Амриддинов, Сулим Селиханов, Давид Байрамян, Бекзод Таджиев, Отабек Махкамов, Шохрух Рахимов, Сан Жай, Ахмает Серкан ЭрПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:11:58
+01. Jaques Le Noir - Perezil (05:17)
+02. Lucas Reyes - Feel for You (07:39)
+03. Vanished - Past Life (06:19)
+04. Steven Whirpool - Dance (06:58)(   Читать дальше...   )Производство: Jango ReplayЖанр: Deep House, Club HouseПродолжительность: 01:31:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A041B93B2221399D9A4AED21721497953E9A696B
+magnet:?xt=urn:btih:F1357CFBC8578BADC75F8E8BAED20B06613ED785
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447620   (800661) от 30.10.2021
+###  Публикация: 1012473   (793722) от 01.05.2016
 
-Мир наизнанку. Пакистан / Світ навиворіт. Пакистан (2021) WEB-DLRip [H.264/1080p-LQ] (сезон 12, выпуск 1-24 из 24)
+Лесли Чартерис | Пикник на Тенерифе (1996) [FB2]
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800661.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793722.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Впервые Дмитрий Комаров отправился в мусульманскую страну с неоднозначной репутацией, но с очень древней историей. В Пакистане сочетается разнообразная природа: и безлюдные пустыни, и заоблачные вершины Гималаев. В стране действует сухой закон, любимый напиток пакистанцев – чай, а курение табака – древняя традиция. Пакистан – страна со сложной политической обстановкой. (   Читать дальше...   )Производство: Украина / "1+1 Production"Жанр: телепередача, путешествия, природаЯзык озвучки: русскийПродолжительность: ~00:50:00 серия
+Автор книги — признанный мастер американского детектива. Неизменный герой его остросюжетных повестей и рассказов — частный детектив Саймон Темплер, «гроза преступного мира», который в ходе своей деятельности попадает в ситуации самые невероятные и опаснейшие.Жанр: ДетективФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8CA03B2CDF1FEA22CA6606236F1EE630B0EAF0D
+magnet:?xt=urn:btih:15F9998942205D1E31F2FDCA0734D2F301AF3265
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505404   (800662) от 30.10.2021
+###  Публикация: 1012620   (793723) от 01.05.2016
 
-Astra Linux Special Edition 1.7 [amd64] 1xDVD
+Serial Box 05-2016 [En]
 
->>3
->>След.
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800662.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793723.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ОС Astra Linux Special Edition 1.7 на базе Debian 10 (buster).
-Astra Linux Special Edition 1.7 успешно прошла комплекс испытаний в системе сертификации СЗИ ФСТЭК России по первому, высочайшему, уровню доверия. Продукт в полной мере соответствует самым строгим критериям, изложенным в «Требованиях по безопасности информации, устанавливающих уровни доверия к средствам (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80FD104A92DAFC437A0C2959E6AC325B90DB394
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505503   (800663) от 30.10.2021
-
-Денис Колисниченко | LINUX. Полное руководство по работе и администрированию (2021) [PDF]
-
->>След.
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Linux в наше время весьма популярен как у обычных пользователей, так и у крупных корпораций - таких как Microsoft, IBM и т.д. Эта книга содержит в себе как теоретические, так и практические материалы, т.е. теория и практика будут объединены в одно целое - не будет отдельных больших и скучных теоретических глав.
+База серийных номеров проекта iSerial по состоянию на май 2016 года.
+В ней содержится информация по активации (серийные номера,информация о других методах активации) как для программ платформы PowerPC, так и Intel.
 
-Книгу можно разделить на четыре части. В первой части (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+База достаточно объемная и регулярно обновляется, так что Вы, наверняка, найдете в ней то, что ищете!(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: май 2016Разработчик: n/aПоддерживаемая ОС: OS X 10.3.9 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBC20A2861D592B56BBA908FB6499BFB156142A5
+magnet:?xt=urn:btih:639D7CB97A4FC7D1D7E69B6D65F48EF9FA93BA48
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506148   (800664) от 30.10.2021
+###  Публикация: 1012593   (793724) от 01.05.2016
 
-Дело (2021) WEB-DLRip
+Владимир Бойко | Герои Черноморского Подплава (2016) [FB2]
 
->>Отечественное кино
->>Отечественные Фильмы (SD)
+>>Научная и техническая литература
+>>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800664.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793724.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Специалист по литературе Серебряного века профессор Давид Гурамович обвиняет мэра провинциального городка в краже крупной суммы, но сам становится фигурантом дела о растрате и отправляется под домашний арест.
-
-Все вокруг советуют ему как можно скорее пойти на мировую, но Давид упрямо решает идти до конца. Он вступает в борьбу за свои идеалы, свое имя, а порой и за (   Читать дальше...   )Производство: Россия / Кинокомпания «Метрафильмс»Жанр: ДрамаРежиссер: Алексей Герман мл.Актеры: Мераб Нинидзе, Анна Михалкова, Роза Хайруллина, Светлана Ходченкова, Александр Паль, Александра Бортич, Анастасия Мельникова, Анастасия Талызина, Ян РешетниковПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:46:26
+В книге «Герои Черноморского Подплава» рассказывается о
+подводниках Черноморского флота, удостоенных звания Героя Советского Союза в годы Великой Отечественной войны и содержится информация о подводных лодках, на которых они проходили службу: Алексеев Борис Андреевич, Грешилов Михаил Васильевич, Иосилиани Ярослав Константинович, Кесаев Астан Николаевич, Малышев Николай (   Читать дальше...   )Жанр: История, Биографии и Мемуары, Военная документалистикаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B465B0C0F6A52E65AC22227972F0CAE4CFD93B6
+magnet:?xt=urn:btih:15712116FA599B36C981E700FAB2D00CAE5932C5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506342   (800665) от 30.10.2021
+###  Публикация: 1012599   (793725) от 01.05.2016
 
-Adobe Premiere Pro 2022 (22.0.0.169) Portable by XpucT [Ru/En]
+EZ CD Audio Converter 4.0.2.1 Ultimate RePack (& Portable) by elchupacabra [Ru/En]
 
->>След.
+>>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800665.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793725.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adobe Premiere Pro – профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов позволяет (   Читать дальше...   )Язык интерфейса: Русский и английский
+EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0A91BE0F9D310D72200CD601DC07F09CF99EAA2
+magnet:?xt=urn:btih:303381C0DC0DEC38293CEA72512327822D557706
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506202   (800666) от 30.10.2021
+###  Публикация: 1012365   (793726) от 01.05.2016
 
-Уральские пельмени. Агронавты (29.10.2021) WEBRip [H.264/1080p]
+Bugs Henderson And The Shuffle Kings - Four Tens Strike Again (1996) [FLAC|Lossless|tracks] <Blues Rock>
 
->>Юмор (ТВ)
->>ПостКВН
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800666.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793726.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разобраться где вершки, а где корешки? Узнать что дедка за репку, а репка за бабки! И выяснить, что старый конь борозды не видит.Телекомпания: Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:12:37
+01. Lucille    03:36
+02. Can't Find Love    05:28
+03. Highway 61 Revisited    04:56
+04. Black Spring    04:12(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:06:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:346D058060E4EE53FFDFCC6D100A63D76D9B9CCE
+magnet:?xt=urn:btih:E452A40403AE453039B48199669CC4D9728E65B9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496762   (800667) от 30.10.2021
+###  Публикация: 1509596   (793727) от 13.11.2021
 
-Родня / Kin (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) AlexFilm
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал описывает жизнь в маленьком уютном городке, в котором кипят нешуточные страсти. Преступный клан, The Kinsellas, оказывается втянут в войну против влиятельного наркобарона Эймона Каннингема после того, как их сына убили. Это Давид и Голиаф. Из-за численности, недостатка финансирования и вооружения, Кинселлы оказываются запертыми в своей цитадели в Дублине, (   Читать дальше...   )Производство: Ирландия / Bron Studios, Headline Pictures, Irish Film Board, Metropolitan Films, Nordic Entertainment Group, RTÉЖанр: драма, криминалРежиссер: Дяьрмуид Гоггинс, Тесса ХоффАктеры: Чарли Кокс, Клэр Данн, Эйдан Гиллен, Эммет Джей Скэнлэн, Мария Дойл Кеннеди, Сэм Кили, Yasmin Seky, Киран Хайндс, Hannah Adeogun, Cian FitzsimonsПеревод: Многоголосый профессиональный (AlexFilm)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4157FD61FBDE2576F47CD69DBB0F12F68A211C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470573   (800668) от 30.10.2021
-
-Polygon Runway, Roman Klco | 3D персонажи и иллюстрации в Blender 2.9 / 3D Characters and Illustrations in Blender 2.9 (2021) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс "3D Characters and Illustrations" - это продолжение курса "Become a 3D Illustrator".
-Он проведёт вас через мой метод простого построения персонажей для 3D мультипликаций и некоторые более продвинутые методы 3D моделирования и иллюстрации, такие как моделирование твердой поверхности и простой скульптинг.
-Несмотря на то, что это продолжение, (   Читать дальше...   )Производство: Polygon RunwayЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 24:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F9E0813564F61C451E155407DED8B6CC854461
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505963   (800669) от 30.10.2021
-
-Армия воров / Army of Thieves (2021) WEB-DL [H.264/1080p] [PR]
+Шан-Чи и легенда десяти колец / Shang-Chi and the Legend of the Ten Rings (2021) BDRip [H.264/720p-LQ]
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800669.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793727.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жизнь скромного банковского служащего Дитера круто меняется, когда таинственная незнакомка приглашает его в команду самых разыскиваемых Интерполом преступников, решивших взломать неприступные сейфы по всей Европе.Производство: Германия, США / Pantaleon Films, The Stone Quarry, Film UnitedЖанр: Боевик, триллер, криминалРежиссер: Маттиас ШвайгхёферАктеры: Маттиас Швайгхёфер, Натали Эммануэль, Руби О. Фи, Стюарт Мартин, Гуз Кхан, Джонатан Коэн, Ноэмиэ Накаи, Трент Гарретт, Джон Бубняк, Джим ХайПеревод: Дублированный (Netflix)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), украинские (Forced, Full), английские (Forced, Full, SDH)Продолжительность: 02:09:34
+Мастеру боевых искусств Шан-Чи предстоит противостоять призракам из собственного прошлого, по мере того как его втягивают в паутину интриг таинственной организации «Десять колец».Производство: США, Австралия / Walt Disney Pictures, Marvel Studios, Fox Studios AustraliaЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Дестин Дэниел КреттонАктеры: Симу Лю, Тони Люн Чу Вай, Аквафина, Мишель Йео, Чжан Мэнъэр, Чэнь Фала, Ронни Чиэн, Флориан Мунтяну, Бен Кингсли, Юэнь ВаПеревод: Дублированный (Невафильм)Субтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 02:12:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:362A700C7AF86D05CDD29AA005FBF13FF2ED786A
+magnet:?xt=urn:btih:419D1ECC294482E31F4285E4FE9912EBBB7F8D04
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447641   (800670) от 30.10.2021
+###  Публикация: 1011789   (793728) от 01.05.2016
 
-Мир наизнанку. Пакистан / Світ навиворіт. Пакистан (2021) WEB-DLRip (сезон 12, выпуски 1-24 из 24)
+Old Soul Society - The Farmhouse Sessions (2016) [FLAC|Lossless|tracks] <Folk Rock, Blues, Americana>
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800670.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793728.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Впервые Дмитрий Комаров отправился в мусульманскую страну с неоднозначной репутацией, но с очень древней историей. В Пакистане сочетается разнообразная природа: и безлюдные пустыни, и заоблачные вершины Гималаев. В стране действует сухой закон, любимый напиток пакистанцев – чай, а курение табака – древняя традиция. Пакистан – страна со сложной политической обстановкой. (   Читать дальше...   )Производство: Украина / 1+1 ProductionЖанр: телепередача, путешествия, природаЯзык озвучки: русскийПродолжительность: ~00:50:00 серия
+01. Carolina    04:23
+02. Starry Night    03:42
+03. Talking in My Sleep    04:12
+04. Hurricane Heart    03:03(   Читать дальше...   )Жанр: Folk Rock, Blues, AmericanaПродолжительность: 00:42:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56492EEB02DE8C28ECE9FEA448FACB5131FC0269
+magnet:?xt=urn:btih:E889322C1A6DBF8ADC7A118AD7CA91AF1FC63255
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492443   (800671) от 30.10.2021
+###  Публикация: 1509745   (793729) от 13.11.2021
 
-Американская история ужасов / American Horror Story (2021) WEB-DL [H.264/1080p] (сезон 10, серии 1-10 из 10) LostFilm, NewStudio, TVShows
+Проекты - VideoHive - Valentine - 19410921 [AEP]
 
->>Зарубежные сериалы
->>
+>>Проекты
+>>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800671.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793729.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сюжет десятого сезона «Двойной сеанс » (Double Feature)
-Телевизионный сценарист Гарри Гарднер (Финн Уиттрок) на несколько зимних месяцев приезжает с беременной женой Дорис (Лили Рэйб) и дочкой Альмой (Райан Кира Армстронг) в захолустный Провинстаун. Здесь он надеется найти утерянное вдохновение и написать хоть несколько страниц для нового сериала. По приезде выясняется, (   Читать дальше...   )Производство: США / 20th Century Fox Television, Brad Falchuk Teley-Vision, Ryan Murphy ProductionsЖанр: ужасы, триллер, драмаРежиссер: Брэдли Букер, Альфонсо Гомес-Рехон, Майкл АппендальАктеры: Эван Питерс, Сара Полсон, Дэнис О’Хэр, Лили Рэйб, Кэти Бейтс, Фрэнсис Конрой, Джессика Лэнг, Анджела Бассетт, Эмма Робертс, Шайен ДжексонПеревод: Многоголосый профессиональный (LostFilm, NewStudio, TVShows)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: ~00:50:00 серия
+«Valentine» - шаблон для создания вступительного ролика, который можно использовать для свадебного видео или на День влюблённых.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1255ACA2E4501DC9A09261F490D6997353E3091F
+magnet:?xt=urn:btih:BEB8C4DBB5391E13B182DE5B0A174E33A2C99C8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012435   (793730) от 01.05.2016
+
+YOAV - A Foolproof Escape Plan (2010) [FLAC|Lossless|tracks + .cue] <Indie, Pop, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Greed (04:33)
+02. Moonbike (03:38)
+03. Safety In Numbers (03:36)
+04. Yellowbrite Smile (03:46)(   Читать дальше...   )Жанр: Alternative, Indie, Pop, RockПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA833F246FDAE918C96C7E4C0C4C0D58265554E0
 ```
 
 

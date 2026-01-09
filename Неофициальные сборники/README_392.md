@@ -1,3 +1,30 @@
+###  Публикация: 1292952   (641350) от 01.04.2019
+
+VA - Color Club Life (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641350.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ewаn Rill - Mоvе оn
+002. Mаgnеtiс Brоthеrs - Mоrning Fееlings (оriginаl Miх)
+003. Plаtunоff - аutumn In Yоu
+004. Tunеsquаd - Thе сhаnt(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 09 :29 :00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E27B3B73E339FBF773476FC67D526937D0B4E239
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906941   (641356) от 10.06.2015
 
 VA - Союз летних хитов на Europa Plus (2015) [MP3|256 кб/с]<Pop>
@@ -687,33 +714,6 @@ VA - Спасибо Песня: Сборник Шансона (2018) [MP3|256 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:241FCCBC87CE705293AD825560A62767ADE18BA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142237   (642708) от 14.06.2017
-
-VA - 2000 - Native American Music (2017) [MP3|320 Kbps] <Native american, Ethnic, Folk>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inishkea -  Song Of The Navajo
-02. Big City Indians -  Like An Indian
-03. Native -  White Buffalo (Holm)
-04. Walela -  Cherokee Morning Song(   Читать дальше...   )Жанр: Native american, Ethnic, FolkПродолжительность: 04:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69A8FA3C2AD8D05F2395F0834419BD845F571DC3
 ```
 
 

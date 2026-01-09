@@ -1,3 +1,84 @@
+###  Публикация: 999699   (858983) от 25.03.2016
+
+The London Orion Orchestra - Pink Floyd's Wish You Were Here Symphonic (2016) [FLAC|Lossless|tracks + .cue] <Classical, Crossover, Orchestral>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wish You Were Here (Vocal) (5:01)
+02. The Orchestra Tunes (0:31)
+03. Shine On You Crazy Diamond (Parts I-V) (13:19)
+04. Welcome To The Machine (7:07)(   Читать дальше...   )Жанр: Classical, Crossover, OrchestralПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F33F04B97FA43814C94FC87640B7D49F6BA43E51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000269   (859100) от 25.03.2016
+
+VA - Magical World Of Melodies. Orchestral Highlights. (1995), 3CD [FLAC|Lossless|tracks +.cue] <Classical, Orshestral>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. National Philharmonic Orchestra, Charles Gerhardt -  Offenbach: Orphee aux enfers, Overture (9:24)
+02. Capella Istropolitana, Barry Wordsworth -  Mozart: Cosм fan tutte, K588, Overture (4:52)
+03. National Philharmonic Orchestra, Charles Gerhardt -  Rossini: Guillaume Tell, Overture (11:43)
+04. Polish State Philharmonic Orchestra, Kenneth Jean -  Berlioz: Le Corsaire, (   Читать дальше...   )Жанр: Classical, OrshestralПродолжительность: 03:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C52F6EC65B856997335707CAD1057AA52BDA1EF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000394   (859191) от 25.03.2016
+
+Nikolaus Harnoncourt Chamber Orchestra of Europe - Dvorak - Slavonic Dances (2002) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Slavonic Dances op. 46 - Nr. 1 Furiant: Presto (4:08)
+02.  Slavonic Dances op. 46 - Nr. 2 Dumka: Allegretto scherzando (5:00)
+03.  Slavonic Dances op. 46 - Nr. 3 Polka: Poco Allegro (5:22)
+04.  Slavonic Dances op. 46 - Nr. 4 Sousedska: Tempo di minuetto (7:15)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B32D738187A72EA6A5DAAF4B524CE6752D948C8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497976   (859430) от 25.09.2021
 
 Vangelis - Juno to Jupiter (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Modern-Classical, New-Age>
@@ -614,85 +695,6 @@ Suite XII in a Adler: Suite 15 "ex autographo"
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB221FE2A39311C7C3C3441F36B30822C7DE4DB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998510   (867802) от 20.03.2016
-
-Richard Strauss, Alfred Lord Tennyson - Enoch Arden: A Melodrama (Mac Morgan, William Ransom) (1989) [MP3|320 кб/с] <Classical>
-
->>Классика
->>Вокал
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867802.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Part 1 (39:59)
-2. Part 2 (29:17)Жанр: ClassicalПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C070E41CB03CF497B008BBAD2F0A789A48F97EEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997869   (869548) от 19.03.2016
-
-Wolfgang Amadeus Mozart - Symphonies 38 in C major "Prague" & 40 in G minor (CSO, Walter) (1959) [DSD 2.0|ISO|1/2.8224|SACD-R] <Classical, Orchestral>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphonies 38 in C major K. 504 "Prague"
-1. I. Adagio – Allegro
-2. II. Andante
-3. III. Finale. Presto(   Читать дальше...   )Жанр: Classical, OrchestralПродолжительность: 00:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB49CF647CAC0716E1803BC92D8F90CC034D9F07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997880   (869553) от 19.03.2016
-
-Римский-Корсаков - Шехеразада (1978)(BSO, Silverstein, Ozawa)  [DSD 2.0|ISO|64/1|SACD-R] <Orchestral>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I. Das Meer und Sindbads Schiff, Largo e maestoso, Lento, Allegro non troppo
-02. II. Die Geschichte vom Prinzen Kalender, Lento, Andantino, Allegro molto, Vivace scherzando, Moderato assai, Allegro molto ed animato
-03. III. Der junge Prinz und die junge Prinzessin, Andantino quasi allegretto
-04. IV. Fest in Bagdad. Das Meer. Das Schiff treibt gegen den MAgnetberg (   Читать дальше...   )Жанр: OrchestralПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00FCDB4FB674ED45CD34D181634F85473EE4009
 ```
 
 

@@ -1,3 +1,159 @@
+###  Публикация: 1483060   (1007195) от 11.07.2021
+
+Baba Gnohm - Forgotten Stories (2021) [FLAC|Lossless|WEB-DL|tracks] <Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asia 3am (03:30)
+ 02. Inside My Left Eye (05:29)
+ 03. Sunken Dreams (04:21)Жанр: DowntempoПродолжительность: 00:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:963FEFA4382D69DB970457B3313BB105C45DFBAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483057   (1007197) от 11.07.2021
+
+Airto - Eighteen Things I've Never Imagined (2018) Monumental Netlabel [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Downtempo, Drill n Bass>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 11th Of May (04:53)
+ 02. Biotek Estate (04:40)
+ 03. My Friend Alice (04:00)
+ 04. Bombay (04:20)(   Читать дальше...   )Жанр: IDM, Ambient, Downtempo, Drill n BassПродолжительность: 01:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C81D6B8543D71879663A899887ADAC6F5E1DF10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985640   (1007212) от 10.07.2021
+
+This Morn' Omina - Discography 23 Releases (1997-2021) Ant-Zen [FLAC|Lossless|tracks+.cue, tracks] <Rhythmic Noise, Tribal, Industrial, Dark Ambient>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007212.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 The First Cycle: Nezeru Enti Sebauem Neterxertet
+01. Inside A Full Eclipse (11:20)
+ 02. Totemism (Modern) (03:20)
+ 03. K'hai (08:10)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Rhythmic Noise, Tribal, Industrial, Dark Ambient •Продолжительность: 25:16:10 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C8EF6AE18BD924912B51E51B211027625E04B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017003   (1007232) от 10.07.2021
+
+Wil Bolton (aka CHEjU) - Discography 30 Releases (2010-2021) [FLAC|Lossless|tracks, tracks+.cue] <Ambient, Drone, Experimental, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Platform (05:29)Жанр: Ambient, Drone, Experimental, Modern Classical, Field Recording •Продолжительность: 19:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E60FAC594D1AC86D924D65C3E15A489631BFA21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204906   (1007309) от 10.07.2021
+
+The Tin Box - Discography 14 Releases (2015-2021) Audiobulb Records, Hibernate Recordings [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Downtempo, Glitch>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moving Bliss (05:36)
+ 02. Moving Design (04:33)Тип издания: WEBЖанр: IDM, Ambient, Downtempo, Glitch •Продолжительность: 08:04:42 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB92D0C2DF56E6E3501F9B917E5C522384252802
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044466   (1007340) от 09.07.2021
+
+Ólafur Arnalds (Olafur Arnalds) - Discography 47 Releases (2006-2021) Erased Tapes, Mercury Classics, Decca [FLAC|Lossless|tracks+.cue, tracks] <Modern Classical, Ambient, Neo-Classical, Co ...
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hjálmar Lárusson & Jónbjörn Gíslason - Jómsvíkingarímur - Ýta Eigi Feldi Rór (01:09)
+ 02. Julianna Barwick - Forever (04:25)
+ 03. Koreless - Last Remnants (04:04)
+ 04. Odesza - How Did I Get Here (Instrumental) (01:40)(   Читать дальше...   )Тип издания: CD, WebЖанр: Modern Classical, Ambient, Neo-Classical, Contemporary •Продолжительность: 20:57:25 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7000A642B608FB53D5D993CCC443165E57156E11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482542   (1007444) от 09.07.2021
 
 VA - Vocal Bliss Lounge (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -527,166 +683,6 @@ John Williams - Rodrigo: Concierto de Aranjuez_Villa-Lobos : Guitar Concerto (19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE19C16826713B74C2AA53FD54EFD35FD5C831FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481500   (1008321) от 03.07.2021
-
-Om Unit - The Mahakala VIP's (2021) Bandcamp Exclusive [FLAC 2.0|44.1/24|tracks|WEB-DL] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Timelines (The Mahakala VIP) (05:08)
- 02. Sleepwalkers (The Mahakala VIP) (05:28)Жанр: Drum & BassПродолжительность: 00:10:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B71295415CFB47F6436212F948590AEE3456E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481458   (1008338) от 03.07.2021
-
-Before Tigers - Missing My Future (2021) 79Ancestors [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Glitch, IDM, Minimal>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ravages (08:36)
- 02. Envol (06:30)
- 03. R/Hope (03:52)
- 04. Look at Me (05:08)(   Читать дальше...   )Жанр: Ambient, Glitch, IDM, MinimalПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D821F1E21C21C34EA6DCA3549B380FB4D0B0F78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080049   (1008383) от 02.07.2021
-
-Ben Frost - Discography 33 Releases (2001-2021) [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Ambient, Noise, Drone>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is Not Christmas (00:55)
- 02. Welcome To Fortitude (01:41)
- 03. Mammoth Suite (02:03)
- 04. Bear Alarm (01:38)(   Читать дальше...   )Тип издания: CD, WebЖанр: Experimental, Ambient, Noise, Industrial, Drone, Modern Classical •Продолжительность: 21:52:12  •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC59B8061C5D8E5035A165D34130A3D96C305600
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246856   (1008419) от 02.07.2021
-
-Krystian Shek | Tosa Inu - Discography 40 Releases (2003-2021) [FLAC|Lossless|tracks+.cue, tracks] <Downtempo, Dub, IDM, Trip Hop, Techno, House, Experimental, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tri (05:05)
- 02. Habitat (feat. Surya) (04:19)
- 03. Black Chocolate (03:54)
- 04. Cake Daddy (04:13)(   Читать дальше...   )Тип издания: CD, WebЖанр: Downtempo, Dub, IDM, Trip Hop, Techno, House, Experimental, Ambient •Продолжительность: 21:46:35 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9CC7B194FCC258DAF89E0EBABC2B6841DB57A79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481192   (1008460) от 02.07.2021
-
-AlimkhanOV A. - We Are The Universe (2021) [MP3|320 Kbps] <Spacesynth, Synthdance>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pulsar (4:06)
-02. We Are The Universe (3:33)
-03. Moon Rays (4:20)
-04. Fly With Me (feat. Svetlana Astor) (4:26)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 01:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:160B79F44EFBEF0DDC4858D62396221ED87DF8B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481263   (1008473) от 02.07.2021
-
-VA - Twisted (10 Year Anniversary) (2007) Twisted Records [FLAC|Lossless|tracks+.cue] <Psy-Trance, Psychill, Psydub>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Younger Brother - I Am A Freak (09:02)
- 02. Hallucinogen - Shabby Trance (06:51)
- 03. Prometheus - Arcadia Magik (08:50)
- 04. Koxbox - Side FX (08:00)(   Читать дальше...   )Жанр: Psy-Trance, Psychill, PsydubПродолжительность: 01:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90482D2591138B70788CB558ACD2DEFE8F175E19
 ```
 
 

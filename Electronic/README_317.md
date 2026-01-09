@@ -1,3 +1,165 @@
+###  Публикация: 1294879   (626107) от 09.04.2019
+
+Beatfarmer - Speaking with the Wind (2019) [FLAC|Lossless|WEB-DL|tracks] <Psydub, Glitch Hop, Tribal>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626107.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Imagine [06:00]
+2. Bubble and Squeak [05:29]
+3. Speaking with the Wind [04:35]
+4. Jedi Shake [05:03](   Читать дальше...   )Жанр: Psydub, Glitch Hop, TribalПродолжительность: 00:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8279A70747D0E836EFAE3F998635C0836E7C620
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909432   (626125) от 18.06.2015
+
+Izzamuzzic - Smell (2015) [MP3|320 кб/с]<Downtempo, Chillstep, ElectroHouse>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ta boo (03:13)
+02. eye killa (05:04)
+03. solnce X mania (04:05)
+04. medveditca (long album version) (07:03)(   Читать дальше...   )Жанр: Downtempo, Chillstep, ElectroHouseПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B7B632734DB610B3AF3885F795CB624B2A9CDC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294720   (626268) от 09.04.2019
+
+VA - THEOTHERSIDE | THƎOTHƎRSIDƎ (2018) Metempsychosis Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flaminia vs. Niobe – Reign Of Law (05:38)
+02. Michael Wells – Afar (05:14)
+03. MARMO – Aufschieben (08:32)
+04. End Train – Good Indeed But Not For Me (07:04)(   Читать дальше...   )Жанр: Techno, Industrial, ExperimentalПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5A8BE491990886E5127119D9F2F925A9567ADC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909683   (626283) от 18.06.2015
+
+Oud!n13 - Cosmic Light (2014) [FLAC|Lossless|WEB-DL]<Dub Techno, Drum & Bass, Breaks, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Horizon (09:16)
+02. Cosmic Light (06:44)
+03. HD 85512 B (08:54)
+04. NGC 4303 (07:06)(   Читать дальше...   )Жанр: Dub Techno, Drum & Bass, Breaks, AmbientПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60895E4D1473F9AB39092B3B12487ECFF1394E92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909217   (626288) от 18.06.2015
+
+VA - The Chillout Lounge - Best Chillout and Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Sunset Beach Chillout Music Collection - The Chillout Lounge (03:31)
+02. Weekend Chillout Music Zone - Amnesia Chill (03:23)
+03. Inspiring Chillout Music Paradise - Serenity Chillout (03:05)
+04. Beach House Chillout Music Academy - Electric Daisy Chill Out (03:26)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77CB2A19682EB5B39A66ECA21DBD74A247653FBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035776   (626519) от 17.07.2016
+
+Benny Benassi - Danceaholic (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Benny Benassi & Chris Brown – Paradise
+02. Benny Bennasi – Danceaholic
+03. Benny Benassi feat. Richard Judge – Out Of Control
+04. Benny Benassi feat. BullySongs – Universe(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 01:00:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F12BF0051EE238FF2215BD0EB05821F07F411A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035490   (626659) от 17.07.2016
 
 VA - SoLee Pres: 10 Years Parquet Rec (2016) [MP3|320 Kbps] <Tech House, Progressive>
@@ -534,168 +696,6 @@ Evolving Atmospheres - Evolving Atmospheres (2017) [MP3|320 Kbps] <Ambient, Dron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB02FFF24A4C49825967FF313BE32EABD484798D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144369   (627754) от 22.06.2017
-
-Ronny Vergara - Remixes Compilation Vol.02 (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627754.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Chelsy (original mix) (09:32)
-2. Background (Many Reasons AKA Minicoolboyz & Minicoolboyz remix) (07:46)
-3. Background (Virgil Enzinger remix) (06:42)
-4. Background (D-Unity remix) (06:27)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B29F3056294EE185130E54307675E021DDC4A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144517   (627756) от 22.06.2017
-
-VA - Sigh Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alphawezen - Gun Song (Original Mix)  3:16
-02.  Nor Elle - Let Things Slide (Original Mix)  6:03
-03.  Dadamnphreaknoizphunk - Up The Down Steriod (Original Mix)  5:56
-04.  Tears Of Change - Xy4 (Original Mix)  7:15(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AFBCB7EF169AFD63F2CCDF4A56144538D18C835
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144364   (627760) от 22.06.2017
-
-Irazu & Regis - Shtamm (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627760.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Refused To Be Found (06:07)
-2. Shtamm (07:15)
-3. Last Hours (02:01)
-4. Shtamm (Regis remix) (06:57)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D089A0BA4EDD75C9C7F67D196D9D0E5DC038EF58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144471   (627907) от 22.06.2017
-
-VA - Clinique Sampler (Part 94) (2017) [MP3|320 Kbps] <House,Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Philipp - Be U (Nico Ferrero Remix)
-02. Bob Zopp - Durch Die Nie (Juan Astudillo Remix)
-03. John Cosani - World For All (Original Mix)
-04. Michael A - Frankield (Original Mix)(   Читать дальше...   )Жанр: House,Progressive HouseПродолжительность: 01:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E611B20B6AB0A369ABE1D1C000A1F48FC58728DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229283   (627946) от 05.06.2018
-
-SETI - Discography 3 Releases (1994-1996) Instinct Ambient [FLAC|Lossless|tracks+.cue] <Ambient, IDM, Experimental, Abstract>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fragment.01 (06:41)
- 02. Fragment.02 (08:36)
- 03. Fragment.03 (08:26)
- 04. Fragment.04 (09:30)(   Читать дальше...   )Тип издания: CDЖанр: IDM/AmbientПродолжительность: 01:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA1685B6C160AE71524A5B62EF18C547F97F1027
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599348   (628105) от 05.07.2014
-
-VA - Chill Out Essentials Vol 1-15 (2012-2014) [Обновляемая] [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628105.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vittorio Rioss - Operating Space
-002. Sop-Gradius - Children & War
-003. Drumatrixx - Chill Funk Theory
-004. Juan Sinmiedo - Jean Genet (Instrumental)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 33:27:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A7F8BE03CBF0C0A2C23AD5B24B8FB6C104476E4
 ```
 
 

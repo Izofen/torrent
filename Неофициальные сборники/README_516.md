@@ -1,3 +1,30 @@
+###  Публикация: 1201595   (789684) от 29.01.2018
+
+VA - Tropical Vibes vol. 1 (2017-2018) [MP3|320 Kbps] <Tropical House, Deep House, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kygo & Selena Gomez - It Ain't Me (DJ VoJo Remix)
+02. Oblomov - Gray-Haired Roses (DJ VoJo Remix)
+03. Linkin Park - Roads Untraveled (DJ VoJo Remix)
+04. The Doors - Riders on the Storm (DJ VoJo Remix)(   Читать дальше...   )Жанр: Tropical House, Deep House, Nu DiscoПродолжительность: 04:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49A9D8264C85D12D7E4EAE1AE5CC4F6F16B7F5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275653   (789801) от 12.01.2019
 
 VA - Rock Select Mix (2019) [MP3|320 Kbps] <Rock>
@@ -668,33 +695,6 @@ VA - Music Of India (2018) [MP3|320 Kbps] <House, Big Room, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D211B3D706C61B47BD03EFEDC54314115861FB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275380   (790512) от 11.01.2019
-
-VA - Contact The Spirit (2019) [MP3|320 Kbps] <Psychedelic, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790512.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Agent K - General Zod's
-002. Dreamvibes! - Breakdown (Original Mix)
-003. Ace Ventura - The World That You Know
-004. Argon Sphere - Traveller(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:24:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53F4EA464FCC90F489F9F8D2E168C45B4A456E19
 ```
 
 

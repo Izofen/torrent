@@ -1,3 +1,30 @@
+###  Публикация: 1112931   (839880) от 10.03.2017
+
+VA - Дискотека 2017 - Весеннее Настроение 85 хитов (2017) [MP3|256-320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839880.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alok & Bruno Martini Feat. Zeeba - Hear Me Now 3:12
+002. Arizona - I Was Wrong (Robin Schulz Remix) 3:41
+003. Cortes Feat. Andreea Balan - Uita-ma (Edit) 2:59
+004. Alexandra Stan - Ecoute 3:15(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 05:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B68FD136DD46665D0BF7F04114C4B9F5A88130
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004002   (839989) от 05.04.2016
 
 Марк Бернес - Актер и Песня (2001) [MP3|192 кб/с] <Retro>
@@ -662,33 +689,6 @@ VA - Как Это Было. Хиты 80-х от Ретро Fm (2010) [MP3|256 k
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CA52075B21BE17EF321B058C044F06BA661C04F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379223   (840746) от 28.04.2020
-
-Bonfire - 100% Bonfire (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gotta Get Away
-02. Hold Me Now
-03. When an Old Man Cries
-04. Temple of Lies(   Читать дальше...   )Жанр: RockПродолжительность: 03:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1EB7B60E14D8ADE7BCB022513B3C3D005465C8
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1481261   (1008241) от 03.07.2021
+
+VA - Shazam & Apple Music Chart (Россия Топ 100 Июнь) (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008241.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ULTRA - Научиться вновь доверять (3:03)
+002. BRANYA, MACAN - Пополам (2:21)
+003. Dzharakhov, Markul - Я в моменте (2:06)
+004. Zivert - Рокки (2:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E71A32945BDDBA628A74E69C3E3D430AF2BC5286
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481308   (1008267) от 03.07.2021
 
 VA - The Great Jazz Code (2021) [MP3|320 Kbps] <Jazz, Instrumental>
@@ -668,33 +695,6 @@ VA - Samsara Heat (Vol.01) (2021) [MP3|320 Kbps] <Reggae, Riddim, Dub>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1065B75B5BAAD14663C9F34048F65340C4B3505
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479247   (1009552) от 24.06.2021
-
-VA - New Latin Hot Playlist (2021) [MP3|320 Kbps] <Latin, Reggaeton, Dancehall>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009552.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dkvpz - Churrascada E Piscina
-002. Oscar Yestera, DJ Combo - No Soy Tu Juguete
-003. Bandé-Gamboa - Pé Di Bissilon
-004. Goleada - Ritmo Della Noche(   Читать дальше...   )Жанр: Latin, Reggaeton, DancehallПродолжительность: 07:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD22A8A1497BA0B823CD4FEE070CB9BEB85D563F
 ```
 
 

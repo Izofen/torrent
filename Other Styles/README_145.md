@@ -1,3 +1,300 @@
+###  Публикация: 1502730   (822568) от 17.10.2021
+
+Jim Brickman - The Ultimate Christmas Playlist (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy To The Night (3:56)
+02. O Christmas Tree (3:58)
+03. Little Drummer Boy (3:28)
+04. Christmas Time Is HereO Christmas Tree (3:58)(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB5FBC4F99939CEA0B2EE2F6E29C4E0D379D99F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115379   (822615) от 20.03.2017
+
+Alan Menken & VA - Beauty and the Beast / Красавица и чудовище (Original Motion Picture Soundtrack) (2017) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Menken - Main Title: Prologue (03:02)
+02. Alan Menken - Belle Meets Gaston (00:54)
+03. Alan Menken - Your Mother (02:14)
+04. Alan Menken - The Laverie (01:22)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 02:11:56 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7627050750363C03F8215CE040F18CA970A11CBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381839   (822654) от 09.05.2020
+
+Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [FLAC|Lossless|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klaymen Shuffle
+02. Olley Oxen Free
+03. Everybody Way Oh!
+04. Rock And Roll Dixie(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:11:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A5E070B9F9ACC7E5824D6EDC8CBFCFC38F7EAFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116615   (822748) от 20.03.2017
+
+Кукуруза - Там, где солнечный свет (1993) [FLAC|Lossless|image + .cue] <Country, Bluegrass>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Widow Woman (Traditional) (4:41)
+02. Poor Wayfaring Stranger (Traditional) (3:27)
+03. Ты мне не был чужим / You Were Not A Stranger To Mе (Andrew Shepelev) (3:49)
+04. Coming Back To You (Leonard Cohen) (3:31)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B516203AC7708EBAE6EDF8F3892B82E96CA2BA10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116163   (822758) от 20.03.2017
+
+VA - Imaginary Tibetan Journey Music Soothing Atmosphere, Namaste Yoga, Deep Meditation (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ageless Tibetan Temple - Imaginary Tibetan Journey Music
+02. Brain Stimulation Music Collective - Asian Meditation (Cello & Waves)
+03. Reiki Healing Zone - Deep Sleep: Calming Music
+04. Deep Aura Meditation Ambient - Breathing Light(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50C79BDEA0970731A789B86BC84A45EECA445685
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 775391   (823550) от 09.04.2014
+
+VA - Just Spice Of Duduk (part 3) (2002) [FLAC|Lossless]<Duduk/Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mher K. - Dzori Miro (7:10)
+02. Serge - Ready 2 Realise (6:00)
+03. Sevada - Past Remains (7:22)
+04. Artashes - Eyes Of Hope (4:49)(   Читать дальше...   )Жанр: Duduk/InstrumentalПродолжительность: 01:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF2DBCB3B83530A5D0AD0F7355E8585257136E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 382896   (823849) от 08.05.2020
+
+Edelis - 12 альбомов, EP & Single (2008 - 2018) [MP3|320 kbps] <New Age, Ambient, Ethno>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект «Эделис» - представляет собой интересное смешение стилей Ambient, New Age, Ethno, электронной и этнической музыки.01. Moons Merger - 05:01
+02. Touch - 04:29
+03. Phoenix's Dreams - 03:30
+04. Back to Sky - 04:36(   Читать дальше...   )Жанр: New Age, Ambient, EthnoПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F56FD625981A476D7749840A5523FD147D6354C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381596   (823996) от 08.05.2020
+
+Greg Maroney - Moving On (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823996.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Moving On	03:15
+2	Odyssey	04:14
+3	Winter Is Coming	03:39
+4	Dancer	03:45(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA4C73955BCB73B2E7225AA93108242692C85FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196333   (823999) от 02.01.2018
+
+Mokadelic - Gomorra: La Serie (2014) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Experimental>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dust Ring (3:45)
+ 02. Right to the Edge (2:51)
+ 03. Doomed to Live (2:42)
+ 04. Stoke the Baptism of Fire (3:41)(   Читать дальше...   )Жанр: Electronic, ExperimentalПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165969177FE99F7B498CFC0A9B6D9125D32A16C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116154   (824442) от 19.03.2017
+
+Петр  Dранга (Петр Дранга) - Перспектива (2011) Полная Версия 22 трека [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интродукция
+02. Виртуозо
+03. Вечер
+04. Ирландский ветер(   Читать дальше...   )Жанр: Instrumental, AccordionПродолжительность: 01:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EB7B69341F2DA5D967DA888F6EBA505BBFF2909
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381386   (824465) от 08.05.2020
+
+New Age, Creative Mind Master, Asian Zen - Home Zen Learning (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824465.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Deep Focus with Tibetan Bowls 03:52
+2. Better Stimulation 03:32
+3. All Day Motivation 03:31
+4. Pineal Gland Activation 03:34(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE2D7DA2F5F62192B5031DF9FED7FA9CBC011048
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381723   (824466) от 08.05.2020
 
 Secret Garden - Nocturne The 25th Anniversary Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Classical, Instrumental>
@@ -395,304 +692,6 @@ Terry Scott Taylor - Return To The Neverhood (Comic Book Soundtrack) (2012) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4288F6CCB9C24605AF4AF99056BFEDECA551C03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380801   (827735) от 06.05.2020
-
-Asian Zen - Yoga Meditation Edition 2020 [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827735.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Zen Healing 03:14
-2. Calm Mind 03:16
-3. Relax Therapy	 03:34
-4. Mantra 03:58(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F30419B2C9E6E765B9ADF9CF551FECF5E9939E55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381012   (827807) от 06.05.2020
-
-David Hollandsworth - Imagine a World (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827807.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A New Horizon 03:06
-2. Depths of Love 02:43
-3. Limitless	 02:10
-4. Imagine a World 03:44(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00EE00000C7E00AECA103D6D0CE729A6560C05A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380925   (827809) от 06.05.2020
-
-Salvador Candel & Carlos Fiel - Tengo Un Gran Amor (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827809.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tengo un gran amor 04:26
-2. Colores de amanecer 04:13
-3. Encuentros luminosos 04:02
-4. Canción para un amigo 03:16(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79BB95385943A55093BA33CFCF4077E089BBEDEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005754   (828801) от 11.04.2016
-
-Аквариум и Борис Гребенщиков - Live "Весенний концерт" БГ60, Самара, КРЦ "Звезда", (2014) [AC3 5.1|448 кб/с] <Рок>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828801.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче аудио-дорожка (с потрековой разбивкой) от видеозаписи концерта, состоявшегося 25.05.2014г. в Самаре. Запись из зала "с воздуха".
-Видео можно найти >здесь< и >здесь<.01. Intro
-02. Губернатор
-03. Праздник Урожая Во Дворце Труда
-04. Не Было Такой И Не Будет(   Читать дальше...   )Жанр: РокПродолжительность: 02:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F65ACCCE8764770469A5088B085C02CDD2CB72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515786   (828959) от 05.05.2020
-
-VA - The Crow/из к/ф "Ворон" (1994) Compilation [FLAC|Lossless|tracks + .cue] <OST, Rock & Roll, Soft Rock, Alternative Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828959.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ворон» (англ. «The Crow») - дебютный кинофильм Алекса Пройаса, экранизация одноимённого чёрно-белого комикса Джеймса О’Барра. У фильма есть три сиквела, также имеется телесериал с Марком Дакаскосом, показывающий альтернативную версию сюжета фильма. На съёмках Брэндон Ли был случайно ранен из реквизитного револьвера выстрелом актёра Майкла Масси, который играл одного (   Читать дальше...   )01. The Cure - Burn (06:38)
-02. Machines Of Loving Grace - Golgotha Tenement Blues (03:59)
-03. Stone Temple Pilots - Big Empty (04:56)
-04. Nine Inch Nails - Dead Souls (04:53)(   Читать дальше...   )Жанр: OST, Rock & Roll, Soft Rock, Alternative RockПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5AB5E9BC1BD584D38F390298D7C70F0EA124399
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114978   (829706) от 16.03.2017
-
-VA - Gregorian Chants: Sanctus (2009) Limited Edition, Box Set [MP3|320 Kbps] <Enigmatic, New Age, Vocal>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vox Archangeli - Sanctus (7:45)
-02. Lugburz - The Ring Goes To South (3:24)
-03. Adoramus - Tri Martolod (4:02)
-04. Elane - Nen Ar Tasar (You See) (3:40)(   Читать дальше...   )Жанр: Enigmatic, New Age, Vocal |Продолжительность: 02:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7A5FF30950027F0977F444A58485C8D39438DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114971   (829711) от 16.03.2017
-
-VA - Gregorian Chants: Sanctus (2009) Limited Edition, Box Set [FLAC|Lossless|tracks + .cue] <Enigmatic, New Age, Vocal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vox Archangeli - Sanctus (7:45)
-02. Lugburz - The Ring Goes To South (3:24)
-03. Adoramus - Tri Martolod (4:02)
-04. Elane - Nen Ar Tasar (You See) (3:40)(   Читать дальше...   )Жанр: Enigmatic, New Age, Vocal |Продолжительность: 02:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:436FA388BBD8DA2BA1D32FA9F447EEF8AB4A82B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381165   (829743) от 05.05.2020
-
-Terry Scott Taylor - Neverhood Songs (1996) [MP3|192 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klayman Shuffle
-02. Olley Oxen Free
-03. Everybody Way Oh
-04. Rock'n'Roll Dixie(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E6C3377A2FD3DA8294985027BC93EF7E193FB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380951   (829748) от 05.05.2020
-
-Inon Zur - Syberia II (Official Soundtrack) (2017) [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Syberia 2 (Main Theme)
-02. Valadilene Dream
-03. Romansbour
-04. The Youkol's(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAE84D5FFB67C703866B08721C0A0C400176AAE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380949   (829763) от 05.05.2020
-
-Inon Zur - Syberia 3 (Official Soundtrack) (2017) [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Syberia 3 (Main Theme)
-02. Thrill Of Nature
-03. Dark Force In Motion
-04. Call Of Tradition(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60E939C45AB0C7ACB199E2BBFDD340B1ABA35341
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501928   (830003) от 13.10.2021
-
-Wychazel - Mirage (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830003.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sahara Breeze
-2. A Trick of the Light
-3. Touched by the Sun
-4. Illusions(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B26720604680B02E94858F2CC4207E27BA66E2B
 ```
 
 

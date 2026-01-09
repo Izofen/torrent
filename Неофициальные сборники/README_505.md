@@ -1,3 +1,30 @@
+###  Публикация: 1206974   (781278) от 16.02.2018
+
+VA - Хит FM ВосХИТительная Двадцатка 10.02. (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jason Derulo feat. French Montana  -  Tip Toe  3:08
+02.  MARUV & Boosin  -  Drunk Groove  3:47
+03.  Ed Sheeran  -  Perfect (Robin Schulz Remix)  4:10
+04.  Rita Ora  -  Anywhere  3:35(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:08:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046E1BA590C5089A6DFA763F7C5200EF3F0525C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206995   (781288) от 16.02.2018
 
 VA - Лучшие клубные новинки Vol.12 (2018) (2018) [MP3|320 Kbps] <Dance, Club,Other>
@@ -673,33 +700,6 @@ VA - Progressive Psychodelic Trance (Exlusive Tracks) Vol.5 (2018) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D3C93E537EE1EFE60857A3E7FD87C113C6B55D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298500   (782623) от 16.06.2020
-
-Doug MacLeod - The Blues Is Made With Soul (1984-2017) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. $50 Wig
-02. (If You Going To The) Dog House
-03. A Broken Dream In A Broken Room
-04. A Little Sin(   Читать дальше...   )Жанр: BluesПродолжительность: 04:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4988C3A74286D4454DD3C053B84933E2C73BB31
 ```
 
 

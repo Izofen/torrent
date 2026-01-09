@@ -1,3 +1,163 @@
+###  Публикация: 1228814   (634116) от 02.06.2018
+
+Erik Wøllo (Erik Wollo) - Wind Journey (Special Remastered Edition) (2018) Spotted Peccary [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beginning (01:29)
+02. Wind Journey 1 (05:29)
+03. Blue Moon (03:32)
+04. Dream Lines (05:21)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C443B67E41581A7A10956AF2B128367C9FC72EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907596   (634178) от 14.06.2015
+
+VA - Lounge Collection (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Foxtrot Effect - Flotillas (05:53)
+02. Sesion De Los Flores - Back To Yourself (06:01)
+03. Arrojas - Whats For Breakfast (05:49)
+04. Bio Logical Theory - Magnetic Lights (05:53)(   Читать дальше...   )Производство: Lounge MastersЖанр: Downtempo, Lounge, Chill OutПродолжительность: 01:28:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F84462C5DCF5359EB77F25F61EE3957CFD636463
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034368   (634364) от 13.07.2016
+
+36 - Seconds & Forever (2016) [MP3|320 Kbps] <Electronic, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634364.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Seconds & Forever (Part 1)
+2. Seconds & Forever (Part 2)Жанр: Electronic, AmbientПродолжительность: 00:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC318DF3C4CE1E3357C0A055550BE7E8A6243309
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034054   (634367) от 13.07.2016
+
+VA - A House Is Not A Home Without A Dog #01 (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634367.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Roland'Sousa - Feeling This Music (7:19)
+2. Andy Caz - Morning Theme (8:11)
+3. Fragoso - Mint (7:28)
+4. Ruben B Goode - Mind & Soul (6:29)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02A1829ECAF64FA48A3BE657C90B842618C6A4EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143311   (634844) от 18.06.2017
+
+Lorde - Melodrama (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Electropop, Dreampop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634844.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Green Light (3:55)
+2. Sober (3:17)
+3. Homemade Dynamite (3:10)
+4. The Louvre (4:31)(   Читать дальше...   )Жанр: Indie Rock, Electropop, DreampopПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C7335DFE299425CC3AD82F401DFC6462588CF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542823   (634920) от 08.04.2022
+
+Boris Brejcha - Die Maschinen sind Gestrandet (2022) Remastered [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Verstaubter Fruchtzucker (Remastered) (7:16)
+ 02. Shikora (Remastered) (7:03)
+ 03. Push to Play (Remastered) (7:02)
+ 04. Anabella (Remastered) (7:10)(   Читать дальше...   )Жанр: Tech House, Techno, MinimalПродолжительность: 00:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB37A94D499448C61F3B558ABDE3A61DB82DFED1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143242   (634983) от 18.06.2017
 
 VA - Uplifting Trance 2017 Vol.2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance, Vocal Trance>
@@ -536,171 +696,6 @@ VA - Beat Full Tech (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3BFE0FC1D6A593CD433B3CEF1D711F11349F452
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228455   (635690) от 01.06.2018
-
-Morcheeba - Blaze Away (2018) Fly Agaric Records [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Undo (03:45)
- 02. Blaze Away (feat. Roots Manuva) (04:04)
- 03. Love Dub (03:49)
- 04. It's Summertime (03:39)(   Читать дальше...   )Жанр: Trip Hop, DowntempoПродолжительность: 00:35:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A24B81C63DD37A475CBE509C3FBA619055A4F71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519394   (635764) от 07.07.2012
-
-Various Artist - Ibiza 2012 Back to the Island (2012) [MP3|320 кб/с]<Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frankox – Kaikuse (El Tigre) (5:46)
- 02. Francesco Diaz – Timbuktu (6:15)
- 03. Danny Howard – Red Man Rising (7:20)
- 04. Argento – Rising Stars (Duher & D-Frost Remix) (6:16)
- 05. Marc One – No Regrets (4:55)
- 06. Futuristic Polar Bears – Shiva (Dache & Shaw Remix) (6:03)
- 07. Denine – Save It (6:56)
- 08. Derek Howell – Stride (DubVision Remix) (8:18)
- 09. Josha – Be Ya (Alex Stein & Vogue Remix) (5:51)
- 10. Fog – Mood Structure (Andrea Bertolini Remix) (6:23)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A509B557E8F933E80CCD2FE4B30FC4B2D842F0C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025449   (635825) от 01.06.2018
-
-the_empath - Discography 9 Releases (1999-2016) Subroom Medialab, Hymen Records [FLAC|Lossless|WEB-DL|tracks+.cue, tracks] <IDM, Ambient, Abstract, Industrial>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into TheТип издания: CD, Web, VinylЖанр: IDM, Ambient, Glitch, Abstract, Industrial |Продолжительность: 00:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E7061F16B618EA202E20D3B31837443F24CE7DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228107   (635942) от 01.06.2018
-
-VA - Secrets of Time Relaxation (2018) [MP3|320 Kbps] <Ambient, Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enrico Donner - Modern Identities
-02. Funkshiner - Ischia
-03. Man Of Leisure - Heated Exchanges
-04. Mephia - Lume de Voce(   Читать дальше...   )Жанр: Ambient, Chillout, Lounge, DowntempoПродолжительность: 01:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C6E657EF77A56DEA7F76B2D3BCE13F7B2BCD2D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228585   (635944) от 01.06.2018
-
-Woob - 新 プログラム (2018) Time Limited [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 変わり目 (1:42)
-02. Yoku Yatta (12:40)
-03. 到着 (4:10)
-04. コントロールを取り戻す (2:45)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB07EB1225187B26610A30AF9DA55506E88611FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228494   (635950) от 01.06.2018
-
-VA - Trance Festival Ibiza (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iris Dee Jay & Robert Holland feat. Erin - Faster (Type 41 Remix) 6:42
-02. Bernd Loorbach - Cafe Del Mar (TbO & Vega Trance Mix) 4:57
-03. The North Works feat. Jenny - We Are Back (Vocal Edit) 4:25
-04. Aruso - On My Own (Festival Version) 6:48(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:20:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6930D5BC7805D80B058A7E6C6F83B0594910621A
 ```
 
 

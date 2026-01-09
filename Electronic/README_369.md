@@ -1,3 +1,163 @@
+###  Публикация: 1528196   (735391) от 31.01.2022
+
+Marc Benjamin - Nicky Romero & Friends Presents NYE (2021-12-31) [MP3|320 Kbps] <Electro Pop, Big Room, Future House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billie Eilish - Your Power (Marc Benjamin Remix)
+02. Tiësto, KAROL G - Don’t Be Shy
+03. Dua Lipa vs. SAINt JHN & Imanbek vs. Marc Benjamin & Malarkey - Hallucinate vs. Roses vs. I Got 5 On It (Marc Benjamin Mashup)
+04. Marc Benjamin feat. NEVRMIND - Waiting For You (Future Disco Remix)(   Читать дальше...   )Жанр: Electro Pop, Big Room, Future HouseПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F85EC1EC6B28F9823B92152135526609A040434F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527961   (735392) от 31.01.2022
+
+KAAZE - Best Of 2021 Mashups (2021-12-27) [MP3|320 Kbps] <Electro House, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.KAAZE vs. Miley Cyrus – Midnight Runners (KAAZE Mashup)
+02.KAAZE – Eye Of The Legends (KAAZE Mashup)
+03.KAAZE vs. Robert Miles & Ariana Grande – Humming Last Childer (KAAZE Mashup)
+04.KAAZE vs Meduza & Shouse – Dark Loose Tonight (KAAZE Mashup)(   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 00:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF60379D0D03601E4B1E090A86C2F305558C1D40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398409   (735630) от 26.07.2020
+
+VA - Goa Festival Sounds, Vol.4 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735630.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Phaxe; Querox - Bloom (Original Mix) (5:31)
+2. Neelix; Caroline Harrison - Makeup (Blazy Remix) (7:46)
+3. Shock Therapy - Imagination (Original Mix) (7:25)
+4. The Commercial Hippies - Future Intelligence (Original Mix) (8:27)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881EB0E5EDE2BE7E90F2BAB797A74DD1042E2F7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397928   (735737) от 26.07.2020
+
+MRUKS - REMIXES 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Funky, Retrowave, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735737.jpg" />
+</div>
+
+
+###  Подробнее
+
+1) SKURM - 80X (MRUKS Remix)
+2) SKURM - Wasted (MRUKS Remix)Жанр: Funky, Retrowave, SynthwaveПродолжительность: 00:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32A8633C58680802BAA0BC723D41B950AE354517
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527801   (735866) от 30.01.2022
+
+Cosmic Gate - Live @ Sunset Set, Puerto Vallarta, Mexico (2022-01-19) [MP3|320 Kbps] <Progressive House, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tinlicker feat. Nathan Nicholson - Be Here And Now
+02.Solee - Carant
+03.Anden & Yotto - Grouplove
+04.Estiva - Kaleido(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57C979115FECECEF04BC5EB1CB9E21983073B2D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527806   (735868) от 30.01.2022
+
+Kryder - Axtone House Party(Live @ Ministry Of Sound London 2021-11-19) (2022-01-07) [MP3|320 Kbps] <Progressive House, Electro House, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ACRAZE & Cherish vs. 23 - Do It To It vs. Pink Soldiers (Squid Game OST) (Zedd Edit)
+02. MOGUAI - ACIIID (Kryder & Benny Benassi Remix)
+03. Toby Green - Motorkraft
+04. Julian Jordan & Martin Garrix ft. Tinie Tempah - Diamonds(   Читать дальше...   )Жанр: Progressive House, Electro House, Big RoomПродолжительность: 01:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D10CDD9E3F95106BD990319BDAA738848FA7A94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398249   (736199) от 25.07.2020
 
 Warner Case - dance music for dancing, vol. 1-2 (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Tech House, Techno>
@@ -534,163 +694,6 @@ VA - Lost Dubs 2 (2018) Microfunk Music [FLAC|Lossless|WEB-DL|tracks] <Drum n Ba
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:048FF61BC1348F16C3240BE11B486FE8B70E4747
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283339   (739735) от 17.02.2019
-
-VA - Live @ Trancemission Heartbeat, Stadium Live Moscow, Russia 2019-02-15 [MP3|320 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Feel @ Trancemission Heartbeat, Stadium Live Moscow, Russia 2019-02-15:Жанр: Trance, Progressive HouseПродолжительность: 00:59:51
-N/A
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D6EA42C9A2B58516625EA3D249BC3CAFD9D830
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397631   (739773) от 21.07.2020
-
-VA - Exposure, Vol.1-4 (2015 - 2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739773.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Vertical Mode - Inside Your Head (Shadow Chronicles Remix) (7:29)
-2. Outsiders; Redrosid - Fields of Light (8:34)
-3. Divination - Humanoid (6:08)
-4. Enablerz; Capcom - Spells of Astaroth (8:31)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 07:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00847218B6A318BC726739A415A76CE7F780FF71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283464   (739792) от 17.02.2019
-
-Robert Henke - Discography 7 Releases (1994-2015) Imbalance Computer Music [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental, Drone, Minimal>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Floating Point (52:23)Тип издания: CD, WebЖанр: Ambient/Experimental/MinimalПродолжительность: 00:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A408A8A13FD186EF7D9FBCB9FF9BCA1434862977
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397600   (739871) от 21.07.2020
-
-VA - After Sunset Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Peter Pearson - Your Gentle Eyes (Original Mix)
-02 Michael E - Lovely as a Summer Day
-03 Michael E, Tim Gelo - All That We Are
-04 Tigerforest - Azure(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:23:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2111CE13EB6C7D23997F5DC5A76B12AAA3E9D0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217822   (740127) от 07.04.2018
-
-Blank & Jones - Milchbar // Seaside Season 10 (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blank & Jones – Flowing (Original Mix) (3:54)
-02. Blank & Jones – Sun Starts Smiling (Eclectic Mix) (4:16)
-03. Maricopa – Sun Scope (Original Mix) (5:11)
-04. James Gruntz – City Lights (Original Mix) (5:20)(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 01:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61281400B02E6B3C9F999DC89CC9152D0AE50349
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283197   (740204) от 16.02.2019
-
-VA - India Gets Physical Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House, Tech House, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulspace - Lotus Eater (5:44)
-02. Pawas ft. Arooj Aftab - Naja (9:03)
-03. Unnayanaa ft. Erika Lernot - Plus Loin (8:04)
-04. Small Town Guy ft. Adil Smaali - Oasis (7:34)(   Читать дальше...   )Жанр: Deep House, House, Tech House, ElectronicПродолжительность: 01:25:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B98C31AE6CBAD1516A484332A70365764E95D266
 ```
 
 

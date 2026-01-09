@@ -1,3 +1,30 @@
+###  Публикация: 1285751   (718586) от 27.02.2019
+
+VA - Hit Music (весна 2019) от Мяу [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718586.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. LMFAO - I'm Sexy and i know it (ART PRYDE Remix)
+002. Tim Schou - Acapella
+003. ДеЛайла - Парадайз
+004. Kaaze feat. Nino Lucarelli - I Should Have Walked Away(   Читать дальше...   )Жанр: PopПродолжительность: 11:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA7DFECDB99FC39E207C5F4AD8B56D8FAD66E178
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129907   (718612) от 30.04.2017
 
 VA - Record Super Chart #484 (2017) [MP3|320 Kbps] <House, Club, Dance>
@@ -672,33 +699,6 @@ VA - Charitable Foundation - Last Night Saved DJ (2016) [MP3|257-320 кб/с] <T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0588B7B970C84C39E1C2B3DE7A032C6631B83FF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023978   (720307) от 07.06.2016
-
-VA - Easy Jazz Love Songs (2016) [MP3|320 кб/с] <Jazz, Instrumental, Easy Listening>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720307.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nat King Cole Trio - For Sentimental Reasons (I Love You) 02:52
-2. John Coltrane Quartet - A Love Supreme Part I Acknowledgement 07:42
-3. B.B. King - I Need Your Love 02:22
-4. Nina Simone - Black Is the Color of My True Love's Hair 03:24(   Читать дальше...   )Жанр: Jazz, Instrumental, Easy ListeningПродолжительность: 01:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:746F83D0424993D3DB515E63F7835B49E30F3576
 ```
 
 

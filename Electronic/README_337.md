@@ -1,3 +1,165 @@
+###  Публикация: 1138262   (664563) от 29.05.2017
+
+VA - Sensual Beach Lounge Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Charly McLion - Water (Original Mix) 4:44
+02.  Euphonic Traveller - Half Moon Bay (Original Mix) 6:47
+03.  Alpha Centaury - Fluttuazione 30 Marzo 2010 (Original Mix) 4:48
+04.  Twentyeight - Stars (Original Version) 5:54(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:200C3706971B013B4B2ECA46140889932956D441
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138342   (664566) от 29.05.2017
+
+VA - Signs Of Chilling Liberty (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dr. Tim Steiner - Zen In Your Den 5:36
+02.  Schwarz & Funk - Ocean Drive 6:42
+03.  Aqua Mundi - Perceived Dichotomy 6:07
+04.  Marcus Koch - Smooth (Unplugged) 4:32(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D61093D867189CDB8560A285250EA833860EC919
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137938   (665249) от 28.05.2017
+
+Robert Miles - Remember Robert Miles (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children (Dream Version) (7:06)
+ 02. Fable (Message Version) (6:25)
+ 03. Children (Message Version) (6:51)
+ 04. One And One (Radio Version) (4:01)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71F8AC1EF5E9E8E3F4F8AC6462683164A81B4350
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137604   (665314) от 28.05.2017
+
+Robert Miles - Remember Robert Miles (2017) [MP3|320 Kbps] <Trance, Dream House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Children (Dream Version) 7:06
+02.  Fable (Message Version) 6:25
+03.  Children (Message Version) 6:51
+04.  One And One (Radio Version) (feat. Maria Nayler) 4:01(   Читать дальше...   )Жанр: Trance, Dream HouseПродолжительность: 01:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1CCBDD702EDDBFEAA7023047E455D6A2C70F04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537882   (665335) от 18.03.2022
+
+Dawn Of Ashes - Blood of the Titans (2021) Remixes [FLAC 2.0|44.1/24|WEB-DL|tracks] <Dark Electro, Industrial>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665335.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Blood of the Titans (Inva//id Remix)
+2 Blood of the Titans (Tactical Sekt Remix)
+3 Blood of the Titans (Die Sektor Remix)
+4 Blood of the Titans (Midnight Nightmare Remix)(   Читать дальше...   )Жанр: Dark Electro, IndustrialПродолжительность: 00:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7607ACA998D9FC49ECB42C6FA1AAA3AF13A3563
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537846   (665383) от 18.03.2022
+
+Becky Hill - Only Honest On The Weekend (2022) Deluxe Edition [FLAC 2.0|44.1/24|WEB-DL|tracks] <Dance-pop, House, Electro House>
+
+>>Electronic
+>>Trance, House, Techno (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run (Becky Hill, Galantis) (3:10)
+02. I Got You (3:10)
+03. Last Time (3:34)
+04. Make It Hard To Love You (3:19)(   Читать дальше...   )Жанр: Dance-pop, House, Electro HouseПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4001B08FF57B64122013BE1274A8431AC108C34D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137706   (665417) от 28.05.2017
 
 VA - Future Trance Vol. 80 (2017) [MP3|320 Kbps] <House, Trance, Progressive>
@@ -530,171 +692,6 @@ VA - Selected Moments I (2008) Shoreless Recordings [FLAC|Lossless|tracks+.cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:655F16BEEB427299916DE5017AC6BE9D7C976A16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 339069   (667412) от 20.05.2011
-
-Class B Band - Movie T (2011) /WRL005CD/ [FLAC|Lossless]<Tech House, Nu-Disco, Techno, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_667412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Tech House, Nu-Disco, Techno, ElectronicПродолжительность: 01:10:24
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511166   (667452) от 16.06.2012
-
-Calm Pres K.F. - From Dusk Till Dawn (2012) [MP3|320 кб/с]<Deep House, Ambient>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dusk Till Dawn
-02. Summer Flow
-03. Flying
-04. Keep On Drivin
-05. Fly Like A Bird
-06. Goodbye & Hello
-07. River To The Ocean
-08. New Day
-09. Autumn Rain
-10. Peace Of Mind2012Жанр: Deep House, AmbientПродолжительность: 01:15:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5DB8DB8FD48105A38C292F58952569757B6A5F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137223   (667645) от 26.05.2017
-
-Kraftwerk - 3-D: The Catalogue (2017) 8CD Box Set, Deluxe Edition [MP3|320 Kbps] <Electronic, Synthpop, Krautrock>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекционный бокс-сет «Kraftwerk 3-D The Catalogue» - это 3-D аудио/видео собрание выступлений группы в ведущих мультимедийных музеях мира. В него включено 8 классических альбомов Kraftwerk с соблюдением хронологии: Autobahn (1974), Radio-Activity (1975), Trans Europe Express (1977), The Man-Machine (1978), Computer World (1981), Techno Pop (1986), The Mix (1991) (   Читать дальше...   )CD1: Autobahn (1974)
-1. Autobahn (3-D)
-2. Kometenmelodie 1 / Kometenmelodie 2 / Mitternacht / Morgenspaziergang (3-D)
-CD2: Radio-Activity (1975)(   Читать дальше...   )Жанр: Electronic, Synthpop, KrautrockПродолжительность: 04:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E199BB94A0E0A492E94B0229ACCECF1F0110245
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537430   (667713) от 16.03.2022
-
-Tangerine Dream - Raum (2022) [FLAC|Lossless|tracks + .cue] <Ambient, Electronic, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tangerine Dream — немецкий музыкальный коллектив, одни из пионеров электронной музыки и краут-рока. Образован в 1967 году Эдгаром Фрезе, изучавшим в этот момент живопись и скульптуру. Состав группы часто менялся в то время как Фрезе оставался единственным бессменым её участником. В ранний период существования группы в неё входил барабанщик и композитор Клаус Шульце (   Читать дальше...   )01. Continuum (7:12)
-02. Portico (6:43)
-03. In 256 Zeichen (19:10)
-04. You're Always On Time (8:10)(   Читать дальше...   )Жанр: Ambient, Electronic, ExperimentalПродолжительность: 01:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348A1141A664FD29F557D7AFF4CA4F1B5B2B579A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137553   (667766) от 26.05.2017
-
-VA - Workout Music 2017 Pilates Yoga Deep House Edm Top 100 Hits DJ Mix [MP3|320 Kbps] <Ambient, Easy Listening, Dance>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goa Doc, Workout Trance & Workout Electronica - Workout Music 2017 Pilates Yoga Deep House Edm Top 100 Hits Dj Mix 101:04
-02. Swordxl - The Fragility Of Love (Intro) 02:10
-03. Tomic - Downer 05:46
-04. Noiland - These Structure 05:22(   Читать дальше...   )Жанр: Ambient, Easy Listening, DanceПродолжительность: 12:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:282C31C26279A84D3BEFA705F007B30957B3E6A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137498   (667934) от 26.05.2017
-
-VA - Beach House Anthems Volume 2 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sante Cruze - Get So High (feat Sante Cruze) (06:50)
-02. Camilo Franco & Alexandra Prince - World Hold On (extended mix) (06:49)
-03. Crazibiza, Frank Caro & Alemany - Fresh (original mix) (04:46)
-04. Charles J - Corrida (original mix) (04:43)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD30E4594F98D3C8A9EDAEA698320CC469573AE2
 ```
 
 

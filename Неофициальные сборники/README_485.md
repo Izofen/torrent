@@ -1,3 +1,30 @@
+###  Публикация: 1017231   (763032) от 16.05.2016
+
+VA - Горячая 100ка русского шансона (2016) [MP3|256 кб/с] <Chanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763032.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Фёдор Освальд - Бутылочка Вина
+002. Андрей Забродин - Еду Домой
+003. Folk Катрин Band - Зеленоглазка
+004. Майя Подольская - Грешная Любовь(   Читать дальше...   )Жанр: ChansonПродолжительность: 06:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D89C36342F2667DD3D33E703F2D62F6DFDD804D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017114   (763038) от 16.05.2016
 
 VA - Tallinna Terrace Club Collection 3CD (2016) [MP3|320 кб/с] <Downtempo, Nu Disco, Vocal House>
@@ -668,33 +695,6 @@ VA - The Disco Mind: Funky Edition (2019) [MP3|320 Kbps] <Funky, Disco House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CB370FE56BDE0B3CCFD5C83D201A499F68A3A47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394387   (763713) от 05.07.2020
-
-VA - Music for You vol.11 (2020) [MP3|320 Kbps] <Rock, Progressive Metal, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sergey Golovin - Charger (04:05)
- 02. Stellar Circuits - Skylights (03:57)
- 03. Nova Collective - Dancing Machines (09:47)
- 04. Thank Your Scientist - Wrinkle (02:32)(   Читать дальше...   )Жанр: Rock, Progressive Metal, OtherПродолжительность: 04:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31789775D45ADEFFFEC5CAB893C98BBB1FA32D4B
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1205813   (782362) от 13.02.2018
+
+Andromeda - 2 Albums (2004-2005) [APE|Lossless|image + .cue] <Psy-Trance, Progressive Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sensations 06:49
+02. Bling Blings 08:24
+03. Twisted Sister 07:32
+04. The Dreamer 07:45(   Читать дальше...   )Жанр: Psy-Trance, Progressive TranceПродолжительность: 02:26:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB83DFD75FB3BB3A31412A17071E635E56D23F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099722   (782486) от 13.02.2018
+
+Brume Records - Label-Pack 26 Releases (2001-2015) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Rhythmic Noise, Industrial, EBM, Ambient, Experimental>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782486.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Parasitic (05:57)
+ 02. Burn (04:50)
+ 03. Fury Of The Tempest (Whirlwind Remix) (04:18)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM, Rhythmic Noise, Industrial, EBM, Ambient, Experimental •Продолжительность: 00:57:00+00:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5319A54DE8536027C3BE06EECAE28917A4AEA21D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206161   (782498) от 13.02.2018
+
+Ferry Corsten - Blueprint (Remixed) (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive Trance, Vocal Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blueprint (Ciaran McAuley Extended Remix)  6:36
+02.  Your Face (feat. Eric Lumiere) (Duncan La Barre Rendition)  3:24
+03.  Something To Believe In (feat. Eric Lumiere) (Saad Ayub Extended Remix)  5:53
+04.  Waiting (feat. Niels Geusebroek) (DIM3NSION Extended Remix)  6:01(   Читать дальше...   )Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 01:30:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B5BEC8DB9AA8FB2EEFF47828F0E646BFB18104E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206083   (782516) от 13.02.2018
+
+Cube - Can Can In The Garden (1983) 2017, Ltd, Num, RE, RM [FLAC|Lossless|tracks + .cue] <Synthpop, Italo-Disco, 80's>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Young Pretender (5:42)
+ 02. Love And Protect (4:15)
+ 03. Can Can In The Garden (3:46)
+ 04. Two Heads Are Better Than One (Remix) (3:59)(   Читать дальше...   )Жанр: Synthpop, Italo-Disco, 80'sПродолжительность: 01:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DAFFDDE5435E2CA0A227667EC54D6F27E0175FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206156   (782535) от 13.02.2018
+
+Ferry Corsten - Blueprint (Remixed) (2018) [MP3|320 Kbps] <Trance, Progressive Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blueprint (Ciaran McAuley Extended Remix)  6:36
+02.  Your Face (feat. Eric Lumiere) (Duncan La Barre Rendition)  3:24
+03.  Something To Believe In (feat. Eric Lumiere) (Saad Ayub Extended Remix)  5:53
+04.  Waiting (feat. Niels Geusebroek) (DIM3NSION Extended Remix)  6:01(   Читать дальше...   )Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 01:30:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:076A3D61A6AEFD6446F626E99D5074509C135D53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206260   (782542) от 13.02.2018
+
+Laurent Colson - Emptiness (2018) [MP3|320 Kbps] <Downtempo, Electronica>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Emptiness (Chapter I)  3:18
+02.  Ceremony  4:49
+03.  Frozen World  5:28
+04.  The Key Of Time  5:33(   Читать дальше...   )Жанр: Downtempo, ElectronicaПродолжительность: 01:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4AC950D3BF179B13920B3948E6DD88BC2EB9317
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206243   (782543) от 13.02.2018
 
 VA - Cold Rush - Collected (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
@@ -532,168 +694,6 @@ VA - Vocal Trance 2k18 Vol.2 (2018) [MP3|320 Kbps] <Trance, Hard Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:400C5972588F90DFB84B2693942F1DE358CA3100
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205991   (782962) от 12.02.2018
-
-VA - Nujazzvides (2018) [MP3|320 Kbps] <Lounge, Chillout, Nu-Jazz>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bajka  -  The Hunting (Club Des Belugas Remix)  4:03
-02.  Living Room  -  Liquid Jazz (Original Mix)  3:11
-03.  Cube  -  Power Of Your Love (Original Mix)  10:00
-04.  Weathertunes  -  The New Jazz Five (Original Mix)  4:12(   Читать дальше...   )Жанр: Lounge, Chillout, Nu-JazzПродолжительность: 01:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A363C50834A9FDDE54D09A37E6F91086FA36FF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205806   (782981) от 12.02.2018
-
-VA - Bigroom Miami Smasher Vol.3 (2018) [MP3|320 Kbps] <House, Big Room, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blaster Maxter  -  Armageddon (Original Mix)  5:47
-02.  Bassjunx  -  Carnival (Original Mix)  5:07
-03.  Leopardgecko  -  Yogurt (Original Mix)  6:01
-04.  DoranSilver  -  Portal (Original Mix)  4:00(   Читать дальше...   )Жанр: House, Big Room, ClubПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4570314F2788782296FBBF87E557E232ED5A30DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205544   (782982) от 12.02.2018
-
-VA - Hed Kandi (A Taste Of Kandi Summer 2009) (2009) [FLAC|Lossless|tracks] <Progressive House, House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Warren Clarke & Tara McDonald - Love Crazy (Triple D remix) (6:59)
-02.Disco International - Ready 4 More (feat Miss Lynsey) (5:06)
-03.No Halo - What Is This Feeling (7:43)
-04.Wawa & Herd - The Right Way (feat Amanda Wilson - Triple D remix) (6:39)(   Читать дальше...   )Жанр: Progressive House, House, ElectroПродолжительность: 02:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1FC94836FD04633B0C66997E25B353F6EF304C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205552   (782983) от 12.02.2018
-
-VA - A Taste Of Kandi Winter (2010) [FLAC|Lossless|tracks] <House, Disco, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.DJ Neo - Groove With You (feat Soraya Vivian - Soulgangsters Groove dub) (6:33)
-02.Jonni Black - I'm Over This (feat Lauren Rose) (7:18)
-03.Steven Quarre & Morris Mavado - The Reason (feat Stanford) (7:01)
-04.Sosua & Mad - Supaconstellation (7:32)(   Читать дальше...   )Жанр: House, Disco, ElectroПродолжительность: 02:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4F7169F015BB80AAD231B042EB3E1CA9E53A18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205960   (782984) от 12.02.2018
-
-VA - Deep Booty House Vol.1 (2018) [MP3|320 Kbps] <Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Archion – Don’t Lose Control (Instrumental Mix) 3:25
-02. Betamine – Eyes (Original Mix) 3:31
-03. Deepoow – Yep (Original Mix) 6:07
-04. Dimix – State Of Mind (Vocal Mix) (Feat. Taylor William) 4:19(   Читать дальше...   )Жанр: Future HouseПродолжительность: 01:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7F99141E76FD498D6D94F908B07C41D7071AF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390435   (783046) от 15.06.2020
-
-Talamasca - The Experiment (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783046.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Experiment (7:36)
-2. Talamasca; Iván Castro - Anything To Feel Alive (8:17)
-3. Lady Sweet Dream (9:15)
-4. Another Sucker Down (8:03)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC19C9026D98CDDBAB70FBB2617F9BC76BC3F6B
 ```
 
 

@@ -1,3 +1,164 @@
+###  Публикация: 1123075   (792534) от 07.04.2017
+
+VA - Club House Spring '17 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will Fast - Keep It On
+02. Crazybeats - Baby Come On
+03. John Slater - Boogie Down
+04. Robin Feelgood - Pump This Feeling(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F330A4F7F3D38BECD65CF9E967EDCAFEDB93C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201247   (792691) от 24.01.2018
+
+VA - Vocal Trance Hits 2018 Vol.1 (2018) [MP3|320 Kbps] <Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Above & Beyond feat. Zoe Johnston  -  My Own Hymn (Original Mix)  3:51
+02.  Gabriel & Dresden feat. Jan Burton  -  Waiting For Winter (Extended Mix)  7:35
+03.  Dash Berlin feat. Roxanne Emery  -  Shelter (Yoel Lewis Extended Remix)  5:46
+04.  DT8 Project  -  Hold Me Till The End (Aly & Fila Extended Remix)  6:49(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 03:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1615989DD96348BCB1F03C9E2E72EDF4E52FE39D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200632   (792725) от 24.01.2018
+
+Suicide Commando - Forest Of The Impaled (2017) Limited Edition 4CD Box [MP3|320 Kbps] <Dark Electro / EBM / Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gates of Oblivion (06:02)
+02. My New Christ (04:37)
+03. Too Far Gone (04:26)
+04. Death Lies Waiting (04:58)(   Читать дальше...   )Жанр: Dark Electro / EBM / IndustrialПродолжительность: 03:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E274DCC39536B74BA9B9C13905D723B04C8DD46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509920   (792776) от 14.11.2021
+
+Schiller - Epic (2021) 2CD Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. Willkommen
+02. Do You See The Light?
+03. The Endless(   Читать дальше...   )Жанр: Chillout, Downtempo, Ambient |Продолжительность: 02:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76121915009016966CA955738CAB5650A51334A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 874586   (792810) от 24.01.2018
+
+David Nize (Sons Of Melancholia, (RE)NEW(ED), OZKA) Collection 5 Releases (2011-2015) [FLAC|Lossless|tracks+.cue, tracks]<IDM, Abstract, Ambient, Techno, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Davenport - Bloodchild (09:08)
+ 02. Ed Davenport - Islands (Aubrey Remix) (05:40)
+ 03. OZKA - Thirteen Years (05:46)Тип издания: CD, Web, VinylЖанр: Techno/HouseПродолжительность: 00:20:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51904818B0F6D4BE46D7373FACE4CDBB1B38F443
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201204   (792875) от 24.01.2018
+
+VA - Hed Kandi Beach House (2016) [FLAC|Lossless|tracks] <Funky House, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Delay - The Boy Is Mine (feat Alexandra Prince - Mark Lower remix) [7:02]
+02. NY's Finest - Do You Feel Me (City Soul Project Club mix) [7:14]
+03. O&O Music - Music's Hypnotising [4:22]
+04. Sonny Fodera - Feeling U (feat Yasmin - Deep mix) [6:09](   Читать дальше...   )Жанр: Funky House, Club HouseПродолжительность: 05:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB410304B15554E79EBE76B2B3B1AA641D2856C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201385   (792876) от 24.01.2018
 
 Emotions Music - Autumn Vol. 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -534,169 +695,6 @@ VA - Play Acoustic Music (2017) [MP3|320 Kbps] <Downtempo, Acoustic, Instrumenta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:770323CE324D52E233F8119CF0B5970BF644AB39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509498   (793640) от 13.11.2021
-
-Pet Shop Boys - Collection 25 Releases (1986-2020) 43 CD [FLAC|Lossless|tracks + .cue] <Synthpop, Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pet Shop Boys — британский Synth-pop дуэт, состоящий из Нила Теннанта (Neil Tennant) и Криса Лоу (Chris Lowe), образованный в 1981 году в Лондоне.
-Один из самых плодотворных и коммерчески успешных коллективов Великобритании, записывающих танцевальную музыку.1986	Please
-1987	Actually
-1988	Introspective
-1990	Behaviour(   Читать дальше...   )Жанр: Synthpop, ElectronicПродолжительность: 44:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A4ED15F3249526E296C709AC237604AE0401B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121615   (793712) от 06.04.2017
-
-VA - wave 001 (2016) [MP3|192-320 Kbps] <Electronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Øfdream - Indicate
-02. haven - If You Leave
-03. Trash Lord - Hexagram
-04. Foxwedding - Hell Of A Thing(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FA98218DDBEAD6E46DC7B95AEBB4C4296750E62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122964   (793714) от 06.04.2017
-
-VA - Coastal Selections 003 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Markus Hakala - Anguilla (Original Mix)  6:33
-02.  Entis - Lily (Original Mix)  6:35
-03.  Lumidelic - Secrets Of Nature (Original Mix)  7:58
-04.  Joshua Ollerton - Laura (Original Mix)  6:57(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:609428C88F841A8C5A917F52A6A2537845A352C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012622   (793721) от 01.05.2016
-
-VA - Deep House Edition #001 (2016) [MP3|320 кб/с] <Deep House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaques Le Noir - Perezil (05:17)
-02. Lucas Reyes - Feel for You (07:39)
-03. Vanished - Past Life (06:19)
-04. Steven Whirpool - Dance (06:58)(   Читать дальше...   )Производство: Jango ReplayЖанр: Deep House, Club HouseПродолжительность: 01:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1357CFBC8578BADC75F8E8BAED20B06613ED785
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509399   (793915) от 13.11.2021
-
-VA - A State Of Trance 1000 - Celebration Mix (Mixed by Armin van Buuren) (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793915.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Intro - The Boy On His Bike (2:06)
-002. Andain - Beautiful Things (Gabriel & Dresden Extended Unplugged Mix) (10:54)
-003. Gareth Emery & STANDERWICK feat. HALIENE - Saving Light (Extended Mix) (6:38)
-004. Yuri Kane - Right Back (Extended Mix) (5:57)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 15:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AF0280580E851A113AAAFF7D4461867C9315B8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201087   (793949) от 23.01.2018
-
-VA - Ace Ventura - Christmas Selection Vol. 4 (2017) [MP3|320 Kbps] <Psytrance  Progressive Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christmas Selection – Intro
-02. Shpongle & Astrix – Strange Planet
-03. Astrix & Freedom Fighters – Burning Stones
-04. Gaudium – Let Us All Unite(   Читать дальше...   )Жанр: Psytrance  Progressive TranceПродолжительность: 01:23:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4305327CEAF8216E13A8FBD146E48276B6D0E784
 ```
 
 

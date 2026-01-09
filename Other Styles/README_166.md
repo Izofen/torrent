@@ -1,3 +1,305 @@
+###  Публикация: 1367340   (915522) от 16.03.2020
+
+The Hollywood Symphony Orchestra - Native Spirit (2012) 3CD [MP3|192 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hollywood Symphony Orchestra, Krys Mach - Buffalo Dance
+02. The Hollywood Symphony Orchestra, Krys Mach - Coyote Warrior
+03. The Hollywood Symphony Orchestra, Krys Mach - Prairie Daughter
+04. The Hollywood Symphony Orchestra, Krys Mach - Song of the Wild Cat(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 04:25:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0A7536B92D2E6FF9D3FA871EBE26C325992E0BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366743   (915664) от 16.03.2020
+
+Michael Afanasyev - Балканский рубеж (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915664.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:57| 01. Intro
+|01:37| 02. Helicopter
+|01:05| 03. Tribunal
+|02:05| 04. Serbian Theme(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E64E1585F33A1CB8C9CD00A6C918881569EF3423
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366744   (915692) от 16.03.2020
+
+Michael Afanasyev - Балканский рубеж (Оригинальный саундтрек) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915692.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:57| 01. Intro
+|01:37| 02. Helicopter
+|01:05| 03. Tribunal
+|02:05| 04. Serbian Theme(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA263DEFE40A10B02424BE584213CDD35E06BE46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989752   (915701) от 23.02.2016
+
+Isgaard - The Early Days (2015) [MP3|320 кб/с] <New Age, Classical Crossover>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My World
+02. Little Girl
+03. Save Me
+04. Anima (Remix)(   Читать дальше...   )Жанр: New age, Classical CrossoverПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A31E5D2FF57DA08CFF6C1A42EEFC617B47DC3B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989837   (915802) от 23.02.2016
+
+Damien Dubois - Evasion (2015) [MP3|320 кб/с] <New Age, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le livre des secrets
+02. Envol
+03. Jardin de cristal
+04. Chemin d'etoiles(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AFBD9B19B1C9435F8F0ABFF6F88F2F5B579E0C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 178954   (916112) от 03.03.2010
+
+Chandeen - Discography (15 albums) (1994-2008) [MP3|192-320 kbps] <Ethereal, Darkwave, Dream Pop, Heavenly Voices>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916112.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Teenage poetry (2:08)
+2. Welcome the still (4:17)
+3. New colouring horizon (3:51)
+4. At the end of all days (4:23)
+5. From the inside (4:53)
+6. A last goodbye (2:19)
+7. Looking forward, looking back (5:48)
+8. Clean the traces (4:32)
+9. The coming dawn (5:49)
+10. The sentiments of an old love story (3:33)(   Читать дальше...)Жанр: Ethereal, Darkwave, Dream Pop, Heavenly Voices
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497660   (916690) от 15.03.2020
+
+Conjure One - 12 albums (2002-2011) [FLAC|Lossless] <Chillout, Ambient, New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like Ice (Marcus Schossow Extended Remix) (09:24)
+02. Like Ice (Album Edit) (04:37)
+03. Like Ice (Rampue Remix) (06:59)
+04. Like Ice (Chris B Remix) (06:24)(   Читать дальше...   )Жанр: Chillout, Ambient, New Age, DowntempoПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D10AE6F67B54B82AE03ED6166AB1932C79C19B1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289765   (916745) от 01.02.2011
+
+David Sun Productions - Звуки океана для ароматерапии (2005) [MP3|320 kbps]<Звуки природы/релакс>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.David Sun Productions - Zvuki okeana
+
+Описание:Жанр: Звуки природы/релаксПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1B8E563891433AEEFD29E302DB982E87E5782E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 32966   (916820) от 15.03.2020
+
+Space – Just Blue (1978) [FLAC|Lossless|tracks] <Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Blue (4:30)
+02. Final Signal (4:21)
+03. Secret Dreams (4:29)
+04. Symphony (4:57)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC9D486D29CBB2A5FA87F9B41A3477BCC288DF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 423792   (916968) от 15.03.2020
+
+Jonn Serrie - Sunday Morning (2005) [FLAC|Lossless|image + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jonn Serrie - композитор в жанрах космической музыки, эмбиент, нью-эйдж. Он записал не менее восемнадцати альбомов и работал над различными проектами для Lucasfilm, корпорации IMAX, NASA, военно-морских сил США, планетария Хейдена, Экспо Севилья и CNN.01. Sunday Morning (11:26)
+02. Maiden Voyage (11:38)
+03. The Enlightened Path (7:18)
+04. Breath Of The Valley (7:57)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057F671B468D957B7FD32E13745E421A49E08900
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367415   (917235) от 15.03.2020
+
+Myrkur - Folkesange (2020) [MP3|320 Kbps] <Dark Folk, Female Vocal>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ella [00:03:54]
+02 - Fager som en Ros [00:02:50]
+03 - Leaves of Yggdrasil [00:04:00]
+04 - Ramund [00:03:28](   Читать дальше...   )Жанр: Dark Folk, Female VocalПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F60A21D9F4FE9C567E1C0278BDDAFC0D05098B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096356   (917510) от 25.01.2017
 
 James Alan Shelton - Blue In The Blue Ridge (1996) [FLAC|Lossless|tracks + .cue] <Bluegrass, Guitar>
@@ -397,303 +699,6 @@ Klayton - The Dunes (Original Motion Picture Score) (2020) (2020) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C56B34299D8931881686E8E7B7CF398673608C72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366442   (922127) от 12.03.2020
-
-Klayton - The Dunes (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922127.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:59| 01. Gerald
-|01:55| 02. A Pretty Bright Light
-|01:07| 03. Detroit
-|01:42| 04. Blood(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F8AF7B93E0B3068DEE213359954180C07288B56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366610   (922133) от 12.03.2020
-
-Benjamin Wallfisch - The Invisible Man / Человек-невидимка (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922133.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:42| 01. Cobolt
-|04:28| 02. Escape
-|03:37| 03. He's Gone
-|02:19| 04. This Is What He Does(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B74524DAC46F84CCE7EB749F7743784A5AF1C99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366622   (922135) от 12.03.2020
-
-Игорь Вдовин - Вторжение (Оригинальный Саундтрек) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922135.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:54| 01. Интро
-|01:33| 02. Лаборатория ВКС
-|00:55| 03. Эксцесс в лаборатории
-|00:40| 04. Папа беги(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7E635338EEF2EDBBABCCAA32B9E81BDD1C4569
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366602   (922234) от 12.03.2020
-
-Voidoid - The Greatest Movie Anthems of All Time (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922234.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:18| 01. Aquaman
-|02:34| 02. Ant-Man and the Wasp
-|01:31| 03. Deadpool 2
-|02:02| 04. Incredibles 2(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F63F9ADFA0404E980F5FDEE1B0D348E630C4344
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366623   (922236) от 12.03.2020
-
-Игорь Вдовин - Вторжение (Оригинальный Саундтрек) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922236.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:54| 01. Интро
-|01:33| 02. Лаборатория ВКС
-|00:55| 03. Эксцесс в лаборатории
-|00:40| 04. Папа беги(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D443E8F13FDC5A330878B497B07E4816E666FFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366609   (922242) от 12.03.2020
-
-Benjamin Wallfisch - The Invisible Man / Человек-невидимка (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922242.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:42| 01. Cobolt
-|04:28| 02. Escape
-|03:37| 03. He's Gone
-|02:19| 04. This Is What He Does(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2886131B078C56912139153582BBE1D9AF109798
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366462   (922247) от 12.03.2020
-
-Andrew Swarbrick - The Runaways (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922247.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:22| 01. Hay
-|01:29| 02. Dead Reith
-|01:29| 03. Life's Rich Tapestry
-|01:18| 04. We've Got to Do Something(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CC71626731D16294E0251C88E73903A64DA81D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366603   (922250) от 12.03.2020
-
-Voidoid - The Greatest Movie Anthems of All Time (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922250.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:18| 01. Aquaman
-|02:34| 02. Ant-Man and the Wasp
-|01:31| 03. Deadpool 2
-|02:02| 04. Incredibles 2(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAA089D2277BE7815CA22BB2F76215634D5C6722
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366525   (922331) от 12.03.2020
-
-Aldo Shllaku - Triumph (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922331.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:07| 01. In Serbia
-|02:35| 02. The Rematch
-|03:34| 03. The Interview
-|02:08| 04. The Coach(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2030577BCFA0D52E0A3D609F3A01D3268CEAA4F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366463   (922335) от 12.03.2020
-
-Andrew Swarbrick - The Runaways (Original Motion Picture Score) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922335.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:22| 01. Hay
-|01:29| 02. Dead Reith
-|01:29| 03. Life's Rich Tapestry
-|01:18| 04. We've Got to Do Something(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3990566FAD3BE209A28410F9922F1DE888DAC99E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366524   (922336) от 12.03.2020
-
-Aldo Shllaku - Triumph (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922336.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:07| 01. In Serbia
-|02:35| 02. The Rematch
-|03:34| 03. The Interview
-|02:08| 04. The Coach(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3455CF0C7DE2BDEEB1181AFE36876CF7B358AD88
 ```
 
 

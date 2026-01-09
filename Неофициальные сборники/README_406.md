@@ -1,3 +1,30 @@
+###  Публикация: 1226423   (655760) от 20.05.2018
+
+VA - Unique Disco (2018) vol 2 [MP3|320 Kbps] <Electronic, Funk-Soul, PopRock, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amon Duul Ii - Kismet (1978) (3:57)
+02. Anilisi 91 - Disco Magic (1978) (3:24)
+03. Bogart - On Broadway (1979) (5:56)
+04. Captain Zorro - Phantasm (1979) (6:58)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, PopRock, DiscoПродолжительность: 01:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:203323022E2F8335B6D726E214C3E1F175E49E36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226279   (655765) от 20.05.2018
 
 VA - ЕвроХит Топ 40 Europa Plus 18.05.2018 [MP3|320 Kbps] <Pop, Dance>
@@ -708,33 +735,6 @@ VA - Metal Collection 2 (2017) [MP3|320 Kbps] <Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:427A2A29AF795453829CC048C67F56F32464A0CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139958   (656690) от 05.06.2017
-
-VA - Record Super Chart #489 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Martin Garrix & Brooks - Byte 4:45
-02.  Yellow Claw & Moksi feat. Jonna Fraser - Open 3:31
-03.  Matt Nash - Know My Love 4:23
-04.  W&W - Put EM Up 4:20(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7182BA969265B74028321792C51BECE754D20D05
 ```
 
 

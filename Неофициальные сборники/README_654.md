@@ -1,3 +1,30 @@
+###  Публикация: 1350005   (1003723) от 04.01.2020
+
+The Kelly Family - We Are The World (2019) Compilation [MP3|320 Kbps] <Pop, Rock, Folk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Why Why
+02. Father's Nose
+03. Cover The Road
+04. Let My People Go(   Читать дальше...   )Жанр: Pop, Rock, FolkПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28FE8058F1A7C61F50743FE5CC4592D77A2C3C54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349945   (1003764) от 04.01.2020
 
 VA - Portal Transform: Psy Trance Music (2020) [MP3|320 Kbps] <Psychedelic Trance>
@@ -668,33 +695,6 @@ VA - Fantasmatic: Synthwave MPM (2021) [MP3|320 Kbps] <Synthwave, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B17EA12224B40FAF46BE80E0B745895953A479A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486529   (1004593) от 01.08.2021
-
-VA - Beatport Electro House: Sound Pack #320 (2021) [MP3|320 Kbps] <House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004593.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lockafella - Ndiyahamba
-002. Kuriose Naturale - Total Holzmarktstrasse
-003. Timmy Regisford - Smooth Track
-004. Framework - Flashback(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 12:32:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A0C2871ACBA4B8A02D0A49788C1CE4FDDE52484
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1530226   (728683) от 11.02.2022
+
+ДДТ - Я Получил Эту Роль (1989) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Blues Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728683.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Поэт (1985)
+A2 Мальчики-мажоры (1985)
+A3 Конвейер (1987)
+A4 Не Стреляй! (1982)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A38E00B185EEA503AC903D3D22F951017B5460
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284286   (728766) от 21.02.2019
 
 Lynyrd Skynyrd - Last of a Dyin' Breed (2012) [FLAC 2.0 24/192|image|Vinyl-Rip] <Southern Rock>
@@ -660,33 +687,6 @@ magnet:?xt=urn:btih:E6C83FEE1D77283C4544C18EAB51B708F7153E2F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F3DE9AF6A14160BE9E85CA2524BA4935871E3F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397417   (740426) от 20.07.2020
-
-Sky - Masterpieces - The Very Best Of Sky (1984) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Prog Rock, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740426.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Toccata
-A2 Westway
-A3 Fool On The Hill
-A4 Gymnopodie No. 1(   Читать дальше...   )Жанр: Prog Rock, InstrumentalПродолжительность: 00:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:566A2DD5A1B85B65F78EE5739A9AA3A81A0E131C
 ```
 
 

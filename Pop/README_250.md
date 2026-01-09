@@ -1,3 +1,244 @@
+###  Публикация: 1133044   (696782) от 11.05.2017
+
+Leftfield - Leftism 22 (1995) Remastered & Remixed, 2017, Sony Music, 2CD [MP3|320 Kbps] <Electronic, Leftfield, Progressive House, Breaks>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Leftfield — английский электронный дуэт, состоящий из Пола Далей (Paul Daley) (работал также в проектах The Rivals, A Man Called Adam и Brand New Heavies) и Нила Барнса (Neil Barnes) основанный в 1989 году в Лондоне. Первоначально под именем Leftfield Нил Барнс выпустил сингл «Not Forgotten», но несколько позже к нему присоединился Пол Далей. Под этим псевдонимом (   Читать дальше...   )01. Release the Pressure (Adrian Sherwood Mix) (4:56)
+02. Afro Left (Hodge & Peverelist Mix) (6:20)
+03. Melt (Quiet Village Mix) (7:50)
+04. Song of Life (BodyJack Mix) (8:51)(   Читать дальше...   )Жанр: Electronic, Leftfield, Progressive House, BreaksПродолжительность: 02:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5554A37105C2B8718D4CC7F06A3ACC909D4EB5A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221211   (696804) от 23.04.2018
+
+Possession - Possession (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Possess Me (6:03)
+02. Happy Alive And Kicking (5:39)
+03. Lollipop Sucker (Instrumental) (3:23)
+04. Living And Dancing (5:58)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E80CF80B3431FB39E5090A3658EE1AB0EDEE5E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133223   (697008) от 11.05.2017
+
+Masquerade - The Sound of Masquerade (1984) CD [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (2:01)
+02. Guardian Angel (4:25)
+03. Love Hurts (3:46)
+04. Deep Under My Skin (4:18)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC9AB2318F0BF1CD6AB141EC3B1F3B1A6BA575D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 895779   (697083) от 07.05.2015
+
+Город 312 - Без вариантов (2015) [FLAC|Lossless]<Pop-Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не теряй меня, Москва
+02. Вне зоны доступа
+03. Фонари
+04. Останусь(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:17:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D102B9C72BF3F2AB5A2367B36943EC8A79DAE48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288289   (697167) от 10.03.2019
+
+Dido - Still On My Mind (2019) [FLAC|24/44,1|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hurricanes
+02. Give You Up
+03. Hell After This
+04. You Don't Need a God(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71AB7B8AF764A11490D50B4A1A646B0B71AA316E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 895693   (697418) от 07.05.2015
+
+Whitney Houston - The Star Spangled Banner (1991) Single [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хьюстон исполнила «The Star Spangled Banner» перед финальным матчем чемпионата НФЛ по американскому футболу в январе 1991 года. Эта запись песни была выпущена как коммерческий сингл, который попал в двадцатку U.S. Hot 100, сделав Хьюстон первым артистом, выпустившим национальный гимн в качестве хита. Хьюстон пожертвовала свою долю выручки Американскому Красному Кресту. Десять лет спустя песня была перевыпущена после терактов 11 сентября 2001 года.01. The Star Spangled Banner
+02. America The BeautifulЖанр: PopПродолжительность: 00:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28769EAA1FB2DCA2418743EC47D25ADD943233CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402909   (697583) от 16.08.2020
+
+Pupo - Su di noi - The Best of Pupo (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Non è un addio (4:01)
+02. Su di noi (3:48)
+03. Forse (3:29)
+04. La terra di nessuno (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1893DFC2DFDDA20B50A4637B7913836F625F057E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221076   (698513) от 22.04.2018
+
+Selena Gomez - Revival (Box Set USA) (2015) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revival - 04:06
+02. Kill 'Em With Kindness- 03:37
+03. Hands to Myself - 03:20
+04. Same Old Love- 03:49(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB4D5704DF957B32FF5E9718E16324BC248183B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221084   (698517) от 22.04.2018
+
+Bobby Farrell - The Best of Boney M. (2001) CD [MP3|320 Kbps] <Electronic, Europop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальное исполнение 2001года. Вокал: Bobby Farrell, Sandy Chambers01. Rivers Of Babylon (3:47)
+02. Ma Baker (4:38)
+03. Rasputin (5:54)
+04. He Was A Steppenwolf (5:51)(   Читать дальше...   )Жанр: Electronic, Europop, DiscoПродолжительность: 01:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE192E1D0C527249C3DD86E4BA25F49E6E1D8CF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221049   (698602) от 22.04.2018
 
 VA - Italo Disco New Revival Volume 1-10 (2015) [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Synth-Pop>
@@ -451,249 +692,6 @@ The Cascades - Hits And Rarities (1993) [MP3|320 кб/с] <60's Pop, Oldies>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0B9EADA1C5BE8562EB70CF86FE802C5F2D5894A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220865   (700433) от 21.04.2018
-
-VA - Первый танцевальный, Vol. 15 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Филипп Киркоров - Цвет настроения синий
-02. Артём Пивоваров - Полнолуние
-03. Zivert - Ещё хочу
-04. Ева Польна - Сильнее меня (feat. Burito)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA7857D50CBEFA9091873DD0521766959C0E49C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220749   (700664) от 21.04.2018
-
-Lisa Stansfield (Лиза Стэнсфилд) - Affection (1989) Arista [MP3|320 Kbps] <Pop, R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лиза Стэнсфилд — британская певица, которая стала известной в 1989 году, записав свой дебютный альбом «Affection». Прорывом певицы стала песня с альбома 1989 года «Affection» «All Around the World», которая достигла третьего места в чарте Америки Billboard Hot 100 и первого — в Великобритании. Также популярными оказались песни «This Is the Right Time», «Live Together», (   Читать дальше...   )01. This Is The Right Time 4:33
-02. Mighty Love 5:12
-03. Sincerity 4:50
-04. The Love In Me 5:00(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F583417749BC0EDE399A9671FF94EBB46A06E3CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287821   (700803) от 08.03.2019
-
-Кватро - XV лет. Посвящение женщине. Часть 3 (2019) [MP3|320 Kbps] <Pop, Retro>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700803.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Замок из дождя
-2. Как ты красива сегодня
-3. Сердце в 1000 свечей
-4. Виноградная косточка(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:185E119B23AA2EE6CBCDF118335B8927CC932EAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132511   (700841) от 09.05.2017
-
-Lola Coca - The Only Child (2017) [MP3|320 Kbps] <Pop, Britpop, Alternative Hip Hop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Songs
-02. Big Ben
-03. Dream Date
-04. GQ(   Читать дальше...   )Жанр: Pop, Britpop, Alternative Hip HopПродолжительность: 00:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98D0167AF95C890A4400BE7A4F18FFF5DF317B48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 895299   (701015) от 05.05.2015
-
-Lara Fabian - Essential (2015) [FLAC|Lossless]<Pop, Classical Crossover>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voce
-02. Tu t’en vas
-03. Tout
-04. Je t’aime(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5558150FCD5F39D76529CFE0FE42D5BB35A1D857
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287825   (701351) от 08.03.2019
-
-Гречка - сборник малолетки (2019) [MP3|320 Kbps] <Pop-Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701351.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. проснись моя любовь
-2. каждую секунду
-3. мир сходит с ума
-4. ты главный герой(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A6008A3FB0F5B45F4D6F6C7A5232D41E7D30869
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533952   (701372) от 26.02.2022
-
-VA - ZYX Italo Disco: Flemming Dalum Remixes (2021) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'Lectric Workers - Robot Is Systematic (Flemming Dalum Edit) (6:33)
-02. Duke Lake - Do You (Flemming Dalum Short Edit) (6:21)
-03. Mono Band - Ghost Town (Flemming Dalum Edit) (7:46)
-04. Wish Key - Orient Express (Flemming Dalum Edit) (5:41)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:15:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6371754FB990FB1AADEF3937519C789EB7DE9B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402464   (701424) от 14.08.2020
-
-Bad Boys Blue - My Star (2019) Compilation [FLAC|Lossless|image + .cue] <Euro-Disco, Italo-Disco, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L.O.V.E. In My Car (5:21)
-02. You're A Woman (Reloaded) (3:50)
-03. Pretty Young Girl (5:46)
-04. Kisses And Tears (My One And Only) (3:57)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, EuropopПродолжительность: 01:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73F46CDD0DA2B46B017BF7676C759AC02C9E4A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533907   (701557) от 26.02.2022
-
-VA - DMC Dance Extra Mixes 168 (2021) [MP3|320 Kbps] <Electronic, Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A7S - Nirvana (Header Extended Remix)
-02. A7S - Nirvana (Steff Da Campo Remix)
-03. Anna Awe - Keep Calm (Maik Schafer Pleasure And Pain Remix)
-04. Craig & Grant Gordon - Garden (Original)(   Читать дальше...   )Жанр: Electronic, Funk / Soul, PopПродолжительность: 01:19:20 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA9368813E64602443E599D9AC81A24B89EB2D0
 ```
 
 

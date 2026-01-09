@@ -1,3 +1,36 @@
+###  Публикация: 507827   (683265) от 08.06.2012
+
+VA - В Машину! Лето Русский (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. E.Lena - Истерика
+02. Джиган (Geegun) feat. Жанна Фриске - Ты Рядом (DJ MEG & NERAK Remix)
+03. 25-17 - Звезда
+04. Hi-Fi - Не Покидай
+05. DNA Family - С Пятницы По Воскресенье
+06. Lerika & DJ Sebastian - Небо и Земля
+07. Юрий Федотов & А-Нет - Волшебная Игра
+08. Roma Kenga - Ты Будешь Счастливой
+09. Music People Deejays - Выпускной (New 2012 Radio Version)
+10. David & Dino MC 47 - Ты Больше Не Моя (DJ Oleg Perets Remix)2012Жанр: PopПродолжительность: 05:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06D494FEF39B0EFA8C2CB51BCC7885800C62334
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 506778   (683445) от 08.06.2012
 
 VA - СупердискотЭка Радио Рекорд 80-х 50/50 (2012) [MP3|256 kbps]<Disco|Dance>
@@ -677,33 +710,6 @@ VA - Лучший Клубный Хит Vol.2 (2018) [MP3|320 Kbps] <Club, House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D03903BB95093018FA7A9234DBD4C806AA4FC0ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289690   (684457) от 17.03.2019
-
-VA - The Official UK Top 40 Singles Chart 15.03.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lewis Capaldi - Someone You Loved
-02. Calvin Harris - Giant
-03. Mabel - Don't Call Me Up
-04. Ariana Grande - break up with your girlfriend, i'm bored(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:10:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9DC4A9CF08E9025049A2F91BB80D1ADB0F7C8BE
 ```
 
 

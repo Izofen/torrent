@@ -1,3 +1,162 @@
+###  Публикация: 1453893   (1026745) от 12.03.2021
+
+BlutEngel - Fountain of Destiny (2021) [MP3|320 Kbps] <Darkwave, Synth-pop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wild Boys
+02. Forever Young
+03. Hymn
+04. Down in the Park(   Читать дальше...   )Жанр: Darkwave, Synth-popПродолжительность: 00:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE68BB09744F10C7541A36D4C4ABF2E725E2E765
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453686   (1026746) от 12.03.2021
+
+Marvel83' - Metropolis (2021) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Retrowave, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metropolis (4:10)
+02. So This Is for You (2:59)
+03. Drift Division (4:26)
+04. Brooklyn Rain (3:53)(   Читать дальше...   )Жанр: Dreamwave, Retrowave, SynthwaveПродолжительность: 00:35:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33BB09FE1D0955EA12F06B2ED69B0167CB366CCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453381   (1026747) от 12.03.2021
+
+Yotto - A Very Cold DJ Set, Lapland, Finland (2021-03-06) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026747.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Yotto - The Valley
+2. Yotto & Cassian-Grains w/ SØNIN vs. Yotto - Nothing Like You (Acappella)
+3. Yotto - Nova (Joseph Ray Remix)
+4. SOHMI - Closer(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:24:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5F7FD0A2F2CF9B1E1A26CBD2F967EC863244043
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453742   (1026761) от 12.03.2021
+
+M A D - Slow Mo (2016) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Darkwave, Dream Pop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All There Is To It (07:30)
+ 02. Never To Late (04:00)
+ 03. The Door (05:52)
+ 04. Reverse (05:40)(   Читать дальше...   )Жанр: Trip Hop, Darkwave, Dream PopПродолжительность: 00:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CBF43A21016CB53A7BA65F4F11E53B1D558CF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453796   (1026766) от 12.03.2021
+
+T & Sugah & Voicians - Days Away (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T & Sugah, Voicians - Days Away (03:53)
+02. T & Sugah - French Fries (04:24)
+03. T & Sugah - Days Away (Instrumental) (03:53)Жанр: Drum & BassПродолжительность: 00:12:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2532B35A1BFAF569D0A61167CAF429EFDBB89641
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453859   (1026771) от 12.03.2021
+
+Mark Vera - Singles (2020-2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Retrowave, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Android People (Full Battery Mix) (5:54)
+02. Android People (Low Battery Mix) (4:05)Жанр: Spacesynth, Retrowave, SynthwaveПродолжительность: 01:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BCAD34701D5343CBEC570CFF54020C4960452ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232828   (1027018) от 10.03.2021
 
 Nathan Fake - Discography 29 Releases (2003-2021) Border Community, Ninja Tune [FLAC|Lossless|tracks+.cue, tracks] <Techno, Leftfield, IDM, Ambient, Tech House, Minimal>
@@ -527,168 +686,6 @@ Patrick Benolkin (Eluder, ElectricWest, Lamont Kohner) - Discography 23 Releases
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94347EF80981D0DFAB8A8BC5B98FEDA9E0427A4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451966   (1028051) от 04.03.2021
-
-Psilotum - Altered Vision (2021) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Psychill, Progressive Trance, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rainfall (11:34)
-02. Orionis (09:17)
-03. Noogenesis (09:36)
-04. Tetraktys (11:10)(   Читать дальше...   )Жанр: Psychill, Progressive Trance, AmbientПродолжительность: 01:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B597061C95993C7CAC2C0BD2D40625505B84DEC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451947   (1028057) от 04.03.2021
-
-VA - Warehouse Anthems: Drum & Bass, Vol. 15 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonic - Hacienda (2016 Remaster) (07:14)
-02. LTN, Kokai, Ai Takekawa - Just Another Man (S9 Remix) (05:12)
-03. Crystal Sky - Falling In Love (Aural Imbalance's Passion Remix) (07:20)
-04. Locksmith - Magic Moments (Original Mix) (06:40)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:19:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD41D1FD6E927414D00CEB4144FE9E8A691A8BE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451932   (1028058) от 04.03.2021
-
-VA - Warehouse Anthems: Drum & Bass, Vol. 13 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battle Drone - Space Funk (Original Mix) (05:14)
-02. Reflex - Bermuda Cube (Original Mix) (05:12)
-03. Jetfunk - Deep Down Inside (Original Mix) (05:42)
-04. Geeks - Park (Original Mix) (04:31)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0695108EE9CE015B90F99C3C30E0BA2211752728
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451813   (1028062) от 04.03.2021
-
-VA - Point of Origin, Vol. 4 (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Ford, Jolliffe - Circuits (04:34)
-02. Dub Elements - Sacred Geometry (04:56)
-03. Phaction, Leo Wood - Electric Wires (04:55)
-04. Bert H, Hiraeth - All I Want (05:17)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA6CFBD0F70E8172B02C798487C7B0FBB910383
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451922   (1028063) от 04.03.2021
-
-VA - Warehouse Anthems: Drum & Bass, Vol. 12 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pux - Cosmic Monster (Original Mix) (04:58)
-02. Babylon3 - Blaze Chalwa (Original Mix) (06:12)
-03. Silent Approach - So Close (Original Mix) (05:20)
-04. Rautu - Visuality (Original Mix) (03:12)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F78095574E562A09DC78B423F187BA38B7DCDBA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451838   (1028066) от 04.03.2021
-
-VA - The Perfect Sunset Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael E - After the Storm (05:57)
-02. Will James - Capri (04:33)
-03. Gary B - Volar (04:54)
-04. Beamy - Es Vedra (05:54)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E523A7167ABA38F6720980608607A009D5D533
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1450295   (1028364) от 02.03.2021
+
+VA - Powersynth Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Synthwave, Cyberpunk>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stieglitz - Sunset Sanctuary (3:32)
+02. Corrupted Machines - Neuromancer (5:12)
+03. M.A.D.E.S - Replicants (4:32)
+04. Midnight Danger - Darkness Approaches (Remastered) (4:04)(   Читать дальше...   )Жанр: Darksynth, Synthwave, CyberpunkПродолжительность: 01:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4521B2B7F96E9DADDBFDFF6363CAE46EE89A6A12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451394   (1028382) от 02.03.2021
+
+VA - Is That So? EP (2021) Not Mine But [FLAC|Lossless|WEB-DL|tracks] <Experimental, Bass, IDM, Techno, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tsu ツ - Sanctuary (04:10)
+ 02. Dioscuri - Black Tooth Grin (Live Excerpt) (05:48)
+ 03. Amotken - Grains and Impressions (06:10)
+ 04. Cosmutt - Lodestar (07:50)Жанр: Experimental, Bass, IDM, Techno, AmbientПродолжительность: 00:23:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAD1866BBFCB1CF4C6ACB4E66130BF16190E9601
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092877   (1028402) от 01.03.2021
+
+Bonobo - Discography 48 Releases (2000-2021) Ninja Tune [FLAC|Lossless|tracks+.cue, tracks] <Downtempo, Future Jazz, Ambient, Trip Hop, Leftfield, Soul>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bonobo - Fabric Presents Bonobo (Continuous DJ Mix) (01:13:49)
+ 02. Bonobo - Flicker (05:45)
+ 03. Bonobo - Boston Common (04:48)
+ 04. Pote - Jacquot (Waters Of Praslin) (06:19)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Downtempo, Future Jazz, Ambient, Trip Hop, Leftfield, Soul •Продолжительность: 31:33:51 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A115C1B70C713327ACC8BCB7525073F1215CBDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249212   (1028426) от 01.03.2021
+
+Sync24 - Discography 11 Releases (2007-2020) Ultimae Records, Leftfield Records [FLAC|Lossless|tracks+.cue, tracks] <Psybient, Downtempo, Ambient, Illbient, Acid>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feet In The Water (07:09)
+ 02. Ouroboros (06:11)
+ 03. Nightfall Bounce (04:58)
+ 04. Acid For Blood (04:54)(   Читать дальше...   )Тип издания: CD, WebЖанр: Psybient, Downtempo, Ambient, Illbient, Acid •Продолжительность: 09:07:51 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C0247E0E78BDF5141A14C18AD0C4402E933E0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210196   (1028451) от 01.03.2021
+
+VA - Heavy Dub Vol. 1-6 (2016-2021) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Dub, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giriu Dvasios feat. Aistė Motiejūnaitė - Nepasakyta (05:28)
+ 02. Herman Crantz - Steppelands Dub (06:44)
+ 03. joergmueller - St. Pancras (05:01)
+ 04. Occult - Axum (04:52)(   Читать дальше...   )Тип издания: WEBЖанр: Dub Techno, Dub, Ambient •Продолжительность: 04:33:06 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0746397213E02431DABB749847305ABDF688B204
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238334   (1028507) от 01.03.2021
+
+Guy Andrews (iambic, iambic², The Moving Dawn Orchestra) - Discography 20 Releases (2007-2021) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Experimental, IDM, Post Rock, Minimal, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spring: Hymn/Hymn (08:10)
+ 02. Summer: Keep Still (08:05)
+ 03. Autumn: Between Hands (08:00)
+ 04. Winter: Silhouette (07:39)Тип издания: CD, WebЖанр: Techno, Experimental, IDM, Post Rock, Minimal, Ambient •Продолжительность: 09:39:28 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49CF38A657B15DFB372ACFEBBB6899AF0DFDE0C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302512   (1028512) от 01.03.2021
 
 Thessa Torsing | upsammy - Discography 8 Releases (2018-2021) Nous'klaer Audio, Die Orakel, Dekmantel [FLAC|Lossless|WEB-DL|tracks] <IDM, Leftfield, Electro, Ambient, Techno>
@@ -526,168 +688,6 @@ Mouse On Mars - Discography 31 Releases (1994-2021) [FLAC|Lossless|tracks+.cue, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87AA8C2B747F26E72A232973B99468B478563AB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243227   (1028983) от 26.02.2021
-
-Andrew Bayer - Discography 60 Releases (2006-2021) Anjunabeats [FLAC|Lossless|tracks+.cue, tracks] <Trance, Ambient, Glitch, Downtempo, Techno, House, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond - Group Therapy Intro (ABGT300ABD) (01:02)
- 02. Andrew Bayer - Eight To Sixteen (ABGT300ABD) (05:15)
- 03. Andrew Bayer - Nobody Told Me (ABGT300ABD) (05:15)
- 04. Andrew Bayer - Only You Boy (ABGT300ABD) (05:30)(   Читать дальше...   )Тип издания: CD, WebЖанр: Trance, Ambient, Glitch, Downtempo, Techno, House, Experimental •Продолжительность: 28:44:51 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25525DA85315D903FDCD9376517BE8799A7187E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450455   (1029041) от 26.02.2021
-
-Nu:Tone - Little Spaces (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nu:Tone, Charlotte Haining - Sleepwalker (05:50)
-02. Nu:Tone - Girl On A Bike (04:13)
-03. Nu:Tone, Lalin St. Juste - One Day At A Time (03:53)
-04. Nu:Tone - Can't Stop, Won't Stop (05:48)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:04:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B259CFFC480035912F3024386D1BFB46EDE8573E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450566   (1029047) от 26.02.2021
-
-Damirat - Pixcurve (2020) dingn\dents [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Glitch>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intelien C (03:32)
- 02. Texmass (04:46)
- 03. Deliope (03:10)
- 04. Telocurve (04:55)(   Читать дальше...   )Жанр: IDM, Experimental, GlitchПродолжительность: 00:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E5766D222509267FD6CD098CAD438A94037C1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450440   (1029049) от 26.02.2021
-
-Kas - Like Sunlit Threads (2021) Ilian Tape [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Was Never Really Here (02:23)
- 02. Like Sunlit Threads (08:11)
- 03. Last Silence (03:12)
- 04. Mystery Beyond Mystery (06:57)(   Читать дальше...   )Жанр: Ambient, Techno, ExperimentalПродолжительность: 01:02:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA6EA28AE9A424F1C8101C5C7B13453A58EC424
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450263   (1029050) от 26.02.2021
-
-Septabeat & Sofi Mari - Sundance EP (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sundance (05:35)
-02. Origins (05:40)
-03. Waiting (03:52)
-04. Shiver (05:20)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4ABFCEF8AAA6ABC163664C6E17F0461D22FF021
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623802   (1029092) от 03.04.2023
-
-Mirage Of Deep - The Best Of Mirage Of Deep (2023) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moon Light (Mediterranean Roots) (Remastered 2023) (7:46)
-02. Forbidden Perfume (Remastered 2023) (5:27)
-03. Hechizo De Luna (Remastered 2023) (5:32)
-04. Totality (Remastered 2023) (6:21)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297E585A393ED570AFF4C1743B37121E1152FB7B
 ```
 
 

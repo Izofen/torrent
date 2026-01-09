@@ -1,3 +1,165 @@
+###  Публикация: 1223362   (675115) от 04.05.2018
+
+VA - Workout Vol 6 (2018) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AkroSonix - Mr. (Original Mix) [05:16]
+02. Liam 24 - Deep Night (Original Mix) [05:14]
+03. ADAKADAK - Vacation in Bulgaria (Original Mix) [05:03]
+04. DJ BF - I'll Meet You In The Next Year (Original Mix) [05:00](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:23:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54CD8F255C2A3B3A31B211AEDB3267A44BB01B20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536357   (675143) от 12.03.2022
+
+Meteor - Voyage Into Fear (2018) [FLAC 2.0|96/24|WEB-DL|tracks] <Synthwave, Retrowave, Cyberpunk>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleep Mode: Off [01:36]
+02. E-Class System [03:46]
+03. No Return [04:31]
+04. Hostile Worlds [01:55](   Читать дальше...   )Жанр: Synthwave, Retrowave, 80's, Outrun, CyberpunkПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90C4697C6F0DC015A0AE7604DB664B0B6E0990FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030058   (675643) от 29.06.2016
+
+Schiller - Greatest Hits (2010) 2CD [FLAC|Lossless|image + .cue] <Electronic, Downtempo, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Try (feat. Nadia Ali) (04:45)
+02. Let Me Love You (feat. Kim Sanders) (06:40)
+03. Time For Dream (feat. Lang Lang) (03:08)
+04. I Feel You (feat. Heppner) (05:30)(   Читать дальше...   )Жанр: Electronic, Downtempo, AmbientПродолжительность: 02:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:072DA284967976EDDFB386AC92F5A37DC20E9E62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135903   (676477) от 21.05.2017
+
+VA - Monstercat Uncaged, Vol. 1 (2017) [MP3|320 Kbps] <Drum & Bass, Drumstep, Dubstep>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rogue, Stonebank & Slips & Slurs - Unity
+ 02. Dirtyphonics & Bassnectar - Watch Out
+ 03. Wolfgang Gartner & Aero Chord - Borneo
+ 04. Unlike Pluto - Everything Black (feat. Mike Taylor)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5374C3EBE76C9B70E3F2049767D48B72ECBE0B51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030136   (676530) от 29.06.2016
+
+Solid Stone - Introspection (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solid Stone - Introspection (5:09)
+02. Solid Stone - Broken (6:28)
+03. Solid Stone & Wellenrausch - Ursa Major (7:21)
+04. Solid Stone - Profound (4:49)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F15E8B07DA4D36DD55326E4708745717C77E2EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029963   (676535) от 29.06.2016
+
+VA - Goa 2016 Vol.3 (2016) [MP3|320 Kbps] <Trance, Goa Trance, Psy>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Motion Drive -  The Substance 7:59
+02. Aioaska -  Tschatahitika (Original Mix) 9:43
+03. Mindwave -  Singularity 7:23
+04. Microlin -  True Believer 8:04(   Читать дальше...   )Жанр: Trance, Goa Trance, PsyПродолжительность: 02:22:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF7DDE529908A8B0F568BC2718005A48AE91612D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030014   (676672) от 29.06.2016
 
 VA - Relaxation and Deep Sleep (2016) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
@@ -536,168 +698,6 @@ Maine - Scores (2017) [MP3|320 Kbps] <Ambient, Drone>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E61007BAAB4EFFE681D4F1B7F8C17F97B7F12559
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135750   (677415) от 21.05.2017
-
-VA - Ultra Undeground Festival (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Owl Stone - Breath On Water (Original Mix) 7:07
-02.  Ruslan Shalbekov - Summer Day (Original Mix) 2:35
-03.  Vyacheslav Sketch - Kandalaksha (Vyacheslav Sankov Remix) 6:01
-04.  Vyacheslav Sketch - 5pm (Original Mix) 5:06(   Читать дальше...   )Жанр: TranceПродолжительность: 01:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:411873DD4576FE83802F8D0040F5EF968410E173
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223177   (677417) от 03.05.2018
-
-VA - My Heart Belongs To You - Romantic Tracks For Good Moments (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Peter - Less I Have You (original mix) 03:12
-02. Secret Babies - Make A Wish On (original mix) 04:11
-03. Greg Beattie - Dance Of My Life (instrumental mix) 03:52
-04. Mitsch Kohn - Good Old Friends (original mix) 03:39(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:28:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44817971D43D79393BC6E0A945D47BC3138F78E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223326   (677524) от 03.05.2018
-
-VA - Yoga Vibes Vol.1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonic Scope - Persian Night (Original Mix) [06:57]
-02. LUOrchestra - Midsummer (Original Mix) [04:30]
-03. Onlyby - Journey To The Spirit Land [06:29]
-04. Bassus - Good Morning (Original Mix) [04:57](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 04:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4AE4AD73BE800C58D648B606E16D437A1F79BDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290444   (678196) от 20.03.2019
-
-VA - A State Of Trance Top: 20 March 2019 (Selected By Armin Van Buuren) - (Miami Edition) - (Extended Versions) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren feat. Bonnie McKee - Lonely For You (Extended Club Mix)
-02. Above & Beyond - Distorted Truth (Extended Club Mix)
-03. Gareth Emery & Ashley Wallbridge feat. PollyAnna - Lionheart (Extended Mix)
-04. ARTY - Save Me Tonight (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76026A2D888FC513063EF256DEB25C9B937DBD4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290452   (678249) от 20.03.2019
-
-Lemongrass - Earth (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Breaks, Downtempo, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lightful (4:48)
- 02. Roses (4:37)
- 03. Blue Skies in Your Eyes (4:03)
- 04. Moonshine (4:38)(   Читать дальше...   )Жанр: Electronic, Breaks, Downtempo, ChilloutПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3730C5CF840A2D5152ED706B6D1F8072D4A63F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290458   (678254) от 20.03.2019
-
-Argus - Pure Love / Pure Chill-out Vol.1 (2019) [MP3|320 Kbps] <Ambient, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Argus feat. Mina - The Invisible Sun - 07:24
-02. Argus & Ascent - Strong Connection - 06:51
-03. Argus - Feelings - 07:04
-04. Argus - Questions - 07:36(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 02:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82404C843383073B6776A0A80ECD3B1DC0B6A225
 ```
 
 

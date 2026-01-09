@@ -1,3 +1,246 @@
+###  Публикация: 1128928   (726555) от 26.04.2017
+
+The Splash Band - The Music Of John Carpenter (1984) Reissue CD, 2015, ZYX Music [MP3|320 Kbps] <Electronic, Experimental, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End (Disco) (5:14)
+02. Unheimliche Schattenlichter (4:00)
+03. Das Ding (4:18)
+04. The Fog (3:34)(   Читать дальше...   )Жанр: Electronic, Experimental, Synth-pop, DiscoПродолжительность: 01:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B0CEA3E79D62C366E3B2ABE1166B1CD06AF8BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284545   (726576) от 23.02.2019
+
+VA - The Partytime-Singers - Party-Time (1997) Box Set  3CD [MP3|320 Kbps] <Pop, Cover>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726576.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01
+01. Y.M.C.A.
+02. Aber Bitte Mit Sahne
+03. Centerfould(   Читать дальше...   )Жанр: Pop, CoverПродолжительность: 02:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0F4A22A3561D1827A352261F8E6154AC50E6B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023306   (726689) от 04.06.2016
+
+David Christie - The Best Of (1994) [MP3|320 кб/с] <Electronic, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saddle Up ( 5:47)
+02. Our Time Has Come ( 3:19)
+03. Lazy Love ( 3:03)
+04. Stress ( 3:51)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3EEDE05A33384845900A22976E3A682280718D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023392   (726701) от 04.06.2016
+
+Vanessa Daou - Make You Love (2000) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You (3:52)
+02. A Little Bit of Pain (2:55)
+03. Mess Around (3:52)
+04. Make You Love (4:26)(   Читать дальше...   )Жанр: Electronic, Jazz, PopПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E806772A3CE08FEE1A1BD8D8BF6AA29747299D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022755   (727243) от 03.06.2016
+
+Roxette - Good Karma (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Don'tcha? (2:45)
+02. It Just Happens (3:46)
+03. Good Karma (3:19)
+04. This One (3:11)(   Читать дальше...   )Жанр: Pop, Rock, Pop Rock, Soft RockПродолжительность: 00:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4441E12694DF9D2DDD9017C8EDB892E1AE4220
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022773   (727361) от 03.06.2016
+
+Roxette - Good Karma (2016) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Dontcha?
+ 02. It Just Happens
+ 03. Good Karma
+ 04. This One(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:898A3D86BC92C20FA32A8DF68D11DBF22EBC536A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128496   (727444) от 25.04.2017
+
+Texas - Jump On Board (2017) [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Work It Out (3:42)
+ 02. Can't Control (3:43)
+ 03. For Everything (4:32)
+ 04. It Was Up to You (3:19)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81363537BAF79EA0412218B227FF8218D85590BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530882   (727729) от 12.02.2022
+
+The Soul Affair Orchestra - 2 Albums (1976) LP [MP3|320 Kbps] <Funk Soul, Instrumental, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727729.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Soul Affair Orchestra - оркестр под управлением бельгийского певца и гитариста Эрика Бейренса.01. Amor (4:45)
+02. Begin The Beguine (4:04)
+03. Only You (4:18)
+04. Love Strut (2:34)(   Читать дальше...   )Жанр: Funk Soul, Instrumental, DiscoПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB688F71E3BFCFFD1327B012C02D8F00F4DB230D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022599   (728335) от 02.06.2016
+
+Roxette - Good Karma (2016) [MP3|320 кб/с] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Dontcha?
+ 02. It Just Happens
+ 03. Good Karma
+ 04. This One(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB8D8C1FFE707CEFCC5274C68744855304E2703
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128366   (728435) от 24.04.2017
 
 Mozgi - На белом (2017) [MP3|320 Kbps] <Pop, Dance-Pop>
@@ -449,246 +692,6 @@ VA - Pop & Rock Hits Made for Dancing (2017) [MP3|320 Kbps] <Dance, Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C349FB85CFCF1A1B0D8627985599CBBFA72C54D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022180   (729879) от 01.06.2016
-
-Tegan and Sara - Love You to Death (2016) [FLAC|Lossless|tracks] <Indie Pop, Synth Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Girl
-02. Faint of Heart
-03. Boyfriend
-04. Dying to Know(   Читать дальше...   )Жанр: Indie Pop, Synth PopПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7C789627A89855B0279E6817FCFC67281DB28D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022187   (729886) от 01.06.2016
-
-Roberta Kelly - 5 Albums (1976-1981) [MP3|320 кб/с] <Electronic, Disco, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская soul, gospel & disco исполнительница из Лос-Анджелеса, с первых альбомов получившая популярность благодаря совместным проектам с Джоржио Мородером (Giorgio Moroder).Список альбомов:
-01. 1976 - Trouble Maker
-02. 1979 - Cheri
-03. 1978 - Gettin' The Spirit(   Читать дальше...   )Жанр: Electronic, Disco, SoulПродолжительность: 02:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E06D7473014D77B6FB2D0EEAB3F32FF2C39621
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283919   (729957) от 20.02.2019
-
-VA - 100 Hits: The Girls (2018) 5CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729957.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Anastacia - Left Outside Alone
-02. Pink - Just Like A Pill
-03. Rita Ora - I Will Never Let You Down(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34F6BDED2D9F6AA740FF8181DEC2CD468588BED5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 666869   (730137) от 10.06.2013
-
-Black - Wonderful Life (2013) Expanded Edition, 2CD [FLAC|image + .cue]<Pop, Synth-pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_730137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderful Life [04:50]
-02. Everything's Coming Up Roses [04:08]
-03. Sometimes For The Asking [04:11]
-04. Finder [04:15](   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 01:53:41
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127775   (730474) от 22.04.2017
-
-VA - Первый дачный, Vol.3 (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Денис Клявер - Необыкновенная
-02. Нюша - Тебя любить
-03. Денис Майданов - Что оставит ветер
-04. Алексей Воробьёв - Самая красивая(   Читать дальше...   )Жанр: PopПродолжительность: 02:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22072955AA2F32308F6D2917081075304568DB17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127805   (730617) от 22.04.2017
-
-VA - Первый танцевальный, Vol.12 (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LP - Other People (Swanky Tunes & Going Deeper Remix Radio Edit)
-02. Nyusha - Always Need You
-03. The Parakit - When I Hold You (feat. Alden Jacob; Radio Edit)
-04. Burito - По волнам (S.p.l.a.s.h Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:14:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A25D2C315E2A21041545958E8E23F42F2E2D156
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127560   (730735) от 22.04.2017
-
-VA - The Ibiza Opening: Vocal House Anthems (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730735.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Foodtrux & Yooki – SushiЖанр: Euro Dance, Pop DanceПродолжительность: 02:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C4D9CE91213F1E28D9DB751B475CC152008692B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530139   (730774) от 09.02.2022
-
-VA - Winter Acoustic 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhys Lewis - The Sun Will Rise (3:03)
-02. Mipso - Hey, Coyote (3:35)
-03. Bear's Den - Berlin (4:29)
-04. Andrew Bird - Andalucia (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 02:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A314187C91A494932EB3772AAF21D9CC21C7A27F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127670   (730843) от 22.04.2017
-
-VA - Latin Summer 2K17 (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bulls & Goat - Porompompero (Markus D'ambrosi Remix) 03:32
-02. Proyecto E-Fecto & Markus D'ambrosi - Follow Me (Patricio Amc Remix) 02:48
-03. Mr. Doll & Nigel - Shake Your Booty (Fiesta Project Mix) 03:58
-04. Raggaibe - Kalimba De Luna (Markus D'ambrosi Remix) 03:10(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AFE68A8F5D4131F3AFAE0A965BBF981EA0F5E27
 ```
 
 

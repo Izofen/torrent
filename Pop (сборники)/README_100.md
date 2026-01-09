@@ -1,3 +1,30 @@
+###  Публикация: 1123573   (786215) от 09.04.2017
+
+VA - Отдыхаем с лучшими хитами. Звездная тусовочка. Часть № 5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786215.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sasha Dith & Russian Mc - Тобой Простужен 2:59
+002. Charli Xcx & Kyary Pamyu Pamyu - Crazy Crazy 3:46
+003. Тимур Спб - Лучшая Подруга 3:27
+004. Катя Гордон - Нет Стыда 3:27(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C780F6646A4E7AE7F839A758DA721698AFC22A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123545   (786218) от 09.04.2017
 
 VA - Любимые хиты весны. Выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
@@ -665,33 +692,6 @@ VA - National Pop Dance Music (Vol.26) (2021) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB26B01FB7CFD7253B5B1945C2D0C368B1A2BD3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510438   (790800) от 17.11.2021
-
-VA - Memories Of Summer (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790800.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ariana Bell - Sing My Way
-002. Slayyyter - Clouds
-003. Ava Max - Who's Laughing Now
-004. Laid Back - Sunshine Reggae(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:995C129A7BB7ADB4C71BD0BF3668FA6AF094FB62
 ```
 
 

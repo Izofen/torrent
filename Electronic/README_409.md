@@ -1,3 +1,165 @@
+###  Публикация: 1275890   (789394) от 13.01.2019
+
+Spacehawk - The Last Guardian (2019) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spacedisco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:27)
+02. From The Shadows (4:05)
+03. Sky Shield (4:13)
+04. Humanity (3:58)(   Читать дальше...   )Жанр: Spacesynth, SpacediscoПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:129D7FC84F39CE7CE1531A62DB921364A3B557ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275889   (789434) от 13.01.2019
+
+Spacehawk - The Last Guardian (2019) [MP3|320 Kbps] <Spacesynth, Spacedisco>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:27)
+02. From The Shadows (4:05)
+03. Sky Shield (4:13)
+04. Humanity (3:58)(   Читать дальше...   )Жанр: Spacesynth, SpacediscoПродолжительность: 00:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8B098F61FCA7514150C1B45D403E8D99969121
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275811   (789443) от 13.01.2019
+
+VA - Zanzibar Cafe' Vol. 6 (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3Stars - Black Orange (Lounge Mix)
+02. 71 Style - Jump For It (Lounge Mix)
+03. Agio-Lax - Another Day In Paradise (Lounge Mix)
+04. Andy Triton - Never On Time (Lounge Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, ElectronicПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA1D6C0094D631B552664512BDC3DA01E833DFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275449   (789444) от 13.01.2019
+
+VA - Miami Beachin Vol.1 [Continuous Mix] Low Tide (2019) [MP3|320 Kbps] <House, IndieDance, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RhythmDB - Miami Beachin Vol 1 Low Tide (continuous mix) 56:36
+02. Angel Order & Johnny Mars feat. Alexea - Who Knew (LUCCA SAVI Remix) 2:43
+03. Angel Order & Jota Mendosa - Si Tu Supieras (E.Q. Remix) 3:46
+04. RhythmDB - Soundtrack 3 (Instrumental Mix) 3:32(   Читать дальше...   )Жанр: House, IndieDance, ElectronicПродолжительность: 02:02:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB76A33189E2E42FF0F836665138344DBCF1BE99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275765   (789445) от 13.01.2019
+
+VA - Disco House Cats, Vol. 1 (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Project - Talking (Brooklyn & Friends Disco Mix)
+02. Tony Afrique - Sont Claires (Disco Disco Mix)
+03. Gold Jeans - Waiting For The Day (Morning Mix)
+04. Emmanuelle Duvall - Hands Of Loving (Original Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:24:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007A595323D76EBE09BB4D3629EBA793F6A6AEC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275816   (789485) от 13.01.2019
+
+VA - The Best Of Disco Lab, Vol. 1 (2019) [MP3|320 Kbps] <Tech House, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maxdal - Guitar Groove (Original Mix)
+02. Maxdal - Strike (Original Mix)
+03. Maxdal - Our Love (Original Mix)
+04. Maxdal - Unstoppable (Original Mix) (feat. B.(   Читать дальше...   )Жанр: Tech House, HouseПродолжительность: 02:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:108992E3E2732F9024DCD551653D614A7B817730
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 864776   (789505) от 30.01.2018
 
 Organoid | Ligea - Discography 5 Releases (2011-2015) Section 27 [FLAC|Lossless]<IDM, Downtempo, Glitch, Ambient>
@@ -533,168 +695,6 @@ VA - Ahmed Romel - Orchestrance 218 (2018) [MP3|320 Kbps] <Trance,Uplifting Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC7DFFF39736249A28AB16552D8BE3E2DCA1C454
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202426   (789928) от 29.01.2018
-
-VA - Hed Kandi Ibiza (2016) [FLAC|Lossless|tracks] <Deep House, Disco, Tropical House, House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sigala - Give Me Your Love (feat John Newman And Nile Rodgers - radio edit) (3:29)
-02.Gorgon City - All Four Walls (feat Vaults) (3:12)
-03.Tieks - Sunshine (feat Dan Harkna - extended mix) (4:22)
-04.AlunaGeorge - I'm In Control (feat Popcaan - The Magician remix) (4:35)(   Читать дальше...   )Жанр: Deep House, Disco, Tropical House, House, Tech HouseПродолжительность: 06:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77FBF7F933FAE72C2C5590E620D175FD227A984F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202495   (789932) от 29.01.2018
-
-Richard Bone - Nibiru Drones From The 12Th Planet (2018) [MP3|320 Kbps] <Ambient, New Age>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Without (Light) 7:16
- 02. Maneuvers for Mankind 8:07
- 03. Gautham 6:28
- 04. The New Mystic 7:18(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36664EFDAE8592FCF5381B42D357B840E2963A79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202502   (789941) от 29.01.2018
-
-VA - Dreamline 6 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Florito  -  Saigon Morning  4:04
-02.  Intelligent Rich & Beautiful  -  Vortex Of Love  6:20
-03.  L'art Mystique  -  China White (Ibiza Spa Mix)  5:05
-04.  Roberto Sol  -  Time For Love  5:28(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 02:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2649145F191942BBA6D69669496DBD63D5CD16E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202412   (789946) от 29.01.2018
-
-VA - Progressive Trance Selections Vol.02 (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mr Nobody  -  More Pressing Matters (Original Mix)  5:36
-02.  Fashion Police  -  The Moment (Original Mix)  7:24
-03.  ARChima  -  Walk With Me (Original Mix)  5:43
-04.  Luis M  -  Interferenz (Floating Machine Remix)  7:23(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F962340BA39335081797FD17D6EB56B5A891146
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202488   (789949) от 29.01.2018
-
-Pessimist - Pessimist (2017) Blackest Ever Black [FLAC|Lossless|tracks+.cue] <Techno, Experimental, Drum n Bass, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:44)
- 02. Bloom (05:46)
- 03. Grit (05:36)
- 04. Spirals (06:02)(   Читать дальше...   )Жанр: Techno, Experimental, Drum n Bass, AmbientПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:995C07861E681600096399875847787D0E740D06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202506   (789950) от 29.01.2018
-
-VA - Uplift Underground (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gierto - What Dreams May Come (Original Mix)
-02. Bekar-b - Gone To The Sky (Original Mix)
-03. UIAN - You Have To Say (Original Mix)
-04. Natterum - Burning Industrial (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:58:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E662381405887B23CCE16D6148E3E5B9B6C34FB0
 ```
 
 

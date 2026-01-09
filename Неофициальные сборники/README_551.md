@@ -1,3 +1,30 @@
+###  Публикация: 1380690   (830848) от 04.05.2020
+
+VA - Vocal Dance House (2020) [MP3|320 Kbps] <Vocal House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830848.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sйbastien & Boy Tedson - Music In You
+002. Tensnake & Fiora - Automatic
+003. Papik - Notes Of The Past
+004. Cocco Barocco - This Is A First Time(   Читать дальше...   )Жанр: Vocal House, Dance, ClubПродолжительность: 09:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:569EF92F06E9CFD714B51FD1298E242DD84DB7AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380631   (830849) от 04.05.2020
 
 VA - Deep Tech House Session (2020) [MP3|320 Kbps] <Deep, Tech House>
@@ -668,33 +695,6 @@ VA - Fresh Pop 3 (2021) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC33A5D0776372EB8E083C64BA676B0135EFFDF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114667   (831762) от 15.03.2017
-
-Howlin' Wolf - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coon on the Moon
-02. Louise
-03. Speak Now Woman
-04. Trying to Forget You(   Читать дальше...   )Жанр: BluesПродолжительность: 01:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D55C9989BC7F61F1A6DAF5C201AE1E641FD2A2
 ```
 
 

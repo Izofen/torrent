@@ -1,3 +1,30 @@
+###  Публикация: 1484777   (1005821) от 22.07.2021
+
+Bebe Rexha - Better Mistakes (2021) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break My Heart Myself (feat. Travis Barker)
+02. Sabotage
+03. Trust Fall
+04. Better Mistakes(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B70F5718B576FA6E73490D435C3181EBFA6BE5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483485   (1006771) от 14.07.2021
 
 Jess & Matt - Wildflowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk, Pop>
@@ -669,33 +696,6 @@ Michael Jackson - Classic-The Universal Masters Collection (2001) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8D6C120CAF5BF182D7CCB110C46A26EC208B54D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474718   (1012890) от 03.06.2021
-
-Matia Bazar - The Best Platinum Collection(18 Successi Originali) (2007) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stasera Che Sera (3:23)
-02. Per Un'Ora D'Amore (3:59)
-03. Cavallo Bianco (4:57)
-04. Ma Perche' (3:25)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF27F4033AF25894D1C56352B5E9589A467D04C
 ```
 
 

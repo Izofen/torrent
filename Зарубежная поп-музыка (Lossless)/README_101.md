@@ -1,3 +1,31 @@
+###  Публикация: 1610082   (1041889) от 09.02.2023
+
+Janet Jackson - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Funk, Disco, Hardcore, Post-Hardcore, Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I.D. (Interlude) [00:00:47]
+02. Feedback [00:03:38]
+03. LUV [00:03:09]
+04. Spinnin (Interlude) [00:00:07](   Читать дальше...   )Жанр: Funk, Disco, Hardcore, Post-Hardcore, Pop, R&BПродолжительность: 01:01:38
+https://deezer.com/album/400976817
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC3BC4EA7E5BC0D7F07FF8FE6D461C1AB553ED01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437106   (1042535) от 03.01.2021
 
 VA - From Sweden With Love - The Next Generation (2006) [FLAC|Lossless|image + .cue] <Pop>
@@ -670,33 +698,6 @@ VA - 70s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC049D878A4157CD9A5B62BFEC1F736BD6C4E9A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840515   (1047414) от 05.12.2025
-
-Kylie Minogue - Kylie Christmas [Fully Wrapped] (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - It's the Most Wonderful Time of the Year
-02 - XMAS (Amazon Music Original)
-03 - Santa Baby
-04 - Hot in December(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB1CFC8407224AA471D31435A6369121682C6E92
 ```
 
 

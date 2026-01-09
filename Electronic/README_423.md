@@ -1,3 +1,165 @@
+###  Публикация: 1199679   (800444) от 17.01.2018
+
+VA - Morning Coffee Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papik, Alessandro Pitoni - Walk on By (02:47)
+02. Jazz Reason - Prelude (03:30)
+03. Neja - This Is Your Life (feat Papik - live) (04:39)
+04. DN3 - Miss Cat (06:34)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6980AD2AF5564E57FE9B8159D5F06AED5479BDEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199196   (800446) от 17.01.2018
+
+VA - Hed Kandi - Twisted Disco (2009) [FLAC|Lossless|tracks] <Progressive House, House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Rudenko - Everybody (Club Mix)
+02.Kurd Maverick - Blue Monday (Vandalism Remix)
+03.ATFC Feat. Lisa Millett - Bad Habit (ATFC's Lektrotek Re-Visit)
+04.Robbie Rivera - In Too Deep (EDX Mix)(   Читать дальше...   )Жанр: Progressive House, House, ElectroПродолжительность: 02:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBBD014A08AA0605029241CFF7F5517F58BCE771
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199754   (800448) от 17.01.2018
+
+VA - Alpine Lifestyle Lounge Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Weathertunes  -  Bitter Past (Original Mix)  4:49
+02.  Lazy Hammock  -  Sin-Time (Original Mix)  5:25
+03.  Maurid  -  Sweet Sensation (Original Mix)  6:15
+04.  Twentyeight  -  Destiny (Original Mix)  5:55(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D374804BF164DCF07666E420717D1B4065181F31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199656   (800449) от 17.01.2018
+
+VA - A Decade Ilian Tape (2017) Ilian Tape [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, Techno, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skee Mask - Excess Signal (05:19)
+02. Struction - Seel (07:45)
+03. Stenny - P-Zone (06:26)
+04. Zenker Brothers - Haras (06:09)(   Читать дальше...   )Жанр: Breakbeat, Techno, HouseПродолжительность: 01:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7468F248DB771134338FBC4EAB801910028AB31D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199379   (800450) от 17.01.2018
+
+VA - Antoine Clamaran - Lafayette V.O. La Compil' (2006) [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.A Clamaran - Keep On Tryin (DJ Fist Remix)
+02.Asle - Golden Sun (Haji & Emanuel Remix)
+03.Mario Ochoa - Shake It (DJ Fist Latin Mix)
+04.Brown Sugar - Take Me Together (Roman Curtis Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5258CC2A99A5E4FF1CB4BDA396DE5D4E749112B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121184   (800486) от 02.04.2017
+
+VA - Charming Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillelektro – Cala Pi 06:06
+ 02. Kusuma Orchestra – Undelivered Message 05:44
+ 03. Aqua Mundi – Invisible Options 05:43
+ 04. Baghira – Underwater 05:24(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F4820814685E4927E0C9D52795DC86B1847C003
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121579   (800488) от 02.04.2017
 
 Dawid Jurzyk - Mysterious Forest (2017)Single [MP3|320 Kbps] <Progressive Trance, Uplifting Trance>
@@ -531,168 +693,6 @@ VA - Workout Trance & Workout Electronica - Workout 2020 Progressive House [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E78D9CB58BB65FFBE33993D3E3B477C084DBE0C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199348   (801689) от 15.01.2018
-
-VA - Trance Winter Essentials Vol.01 (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Vintage & Morelli  -  While The Earth Sleeps (David Broaders Remix)  5:30
-02.  Dezza  -  Deja Vu (Original Mix)  7:02
-03.  Eleven.Five & Incognito Soul  -  Disguise (Mizar B Remix)  5:54
-04.  Catherine feat. Blugazer & Blue Symmetry  -  Vertigo (Eleven.Five Remix)  7:49(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7550E5B06861A15CBBF50A8BF29CAB44FABC7B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384579   (801749) от 21.05.2020
-
-Yppah - Sunset in the Deep End (2020) [FLAC|Lossless|Web-DL|tracks] <Ambient, Breaks, Experimental, Dream Pop>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams Like You (feat. Shaunna Heckman) (5:44)
-02. Light Cycle (4:30)
-03. Pieces (5:21)
-04. Shadows Climb The Wall (5:23)(   Читать дальше...   )Производство: Future Archive Recordings - 3663729104908Жанр: Ambient, Breaks, Experimental, Psychedelic, Shoegaze, Dream PopПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7A643539466C8E532B527156F3F1069589CC918
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198979   (801770) от 15.01.2018
-
-VA - Kamasutra Sensual Chillout Vol.5 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sanjay Farrell - Higher Level
-02. Joey Connor - Rooftop Bar
-03. Quika 76 - Reaching Tarbaby
-04. Sweet Ocean - Soft Emotion(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD4A11CF37BEE4EE1DC9B65717FBAB7844EB62E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199047   (801771) от 15.01.2018
-
-Islandman - Rest In Space (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801771.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Agit (04:39)
-2. Rest In Space (05:06)
-3. Ikaru (05:00)
-4. Night Wind (04:12)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F862C36EA7CAAFD28FECBA1BE76F1227BCB1D425
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198907   (801834) от 15.01.2018
-
-Hed Kandi - Beach House (2010) [FLAC|Lossless|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801834.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01 South Street Player - (Who) Keeps changing your mind (Daniel Bovie & Roy Rox Remix)
-02 Choklate - The Tea (The Layabouts Main Vocal Mix)
-03 Christian Hoff & Lily McKenzie - Take You(   Читать дальше...   )Жанр: HouseПродолжительность: 03:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AAE50D7BAD9C7BA860D849AFC8DD6FCE8035162
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199213   (801835) от 15.01.2018
-
-VA - Future Sounds. EDM (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Maureen Sky Jones & DJ Combo  -  I Had A Dream (Stephan F Remix)  4:44
-02.  Geo Da Silva & DJ Combo  -  To My Beat (Original Mix)  3:39
-03.  Turbotronic  -  Show Me The Money (Original Mix)  4:13
-04.  Mr. Pit & Sean Norvis feat. Justine Berg  -  Afraid To Feel (Original Mix)  5:24(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDACB54FC357EDFB94A76021935E40462056DE64
 ```
 
 

@@ -1,3 +1,91 @@
+###  Публикация: 615985   (974802) от 10.02.2013
+
+Jie Chen - Chinese Piano Favourites (2007) [FLAC|Lossless]<Classical Instrumental>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tang Bi-guang (arr. Wang Jian-zhong): Liu Yang River [03:56]
+02. Trad. (arr. Wang Jian-zhong): A Hundred Birds Paying Respect to the Phoenix [05:57]
+03. Ren Guang (arr. Wang Jian-zhong): Silver Clouds Chasing the Moon [03:17]
+04. Trad. (arr. Li Ying-hai): Flute and Drum at Sunset [08:31]
+05. Lu Wen-cheng (arr. Chen Pei-xun): Autumn Moon Over the Calm Lake [04:04]
+06. Trad. (arr. Wang Jian-zhong): Glowing Red Morningstar Lilies [05:09]
+07. Hua Yan-jun (arr. Chu Wang-hua): The Second Spring Bathed in Moonlight [07:46]
+08. Zhu Jian-er (arr. Chu Wang-hua): Celebrating Our New Life [02:06]
+Ding Shan-de: Children's Suite
+09. I. Going to the Suburb [01:29](   Читать дальше...   )Жанр: Classical InstrumentalПродолжительность: 01:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:212088637B3830307AE779DB2F5127D4EB857567
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616209   (974930) от 10.02.2013
+
+CPE Bach - Harpsichord Conceros Wq45, Wq3, Wq44, Wq32 (Ludger Remy & Les Amis De Philippe Orhestra) (1998) [FLAC|Lossless]<Classical, Symphony, Concert>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto for harpsichord, 2 horns, strings & continuo in D major, H. 478, Wq. 45
+01. Allegretto    (06:09)
+02. Andantino    (06:56)
+03. Allegro    (03:25)Жанр: Classical, Symphony, ConcertПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28B5511DC97F4799E90575FB8130E7DB12C1F76B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616551   (974978) от 10.02.2013
+
+Tchaikovsky - Symphony No. 6; Scriabin: The Poem of Ecstasy - (Riccardo Muti & The Philadelphia Orchestra) (1990) [FLAC|Lossless]<Classical, Symphony, Romantic Period>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pyotr Il'yich Tchaikovsky, Symphony No.6 in B minor, op.74 “Pathétique”
+01. Adagio - Allegro non troppo    (18:44)
+02. Allegro    (09:18)
+03. Allegro Molto    (09:20)
+04. Finale: Adagio Lamentoso   (10:36)Жанр: Classical, Symphony, Romantic PeriodПродолжительность: 01:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8A241A805C1BEE5D7E0F46D90315F65B9AEDDFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 616488   (975021) от 10.02.2013
 
 Rouge Hot - Oriental Instruments VS Occidental Music (2005-2008) [FLAC|Lossless]<Classical>
@@ -696,101 +784,6 @@ Concerto for Flute, Harp and Orchestra in C major KV.299 (297c) – 1778 г.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28633C3113E16ECC2F9F37AB4F4299BC0DA94A10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610659   (989919) от 29.01.2013
-
-Pyotr Ilyich Tchaikovsky - The Seasons (2000) [MP3|320 кб/с]<Classic>
-
->>Классика
->>Фортепиано
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meditation, op.72 no.5
-02. Polka Peu Dansante, op.51 no.2
-03. Aveu Passione
-04. Tendres Peproches, op.72 no.3
-05. Berceuse, op.72 no.3
-
- Les Saisons, op.37a (The Seasons)
-
-06. At The Fireside (January)
-07. Carnival (February)(   Читать дальше...   )Жанр: ClassicПродолжительность: 01:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAEEF98E53F98279A73F7CB849015129D2838F90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610678   (989998) от 29.01.2013
-
-Pyotr Ilyich Tchaikovsky - The Seasons (2000) [FLAC|Lossless]<Classic>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meditation, op.72 no.5
-02. Polka peu dansante, op.51 no.2
-03. Aveu passione
-04. Tendres Peproches, op.72 no.3
-05. Berceuse, op.72 no.3
-
- Les Saisons, op.37a (The Seasons)
-
-06. January: At the fireside
-07. February: Carnival(   Читать дальше...   )Жанр: ClassicПродолжительность: 01:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D043A20286FD267242096BB1CEEB4442CB2228C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609252   (991798) от 27.01.2013
-
-Pablo Sarasate - Music for Violin and Orchestra: Tianwa Yang (2009) CD3 [MP3|224 кб/с]<Classic>
-
->>Классика
->>Оркестровая
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991798.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Concert Fantasy on Mozart's Die Zauberfloete, Op. 54 (13:07)
-2. Navarra, Op. 33 (for two violins and orchestra) (6:30)
-3. Muineiras, Op. 32 (9:56)
-4. Nouvelle fantaisie sur Faust de Gounod, Op. 13 (12:04)
-5. Barcarolle venitienne, Op. 46 (version for violin and orchestra) (9:54)
-6. Introduction et Caprice-Jota, Op. 41 (7:14)Жанр: ClassicПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E6A106B3E60D3E0EC7C8C26A2B38EB0DA4F3DBC
 ```
 
 

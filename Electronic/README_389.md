@@ -1,3 +1,162 @@
+###  Публикация: 1277806   (775096) от 22.01.2019
+
+Steve Good (aka Puff Dragon) - Everything's Inside Everything Else (2018) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandcastles / Cirrus (07:06)
+ 02. Nimbus (05:42)
+ 03. Parallel (07:15)
+ 04. 360 (06:19)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B520CA0932F95974D73BC8D04E37E155BDE7482
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277761   (775101) от 22.01.2019
+
+MRUKS - Enchantment (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Retrowave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. EnchantmentЖанр: Funky, Club House, RetrowaveПродолжительность: 00:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C2554465710DD6CE3DDDA16ACC85A443BDADB39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277847   (775155) от 22.01.2019
+
+VA - Winter Sun 01 (2019) [MP3|320 Kbps] <Progressive House, Progressive Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Numedian - Balearic Winter (Original Mix) [08:07]
+02. ZGOOT - Hopefulness (Original Mix) [06:25]
+03. L_DG - Toronto (Original Mix) [07:41]
+04. Ellunate - Twinkle (Original Mix) [06:04](   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 01:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A9E7A3E5BC907B47290AF32A89D8BC19F6EDE6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277798   (775160) от 22.01.2019
+
+VA - D.MAX Recordings: Best of 2018 (Mixed by Bryan Summerville & Dave Cold) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Novan Aery - Quasar (Original Mix)
+02. D4souL - Mario (Original Mix)
+03. AC - Gale (Original Mix)
+04. Age&Why - Don't send Me Away (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:25:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A634EA4CB3E502AB105588DFA7C204EE26F6A261
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277903   (775165) от 22.01.2019
+
+VA - Abstract Vibes 2 - More Vibes (1997) [FLAC|Lossless|tracks + .cue] <Downtempo, Trip Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Archive - Old Artist (04:04)
+02. Sneaker Pimps - 6 Underground (Fila Brazillia remix #1) (06:48)
+03. Lascelles - Butterfly (feat. Vanessa Darby) (04:03)
+04. Lamb - Trans Fatty Acid (06:23)(   Читать дальше...   )Жанр: Downtempo, Trip HopПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5CD5FB990E2193F6701F8C54F14F0653AAEAC19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212765   (775213) от 13.03.2018
+
+VA - You Gotta Work For This Body (2018) [MP3|320 Kbps] <Deep, Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ungert - Sidebar 3:08
+02. Trump - Laptop 3:08
+03. Troy Mandalon - Input 3:08
+04. Tom Dolby - Interface 3:08(   Читать дальше...   )Жанр: Deep, Minimal, Tech HouseПродолжительность: 01:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69661D62C8885D90DD54833CE86CFCD5DC7D94B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212728   (775218) от 13.03.2018
 
 VA - Best Of Deep House 2018 Vol.02 (2018) [MP3|320 Kbps] <House, Deep House>
@@ -527,168 +686,6 @@ VA - Sexomatic - Erotic Chill (2016) [MP3|320 кб/с] <Lounge, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E58DB5EDD7201E1551D0DDA1A713677BD5856A9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014850   (776166) от 08.05.2016
-
-VA - Serenity Sexy Lounge & Chill out Pearls Vol 5 (2016) [MP3|320 кб/с] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golden Jade - Wonderkind (04:51)
-02. Jeffrey Campbell - Time (03:55)
-03. Ted Mitch - Everybody's Talking (04:17)
-04. Brandon Love - Jamming (03:27)(   Читать дальше...   )Производство: White Isle RecordingsЖанр: Downtempo, Lounge, Chill OutПродолжительность: 01:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6569F29B3FD681B755214D2076F69F300BAED7FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014696   (776178) от 08.05.2016
-
-VA - Best Sound of Chill & Lounge (2016) [MP3|320 кб/с] <Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soundset City - I Can't See Your Heart (Jazzy System Vocal Mix) 3:56
-02. Velvet Dreamer - Love Is a Temple 5:25
-03. Richard Bonnee - Abstract Matrix (Deep Sphere Sky Mix) 4:18
-04. The Space Ensemble Project - Skyline (Filtersweeps Groove Cut) 5:00(   Читать дальше...   )Жанр: Chill OutПродолжительность: 02:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFCCF2717A2983EEE0D72E84DB8D770CB844C943
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014572   (776482) от 07.05.2016
-
-VA - Best of Chill Out Vocal Trance (2016) [MP3|320 кб/с] <Vocal Trance, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tenishia - Ever True (Chill Out Mix) 4:49
-02. Aurosonic - They Wait For Us (Chill Out Mix) 6:13
-03. Julian Vincent - Lost In Space (Moonnight Remix) 4:45
-04. Dart Rayne - Shelter Me (Moonnight Remix) 4:46(   Читать дальше...   )Жанр: Vocal Trance, Chill OutПродолжительность: 01:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:362C75F25C551CCE518587DC5D92DEDB150DE1EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014279   (776484) от 07.05.2016
-
-zerO One - Signals (2015) [FLAC|Lossless|tracks] <Chillout, Electronic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. zulu (4:47)
- 02. mars (4:32)
- 03. data (4:27)
- 04. signals (4:06)(   Читать дальше...   )Жанр: Chillout, Electronic, DowntempoПродолжительность: 01:11:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B39706A44031680747C7A94C576938C95D59A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211762   (776541) от 10.03.2018
-
-VA - Miami Opening Party (2018) [MP3|320 Kbps] <House, Club, Nu Disco, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abel The Kid - In My House 6:27
-02. Fit For Sound - Deeper Feeling (Club Mix) 6:14
-03. Luxx Daze - I Used To Love You Baby 3:44
-04. Bikini Beats - Saturday Night (Disco Mix) 4:52(   Читать дальше...   )Жанр: Funky, Club, Nu Disco, GrooveПродолжительность: 04:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9467A50D30E46941729D2187CDFE23C780930D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211756   (776554) от 10.03.2018
-
-VA - Festival Anthems Vol.3 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer & Vito Fognini  -  Ambition (Eximinds Extended Remix)  4:45
-02.  Frainbreeze  -  Black Eagle (Ahmed Helmy Extended Remix)  5:49
-03.  Feel  -  The Nutcracker (Extended Mix)  5:36
-04.  Mino Safy  -  Persistence (Original Mix)  3:33(   Читать дальше...   )Жанр: TranceПродолжительность: 01:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8B02A1C521C469907B9A32F0AEEFEF266090354
 ```
 
 

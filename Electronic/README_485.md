@@ -1,3 +1,162 @@
+###  Публикация: 1026832   (959333) от 16.02.2020
+
+Blacktree - The Beginning Of Summer - The Beginning Of The Party (2016) [FLAC|Lossless|image + .cue] <Minimal Techno, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mal, Min - Violin (07:21)
+02. Jose Ponce, Joe Red - Legato (03:39)
+03. Beth Lydi - Quando (03:40)
+04. Cristian Valencia & Ricar - Kryptonite (Mateo Remix) (06:48)(   Читать дальше...   )Жанр: Minimal Techno, Tech HouseПродолжительность: 01:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2153053CC0D69C43F1DF3BED1CC2B02B6DC13F23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 737621   (959383) от 26.01.2016
+
+Tiesto - Club Life 351 - 460 (Обновляемая) (2013-2016) [MP3|128-320 кб/с]<Progressive House, Electro House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tube & Berger feat. Juliet Sikora - Set It Off
+02. Tim Berg feat. Amanda Wilson - Seek Bromance (Dear David & Posse Version)
+03. C-Block - So Strung Out (Christian Cardwell & Nigel Stately Remix)
+04. Lexer feat. Chantal - Dream & Love (Pingpong Tanzt Mix / SonneMondSterne Version)(   Читать дальше...   )Жанр: Progressive House, Electro House, Deep HouseПродолжительность: 195:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657EB75E46E4D0B0D3F057721F7B2240007F1636
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360134   (959395) от 16.02.2020
+
+Boytronic - Love For Sale (1988) Remastered, Deluxe Edition, 2014, SP Records [FLAC|Lossless|image + .cue] <Synth-pop, Euro-Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959395.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Promiscuity 4:14
+2 Killing Fields 4:25
+3 Love For Sale 5:25
+4 Gallileo 3:26(   Читать дальше...   )Жанр: Synth-pop, Euro-DiscoПродолжительность: 01:18:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6FCE81E3F8BEED617D7180D744753FB4E75AD7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360800   (959401) от 16.02.2020
+
+Ultra SKM - Southern Shaman (2020) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ultra SKM - Southern ShamanЖанр: Uplifting TranceПродолжительность: 00:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD800B782BDB98FC4CAE36C399E0D4540641DA26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360305   (959468) от 16.02.2020
+
+VA - Progressive MEGA Mix vol.2 (2003) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mixed by Dj Maxi - Untitled (05:56)
+02. Mixed by Dj SAnDY - Untitled (04:13)
+03. Mixed by Dj General - Untitled (05:29)
+04. Mixed by Dj project Slim Line - Untitled (03:25)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13B51861BED40C8F7BCF95740050F593E9C4D47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979232   (959776) от 26.01.2016
+
+VA - Chill Out Smoothies (Relaxed & Calm Chill Out Sounds) (2016) [MP3|320 кб/с] <Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ganga - Blessed (04:48)
+02. Steen Thottrup - Missing U (A Tribute to the Sun) (05:11)
+03. Lemongrass - Bossa Del Mar (04:10)
+04. Puch - Yakiimo (07:12)(   Читать дальше...   )Производство: Elements Of LifeЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E30C2D0114E003FB583DC98BAAA2A9B7277A46E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012309   (960403) от 15.02.2020
 
 Omauha - Discography 17 Releases (2011-2020) Morphosis Records [FLAC|Lossless|WEB-DL|tracks] <Breaks, Downtempo, House>
@@ -536,168 +695,6 @@ VA - Housemission II - Do You Remember (Mixed by DJ Ярик) (2004) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A80312B2213F827A9A9FD86DCE6A2E05D6797D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359424   (963281) от 13.02.2020
-
-VA - Битва Dj - Dj Denis Binokl & Dj Arseniy (2008) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Spirals Permission To Fly (7:09)
-02. TommyBoy & Soultan Feat. Zara - B With U (Add2Basket Remix) (6:29)
-03. D-Pulse - Cant Stop Morning Light (Yvel & Tristan Remix) (6:36)
-04. Yvel & Tristan - Adagio (6:36)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40BD35305244667ED50DBE660CBB358F730C8AAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359423   (963282) от 13.02.2020
-
-VA - Resonance (Mixed by DJ Arseniy) (2004) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simply Red - Sunrise (Motivo Simply Mad Mix) (4:40)
-02. Tori Amos - Don't Make Me Come To Vegas (Timo On Tori) (6:03)
-03. Unknown Artist - Is It Real? (2:31)
-04. Poww Project - Junkhouse (Silverboys Remix) (5:33)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF4858107F1F1D1D9617B82F45CE0DDC7C7AF826
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978216   (963441) от 23.01.2016
-
-Adam Fielding - Discography 11 Releases (2008-2015) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, IDM, Post Rock, Ambient, Breaks, Synth-pop, Deep House, Experimental>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Renew (03:43)
- 02. Changes (02:27)
- 03. Catacombs (03:58)
- 04. Cards (03:26)(   Читать дальше...   )Тип издания: WEBЖанр: Downtempo, IDM, Post Rock, Ambient, Breaks, Synth-pop, Experimental |Продолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF0FBF5DED6F0AA085BFCCCD68BCEB227EB1DCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977841   (963580) от 23.01.2016
-
-VA - Dance Max 2003/1 (2003) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB - I Don't Wanna Stop (Radio Edit) (3:33)
-02. Sylver - Livin' My Life (Radio Edit) (3:43)
-03. Mario Lopez - Where Are You (Radio Edit) (3:34)
-04. Kate Ryan - Libertine (Radio Edit) (3:13)(   Читать дальше...   )Жанр: House, TranceПродолжительность: 01:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3DF797FCB603FCB3BCF9D7595AEE86FFE1791B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359588   (964129) от 12.02.2020
-
-Depeche Mode - Spirit (2017) 2CD, Dlx. Ltd. Japanese Edition [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cover Me (Alt Out) (4:27)
-02. Scum (Frenetic Mix) (5:26)
-03. Poison Heart (Tripped Mix) (4:16)
-04. Fail (Cinematic Cut) (5:38)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, SynthpopПродолжительность: 01:16:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2803B251D60952CB239612104C4A66789C529170
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359415   (964296) от 12.02.2020
-
-VA - The Perfect Valentine's Day (2020) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964296.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Wermuth - Inkberry (5:34)
-2.Aurtigards - A Story of Stories (7:09)
-3.Vostok Divers - Taking Root (5:57)
-4.Komplextum - A Drinkable Feeling (5:38)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708B1B87E831C6F02E222BF0172C2DD4C81AD3F2
 ```
 
 

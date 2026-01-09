@@ -1,3 +1,138 @@
+###  Публикация: 1145116   (623914) от 24.06.2017
+
+VA - Deutsche DJ Charts Vol.21 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Faul & Wad vs. Avalanche City - I Need You  3:56
+02.  PH!L - Don't Kill Yourself (Club Mix)  4:27
+03.  David K. - Too Bad (Tom B. Remix)  5:12
+04.  Yoshua - Lug Mich An (DBN Remix)  4:41(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 04:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3EA054BB7AAE9DF5196E1F7CB420952612853E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295029   (623985) от 10.04.2019
+
+VA - Synthwave Vol. 2 (2015) [MP3|320 Kbps] <Synthpop, Syntwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Futurecop! - Venice Beach (5:34)
+02. Sally Shapiro - All My Life (5:52)
+03. Room8 - Visions of You (4:33)
+04. Le Matos - All My Life - Venice Beach (4:33)(   Читать дальше...   )Жанр: Synthpop, SyntwaveПродолжительность: 01:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C59F371FECB9906371EEE320438E8158A9B6A21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145219   (624030) от 24.06.2017
+
+VA - Music For Mindfullness (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cantoma - Early Till Late (04:45)
+02. Troels Hammer - View Of Wisdom (03:22)
+03. NordsA & Theill - Good Morning (feat Caroline Franceska) (06:05
+04. The Swan & The Lake - Clouds Over Asterbro (04:42)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:30:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE25E495FEDE09AE25B3D6220B89962A111304EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 231024   (624045) от 07.06.2018
+
+Gridlock - Discography 12 Releases (1997-2004) Hymen Records, Unit [FLAC|Lossless|tracks+.cue, tracks]<IDM, Industrial, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gridlock - Invert (06:01)
+ 02. Steel - Help Yourself (Gridlock Remix) (05:54)
+ 03. Steel - One Man and His Anger (04:03)
+ 04. Gridlock - One Man and His Anger (Steel Remix) (04:46)Тип издания: CD, Vinyl, WebЖанр: IDM, Industrial, Breakcore, Abstract, Ambient •Продолжительность: 09:04:39 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7196623B3553355E66F4387B9C3838BFCDB6994
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910067   (624067) от 19.06.2015
+
+VA - Deep House For Your Body and Soul Vol 2 (2015) [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624067.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Elsa Del Mar, Jason Rivas - La Magia d 07:11
+2.Jason Rivas, Positive Feeling - Flying 06:20
+3.Organic Noise From Ibiza - Hojas Ilumi 06:39
+4.Jason Rivas, Instrumenjackin - 100 Sta 05:58(   Читать дальше...   )Жанр: HouseПродолжительность: 01:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8517FD40E34F9C874CE8F0E651602F3C1C030F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910226   (624078) от 19.06.2015
 
 VA - Palma De Disco (Balearic Beats Deluxe) (2015) [MP3|320 кб/с]<Deep House, Chill House>
@@ -268,6 +403,30 @@ magnet:?xt=urn:btih:70518A8AA1E73AD6AD300E7DB5E996A2B7AAE144
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 349458   (625271) от 15.06.2011
+
+DJ Silence - Hours Of Silence (2009) [FLAC|Lossless]<Ambient, Psy Chill>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_625271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ambient, Psy ChillПродолжительность: 01:18:29
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144885   (625641) от 23.06.2017
 
 Hybrid Minds - Elements (2017) [MP3|320 Kbps] <Drum & Bass>
@@ -533,168 +692,6 @@ magnet:?xt=urn:btih:2A6E2CC1B2D3AA5A12EC3CCA5335A5D89F5BAD2E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78D2A9FF442718F6AF83C0704E0F0C6D34A4B1A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294879   (626107) от 09.04.2019
-
-Beatfarmer - Speaking with the Wind (2019) [FLAC|Lossless|WEB-DL|tracks] <Psydub, Glitch Hop, Tribal>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626107.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Imagine [06:00]
-2. Bubble and Squeak [05:29]
-3. Speaking with the Wind [04:35]
-4. Jedi Shake [05:03](   Читать дальше...   )Жанр: Psydub, Glitch Hop, TribalПродолжительность: 00:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8279A70747D0E836EFAE3F998635C0836E7C620
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909432   (626125) от 18.06.2015
-
-Izzamuzzic - Smell (2015) [MP3|320 кб/с]<Downtempo, Chillstep, ElectroHouse>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ta boo (03:13)
-02. eye killa (05:04)
-03. solnce X mania (04:05)
-04. medveditca (long album version) (07:03)(   Читать дальше...   )Жанр: Downtempo, Chillstep, ElectroHouseПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B7B632734DB610B3AF3885F795CB624B2A9CDC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294720   (626268) от 09.04.2019
-
-VA - THEOTHERSIDE | THƎOTHƎRSIDƎ (2018) Metempsychosis Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flaminia vs. Niobe – Reign Of Law (05:38)
-02. Michael Wells – Afar (05:14)
-03. MARMO – Aufschieben (08:32)
-04. End Train – Good Indeed But Not For Me (07:04)(   Читать дальше...   )Жанр: Techno, Industrial, ExperimentalПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5A8BE491990886E5127119D9F2F925A9567ADC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909683   (626283) от 18.06.2015
-
-Oud!n13 - Cosmic Light (2014) [FLAC|Lossless|WEB-DL]<Dub Techno, Drum & Bass, Breaks, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Horizon (09:16)
-02. Cosmic Light (06:44)
-03. HD 85512 B (08:54)
-04. NGC 4303 (07:06)(   Читать дальше...   )Жанр: Dub Techno, Drum & Bass, Breaks, AmbientПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60895E4D1473F9AB39092B3B12487ECFF1394E92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909217   (626288) от 18.06.2015
-
-VA - The Chillout Lounge - Best Chillout and Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Sunset Beach Chillout Music Collection - The Chillout Lounge (03:31)
-02. Weekend Chillout Music Zone - Amnesia Chill (03:23)
-03. Inspiring Chillout Music Paradise - Serenity Chillout (03:05)
-04. Beach House Chillout Music Academy - Electric Daisy Chill Out (03:26)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77CB2A19682EB5B39A66ECA21DBD74A247653FBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035776   (626519) от 17.07.2016
-
-Benny Benassi - Danceaholic (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Benny Benassi & Chris Brown – Paradise
-02. Benny Bennasi – Danceaholic
-03. Benny Benassi feat. Richard Judge – Out Of Control
-04. Benny Benassi feat. BullySongs – Universe(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 01:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F12BF0051EE238FF2215BD0EB05821F07F411A9
 ```
 
 

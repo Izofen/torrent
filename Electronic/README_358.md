@@ -1,3 +1,165 @@
+###  Публикация: 1219383   (713912) от 14.04.2018
+
+VA - Ibiza Deep House Sensations (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daspa - Alone 5:07
+02. Djschluetex - Feel Them 4:13
+03. 246 - Prophets Of Science Fiction 4:28
+04. Chrizz Morisson - Never Give Up (Dub Mix) 4:06(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D86C8E57E9FE1E53BF388128251044665C90F21A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219422   (714026) от 14.04.2018
+
+VA - Miami South Beach Sessions (2018) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nina Lares – You And I (Tony Humphries Unreleased Guitar Mix) (8:29)
+02. Teflon Dons – Tomorrow People (Applejac’s Unreleased Unhooked Generation Remix) (feat. Gregory Porter) (7:38)
+03. Nina Lares – Uncover Me (AC’s Unreleased Afternoon Delight Remix) (7:23)
+04. David Harness – Feeling Mighty (feat. Ultra Nate) (5:20)(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D37119A278DE370563D5332DB8F990D1EACBD52C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219336   (714028) от 14.04.2018
+
+vidnaObmana - Crossing The Trail | Deluxe 20th (2018) Projekt Records [FLAC|Lossless|WEB-DL|tracks] <Abstract, Ambient, Tribal>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Encountering Terrain (08:33)
+ 02. Trail Dwelling (10:55)
+ 03. Forest Arrow (08:59)
+ 04. Mission Ground (10:19)(   Читать дальше...   )Жанр: Abstract, Ambient, TribalПродолжительность: 01:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233003FCCA8DB6AA983E097EA418DCF93E25EA51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130673   (714122) от 02.05.2017
+
+Wilkinson - Hypnotic (2017) [FLAC|Lossless|WEB-DL|tracks] <Mainstream Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hypnotic (Feat. Youngman) (04:50)
+02. We Will Be (Feat. Matt Wills) (Extended Mix) (04:06)
+03. Wash Away (03:21)
+04. Sweet Lies (Feat. Karen Harding) (03:27)(   Читать дальше...   )Жанр: Mainstream Drum & BassПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F5B4E70D14D4A22A5A8B8701030790219363D06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024895   (714140) от 10.06.2016
+
+Clouds Testers, Arne Woutersax - Messenger (2015) [FLAC|Lossless|tracks] <Electronic, Jazz, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inhale The Love. Saxophonized (original mix)    04:06
+02. Love and Loneliness. Saxophonized (original mix)    07:18
+03. Luxurizer. Saxophonized (original mix)    06:16
+04. Diving in the Deep White. Saxophonized (original mix)    06:00(   Читать дальше...   )Жанр: Electronic, Jazz, Deep HouseПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E66BBBF30B8A68927C2B9A76E4285D37D37A2844
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130647   (714335) от 02.05.2017
+
+COAM - The Study Of Change (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychill>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bun Bo Hue [00:08:34]
+02. Me Ya [00:08:08]
+03. All Of Life [00:06:29]
+04. Outspot [00:07:26](   Читать дальше...   )Жанр: Ambient, PsychillПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F29C0691FE581F639923297D327EDF4B8153439D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130621   (714341) от 02.05.2017
 
 Hatikwa - The Second Narration (2017) [MP3|320 Kbps] <Goa Trance, Psy-Trance>
@@ -532,166 +694,6 @@ CD1 Microgravity
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D8CA3D96E2EA9653A2F51365A68808A503BF0DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025836   (715753) от 01.05.2017
-
-Label Pack - Rielism - 45 Releases (2015-2017) [MP3|320 кб/с] <Trance>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GoRiel (07:01)
-02. GoRiel (JOC deconstruction) (05:50)Жанр: TranceПродолжительность: 05:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8326881C29A15EA88D3CCF64C2533C4BCD85077
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024195   (715834) от 09.06.2016
-
-Meteora - Gradients II Westerlies (2016) [MP3|320 кб/с] <Electronic, Spacesynth, Synthpop>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyclone Belt
-02. Twisting Monster
-03. Westerlies
-04. Cataclysm(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 01:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BB58EA58471BAD1A79B1025EE0B4E35605670A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219292   (715846) от 13.04.2018
-
-VA - After Work Chillout Vol.1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Makia Blue - Thought Carousel [04:22]
-02. Dyodho - Eternity (extended Chillout mix) [07:30]
-03. The Big Break Lounge - Beautiful Time [04:52]
-04. Heisenwerk - Maximum Chillout [03:49](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:16:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8D66DDAA8977BA316281F31E2A99CEEAEFA2A76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219175   (715847) от 13.04.2018
-
-VA - Black Hole Trance Music 04 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate & JES - If Not Now (Extended Club Mix)
-02. Ferry Corsten & Paul Oakenfold - A Slice Of Heaven (Extended Mix)
-03. ACAYA - Evermore (Extended Mix)
-04. Dave Neven - Meraki (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D56F1CED2AA7FA4712DB9FBD0BB62D34B04E7993
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219234   (715850) от 13.04.2018
-
-Thyladomid - Interstellar Destiny (2015) Diynamic Music [FLAC|Lossless|tracks+.cue] <Deep House, Psychill, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intergalactic Spring (01:17)
-02. Generation Y (03:47)
-03. Brotherhood (06:55)
-04. Inner Space (05:50)(   Читать дальше...   )Жанр: Deep House, Psychill, AmbientПродолжительность: 01:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58904E433E89F49239F34DB859C8EBE527FBC938
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219183   (715855) от 13.04.2018
-
-VA - Markus Schulz & Dennis Sheperd - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz
-01. Cosmic Gate and Super8 & Tab - Noom (Estiva Remix)
-02. Dylhen - Brouhaha (World Premiere)
-03. Ferry Corsten & DIM3NSION - Safe with Me(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5DC380DD3EA3AA4CD14B3882F1F46F7F1A5C73F
 ```
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1204434   (784232) от 07.02.2018
+
+The Beloved - Sweet Harmony (2017) Remix [MP3|192 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784232.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sweet Harmony
+2. B&G Remix
+3. Up MusicЖанр: Deep HouseПродолжительность: 00:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D8C3F4E328BB497E1E12D36FF748DE8C36284D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204423   (784233) от 07.02.2018
 
 Arilena Ara - Nentori (2017) Remix [MP3|320 Kbps] <House>
@@ -663,33 +689,6 @@ VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0012 (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DBDBFED3CC4B184F08477321F28FB2E579202AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204537   (784672) от 06.02.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0015 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twins - Tonight ( Long Version 1993 )
-02. Boris Zhivago - Sovjet D'Amour ( 2016 )
-03. George Aaron - Heaven ( L-Ectro Vox Mix 2008 )
-04. Etienne Tulet - Boy ( 1991 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F868466746452191D03E5BFB2284FF870EB6376
 ```
 
 

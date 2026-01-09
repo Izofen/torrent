@@ -1,3 +1,30 @@
+###  Публикация: 1396638   (745438) от 16.07.2020
+
+Dread Zeppelin - The Song Remains  (2020) Compilation [MP3|320 Kbps] <Reggae, Rock>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Immigrant Song
+02. Stairway To Heaven
+03. Black Dog
+04. Communication Breakdown(   Читать дальше...   )Жанр: Reggae, RockПродолжительность: 01:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C912FE830929D53C79CB9083ECD2E47717B89D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396659   (745445) от 16.07.2020
 
 VA - Summer Throwback Spotify (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Acoustic Worship (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumenta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A96F13AD5EF36955A813D5D79E368DB096FE0D26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396498   (746839) от 15.07.2020
-
-VA - Modern Disco Fever (2020) [MP3|320 Kbps] <Disco, Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746839.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sunner Soul - The Mystery Of Loops
-002. Tj Edit - Xfunk (Original Mix)
-003. Cavego - Rask Gange (Extended Mix)
-004. The Familys Ja - Throught The Night(   Читать дальше...   )Жанр: Disco, Dance, PopПродолжительность: 11:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4370AB5CF5466AEE59A0B86978338A24E0CB63F2
 ```
 
 

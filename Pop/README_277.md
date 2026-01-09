@@ -1,3 +1,246 @@
+###  Публикация: 1210989   (778241) от 05.03.2018
+
+Armenian Navy Band - How Much Is Yours? (2005) D. Svota Music [MP3|192 Kbps] <Folk, World, Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armenian Navy Band - авангардный фолк-джазовый музыкальный коллектив, созданный в 1998 году в Ереване, Армения. Музыка ANB является смесью джаза и армянской народной музыки. Музыку сочиняет Арто Тунчбояджян, который также иногда использует блюз и афроамериканский джаз, смешивая с традиционной армянской музыкой.01. Let Factories Open 4:04
+02. Let's Not Become a Copy from a Copy 6:38
+03. Let's Try a New Road 4:42
+04. I Don't Forget My Faith 4:49(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 01:16:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5586C104DB43ABE5FE9A9BEF10085EA86AC84A2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210956   (778271) от 05.03.2018
+
+Armenian Navy Band - New Apricot (1999) İmaj [MP3|192 Kbps] <Folk, World, Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armenian Navy Band - авангардный фолк-джазовый музыкальный коллектив, созданный в 1998 году в Ереване, Армения. Музыка ANB является смесью джаза и армянской народной музыки. Музыку сочиняет Арто Тунчбояджян, который также иногда использует блюз и афроамериканский джаз, смешивая с традиционной армянской музыкой.01. The Love Me From 15 Feet Away 7:18
+02. Rooster Run 3:22
+03. My Aunt Mari Doesnt Care About My Jacket 4:23
+04. Shadows Of Clean Spirits 5:22(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC6FEC2527197EFFA7902BBAB68B5E811B05B7EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012678   (778305) от 02.05.2016
+
+Barry White - A Collection Of Great Songs (uy) Unofficial Release [APE|Lossless|image + .cue] <Funk, Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let The Music Play
+02. I'm Gonna Love You Just A Little More, Baby
+03. You're The First, The Last, My Everything
+04. Can't Get Enough Of Your Love, Baby(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 01:15:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F06ECB26A4B257DD4E8373BE10E43B1907428C73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012922   (778314) от 02.05.2016
+
+VA - Ultimate - Dance (2016) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778314.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Пpодолжительность: 01:07:29
+
+1. Calvin Harris - Blame (feat John Newman) (3:31)(   Читать дальше...   )Жанр: PopПродолжительность: 04:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9819E7518A6D597C4D7A88D889BDAC585364AA94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012821   (778343) от 02.05.2016
+
+Engelbert & Tom Jones - Back To Back: The Best Of Engelbert & Tom Jones (1989) Recordings 1965 - 1969 [APE|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Engelbert Humperdinck - Release Me
+02. Engelbert Humperdinck - There Goes My Everything
+03. Engelbert Humperdinck - The Last Waltz
+04. Engelbert Humperdinck - Am I That Easy To Forget(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA23A158587D4A349E26DE59FBA3DE609AFBAC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012666   (778355) от 02.05.2016
+
+VA - Now That's What I Call Fitness (2016) [MP3|256 кб/с] <Pop, Club, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778355.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Zara Larsson -  Lush Life  3:19
+02. Mike Posner -  In Ibiza (SeeB Remix)  3:14
+03. Tinie Tempah -  Not Letting Go (feat. Jess Glynne)  3:48(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 03:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCCB20DB6FC62F722A8C4FC4B9CCD5E802120356
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012627   (778392) от 02.05.2016
+
+Anjali Ray - Indigo (2016) [FLAC|Lossless|tracks] <Pop, Jazz, World>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Long    04:15
+02. Indigo Boy    04:34
+03. Immortalize Me    04:06
+04. Float    05:35(   Читать дальше...   )Жанр: Pop, Jazz, WorldПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924B7BEEBD6F39384298747E109AEB9089911BF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210873   (778440) от 04.03.2018
+
+VA - Now That's What I Call Music! 65 (2018) USA Series[FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taylor Swift - Ready For It?  (3:26)
+02. Demi Lovato - Sorry Not Sorry  (3:20)
+03. Camila Cabello - Havana  (2:55)
+04. J Balvin & Willy William - Mi Gente (feat. Beyonce)  (3:29)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BE605E43FD748BB1B62114805A0F4FA68A54B25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210823   (778505) от 04.03.2018
+
+Алёна Апина - Давай так (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Близость
+02. Давай так
+03. Елена
+04. Девушка Бонда(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE24CD11D4EE8F67F145EB0BA9F56E3968B2669
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210754   (778511) от 04.03.2018
 
 ABBAcadabra - Revival. Flight One: Tribute to ABBA (1997) [APE|Lossless|image + .cue] <Pop, Dance, Hi-NRG>
@@ -453,249 +696,6 @@ VA - ZYX Italo Disco New Generation Vol. 11 (2017) 2CD [MP3|320 Kbps] <Italo-Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D75BE753BC2045380AA1A641A2B1209B2CCF54D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209490   (779227) от 27.02.2018
-
-VA - Acoustic 70s (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rod Stewart - Maggie May
-02. Paul Simon - Me and Julio Down By The Schoolyard
-03. Cat Stevens – Wild World
-04. Bob Dylan - Knockin’ on Heaven’s Door(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75AF1B026624A744E83CCAE2579E6FFF00A0B9F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209487   (779275) от 27.02.2018
-
-VA - Love: Box Set (2018) 3CD [MP3|320 Kbps] <Pop, Soul, Pop/Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779275.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  George  Michael  -  Careless Whisper  5:00
-02.  Michael Jackson feat. Siedah Garrett  -  I Just Can't Stop Loving You  4:12
-03.  Bill Medley & Jennifer Warnes  -  (I've Had) The Time Of My Life  4:50(   Читать дальше...   )Жанр: Pop, Soul, Pop/RockПродолжительность: 04:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:014A47EC59ACEF5E9D498D6BE7DB03C3C183C1F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209627   (779287) от 27.02.2018
-
-The Creatures - 6 Albums, 1 Compilations (1982-1999) [MP3|320 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одни из пионеров  итало-диско. The Creatures - проект с элементами шоу, основанный двумя продюсерами и аранжировщиками Mario Flores, Maurizio Sangineto.Список альбомов:
-1982 - Expansion
-1983 - Believe In Yourself
-1985 - Illusion(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 05:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE7276293F3FCE8A1D51A64370F227229B1ACB07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209322   (779403) от 26.02.2018
-
-Shenandoah Davis - Souvenirs (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779403.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Wings 03:18
-2. Supernatural Powers 04:02
-3. Seventeen 03:23
-4. Gold Coast 03:38(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:485E74810AEF16F9A8CF4316BBDD87A4F02FAF63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209290   (779452) от 25.02.2018
-
-ABBA - The Ultimate Collection (2004) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fernando [04:14]
-02. I Let the Music Speak [05:21]
-03. Chiquitita [05:27]
-04. Eagle [05:52](   Читать дальше...   )Жанр: PopПродолжительность: 05:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997A745DEDF1D7900EB51FE1DA2B30B79CC2EF78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209181   (779517) от 25.02.2018
-
-Trace Adkins (Трэйси Эдкинс) - The Definitive Greatest Hits: Til The Last Shot's Fired (2010) Hump Head, 2×CD, Compilation [MP3|320 Kbps] <Country Rock, Folk Rock, Alternative Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трэйси Эдкинс - американский кантри-певец и актер. Он выпустил несколько студийных альбомов и компиляций, за период его творчества множество синглов попадали в кантри чарты «Billboard». Все, кроме одного из его студийных альбомов, получили «золотой» и «платиновый» статусы в Америке. В мае 2013 года вышел 14-й студийный альбом певца - «Love Will...», который был издан (   Читать дальше...   )01. Ladies Love Country Boys 3:42
-02. Lonely Won't Leave Me Alone 3:06
-03. You're Gonna Miss This 3:44
-04. Muddy Water 3:54(   Читать дальше...   )Жанр: Country Rock, Folk Rock, Alternative RockПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835169273A5E6EDC1E37A8897F90F4E1E440FC06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209259   (779531) от 25.02.2018
-
-Trace Adkins (Трэйси Эдкинс) - The King's Gift: A Celtic Christmas Collection (2013) Caliburn Records [MP3|320 Kbps] <Country, Country Rock, Folk Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трэйси Эдкинс — американский кантри-певец и актер. Он выпустил несколько студийных альбомов и компиляций, за период его творчества множество синглов попадали в кантри чарты «Billboard». Все, кроме одного из его студийных альбомов, получили «золотой» и «платиновый» статусы в Америке. В мае 2013 года вышел 14-й студийный альбом певца - «Love Will...», который был издан (   Читать дальше...   )01. The Wexford Carol 3:53
-02. Tannenbaum 3:49
-03. O' Come Emmanuel 5:17
-04. Away In A Manger 3:20(   Читать дальше...   )Жанр: Country, Country Rock, Folk RockПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E76524274F34BCEBF7CB0EE7748A0BE507BF557B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209146   (779541) от 25.02.2018
-
-Trace Adkins (Трэйси Эдкинс) - Comin' On Strong (2003) Capitol Records Nashville [MP3|320 Kbps] <Country, Country Rock, Folk Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трэйси Эдкинс - американский кантри-певец и актер. Он выпустил несколько студийных альбомов и компиляций, за период его творчества множество синглов попадали в кантри чарты «Billboard». Все, кроме одного из его студийных альбомов, получили «золотой» и «платиновый» статусы в Америке. В мае 2013 года вышел 14-й студийный альбом певца - «Love Will...», который был издан (   Читать дальше...   )01. Hot Mama 3:21
-02. Comin' On Strong 3:02
-03. Then Came The Night 4:38
-04. I'd Sure Hate To Break Down Here 4:01(   Читать дальше...   )Жанр: Country, Country Rock, Folk RockПродолжительность: 00:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71615EB86C1013AB62373AC9D78AD7593CE878F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209147   (779542) от 25.02.2018
-
-Trace Adkins (Трэйси Эдкинс) - Something's Going On (2017) Wheelhouse Records, BBR Music Group [MP3|320 Kbps] <Country Rock, Folk Rock, Alternative Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трэйси Эдкинс - американский кантри-певец и актер. Он выпустил несколько студийных альбомов и компиляций, за период его творчества множество синглов попадали в кантри чарты «Billboard». Все, кроме одного из его студийных альбомов, получили «золотой» и «платиновый» статусы в Америке. В мае 2013 года вышел 14-й студийный альбом певца - «Love Will...», который был издан (   Читать дальше...   )01. Ain't Just the Whiskey Talkin' 3:26
-02. Jesus and Jones 3:46
-03. Watered Down 3:08
-04. Something's Going On 3:48(   Читать дальше...   )Жанр: Country Rock, Folk Rock, Alternative RockПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEF8AC58CF61E81A1E4DED0C82E996EE5D018577
 ```
 
 

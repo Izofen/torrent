@@ -1,3 +1,165 @@
+###  Публикация: 1142637   (641178) от 15.06.2017
+
+VA - Relaxing Vol.1 not Only Chill Out (2017) [MP3|320 Kbps] <Downtempo, Lounge, Pop Dance>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaman DJ - Oriental Emotions - Original mix
+02. DJ Memory - No Coke - Slow Mix
+03. Sostanza Tossica - Stanotte Ci 6 Solo Tu - ft. Stephkill
+04. Dayna - Love Me Tender Feat. Dayna - Remake (Prod. by Shlomi Levi)(   Читать дальше...   )Жанр: Downtempo, Lounge, Pop DanceПродолжительность: 01:29:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFEA4369B766402DBFBC7EA418297D8BEDEEB682
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142529   (641181) от 15.06.2017
+
+VA - Cooked Vol.1 (Fine Selection Of Smooth Electronic Jazz) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Florito - A La Playa  5:29
+02.  Urban Phunk Society - Night Train  3:21
+03.  Svendaq - La Chill Fusion  3:47
+04.  Roberto Sol - My Decision (Extended Mix)  5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:20:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DFBF32AFE81E346630735F2B29D72EC4966E26D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142614   (641186) от 15.06.2017
+
+VA - Organica Lounge Grooves (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Martin Schmid - It Is So Close (Club Mix)  8:26
+02.  Elli Uda - Got What It Takes (Radio Edit)  3:52
+03.  Akjela - Der Moment  5:31
+04.  Acoustic Novels - Everybody's Got To Learn Sometime  3:54(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F7F06AC7EAF73AFC520E8AA50BC3B6C1F122A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142776   (641188) от 15.06.2017
+
+VA - Stay In Ibiza 2017 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.O.N.S. - You Used To Hold Me (Feat Terri B. - Avicii Remix) 06:33
+02. Seal De Green - Licky (Original Mix) 03:34
+03. Danev - Shaggy (Extended Mix) 05:20
+04. Diego Quintero - No Wars (Club Mix) 06:45(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:24:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58F29DA01169C67AE9E615726DA4362ACB346EC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228056   (641203) от 29.05.2018
+
+VA - Cathy Burton - Best Of Vocal Trance (The Radio Edits) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance,Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Beat Service & Cathy Burton - Love Is Your Home (Radio Edit)
+02 Aurosonic & Cathy Burton & AxelPolo - Loving Overflow (Radio Edit)
+03 Cathy Burton & Omnia - Hearts Connected (Radio Edit)
+04 4 Strings & Cathy Burton - Safe In The Storm (Radio Edit)(   Читать дальше...   )Жанр: Trance,Uplifting Trance,Vocal TranceПродолжительность: 01:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C242258359EFBACE451496020C51178F67D10AAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228051   (641204) от 29.05.2018
+
+VA - High Contrast: Ibiza Trance (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Beyond Vision - Mesmerized (Ibiza Trance 2018 Exclusive)
+02 Dj K-Mixx - Nocturnal Bliss (Ibiza Trance 2018 Exclusive)
+03 Marcel Woods - Lemon Tree (Daxson Remix) (Ibiza Trance 2018 Exclusive)
+04 Spark, Shade - Not Even Close (Tony Day Remix) (Ibiza Trance 2018 Exclusive)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8916A0A26EDDF79F02B583F545DFC51A8D6721
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228074   (641206) от 29.05.2018
 
 Guido Hermans - Against the Tide (2018) [MP3|320 Kbps] <Trance>
@@ -529,164 +691,6 @@ The Glitch Mob - Piece of the Indestructible EP (2015) [MP3|320 кб/с]<Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:422E2A9F0AD84D9E1905400AED134128F7F64990
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032637   (643549) от 08.07.2016
-
-Adrika - Prana (2016) [FLAC|Lossless|WEB-DL|24Bit|tracks] <Psybient, Downtempo, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earthunity (05:56)
-02. Daydream (05:37)
-03. Prana (06:08)Жанр: Psybient, Downtempo, Progressive TranceПродолжительность: 00:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046ABC92FA811365BC0BC4F0277FA26B74D404CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032630   (643906) от 08.07.2016
-
-York - Traveller (2016) [MP3|320 Kbps] <Chillout, Downtempo, Progressive Trance, Progressive House>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. York With Nathan Red & Kim Sanders - How Did I Fall In Love? (8:01)
-02. York Ft. R.I.B & Seven24 & J.Stenzel - Salty Belle (6:21)
-03. York Ft. Ginger Mackenzie - My Ship (4:20)
-04. York - Traveller (4:17)(   Читать дальше...   )Жанр: Chillout, Downtempo, Progressive Trance, Progressive HouseПродолжительность: 02:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74478AEB6A14410F4E2019D08CAD3A8B10673E73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283162   (644233) от 03.04.2022
-
-Marga Sol • Discography + M-Sol Records & Sublabels: Chill 'N Chill Records, Urban Orange Music • Compilations Collection - 387 Releases (2008-2022) [MP3|320 Kbps] <Chillout, Lounge, Downtem ...
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Marga Sol
-M-Sol Records (Give a Better Sound Of Your Life)
-Urban Orange Music (Urban Music for Urban People)
-Chill 'N Chill Records (Chillout Your Mind)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, Ambient, Smooth Jazz, Deep House, World, Funk, SoulПродолжительность: 496:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3A9176D7492B44626CC27F0CDF15501DA6FD51A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 137923   (644397) от 03.04.2022
-
-Freeland - Cope™ (Jun-08-2009) [FLAC|Lossless]<Electronic, Rock, Electro, Breaks>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You 3:31
-02. Under Control 4:04
-03. Strange Things 4:16
-04. Bring It 5:40(   Читать дальше...   )Жанр: Electronic, Rock, Electro, BreaksПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1380C4FBDD727D1314947C7905342EDDF102EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142370   (644461) от 13.06.2017
-
-Нейромонах Феофан - А теперь поёт медведь (2017) Single [MP3|320 Kbps] <Drum & Bass, Electronic>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644461.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. А теперь поёт медведьЖанр: Drum & Bass, ElectronicПродолжительность: 00:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85AA21E3A6064C732D4F03904421AED4AA0A940C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142235   (644469) от 13.06.2017
-
-Igorrr - Savage Sinusoid (2017) [FLAC|Lossless|tracks+.cue] <Breakcore, Black Metal, Baroque, Death Metal, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viande (01:55)
- 02. ieuD (03:55)
- 03. Houmous (03:32)
- 04. Opus Brain (05:26)(   Читать дальше...   )Жанр: Breakcore, Black Metal, Baroque, Death Metal, ExperimentalПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2AC30A5A60EE90D26139175C11B931DE1AF033C
 ```
 
 

@@ -1,3 +1,91 @@
+###  Публикация: 1292775   (642932) от 31.03.2019
+
+Fabio Fabor - Strings And... (2019) [MP3|320 Kbps] <Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Souplesse
+02. Turbamento
+03. Frase d'Eros
+04. Valzer spirale(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71451A78C4871B930797C60470B2D07FA8F30C8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032799   (643453) от 08.07.2016
+
+VA - Dark Side Of The Classical Music (2011) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему составители посчитали этот сборник темной стороной классической музыки для меня до сих пор осталось загадкой. В своё время он привлёк моё внимание именно схожестью названия с известным диском Пинков. Да и сами диски назывались необычно: классический хэвви металл, классический дефф металл, классический спеед металл... Купил. Послушал.
+Никогда еще я не встречал (   Читать дальше...   )CD1 - Classical Heavy Metal
+01. Richard Strauss - Also spracht Zarathustra, Op. 30 - Introduction  (1:51)
+02. Richard Wagner - Die Walkure - Ride Of The Valkyries  (5:24)
+03. Beethoven - Symphony No. 5 in C minor, Op. 67 -Allegro con brio  (6:54)(   Читать дальше...   )Производство: Naxos – 8.503252FINЖанр: ClassicalПродолжительность: 03:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D2459DF656BB441FB0C8A07B0D99236D076539
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517350   (647280) от 01.07.2012
+
+Mirusia - Always and Forever (2010) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schubert: Ave Maria   [04:45]
+02. R. M. Sherman, R. B. Sherman: Feed the birds (from Mary Poppins) [02:57]
+03. F. Pascal: Botany Bay [04:05]
+04. Saint-Preux: Concerto pour une voix [03:37]
+05. Grieg: Solveig's Song (from Peer Gynt) [04:03]
+06. Mozart: Porgi Amor (from Le Nozze di Figaro) [04:30]
+07. G. B. Martini: Plaisir d'amour (duet met Monarcha Carmen) [04:32]
+08. Franck: Panis Angelicus [04:13]
+09. F. Schröder: Dancing through the skies [03:14]
+10. A.L. Webber: Memory (from Cats) [03:54](   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA435659C4A7F950949878D196D2BCF9219D9BC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905691   (647319) от 07.06.2015
 
 Mozart - Concertos for 2 & 3 Pianos (Katia & Marielle Labeque, Semyon Bychkov & Berlin Philharmonic Orchestra) (1999) [FLAC|Lossless]<Classical, Classical Period, Concerto>
@@ -644,84 +732,6 @@ VA - 100 Piano Masterworks (2017) [MP3|320 Kbps] <Classical, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2298694C836AEB3A537CEE52E0181D2119572672
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 167580   (670680) от 20.05.2015
-
-Совместный проект Юга де Курсона (Huges de Courson) и Ахмеда аль Магреби (Ahmed al Maghreby) - Моцарт в Египте / Mozart in Egypt (1997) [FLAC|Lossless]<Classic - Ethnic>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_670680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classic - EthnicПродолжительность: 01:07:57
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223408   (671430) от 06.05.2018
-
-VA - Piano Cloud Series - Volume Three (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, Minimal>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akira Kosemura - Resonance
-02. Sophie Hutchings - Tail Lights
-03. Bruno Bavota - Passi
-04. Piano Novel - The Forgotten Keys(   Читать дальше...   )Жанр: Modern Classical, Piano, MinimalПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C0D3B38DA0E4C99E359EC68E7425E15F698B468
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223424   (671515) от 06.05.2018
-
-The New London Chorale - The Classic Christmas Collection (1998) [FLAC|Lossless|image + .cue] <Сrossover Classical, Traditional>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For unto us
-02. Stille Nacht
-03. Winter wonderland
-04. Oh Tannenbaum(   Читать дальше...   )Жанр: Сrossover Classical, TraditionalПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D184D4673B5D3F88EE01323935D656A1281A890F
 ```
 
 

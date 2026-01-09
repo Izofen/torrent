@@ -1,3 +1,192 @@
+###  Публикация: 1230328   (617300) от 11.06.2018
+
+VA - Italo Disco: The Lost Legends Vol. 18 (2018) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. F. Monieri - Up Medley Walk Away
+02. Shane - Simba
+03. New Glory - Run Along The Road
+04. Stop Limit Line - Colonel(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F1ACEDA62C8541C9515A37F3508A0FD00050CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230335   (617301) от 11.06.2018
+
+VA - Italo Dance Summer Hits (2012) [MP3|320 Kbps] <Italo-Disco, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hessencia - Cosmo (The Arcane Charmers Remix) 06:28
+02. Hoxygen feat. Krystal Em & Scio - Only Smoke (The Arcane Charmers Remix Edit) 03:36
+03. DJ Doddo - Tu sei (Radio Edit) 03:09
+04. Il Viaggiatore - Respiro (Vocal Mix) 03:30(   Читать дальше...   )Жанр: Italo-Disco, DanceПродолжительность: 02:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:390273957452DCF7023854475C954C2628E857DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230318   (617302) от 11.06.2018
+
+VA - Italo Disco: The Lost Legends Vol. 16 (2018) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiki Gaida - Virginal Mystery
+02. Parsifal - Carillon (English Version)
+03. Tenere - Moon Destination (Vocal English Version)
+04. Zener - New Generation(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CE1DD01FCB7DFBD2C145BBDA75008B49D5926F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230324   (617382) от 11.06.2018
+
+VA - Italo Disco: The Lost Legends Vol. 17 (2018) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Via Verdi - Love Is A Dream
+02. Ryvon - Sing A Happy Song
+03. Federico L'Olandese Volante - Just Another Love Song
+04. Too Too Toy - Don't Wake Up(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F838F9B09D48919E640BD5C0138A565E4DCD53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230329   (617385) от 11.06.2018
+
+VA - Italo Disco: The Lost Legends Vol. 19 (2018) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert X - Vision
+02. Kono - Cleopatra (Dance Version)
+03. Raigo - Let Me Live
+04. J. Ford - Mind Wanderer (Japanese Mix)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B48F96DD9B076E12F41E5CAF6DB6842C3B9390
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 620495   (617593) от 22.06.2015
+
+Михаил Муромов - Звёзды советской эстрады (2009) [APE|Lossless]<Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_617593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Яблоки на снегу (М.Муромов - А.Дементьев)
+02. Прощай (М.Муромов - К.Львович)
+03. Странная женщина (М.Муромов - Л.Рубальская)
+04. Тёплые ливни (М.Муромов - А.Поперечный)(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146051   (617978) от 27.06.2017
+
+Carole King - The Real... Carole King (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. I Feel The Earth Move
+02. Nightingale
+03. Brother, Brother(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC9E7B1249D66D8A8AE26D8176A15B48615AF289
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911335   (618027) от 22.06.2015
 
 VA - Dance Collection The Remixes 2010s (2015) [MP3|320 кб/с]<Euro Dance, Pop Dance>
@@ -533,196 +722,6 @@ VA - The Mojo Machine Turns You On 1 (1997) [FLAC|Lossless|tracks + .cue] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FD550C67812BB5050B4099CE0420ED268C2E5E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036532   (618984) от 21.07.2016
-
-ABBA - The Album (1977) Reissue, Deluxe Edition, 2007, Polar [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eagle (5:53)
-02. Take A Chance On Me (4:07)
-03. One Man, One Woman (4:34)
-04. The Name Of The Game (4:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B4E81C9976FAF7A529FDCC6CEDA2D9DDDF362E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036732   (619094) от 21.07.2016
-
-Bruce & Bongo - 1 Albums, 3 Singles & EPs (1986-1992) [MP3|320 Kbps] <Electronic, Europop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bruce & Bongo (Брюс энд Бо́нго) — базировавшийся в Западной Германии дуэт, который состоял из британцев Брюса Хаммонда  и Дугласа Уилгроува.
-Наиболее известен по своей песне 1986 гола «Geil» (англ.), которая в Германии мгновенно стала хитом, проведя 4 недели на 1 месте. Немецкое слово «geil» в данном контексте имеет значение «крутой» или «классный» (на молодёжном (   Читать дальше...   )01. Intro (0:30)
-02. Geil (Edited Mix) (5:37)
-03. Monkey Dance (4:22)
-04. Fussganger (5:00)(   Читать дальше...   )Жанр: Electronic, Europop, DiscoПродолжительность: 01:29:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12251F7D29D4E787C0D91743024C113246097FBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036589   (619095) от 21.07.2016
-
-Savage Garden - Savage Garden (1997) 2CD, Mixed [APE|Lossless|image + .cue] <Synth-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want You (Xenomania Funky mix)
-02. Break Me Shake Me (Broken mix)
-03. Santa Monica (Bittersweet mix)
-04. Tears of Pearls (Tears on the Dancefloor mix)(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 01:56:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:215EA7CA71DC9F16EB2462780D8596EE2AA36C02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145580   (619596) от 26.06.2017
-
-VA - Главные песни о старом (2016) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Балаган Лимитед - Сладкая ягода
-02.  Мурашки по телу - Позвони мне
-03.  Призедент и Амазонка - Комарово
-04.  Шиншиллы - В землянке(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C5C3AED4A7A39D1003EE2482D02D12C78EAE87E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145751   (619679) от 26.06.2017
-
-Italove - The Album (Super Deluxe Promo) (2017) [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Trust You (Like I Trust Myself)
-02. Too Late to Cry
-03. No Fear
-04. Heading for the Sun(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 03:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:318CFA1F5FBFE3F6E026DD83B66F585E66711A91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145866   (619690) от 26.06.2017
-
-Fun Fun - Greatest Hits & Remixes (2017) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Station (7" Version) 03:19
-02. Give Me Your Love (7" Version Remix) 03:56
-03. Color My Love (7" Version) 04:06
-04. Living In Japan (7" Version) 03:38(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 02:08:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F901FA21EB45E6A6ACAB03233C17394B22DCFB88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910880   (619721) от 21.06.2015
-
-Аркадий Хоралов - Давай попробуем вернуть / Ариведерчи (2010) 2CD [FLAC|image+.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ариведерчи [03:22]
-02. Грусть [04:11]
-03. Бархатный сезон [04:02]
-04. Мне бесконечно жаль [03:57](   Читать дальше...   )Жанр: PopПродолжительность: 01:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ABADF9B0C382B890443DAD68743B3B00E54F781
 ```
 
 

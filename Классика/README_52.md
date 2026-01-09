@@ -1,3 +1,98 @@
+###  Публикация: 610659   (989919) от 29.01.2013
+
+Pyotr Ilyich Tchaikovsky - The Seasons (2000) [MP3|320 кб/с]<Classic>
+
+>>Классика
+>>Фортепиано
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meditation, op.72 no.5
+02. Polka Peu Dansante, op.51 no.2
+03. Aveu Passione
+04. Tendres Peproches, op.72 no.3
+05. Berceuse, op.72 no.3
+
+ Les Saisons, op.37a (The Seasons)
+
+06. At The Fireside (January)
+07. Carnival (February)(   Читать дальше...   )Жанр: ClassicПродолжительность: 01:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAEEF98E53F98279A73F7CB849015129D2838F90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610678   (989998) от 29.01.2013
+
+Pyotr Ilyich Tchaikovsky - The Seasons (2000) [FLAC|Lossless]<Classic>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meditation, op.72 no.5
+02. Polka peu dansante, op.51 no.2
+03. Aveu passione
+04. Tendres Peproches, op.72 no.3
+05. Berceuse, op.72 no.3
+
+ Les Saisons, op.37a (The Seasons)
+
+06. January: At the fireside
+07. February: Carnival(   Читать дальше...   )Жанр: ClassicПродолжительность: 01:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D043A20286FD267242096BB1CEEB4442CB2228C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609252   (991798) от 27.01.2013
+
+Pablo Sarasate - Music for Violin and Orchestra: Tianwa Yang (2009) CD3 [MP3|224 кб/с]<Classic>
+
+>>Классика
+>>Оркестровая
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991798.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Concert Fantasy on Mozart's Die Zauberfloete, Op. 54 (13:07)
+2. Navarra, Op. 33 (for two violins and orchestra) (6:30)
+3. Muineiras, Op. 32 (9:56)
+4. Nouvelle fantaisie sur Faust de Gounod, Op. 13 (12:04)
+5. Barcarolle venitienne, Op. 46 (version for violin and orchestra) (9:54)
+6. Introduction et Caprice-Jota, Op. 41 (7:14)Жанр: ClassicПродолжительность: 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E6A106B3E60D3E0EC7C8C26A2B38EB0DA4F3DBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608220   (992487) от 26.01.2013
 
 VA - 100 Шедевров класики 1 (2013) [MP3|256 кб/с]<Классическая музыка>
@@ -705,87 +800,6 @@ Sofiane Pamart - PLANET (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEAEB646990DEC9747BCC7DC03736642ECFEC50A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350152   (1003687) от 04.01.2020
-
-Strozzi, Monteverdi, Kapsberger, Carissimi, Frescobaldi - Lamento (Romina Basso) (2014) [FLAC|Lossless|image + .cue] <Classical vocal>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003687.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Johann Hieronymous Kapsberger - Toccata Seconda Arpeggiata - Lamento Della Regina De Svezia
-2. Giacomo Carissimi - Lamento in Morte Di Maria Stuarda
-3. Barbara Strozzi - Lagrime Mie
-4. Claudio Monteverdi - Capriccio Di Durezze - Lamento D'Arianna(   Читать дальше...   )Жанр: Classical vocalПродолжительность: 01:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F75F5FD109FB0DE20D6E30848EDDA785331C4C1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486953   (1004323) от 02.08.2021
-
-Lola Astanova - The Popular Piano Collection (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, Romantic>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mariage D'amour (3:29)
- 02. Passacaglia (2:43)
- 03. River Flows in You (4:06)
- 04. G Minor Bach (3:30)(   Читать дальше...   )Жанр: Modern Classical, Piano, RomanticПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:207E1911E55AF5EA83B897F103C480B31A16D6F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 314252   (1004406) от 01.01.2020
-
-Escala - Escala (2009) [FLAC|Lossless]<Instrumental, Classical, Pop>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Requiem for a Tower (01:59)
-02. Palladio (03:55)
-03. Kashmir (Featuring Slash) (03:25)
-04. Finding Beauty (03:21)(   Читать дальше...   )Жанр: Instrumental, Classical, PopПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:754768245CD38A970F6776FCB955E1FE58E195E5
 ```
 
 

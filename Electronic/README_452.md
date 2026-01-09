@@ -1,3 +1,165 @@
+###  Публикация: 1374920   (871199) от 11.04.2020
+
+Paolo Lucchi - The Dusk Sessions (2019) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Void (03:31)
+ 02. Warmer (05:25)
+ 03. Notch (07:50)
+ 04. Worms (03:03)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FD5EBDEF3183EDBD13DE37B9391A5C7D57DB89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496734   (871404) от 18.09.2021
+
+Tiesto - Formula 1 Grand Prix Circuit Zandvoort, Netherlands (2021-09-05) [MP3|320 Kbps] <Dance, Electro Pop, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto - The Business
+02. Tiësto & Sevenn - BOOM
+03. Tiësto - Grapevine
+04. Tiësto & The Chainsmokers - Split (Only U)(   Читать дальше...   )Жанр: Dance, Electro Pop, Big RoomПродолжительность: 01:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0371A637151EC03CC87BB88739F3D01D724AE479
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496494   (871413) от 18.09.2021
+
+VA - Black Hole Trance Music 09-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BT & April Bender - Windows (Omnia Extended Remix) [4:19]
+02. Spada - Ibiza '89 (Extended Mix) [5:54]
+03. Daniel Wanrooy & Cari - Heading South (Extended Mix) [4:57]
+04. Cold Blue - Sunbird (Extended Mix) [8:06](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F47956555DF6E094D15E45F078205EADA7F7DD08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496717   (871546) от 18.09.2021
+
+Lane 8 - Fall 2021 Mixtape (2021-09-15) [MP3|320 Kbps] <Progressive House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anyma & Janus Rasmussen feat. Delhia De France - Claire
+02. Sultan + Shepard - ID
+03. Leaving Laurel - Winter In The Woods
+04. Parvenu - Captured (Tagavaka Remix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 02:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE370EF15DC137E594B2C5F783DC17B3F824D9E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106571   (871562) от 20.02.2017
+
+VA - Melodic Progressive House Vol.09 (2017) [MP3|320 Kbps] <House, Progressive Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Eleven.five & Arielle Maren - Remember (Original Mix)  4:34
+02.  LTN - Whispers In The Night (Original Mix)  6:44
+03.  Matt Lange - Resonate (Original Mix)  7:32
+04.  Dan Sieg - Horizons (Blugazer Remix)  7:56(   Читать дальше...   )Жанр: House, Progressive TranceПродолжительность: 02:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009652929FDF87281C904899D92EB5C9265553CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997933   (871632) от 18.03.2016
+
+AstroPilot & Friends - Soul Surfers (2016) [FLAC|Lossless|WEB-DL] <Psybient, Downtempo, Ambient, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AstroPilot - The Bliss Of Now [24] (7:49)
+02. AstroPilot and Lab's Cloud - Numen [24] (8:43)
+03. AstroPilot and Suduaya - Soul Surfers [24] (8:21)
+04. AstroPilot and Trylon - Entering Godmode [24] (8:42)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 01:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECD89EF23AA2AC8916CF582663FCE2A176AD582B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496506   (871658) от 18.09.2021
 
 Yoshi & Razner - Transmission Live, Spain (2021-08-28) [MP3|320 Kbps] <Trance>
@@ -530,168 +692,6 @@ VA - Cappuccino Lounge Vol.2 (Relaxed Coffee Tunes) (2017) [MP3|320 Kbps] <Downt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEC6B480B3DB389347011F93E5E4BFAD907F9E5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997613   (873764) от 17.03.2016
-
-Pet Shop Boys - The Pop Kids (Remixes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pop Kids (Offer Nissim Drama Mix) (06:30)
-02. The Pop Kids (MK Dub Radio Edit) (03:35)
-03. The Pop Kids (PSB Deep Dub Radio Edit) (03:17)
-04. The Pop Kids (MK Dub) (07:18)Жанр: Progressive House, Electro HouseПродолжительность: 00:20:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:133D09C4277A7376E519EBFEF0AD33992EE55934
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997673   (873768) от 17.03.2016
-
-Who Ha - Synthwave Belongs In A Museum (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Retro Synth, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synthwave Belongs In A Museum
-02. Magenta Teal Desert Cruise
-03. Cool Teenage High School Jacket
-04. Concordia Station(   Читать дальше...   )Жанр: Retro Synth, SynthwaveПродолжительность: 00:26:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF9FA573B8C8F29A588C1B5F3C23D4416DDEBA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106503   (873823) от 19.02.2017
-
-Forrest Fang - Following The Ether Sun (2017) [MP3|320 Kbps] <Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On The Edge Of A Moment 7:38
-02. Midnight Rain 7:58
-03. Chiaroscuro 7:36
-04. The Last Technicolor Dream 10:23(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99ACD1FA8ABDBBE4B87DDDD24241FCEDF086677E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106188   (873826) от 19.02.2017
-
-VA - Cruise & Chill Vol.1 (Summer Lounge Tunes) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tom Strobe - Love Makes Me Sad  2:50
-02.  Marga Sol - Children  6:42
-03.  Submersion - My Little Beach (Original Chillout Mix)  5:18
-04.  Denis Neve - Vq  4:00(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F5181BC973CCE604002DBF8D7AA22B4E4236244
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997437   (873905) от 17.03.2016
-
-VA - Mindfulness Answer Chilltime (Lounge Selection) (2016) [MP3|320 кб/с] <Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady White - Let Me Try (Ripping Mix) (03:32)
-02. Chad - Wall Sitar (Short Melodi Mix) (03:22)
-03. Sangar - Love Again (Radio Version) (03:06)
-04. Mark Down - Right Control (Ibiza Cut Mix) (03:10)(   Читать дальше...   )Производство: CleverlandЖанр: Lounge, Chill OutПродолжительность: 00:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC6016AFB95573968F5FCCEA072202AEC2A181EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374215   (874312) от 09.04.2020
-
-Andrea - Ritorno (2020) Ilian Tape [FLAC 2.0|44.1/24|tracks|WEB-DL] <Breakbeat, Ambient, IDM, Downtempo>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Attimo (04:44)
- 02. SKYLN (04:54)
- 03. LS September (05:13)
- 04. TrackQY (06:13)(   Читать дальше...   )Жанр: Breakbeat, Ambient, IDM, DowntempoПродолжительность: 00:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED406E89A68094026FEBF53DB339B2774209DBB
 ```
 
 

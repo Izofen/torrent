@@ -1,3 +1,63 @@
+###  Публикация: 514440   (659274) от 23.06.2012
+
+Gemini - Geminism (1987) [MP3|320 кб/с]<Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659274.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. T.L.C.
+2. Beat The Heat
+3. Mio, My Mio
+4. Ghost Town
+5. I Am The Universe
+6. Shiffin' On The Snakes
+7. I'm A Bitch When I See Red
+8. There's No Way To Fool A Heart
+9. Wild About That Girl
+10. Nearly There1987Жанр: Rock, Pop-RockПродолжительность: 00:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55CF0C9F38634FE2DB573B78B36D08697C278B70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225547   (659752) от 16.05.2018
+
+New England - New England (1979) Reissue, 1993, MCA Records [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659752.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hello, Hello, Hello
+2. Don't Ever Wanna Lose Ya
+3. P.U.N.K. (Puny Undernourished Kid)
+4. Shall I Run Away(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD72CCA5BEF9D19183DD835B38A091AA02DC3174
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225570   (659753) от 16.05.2018
 
 New England - Walking Wild (1981) Reissue, 1998, GB Music [MP3|320 Kbps] <Classic Rock>
@@ -641,60 +701,6 @@ CD 1
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136461   (675058) от 22.05.2017
-
-HeadCat - Walk The Walk... Talk The Talk (2011) [MP3|320 Kbps] <Rock & Roll, Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Beat
-02. Say Mama
-03. I Ain't Never
-04. Bad Boy(   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 00:27:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A833CBA99B348A5212FCB1D895BEAEDD819FF3FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223380   (675098) от 04.05.2018
-
-VA - Absolute 70's (2007) 3CD [MP3|320 Kbps] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - We Are The Champions (2:59)
-02. Frank Zappa - Bobby Brown (2:45)
-03. Chicago - If You Leave Me Now (3:54)
-04. David Bowie - Young Americans (3:12)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 03:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17EBE1CD555DFB5E9FEA13EED34AD2778B7A59E
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1301578   (584347) от 12.05.2019
+
+Julie Laughs Nomore - From The Mist Of The Ruins (2001) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mistress of Death 04:30
+02. Children of the Empty Cross 04:51
+03. From the Mist of the Ruins 05:39
+04. Bringer of Misery 04:30(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF33F9D3DDAE92773464AC649EE156FD8221CFFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301572   (584348) от 12.05.2019
 
 Psycroptic - As the Kingdom Drowns (2018) [WavPack|Lossless|image + .cue] <Technical Death Metal>
@@ -663,33 +690,6 @@ Yellow Matter Custard - One More Night in New York City (Live) (2011) [MP3|320 k
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3A4BE5B7EC5CA84EF1113CC7F4D7AAB2A553DD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301454   (585101) от 11.05.2019
-
-David Coverdale & Whitesnake - Best Ballads (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Many Tears (4:11)
-02. Don't Fade Away (4:09)
-03. Soldier Of Fortune (3:17)
-04. Sail Away (4:55)(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95F46F24DFC41F81A3C96DADAC4F4409B1F64747
 ```
 
 

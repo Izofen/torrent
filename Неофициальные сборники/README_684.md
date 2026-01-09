@@ -1,3 +1,30 @@
+###  Публикация: 1611945   (1040787) от 13.02.2023
+
+VA - I'm Listening Now 3 (2023) [MP3|320 Kbps] <Club, House, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040787.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ELI & DANI, Adam Sellouk feat. Luke Coulson - Restless (6:42)
+002. MIDIN - Ультрачувства (3:01)
+003. Miki Mouse,Krocodile - Today Snow (Original Mix) (3:46)
+004. Olsein feat. Sofia Lecubarri - Lullaby Stranger (AFX & Hypercode Remix) (4:27)(   Читать дальше...   )Жанр: Club, House, OtherПродолжительность: 09:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BCA715D955B860D61086C303A38273FCF13F5CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438492   (1040885) от 09.01.2021
 
 VA - Music News vol.62 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Hard Fitness Dance Music (2020) [MP3|320 Kbps] <Hardstyle, Hard Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C06AE8C847D9F967D5F3E5F3B085E52448A1780
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437168   (1042286) от 04.01.2021
-
-VA - December EDM Charts (2020) [MP3|320 Kbps] <Tech House, Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в мир отличной танцевальной музыки!!! Сегодня представляется гигантский сборник электронной музыки танцевального направления. Вас ожидают только лучшие треки, горячие новинки танцполов европы, самые лучшие хиты сезона и просто интересные треки. Слушаем и наслаждаемся!001. Dj Sign And Manuel Baccano - Good Time
-002. Martin Mix - You'll Be The One
-003. Lovona - Pink Sand
-004. Kneco - Mt. Takwari(   Читать дальше...   )Жанр: Tech House, Deep House, ElectroПродолжительность: 09:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:307D0B02304DB1C0F9866B6145AE741011CF5D0A
 ```
 
 

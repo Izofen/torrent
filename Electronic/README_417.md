@@ -1,3 +1,165 @@
+###  Публикация: 1011935   (795502) от 29.04.2016
+
+VA - club.bit! (mixed by DJ Suhov) (2003) Promotional CD [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795502.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dino Lenny vs. The Housemartins - Change the World |06:46|
+2. Ceballos & DJ Chus - Afrika |07:15|
+3. DJ Chus & David Penn feat. Caterina - Baila |05:03|
+4. Niquid - Saxaphobia E.P. |04:44|(   Читать дальше...   )Жанр: HouseПродолжительность: 01:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCDE48CFADB2FB5F61CB34FDDBD8AAC6BCA4BF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012053   (795567) от 29.04.2016
+
+Omauha - Omauha (Remixed) (2016) [MP3|320 кб/с] <Breaks>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florida (Cullen Remix) (6:33)
+02. Antananarivo (Platunoff Breaks Remix) (6:43)
+03. The White Nights (Stardesign Remix) (8:38)
+04. Victoria (Rick Tedesco Remix) (7:15)(   Читать дальше...   )Жанр: BreaksПродолжительность: 01:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D927FCC8C709ACCFA5C7301C6D094741FAFC3D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200561   (795595) от 21.01.2018
+
+VA - Global DJ Broadcast: Top 20 January (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Markus Schulz & Dakota  -  The Spirit Of The Warrior (Transmission 2017 Theme) (Extended Mix)  6:22
+02.  Dennis Sheperd  -  Copenhagen (Extended Mix)  6:30
+03.  Ayla  -  Ayla (Ben Nicky & Luke Bond Remix)  4:23
+04.  Gabriel & Dresden feat. Sub Teal  -  White Walls (Extended Mix)  6:37(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F56C8E0FD2299FB139B9243789137F554C7AB545
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200734   (795599) от 21.01.2018
+
+VA - DJ Зорькин - Приключения Электроника (1998) Gagarin Music [FLAC|Lossless|image+.cue] <Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unknown Artist - Intro: Otmychka (01:16)
+ 02. Dr. Rockit - Worm In My Food (02:54)
+ 03. R.A.C. - Continua (02:32)
+ 04. Bomb the Bass - Absorber (Jedi Knights remix) (03:02)(   Читать дальше...   )Жанр: ElectroПродолжительность: 00:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD90E93E32BFFC804DA9BA6DC8F86AAFEAD834CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011798   (795636) от 29.04.2016
+
+Forteba - Space Between Us (2007) [APE|Lossless|image + .cue] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfect Present
+02. Space Between Us
+03. Relax (feat. From P60 & Virag)
+04. Thinkin About(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6104A61135EA7E0B0CF91E46168FA4F0D664F172
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200607   (795659) от 21.01.2018
+
+Laliya - The Middle Way (2017) [MP3|320 Kbps] <Lounge, New Age>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dragonfly (6:04)
+02. Breathe (4:38)
+03. Weave (4:04)
+04. Mind Finding Form (3:42)(   Читать дальше...   )Жанр: Lounge, New AgeПродолжительность: 00:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F86CF719E4F4171BD363233DA5106963CE79775
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200439   (795695) от 21.01.2018
 
 VA - Hed Kandi 2017 (2016) [FLAC|Lossless|tracks] <Deep House, Vocal House, Soulful House, Disco House, Funky House>
@@ -531,168 +693,6 @@ VA - Dance Hits (2018) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E66998614DB3904FB7C64A0974017B354297AA56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200459   (796427) от 20.01.2018
-
-Primal Code - Konstrukt 008 (2018) Konstrukt [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artemisia (07:06)
- 02. Allysum (05:51)
- 03. Acaulis (05:58)
- 04. Alpine Violet (07:08)Жанр: Techno, AmbientПродолжительность: 00:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7FC2FB1300D5C71C67F3475DBD77A9A000FFF00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011620   (796441) от 28.04.2016
-
-VA - Dance Map, Electro Stops Vol.3 (2016) [MP3|320 кб/с] <House, Progressve House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fuji -  Burn  6:39
-02. KountDown Project -  Moon Bass  7:56
-03. Sello -  Such as More  7:25
-04. DJ Afreek -  Orgasmo  6:30(   Читать дальше...   )Жанр: House, Progressve HouseПродолжительность: 02:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F78ECD807F9B493B94EDC8E91BFDA070E353B8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200234   (796450) от 20.01.2018
-
-VA - Special Sport Songs 11 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Beat - Come Down to Me (Radio Edit) 03:06
-02. Dennis Grkn - Winner (Radio Edit) 03:15
-03. Mr. Groove - We're Living for the Moment (Radio Edit) 03:31
-04. Miguel Alcobia - I Don't Need You Anymore (Radio Edit) 02:13(   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D9501989F56E4BBEAEF70384D866B97814C2F89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200289   (796459) от 20.01.2018
-
-VA - Urban Party Alarm 11 (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Nick Le Funk  -  Leaving  3:30
-02.  The Boogeyman  -  The Bass Poem (Radio Edit)  3:21
-03.  Roger Horton & Slippy Beats  -  Feel Fine (Radio Edit)  3:07
-04.  Project Weekend Sound  -  Girls & Boys (Radio Edit)  3:26(   Читать дальше...   )Жанр: HouseПродолжительность: 02:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5097F7DB50A4D03DC16BEA45389D86DB69CC5BCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319368   (796543) от 26.05.2020
-
-W O L F C L U B (Wolfclub) - Collection 5 Releases (2017-2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All We Live For (3:19)
-02. Rebels (3:14)
-03. Fire (3:29)
-04. New York (3:19)(   Читать дальше...   )Жанр: Electronic, Synthwave, Retrowave |Продолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C221F976411FB79CFF4BB75CF1EF0C904A93319
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385795   (796648) от 26.05.2020
-
-Visage - 3 Albums (1980-1984) LP [MP3|320 Kbps] <Electronic, New Wave, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visage - британская группа, одна из лидеров модно-музыкального движения новых романтиков начала 1980-х гг. Основанная в Лондоне Стивом Стрейнджем и Расти Иганом из The Rich Kids, Visage была чисто студийным проектом с участием музыкантов из Ultravox (Мидж Юр, Билли Карри), Magazine (Дейв Формула), Siouxsie and the Banshees (Джон Макгиох).Список альбомов:
-1980 - Visage
-1982 - The Anvil
-1984 - Beat Boy(   Читать дальше...   )Жанр: Electronic, New Wave, Synth-popПродолжительность: 02:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F97D227F0F7578FCFFEF134AF34C7A4F35E2AEEB
 ```
 
 

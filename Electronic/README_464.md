@@ -1,3 +1,165 @@
+###  Публикация: 991391   (900611) от 02.03.2016
+
+Depeche Mode - Some Great Reward (1984) remastered 2006, collectors edition, CD+DVD [FLAC|Lossless|image + .cue] <New Vawe,  Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something to Do (3:48)
+02. Lie to Me (5:04)
+03. People Are People (3:52)
+04. It Doesn't Matter (4:45)(   Читать дальше...   )Жанр: New Vawe,  Synth-popПродолжительность: 00:29:21(фильм) 00:40:33(альбом)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:258F5FD05186F68E71C1858B97B82FCFE1E56E72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992345   (900922) от 02.03.2016
+
+VA - Serenity Sexy Lounge & Chill out Pearls Vol 3 (2016) [MP3|320 кб/с] <Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steven Pearce - Don't Let the Sun Go Down on Me (05:12)
+02. Mary J. - Sailing (04:47)
+03. Jessica Hathaway - Frozen (05:39)
+04. Michael Korg - 1973 (04:44)(   Читать дальше...   )Производство: White Isle RecordingsЖанр: Downtempo, Lounge, Chill OutПродолжительность: 01:25:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3E9E5BDC8D0511F435E7C48D0CC85E298249C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100038   (900965) от 03.02.2017
+
+Dance With The Dead - B-Sides: Volume 1 (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Out (2:36)
+ 02. Banshee (5:25)
+ 03. That House (4:46)
+ 04. Stoic (3:40)(   Читать дальше...   )Жанр: Synthwave, RockПродолжительность: 01:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E9964E0FF00A9C85F7AF4973E5C6E63F9CC186
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992486   (901015) от 02.03.2016
+
+VA - Потанцуем ? (2000) S&V #03/2000 [FLAC|Lossless|tracks + .cue] <Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901015.jpg" />
+</div>
+
+
+###  Подробнее
+
+4
+01. DJ BoBo - Together (3:41)
+02. Ann Lee - 2 Times (3:50)
+03. DJ Jean - The Launch (3:39)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:54:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76AD2485023A80A894C9043B6C20E923F6FF6F52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100148   (901422) от 03.02.2017
+
+Colombo - iBreaks 12th Anniversary Series (2017) [MP3|320 Kbps] <Breaks>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summit (Original Mix) (7:43)
+02. EveryBody (Original Mix) (7:18)
+03. Clap Yah Hands (Original Mix) (6:41)
+04. CousCous (Original Mix) (7:16)(   Читать дальше...   )Жанр: BreaksПродолжительность: 01:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9AD79EA2D62115BB73AC7002FAC7B1894A844C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369558   (901517) от 24.03.2020
+
+Infected Mushroom - More than Just a Name (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance, Dubstep>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901517.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Infected Mushroom; WHITENO1SE - More of Just the Same (7:09)
+2. Only Solutions (5:21)
+3. Infected Mushroom; Bliss - Ani Mevushal (8:51)
+4. Symphonatic (Infected Mushroom & Astrix Remix) (8:26)(   Читать дальше...   )Жанр: Psy/Goa Trance, DubstepПродолжительность: 00:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:281F6FDCA9DFD00B53CBF51F6D16AB5428070B30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100063   (901596) от 03.02.2017
 
 VA - Best of Uplifting Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
@@ -533,168 +695,6 @@ VA - Jazz Lounge Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86001B52B71FDF61ECCBDEB6CBA3E469B2812E13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099605   (903678) от 02.02.2017
-
-VA - Smoking Lounge: Luxury Chill-Out & Lounge Tunes Vol.7 (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alberto Traversi - Blue Moon  4:43
-02.  Rainer Schnelle - Beyond The Blue (Underscore Version)  2:16
-03.  VST - Awakeing  4:47
-04.  David Starck - Early Morning  1:34(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:24:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE2852394BDB89544380CBEB0DC8FB9BF26A95F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099583   (903681) от 02.02.2017
-
-VA - Midnight Lounge Vol.25 Allure (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gysnoize - Million Miles Away  4:38
-02.  Riccardo Ascani - Chiringuito (No Theme)  3:17
-03.  Dreamw41ker - A Long Walk  5:01
-04.  Valefim Planet - Space Clock  5:18(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D326575ACA37731A6C868CF93F47542665A4CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369348   (903815) от 23.03.2020
-
-Krewella - zer0 (2020) [FLAC|Lossless|WEB-DL|tracks] <Dance, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. zer0 (3:48)
- 02. Mana (Extended Mix) (2:57)
- 03. Good on You (2:39)
- 04. Anxiety (3:57)(   Читать дальше...   )Жанр: Dance, ElectronicПродолжительность: 00:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33DC624602526E103624A83770F60491903B6FCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492350   (903965) от 29.08.2021
-
-Heogen - Odd Radio Circle (2021) Touched Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doorisajar (See Within) (02:34)
- 02. Shall We Go There (10:09)
- 03. Lost In Longing To Understand (05:54)
- 04. Everything Was Beautiful And Nothing Hurt (07:57)(   Читать дальше...   )Жанр: IDM, Downtempo, AmbientПродолжительность: 00:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DC076ED13EAA9B777735D8A39EEEF4052DD6C82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991994   (904089) от 29.02.2016
-
-Astrix - He.Art (2016) [MP3|320 кб/с] <Psy-Trance, Full On>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astrix - Shamanic Tales (Original Mix) (13:01)
-02. Astrix - Deep Jungle Walk (Original Mix) (9:15)
-03. Astrix - Alien Turned Human (Original Mix) (8:08)
-04. Ace Ventura & Astrix - Valley of Stevie (Original Mix) (8:41)(   Читать дальше...   )Жанр: Psy-Trance, Full OnПродолжительность: 02:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:334A9F0980CFA27AEEC62378E28B2A3B27A31731
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991831   (904228) от 29.02.2016
-
-VA - Klubb House 2006 (2006) [FLAC|Lossless|tracks + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I.N.G. - Pussy Pussy (Dj E-Maxx remix) (4:16)
-02. Master Guys - Rocking (Original Club Mix) (6:46)
-03. Gambus & Alvard - Don't Fade (Club Cut) (3:54)
-04. Puncher - Dance Mf Club Extended (6:56)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72871E309313454A596EC5CA6E56A15924FA0028
 ```
 
 

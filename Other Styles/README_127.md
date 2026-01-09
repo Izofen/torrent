@@ -1,3 +1,300 @@
+###  Публикация: 1018055   (755820) от 20.05.2016
+
+VA - In Too Deep (Original Motion Picture Soundtrack) (1999) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Funk, Soul>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NAS & Nature - In Too Deep (3:42)
+02. Method Man & Redman - Tear If Off (4:13)
+03. Ali Vegas - The Specialist (3:32)
+04. R Kelly - Use To Me Spending (5:03)(   Читать дальше...   )Жанр: Hip-Hop, Funk, Gangsta, Neo Soul, R'n'B, Soundtrack, Thug RapПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B310BA4518177D3D41C10B76D71E69EDAF0220AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215791   (756349) от 27.03.2018
+
+Gregorianika - Ora et Labora (2009) [FLAC|Lossless|tracks + .cue] <New Age, Gregorian Chant>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	In Spiritu Sancti	2:58
+02.	Ave Verum	2:43
+03.	Believe In You	4:31
+04.	Ave Maria	2:17(   Читать дальше...   )Жанр: New Age, Gregorian ChantПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D5B965958397DD27E51779AE0CD1F77CF9D6E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922038   (756436) от 05.02.2019
+
+Юлия Славянская - шесть альбомов (2002-2016) [MP3|320 кб/с]<Православная духовная музыка> [Обновлено 04.02.2019]
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. За окном вагона (02:56)
+02. Стихи на снегу (03:19)
+03. За Россию! (03:58)
+04. Помолись за меня (03:35)(   Читать дальше...   )Жанр: Православная духовная музыкаПродолжительность: 04:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D495584F85B81270E1BE7042F8B543763A39FB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522785   (756765) от 08.01.2022
+
+OVA - Дискография (2011-2012) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, Ambient>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Доброе утро (1:32)
+02. Ты где-то рядом (2:47)
+03. Встреча (3:27)
+04. Весна в твоих глазах (3:21)(   Читать дальше...   )Жанр: Instrumental, Piano, AmbientПродолжительность: 00:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F3EE7951814A72E216DA8B5494C43849A986FC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017687   (757563) от 19.05.2016
+
+Jon Brion - Паранорман, или Как приручить зомби / ParaNorman (2012) [MP3|320 кб/с] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zombie Attacks in the Eighties
+02. Norman at the Piano / Main Title
+03. Norman's Walk
+04. Alvin Attacks(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB4333D78484C30477DF82DFFCB8E0EAF02E24BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 205091   (757704) от 28.05.2010
+
+Русская дружина - Русские народные песни (2003) [MP3|320 kbps]<Folklore>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_757704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ой, ты, Россия-матушка
+02. Гуляю я, гуляю
+03. Зародилась красна ягодка
+04. Ах ты, Дуня(   Читать дальше...   )Жанр: FolkloreПродолжительность: 01:04:08
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394956   (758841) от 08.07.2020
+
+Willie Nelson - First Rose Of Spring ‎ (2020) [FLAC|Lossless|tracks + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Rose of Spring (03:41)
+02. Blue Star (04:35)
+03. I'll Break Out Again Tonight (02:49)
+04. Don't Let the Old Man In (03:09)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C1C3FA0CE554D0C7A92BB2F02F17BA04A529D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215293   (759531) от 25.03.2018
+
+Paul Mauriat & His Orchestra - Greatest Hits, 2CD (2007) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love is blue
+02. Toccata
+03. Aloette
+04. L'Ete indien(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 02:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CEC9CEA2F081DD4E72C6DFE628ABA9209CDEE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215268   (759607) от 25.03.2018
+
+Leo Rojas - Leo Rojas (2017) [FLAC|Lossless|image + .cue] <Panflute, Native american, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nature Spirits
+02. Dusk
+03. Wolf's Heart (feat. Chantelle Barry)
+04. Indian Fire(   Читать дальше...   )Жанр: Panflute, Native american, EthnicПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2518CA9DE889F67888B709BA6E66F41FD19CE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280601   (760196) от 03.02.2019
+
+ДиДюЛя - Седьмое чувство (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Колесо времени (Велюровый вальс)
+02.Покорители пространства (Ветряные мельницы)
+03.Танец с дождём (Причудливые круги)
+04.Люди индиго (Объект перемен)(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616E0A0E66405B7382AD69720B8D385DE4831627
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280330   (760418) от 03.02.2019
+
+Friska Viljor - Broken (2019) [MP3|320 Kbps] <Indie>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unless You Love Me
+02. Is It over?
+03. Trap
+04. Lights Out(   Читать дальше...   )Жанр: IndieПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:782B209501200CED3D7ED6F834EC8EA24B88B43C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280475   (760530) от 03.02.2019
 
 Jann Beaudry - Legere (2019) [MP3|320 Kbps] <Ethnic>
@@ -398,303 +695,6 @@ Willie Nelson - First Rose of Spring (2020) [MP3|320 Kbps] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CFE4B2E220989655B6CB53D61D2350A0985CD31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126599   (764330) от 19.04.2017
-
-Blonker - Fantasia (1980) Remastered, 1994 [FLAC|Lossless|image + .cue] <New Age, Ambient, Rock>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aranjuez (4:48)
- 02. Sidewalk Cafe (3:16)
- 03. Pavane (4:05)
- 04. Anak (4:36)(   Читать дальше...   )Жанр: New Age, Ambient, RockПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEE5916A2D96AEDF1BC7CB426B352FBF0088ECA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126635   (764479) от 19.04.2017
-
-The Essence - Enigma Lounge (2003) [FLAC|Lossless|tracks + .cue] <Enigmatic, New age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wholeness Of The Essence (04:38)
-02. True Sensuality (05:02)
-03. Essence (04:02)
-04. La Vie Rouge (04:04)(   Читать дальше...   )Жанр: Enigmatic, New ageПродолжительность: 01:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1C57950BAC6E7E800C0950B1FA8B126BA41D81B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279729   (764544) от 31.01.2019
-
-Ulver - Svidd Neger (Original Motion Picture Soundtrack) (2003) [FLAC|Lossless|tracks + .cue] <Electronic, Soundtrack, Modern Classical>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preface (1:42)
-02. Ante Andante (0:53)
-03. Comedown (2:19)
-04. Surface (3:17)(   Читать дальше...   )Производство: Jester Records – TRICK030Жанр: Electronic, Soundtrack, Modern Classical, Score, AmbientПродолжительность: 00:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:133A35C1E4AE0C925F4557605C541C2B9FB80E62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393560   (765432) от 03.07.2020
-
-Jim Brickman - Piano Tributes: Songs Of Carole King (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You've Got A Friend
-02. So Far Away
-03. Up On The Roof
-04. Tapestry(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7228FA7FEF5299D855635BB0B3F51D80EC78D35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125948   (765533) от 18.04.2017
-
-Vin Downes - When The Sea Lets Go (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entwined and Lost
-02. Evening in Berkeley
-03. Morning Red
-04. Dust and Drag(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DA9651B332D174ABC779767E1BF2C87A6BBD270
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125453   (765535) от 18.04.2017
-
-The Gordon Brothers - Yoga Planet (2008) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765535.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Gliding In Azure (7:22)
-2.  Cante Libre (5:35)
-3.  Dream Wave (6:06)
-4.  Asana Lounge (8:13)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D676ABAA85425254983F4772E49C49DDF53EDAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521266   (766079) от 01.01.2022
-
-VA - Евгенич (2021) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766079.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Евгенич - Евгенич
-2. Ольга Бузова/Евгенич - Делай как Бузова
-3. Евгенич/Игорь Акинфеев - Акинфей
-4. Евгенич - Миша Галустян(   Читать дальше...   )Жанр: OSTПродолжительность: 00:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2282AEC7337523035E54B7AB7AA3998F65CE2D22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125931   (766387) от 17.04.2017
-
-Макс Эллар Фартушный - Gamers Soundtracks Vol. 2 (2017) Авторская раздача [OGG|~320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В перекрестье прицела [1:58]
-02. Эхо битвы [1:36]
-03. Призыв в бой [1:43]
-04. Фраг мой [2:57](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDA8C0707154760955874F6D757761C070094A38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213994   (766545) от 19.03.2018
-
-Хелависа - Люцифераза (2018) [MP3|320 Kbps] <Folk, Folk Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766545.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кракатук
-2. Поверь
-3. Шей
-4. Дорога в огонь(   Читать дальше...   )Жанр: Folk, Folk RockПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CAE6DE14976B955080AF11C215E43F6A24681F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213783   (766556) от 19.03.2018
-
-Richard Clayderman - Ballade pour Adeline (2012) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballade pour Adeline
-02. Couleur tendresse
-03. Les larmes de joie
-04. Pour avoir trop reve(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497E4C7D79F086A73D2D02F996A111E265E9A755
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279245   (766813) от 28.01.2019
-
-John K. - Romantic Guitar II (2001) [FLAC|Lossless|image + .cue] <Instrumental, GUitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smoke Gets In Your Eyes
-02. Unforgettable
-03. Tonight I Celebrate My Love
-04. From The Distant(   Читать дальше...   )Жанр: Instrumental, GUitarПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB0CA91D8C7B39BDAD0BCE0CEFA4CB78E631B91
 ```
 
 

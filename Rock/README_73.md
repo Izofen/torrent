@@ -1,3 +1,57 @@
+###  Публикация: 1397648   (739869) от 21.07.2020
+
+The Hardkiss - Акустика. Live (2020) [MP3|320 kbps] <Acoustic, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мелодія (Acoustic Live) (05:18)
+02. 00:00 (Acoustic Live) (04:11)
+03. Антарктида (Acoustic Live) (04:21)
+04. Андромеда (Acoustic Live) (01:42)(   Читать дальше...   )Жанр: Acoustic, Pop RockПродолжительность: 01:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B12A242C430C8B6FBB0DFC0FFDAACA7C941B65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283190   (740265) от 16.02.2019
+
+Find Me - Angels in Blue (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Tears in Paradise
+02. Chain of Love
+03. True Believer
+04. Straight for Eternity(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B1E45518EDCBEF1686CBA52DDC5E4A03B346378
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021403   (740883) от 29.05.2016
 
 The Monkees - Good Times! (2016) [MP3|320 кб/с] <Rock>
@@ -639,60 +693,6 @@ VA - Rock Covers (2017) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00DD1FB80BB1D3E7FD4D5925743CFF76E5A9872E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 889217   (750121) от 17.04.2015
-
-Stone Diamond - Phoenix (2015) [MP3|320 кб/с]<Retro-Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Many Voices
-02. Dreams Need Loudspeakers
-03. She
-04. Beirut(   Читать дальше...   )Жанр: Retro-Rock, Pop RockПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB88687601D55C8990A1241AC7429F78DD0DCFB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216417   (751366) от 30.03.2018
-
-Mallet - Everybody Needs Somebody (1990) TRC Tanit ReCords [MP3|160 Kbps] <Rock, Melodic Hard Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mallet - немецкая рок-группа, созданная в 1979 году в Висбадене Манфредом Дюнзлом, Петер Вэньке, Стефаном Онхаусом (позднее гитаристом The Crackers ), Ханси Вуттке и Уилмонтом Шульце в качестве школьной группы. Тексты касаются музыки, одиночества в современной городской жизни, компьютерной дисфункции, религии, войны, качества жизни, веселья и любви.01. Don't Want To Be Loved By You 3:58
-02. Midnight Lover 4:09
-03. Mr. Boogie 3:32
-04. Tomorrow 5:46(   Читать дальше...   )Жанр: Rock, Melodic Hard Rock, Hard RockПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B6662FA9E7D3EBFB5DC5E277DB2CDC7ADA7398B
 ```
 
 

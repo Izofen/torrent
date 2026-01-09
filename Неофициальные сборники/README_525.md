@@ -1,3 +1,30 @@
+###  Публикация: 1385976   (795886) от 27.05.2020
+
+VA - Acoustic Chill (2020) [MP3|320 Kbps] <RnB, Pop, Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passenger - London In The Spring 2:58
+02. Syml - Here Comes The Sun 3:02
+03. Wild Rivers - Small Talk 2:46
+04. Jónsi - Exhale 5:12(   Читать дальше...   )Жанр: RnB, Pop, BluesПродолжительность: 03:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8809C18DBD474A0A89686AFED034A8859DE60962
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386040   (795907) от 27.05.2020
 
 VA - Romantic evening (2020) [MP3|320 Kbps] <Rock, Electro, Techno House, Dance>
@@ -668,33 +695,6 @@ VA - Record Super Chart #520 (2018) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:495A8966A0A0D9F3C1E7FC576C5D2B4E3A590A96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011613   (796400) от 28.04.2016
-
-VA - Top 40 Hits Music April Work (2016) [MP3|320 кб/с] <Electro, Bigroom, Bounce, Bassline, Moombahton>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pexot Pey - Are You Ready (Original Mix) 03:41
-02. Ummet Ozcan - Spacecats (Extended Mix) 04:30
-03. Hardwell & Kura - Calavera (Extended Mix) 03:50
-04. Team Bastian & Jake Tarry - Chainsaw (Original Mix) 05:20(   Читать дальше...   )Жанр: Electro, Bigroom, Bounce, Bassline, MoombahtonПродолжительность: 03:22:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B8993A78B987ACF83CFCF09DD34763E716DD2D6
 ```
 
 

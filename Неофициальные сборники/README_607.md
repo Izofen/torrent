@@ -1,3 +1,30 @@
+###  Публикация: 1367698   (914017) от 17.03.2020
+
+VA - Robins Elegant Set (2020) [MP3|320 Kbps] <EDM, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914017.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Electrobongo - Sweet Brown (Original Mix)
+002. Belmar - Whispers (Original Mix)
+003. Dezibel - Let's Move (Club Mix)
+004. Revealed Recordings - Raise(   Читать дальше...   )Жанр: EDM, Dance, HouseПродолжительность: 12:12:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D1D0EC3BA509C3C5ECF78B6E1F90732D0914F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367704   (914040) от 17.03.2020
 
 VA - не Громкие новинки недели 59 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Electro Sensation (2016) [MP3|320 кб/с] <Dance, Club House, Electro Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C60644F8252A0165CB4226E4CB71DE396617300E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989819   (915827) от 23.02.2016
-
-VA - House Nation Volume 5 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foamo feat. Lotti - Release Me (05:52)
-02. Kastra - Placebo (04:06)
-03. Reece Low - Rompa Stomp (06:08)
-04. Showtek feat. MC Ambush - 90's By Nature (04:02)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F5FFB379357DFE160EB4807D1F7DEFBCBEEDD3
 ```
 
 

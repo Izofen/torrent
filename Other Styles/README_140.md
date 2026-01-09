@@ -1,3 +1,300 @@
+###  Публикация: 1120288   (801195) от 01.04.2017
+
+VA - From Russia With Song: 20 Greatest Russian Hits (2000) [MP3|320 Kbps] <Pop, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Владимир Трошин - Подмосковные вечера
+02. Краснознамённый им. Александрова Ансамбль песни и пляски Советской Армии - Калинка (солист Алексей Мартынов)
+03. Тамара Синявская - Катюша
+04. Пётр Лещенко - Чубчик(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 01:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4CA21831370071CA988322FE9BA4D9EAC68BF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384631   (801678) от 21.05.2020
+
+Евгений ( Zagot ) Загот - Парад планет  (2005) [FLAC|Lossless|tracks + .cue]<Instrumental, Piano, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro ( Ambient Dream )
+02. Париж
+03. Я тебя читаю
+04. Аквамарин(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1CB53B577B0CB4B9DA73408EDF0B59F1ED27A31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384563   (801687) от 21.05.2020
+
+LEYA - Flood Dream (2020) [FLAC|Lossless|tracks + .cue] <Avant - Folk, Chamber Music>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weight (feat. GABI) (03:52)
+02. Wave (04:11)
+03. INTP (03:48)
+04. ABBA (04:34)(   Читать дальше...   )Жанр: Avant - Folk, Chamber MusicПродолжительность: 00:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8981BF670AFDDB11217456623A52C5D5291E8C9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199103   (801690) от 15.01.2018
+
+New Sun Pops Orchestra - Guitar Mood (1976) 2 Альбома, LP [FLAC|Lossless|tracks] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jambalaya  (03:03) 
+02. Rain Rain  (02:52) 
+03. El Condor Pasa  (02:36) 
+04. Yesterday Once More  (03:26) (   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0EE62643A855F09AC04254B6B7AD355BABD3C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198988   (801720) от 15.01.2018
+
+Padma Previ - Saraswati (2012) [FLAC|Lossless|image + .cue] <Meditative, Mantras, Chants>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Upa Brahmani 07:29
+02. Vayavindrashca 08:20
+03. Upa Nah Savana 06:16
+04. Mahanabhistirojasa 07:13(   Читать дальше...   )Жанр: Meditative, Mantras, ChantsПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87410EE0D3D63784A675897A0558B2899139D8E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199204   (801773) от 15.01.2018
+
+Padma Previ - Goddess Chants (2008) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Om Sri Rama (7:05)
+02. Om Shrim Swaha (7:09)
+03. Yasmin Vishvani (5:21)
+04. Om Tare Tare (7:01)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A612A52EE519974B4688A2D3D0F0F230B786F57D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120627   (801797) от 31.03.2017
+
+VA - Ghost in the Shell / Призрак в доспехах (Music Inspired by the Motion Picture) (2017) [FLAC|Lossless|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kenji Kawai - Utai IV: Reawakening (Steve Aoki Remix) (04:30)
+02. Johnny Jewel - The Hacker (03:24)
+03. Boys Noize - Cathryn's Peak (03:25)
+04. DJ Shadow - Scars (feat. Nils Frahm) (03:35)(   Читать дальше...   )Жанр: Soundtrack, Dance & ElectronicПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CD333C869FAD0E1A65D5BE63165445032CE37D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120625   (801881) от 31.03.2017
+
+VA - Ghost in the Shell / Призрак в доспехах (Music Inspired by the Motion Picture) (2017) [MP3|320 кб/с]<Soundtrack, Dance & Electronic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kenji Kawai - Utai IV: Reawakening (Steve Aoki Remix) (04:30)
+02. Johnny Jewel - The Hacker (03:24)
+03. Boys Noize - Cathryn's Peak (03:25)
+04. DJ Shadow - Scars (feat. Nils Frahm) (03:35)(   Читать дальше...   )Жанр: Soundtrack, Dance & ElectronicПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2307FAD3A666E4D2E066594E357E4E5468FE2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120304   (801967) от 31.03.2017
+
+Cerrone - Brigade Mondaine: Original Soundtracks (1978-1980) 2014, Because Music, Remastered, 3 CD Box Set [FLAC|Lossless|image + .cue] <Disco, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Me Love
+02. Phonic
+03. Cloe
+04. Deauville(   Читать дальше...   )Жанр: Disco, SoundtrackФормат: 3хCD, Box Set, Compilation, Limited Edition, Numbered, RemasteredПродолжительность: 01:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B59C6C227A3FE2F7E89653750333B38FBE774E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010134   (801981) от 25.04.2016
+
+Harp Twins (Camille and Kennerly) - 3 альбома (2013 - 2015) [MP3|320 кб/с] <Harp, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance of Death	(7:12)
+02. Hotel California	(4:57)
+03. Eye of the Tiger	(2:40)
+04. The Unforgiven	(4:58)(   Читать дальше...   )Жанр: Harp, InstrumentalПродолжительность: 02:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC39E462D08E47AA149216A8085C804A1DF66A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120253   (802005) от 31.03.2017
+
+Ryan Farish - United (2017) [MP3|320 Kbps] <Electronic, Downtempo, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skies
+02. Shooting Star
+03. United
+04. ForAva(   Читать дальше...   )Жанр: Electronic, Downtempo, New AgeПродолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6EC8DCCF04EFB94386C97D3A4D953EDAC3F2D81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120686   (802049) от 31.03.2017
 
 Harry Gregson-Williams - Live by Night / Закон ночи (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -398,303 +695,6 @@ VA - Kong: Skull Island / Конг: Остров черепа (Unofficial Soundt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E36BBEDDCB291A1E6208848EDB4E2C9FB48178E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119632   (805015) от 29.03.2017
-
-Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music From the Motion Picture) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Survival of the Fittest (02:24)
-02. Baby Brother (03:58)
-03. Welcome to Baby Corp (03:12)
-04. You Can't Get Away from Johnny Law (02:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F9D3FB3C4F89AF53ECFAC62E50A92AB33754D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119767   (805123) от 29.03.2017
-
-Clinton Shorter - The Expanse / Пространство - Season One (Original Television Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Expanse (01:04)
-02. Hostage (03:13)
-03. Signal (02:10)
-04. Welwala (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D34BC278818AABA31C62F21E7D9C621222A4A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119630   (805242) от 29.03.2017
-
-Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music From the Motion Picture) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Survival of the Fittest (02:24)
-02. Baby Brother (03:58)
-03. Welcome to Baby Corp (03:12)
-04. You Can't Get Away from Johnny Law (02:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA47AB3D833458B7F3FFB2421A8021A107A898E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119732   (805255) от 29.03.2017
-
-Jeff Russo - Legion / Легион (Original Television Series Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Young David (05:06)
-02. David in Clockworks (00:46)
-03. 174 Hours (08:47)
-04. Seeing Things Hearing Things (04:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F954D1F9F3B78163727397FED7865EB79D418399
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119942   (805362) от 29.03.2017
-
-VA - Acoustic Covers The Album (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexa Goddard - Say You Won't Let Go
-02. Adam Christopher - Shape of You
-03. Sleeping At Last - As Long as You Love Me
-04. John Adams - I'm Like a Bird(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:04:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F7D03C102FFB15A9825D571B33FB6CBAA872AB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119687   (805364) от 29.03.2017
-
-Lele Marchitelli, VA - The Young Pope / Молодой Папа (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nada - Senza un perchè (02:46)
-02. Andrew Bird - Logan's Loop (01:11)
-03. Jefferson Airplane - Blues from an Airplane (02:13)
-04. Lele Marchitelli - The Knowledge (01:59)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:35:14 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:644964A2545F3E1E2B8008CC5274DF58AFB5D634
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119783   (805370) от 29.03.2017
-
-Alain Johannes - Tom Clancy's Ghost Recon Wildlands (Original Game Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wildlands (04:05)
-02. Night Encounters (05:35)
-03. Koani Salt Flats (00:53)
-04. Hunting La Santera (03:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79558798C0DCE81A957B9DB8B8E6BE7C00FC698E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119634   (805375) от 29.03.2017
-
-Jon Ekstrand - Life / Живое (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to the ISS (04:32)
-02. It's Alive (03:55)
-03. Like a Bird (02:11)
-04. Care to Dance ? (01:39)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D531DFADDD45C76B22083D6713496A2E34820E6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119731   (805489) от 29.03.2017
-
-Jeff Russo - Legion / Легион (Original Television Series Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Young David (05:06)
-02. David in Clockworks (00:46)
-03. 174 Hours (08:47)
-04. Seeing Things Hearing Things (04:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A3DAB581C31C4FA1B1F9615EE2E45A7BCFB2EAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119641   (805494) от 29.03.2017
-
-Brian Tyler - Power Rangers / Могучие ренджеры (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Rangers Theme (04:22)
-02. Seek Those Who Are Worthy (02:50)
-03. Zordon Awakes (02:15)
-04. It's Morphing Time! (03:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB33A94814C5E4C37EB3D9875E028207CC010328
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119638   (805601) от 29.03.2017
-
-Brian Tyler - Power Rangers / Могучие ренджеры (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Rangers Theme (04:22)
-02. Seek Those Who Are Worthy (02:50)
-03. Zordon Awakes (02:15)
-04. It's Morphing Time! (03:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F9C04A6A67540C02A61C065B022397D055E72F1
 ```
 
 

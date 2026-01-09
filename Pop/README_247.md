@@ -1,3 +1,252 @@
+###  Публикация: 1134317   (687235) от 16.05.2017
+
+Женя Вилль - Моя красивая жизнь (2017) [TAK|Lossless|tracks] <Pop, Dance-Pop, Lyrics>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Моя красивая жизнь
+02 - Отрекись
+03 - Я люблю тебя, небо
+04 - Ветреная любовь(   Читать дальше...   )Жанр: Pop, Dance-Pop, LyricsПродолжительность: 00:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3961DBE396BBCD8392952DCAD840DF9060FC15E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134572   (687344) от 16.05.2017
+
+Оксо и Эспанцы - Полетели! (2017) [MP3|320 Kbps] <Art Pop, Chamber Pop, Acoustic>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Колёса
+02. Маяк
+03. Мосты
+04. Сан-Мигель(   Читать дальше...   )Жанр: Art Pop, Chamber Pop, AcousticПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196B67DE8B099BABAD76EACC220690D075C7834F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134516   (687349) от 16.05.2017
+
+VA - It's So Disco Vol 2 (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discotron - De La Disco (original mix) (04:47)
+02. Audio Jacker - Go With The Flow (original mix) (05:21)
+03. Daft Funk - Makes Sense To Me (original mix) (05:27)
+04. Discotron - 60 Seconds 4 Love (original mix) (05:51)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9445AEE6BC6016808E91B79FBA0EADCE3B2EE31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134656   (687433) от 16.05.2017
+
+VA - Beach Party 2 (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Black Pitch - Hard Bass 05:51
+02. Novacloud - Potion 05:11
+03. Olleo - Cyclone 05:43
+04. Josh Nor - Bulan 05:55(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBCEEDFECFEDFCD01F8DFF9B8125566A2834CD0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222370   (687488) от 28.04.2018
+
+T.J.M. - TJM (1979) Reissue CD, Big Break Records, 2011 [MP3|320 Kbps] <Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Need No Music (9:47)
+02. Put Yourself In My Place (9:17)
+03. Small Circle Of Friends (11:14)
+04. Am I Dreaming (8:14)Жанр: Funk-Soul, DiscoПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B4A3E7DF603E333D04357DFBC63CA2BA3BEFAC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222263   (687586) от 28.04.2018
+
+Folk & Røvere - Kaustisksoda (1998) Sonet Grammofon AS [MP3|320 Kbps] <Breaks, Trip Hop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тот самый случай, когда яблоко упало прямо под яблоней: Беате - дочь польского джазового скрипача Здзислава Леха и норвежской преподавательницы музыки. Родилась и выросла в Норвегии. Уже во время учёбы в университете Осло познакомилась с будущим мужем, музыкантом Мариусом Рексо. С ним они сначала учавствовали в группах "Insertcoin" и "Folk og Røvere", (   Читать дальше...   )01. Cowboy & Indianer 4:48
+02. Prozac 5:19
+03. Bris 5:48
+04. Banemesterkhan 3:52(   Читать дальше...   )Жанр: Breaks, Trip Hop, Synth-popПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69D28632F227545F70C7C7B819F00AA5F55D37CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506253   (687621) от 06.06.2012
+
+Umberto Tozzi - Grandes Exitos (2001) [FLAC|Lossless]<Italo-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Gloria (Version 2001)
+02.Tu (Version 2001)
+03.Te Amo
+04.Yo Caminare
+05.Claridad
+06.De Que Me Sirven Estas Manos
+07.Noche Rota
+08.Olvidate, Olvidate
+09.Dime Que No
+10.Donna Amante Mia(   Читать дальше...   )2001Жанр: Italo-popПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289184   (687734) от 15.03.2019
+
+Bonnie Tyler - Between The Earth And The Stars (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold On 3:18
+02. Battle Of The Sexes (with Rod Stewart) 3:47
+03. Slow Walk 3:13
+04. Seven Waves Away 3:45(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D680196EF0D5809C1372D9DF017C5EE26229DA46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289289   (688361) от 15.03.2019
+
+Sophie Ellis-Bextor - The Song Diaries (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groovejet (Orchestral Version) (3:20)
+02. Take Me Home (Orchestral Version) (4:23)
+03. Murder on the Dancefloor (Orchestral Version) (3:46)
+04. Move This Mountain (Orchestral Version) (4:47)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF442CEC6EF954ADC59A783358481CE38EE6D8F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289263   (688367) от 15.03.2019
 
 Patrick Norman - Sweet Sweet Lady (1978) LP [MP3|320 Kbps] <Disco>
@@ -455,249 +704,6 @@ IL - 2 Albums (2014, 2015) [MP3|320 кб/с] <nu-disco, disco house, french disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56265CB294504452EF84328AED323EC34242535D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028202   (690767) от 22.06.2016
-
-Евгений Осин - Птицы (1999) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Птицы-миражи
-02. Мечта
-03. Простите
-04. Живое море(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:127A31DDB70A4BE3BE0777BD0208E286C3FC41BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221879   (691253) от 26.04.2018
-
-Елена Темникова - TEMNIKOVA III: Не модные (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691253.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Не модные
-3. Не сдерживай меня
-4. Очень сильно(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6CDBA7D7ECE43A78EB630F56EFE87861880AC22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134055   (691289) от 14.05.2017
-
-VA - Русское счастье (Romantic Melodies) (2006) [TAK|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Павел Кашин - Московская Одиссея
-02 - Михей & Асман + Пицца - По волнам
-03 - Алёна Свиридова - В городе N
-04 - Гости из будущего - Разбить души твоей стёкла(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08763E3389DBA1BCBC74186129AAC5813A43B698
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134190   (691403) от 14.05.2017
-
-VA - Top Of The Spot 2017  [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine Dragons – Believer
-02. Lp – Lost on you
-03. The Strumbellas – Spirits
-04. Jake Bugg – Lightning bolt(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B82E221147725844F8FC333A7DF33812F59943
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134076   (691417) от 14.05.2017
-
-Кристиан Рэй & МФ3 - Жар (1997) [TAK|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - О-Э-О
-02 - Тихий вечер
-03 - Дикая кошка
-04 - Город(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F25FD970B7265ADA5F33E4F3CA3C37B8892615
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221710   (691452) от 26.04.2018
-
-French Kiss - Panic! (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Panic / Save Me (Suite) (8:37)
-02. We're the Right Combination / Right Combination (Suite) (9:01)
-03. You Got Me Groovin' (5:09)
-04. All Out of Tears / Lovin' Tears (Suite) (7:17)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71BE08B5028BB170048367F22C16DB5EB3DDC323
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134099   (691484) от 14.05.2017
-
-Olsson - Millions (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold On (feat. Mapei)
-02. Ça m'est égal (feat. Daniel Adams-Ray)
-03. This Heat
-04. Fool For Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3322A41A03DE35E64583A220857AF53528915CCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288788   (691838) от 13.03.2019
-
-Валерий Леонтьев - Я вернусь (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мы спасены
-02. Полуночный экспресс
-03. Орёл
-04. Я позабыл твоё лицо(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5EA59EDA882B65114186D28D5F002E3A6DBDF23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288775   (691961) от 13.03.2019
-
-VA - Venti Compilation 5 (2018) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Disco, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aleph - I'm on Fire (7:29)
-02. Robert Camero - Welcome Back (7:13)
-03. Max System - You Bring the Sun (6:04)
-04. Ryan Paris - Buona Sera Dolce Vita (feat. Mauro) (7:22)(   Читать дальше...   )Жанр: Italo-Disco, Disco, Hi NRGПродолжительность: 02:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:122A9D06FAD82069581046229E754D029FCB3F7B
 ```
 
 

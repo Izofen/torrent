@@ -1,3 +1,164 @@
+###  Публикация: 1134446   (687350) от 16.05.2017
+
+Seven24 & Soty - 6 Years (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Perfect Day (feat. R.I.B) (Original Mix)  4:45
+02.  Hope (feat. Jama) (Vocal Mix)  4:15
+03.  The Magic (feat. Natune) (Original Mix)  4:53
+04.  Miss You (Original Mix)  3:29(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F254FD82AD2C1D2496E4C7F5FFBF0C4F3CB2DA8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222182   (687359) от 28.04.2018
+
+Sigur Rós - Route One (2018) Ess Err [FLAC|Lossless|WEB-DL|tracks] <Abstract, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 63º32'43.7"N 19º43'46.3"W (2:23)
+02. 63º47'36.2"N 18º02'16.9"W (4:51)
+03. 64º02'44.1"N 16º10'48.5"W (4:57)
+04. 64º08'43.3"N 21º55'38.8"W (7:38)(   Читать дальше...   )Жанр: Abstract, AmbientПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E87C37EFBC813773BE60740745348EF8E0D057AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134733   (687443) от 16.05.2017
+
+Lifebloom - Satsang (2017) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Progressive Trance, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rest in Self (06:17)
+02. Universal Prayer (08:40)
+03. Satsang (06:34)Жанр: Psybient, Progressive Trance, DowntempoПродолжительность: 00:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A0D4EE2BE5A3374DE529526A9C74405CBC1B0F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134678   (687445) от 16.05.2017
+
+Soul Button - Master of My Fate (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Master of My Fate (Original Mix) (7:15)
+ 02. Secret Sense (Original Mix) (7:28)
+ 03. Illumine (Original Mix) (7:36)
+ 04. Paramour (Original Mix) (6:26)Жанр: Deep House, Tech HouseПродолжительность: 00:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B16C803800A254F57993C5BC0BF04CDB3143E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222295   (687482) от 28.04.2018
+
+Kuba - Animalia (2018) [MP3|320 Kbps] <Electronica, Psybient, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain In the Face (05:09)
+02. Whatever It Takes (05:57)
+03. By the Foot of Your Mountain (06:19)
+04. The Woman Who Made The Rain Come (05:39)(   Читать дальше...   )Жанр: Electronica, Psybient, ChilloutПродолжительность: 01:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427692139D5D425D47D82B3E23D678BE35AF169E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222266   (687487) от 28.04.2018
+
+VA - Workout Vol. 5 (2018) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivanshee - Eclipse  07:03
+02. Coffein - Detective  05:45
+03. Andrew MacTire - Insurrection  08:22
+04. Superidea - Ocean  02:57(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336C87A523DD8AF75F095AE1775560AC75042E40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222259   (687490) от 28.04.2018
 
 VA - Toxic Nights Sensual Jazz Tracks (2018) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -533,168 +694,6 @@ Halftribe - Luxia (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Field Recording
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B44D78E224EC4885AC97A8E5E3B1A695477B117
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134308   (688885) от 15.05.2017
-
-Armin Van Buuren - The Best Of Armin Only (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive Trance, Progressive House>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Overture (I Imagine)  2:26
-02.  Overture (II Mirage)  2:08
-03.  Overture (III Sail)  1:00
-04.  Overture (feat. Eric Vloeimans) (IV Embrace)  4:48(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 02:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E8B155742993F7CB5095A26B8AB891BE4FF8784
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222144   (689306) от 27.04.2018
-
-Tangerine Dream - Quantum Gate / Quantum Key (2018) Kscope [FLAC|Lossless|WEB-DL|tracks] <Ambient, Berlin-School>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sensing Elements (13:33)
-02. Roll the Seven Twice (6:25)
-03. Granular Blankets (5:03)
-04. It is Time to Leave When Everyone is Dancing (6:36)(   Читать дальше...   )Жанр: Ambient, Berlin-SchoolПродолжительность: 01:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F36B7F19E151B72620D75A022B1868D2F0AAAC48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221903   (689555) от 27.04.2018
-
-Hypnosis - Hypnosis (1991) Reissue, 2001, ZYX Music [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop, Space-Synth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Droid (5:47)
-02. Inesi (1:14)
-03. Windland (4:48)
-04. Argonauts (4:44)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Space-SynthПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:615B42EB07BE00DA253E1BB8D36EA848BBBF61A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221958   (689672) от 27.04.2018
-
-Goldmund - Occasus (2018) Western Vinyl [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before (03:25)
- 02. Above (02:36)
- 03. Bounded (03:10)
- 04. Breaking (03:06)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE614C2B775D777B9C44D9F08CA9A8D72ECBC058
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221956   (689675) от 27.04.2018
-
-1954 - A Part of Me (2018) Project: Mooncircle [FLAC|Lossless|WEB-DL|tracks] <Leftfield, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flowers of the Dead Man (03:09)
- 02. It Was Love (03:18)
- 03. Hermann's Dream (02:59)
- 04. Colored Lies (03:41)(   Читать дальше...   )Жанр: Leftfield, DowntempoПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99ABC9C7F4D421ADC959A7D3A69D2EC1D3934095
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221913   (689676) от 27.04.2018
-
-Sven Laux - Schachmatt (2018) Whitelabrecs [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kramnik (11:17)
- 02. Karjakin (05:15)
- 03. Carlsen (09:05)
- 04. Fisher (04:21)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37832F40AACF44BEC2D956AC48D0D999441AF567
 ```
 
 

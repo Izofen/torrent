@@ -1,3 +1,30 @@
+###  Публикация: 1126467   (765375) от 18.04.2017
+
+VA - I Love Music! - Gothic Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Gothic Metal, Doom Metal, Symphonic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765375.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Batalion d'Amour - Bez Nas 5:56
+002. Bitterfeldt - Eines Tages 8:47
+003. Bitterfeldt - Nordlicht 9:35
+004. Bliss In The Abyss - The Book Of Silence 7:16(   Читать дальше...   )Жанр: Gothic Metal, Doom Metal, Symphonic MetalПродолжительность: 08:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA455D1583DFC31737EB75AFA46392C33FF99116
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279591   (765394) от 30.01.2019
 
 VA - Paints Of The Soul: Pure Deep House (2019) [MP3|320 Kbps] <Deep, Chill House, Electro>
@@ -668,33 +695,6 @@ VA - Cryptic House I-XX [Compiled by Zebyte] (2016-2018) [MP3|320 Kbps] <House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76A7568EF5B529C80D30AC0C57A1B4A64500FD71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279496   (766118) от 29.01.2019
-
-VA - German Top 100 Single Charts 04.02.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766118.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mero - Hobby Hobby
-002. Ava Max - Sweet but Psycho
-003. Shindy - DODI
-004. Ariana Grande - 7 rings(   Читать дальше...   )Жанр: PopПродолжительность: 05:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A64A8887AFE9FD0175FD13FA1DF13A6F4EAE3AA
 ```
 
 

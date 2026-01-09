@@ -1,3 +1,30 @@
+###  Публикация: 1470913   (1015317) от 19.05.2021
+
+VA - Discohustle (2CD) (2021) [MP3|320 Kbps] <Disco House, Funky House, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микс, который слушается «на одном дыхании», без перемоток и перерывов, от начала и до конца! Лёгкие, стильные ритмы Disсо Hоusе вперемешку с элементами классического Eurоdisсо делают данную компиляцию приятной, не напрягающей уши и создающей позитивный, добрый фон для любых дел, чем бы вы ни занимались – работали, отдыхали или прогуливались в дождливую погоду по (   Читать дальше...   )CD 01:
+
+01. Hp Vince & Killed Kassette - Mirror Ball
+02. Orson Welsh - Who’s Got Ya Number(   Читать дальше...   )Жанр: Disco House, Funky House, Nu DiscoПродолжительность: 13:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23DEF2831B1F7F973C90ABED0F0480A406EF79E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470897   (1015318) от 19.05.2021
 
 VA - Watercolor Sound: Relax Chillout Music (2021) [MP3|320 Kbps] <Ambient, Downtempo, Chillout, Relax>
@@ -668,33 +695,6 @@ VA - Новинки Русских Ремиксов Май (2021) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CDC0F78744C3371E486623E2565C6D6B1B9E6F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468298   (1017202) от 07.05.2021
-
-VA - Soft Pop Hits 1 (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Arthur, Anne-Marie - Rewrite The Stars (3:38)
-02. Hozier - Take Me to Church (4:01)
-03. Avril Lavigne - Head Above Water (3:40)
-04. John Mayer - Waiting On the World to Change (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 04:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38DB1D9E0FF17DD47B1D52C68EA0DCA8EC06451F
 ```
 
 

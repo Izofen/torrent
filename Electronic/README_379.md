@@ -1,3 +1,165 @@
+###  Публикация: 1280832   (758637) от 04.02.2019
+
+VA - Armin Van Buuren - A State of Trance Episode 900 (Part 2) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ARTY – Save Me Tonight
+02. Above & Beyond ft. Marty Longstaff – Flying by Candlelight (Above & Beyond Club Mix)
+03. Estiva – Little Planet (Matt Fax Remix)
+04. Jason Ross ft. Dimibo – The Gorge(   Читать дальше...   )Жанр: TranceПродолжительность: 02:02:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE6B9220303E8BC8D81B3CB24ED68EBA1823742
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522438   (758652) от 07.01.2022
+
+David Guetta - Live @ New Year's Eve Livestream, Louvre Abu Dhabi, United Arab Emirates (2021-12-31) [MP3|320 Kbps] <Electro House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta & MORTEN - Soundstorm
+02. Fabrication - Hot Foot
+03. David Guetta ft. Sia - Titanium (David Guetta & MORTEN Future Rave Remix)
+04. Shouse - Love Tonight (David Guetta Remix)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 01:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70181225694513879225E93984FA66784836F89E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522453   (758656) от 07.01.2022
+
+Markus Schulz - Global DJ Broadcast New Year's Rehab (2022-01-06) [MP3|320 Kbps] <Progressive House, Trance, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nora En Pure - Aquatic
+02. French 79 - Diamond Veins (VER:WEST Remix)
+03. Corren Cavini featuring The Ultraverse - Close Enough
+04. Rexwake - Curve(   Читать дальше...   )Жанр: Progressive House, Trance, Deep HouseПродолжительность: 02:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DFCE5F6CAFE68F0BA52342B043E573E17305145
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280823   (758727) от 04.02.2019
+
+VA - Trans Emotional Bundle Winter-Edition (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angelica S presents Other Side - Echoes (Original Mix)
+02. Anyosel - Our Blue World (Original Mix)
+03. B O M I A - Blind (Original Mix)
+04. Calvin O'commor - Charm Of Love (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:402D29E40CA7E0F87E0ED035A36068AB6187DCA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280730   (758732) от 04.02.2019
+
+Freunde Der Technik - Maximal Minimal (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop, EBM>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grüß Dich (3:30)
+ 02. Ping Pong (4:44)
+ 03. Bitte Bitte Mit Zucker Oben Drauf (3:38)
+ 04. APM (4:53)(   Читать дальше...   )Жанр: Electronic, Synthpop, EBMПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5023688B70E05821D70740F68DB9D48BAE9B9572
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394917   (758744) от 08.07.2020
+
+Depeche Mode - Live Spirits Soundtrack (2020) [MP3|320 Kbps] <Alt.Rock, Synth Pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (02:31)
+ 02. Going Backwards (06:12)
+ 03. It's No Good (04:57)
+ 04. A Pain That I'm Used To (04:29)(   Читать дальше...   )Жанр: Alt.Rock, Synth PopПродолжительность: 01:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:586A39AE1E680DCF7DFF96C4ABC1FC9E0C0EE507
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394827   (759972) от 07.07.2020
 
 VA - Eclipse - A Journey Of Permanence & Impermanence (1998) Twisted Records [FLAC|Lossless|tracks+.cue] <Psychill, Dub, Tribal, Downtempo, Ambient>
@@ -533,168 +695,6 @@ VA - Ferry Corsten Presents Corsten's Countdown March (2018) [MP3|320 Kbps] <Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADC684EB14268E0A08D18C0EE49EEFBC8C49DAC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214884   (761811) от 24.03.2018
-
-VA - Infrasonic Miami (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Max Millian  -  You Are The One (Extended Mix)  6:38
-02.  Matthew Duncan & Jorza  -  Radiate (Extended Mix)  5:47
-03.  Milad E  -  Intension (Extended Mix)  6:14
-04.  SCHALA  -  Ice & Storm (Extended Mix)  5:37(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 01:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDF6B84DDE24FC0A71222211E6E905F38ED5DADC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214893   (761812) от 24.03.2018
-
-VA - Uplifting Trance Sessions Vol.06 (2018) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Albinoni & Alex Numark  -  Adagio (Original Mix)  6:41
-02.  Fright Nite  -  Back In Time (Original Mix)  2:58
-03.  Ciro Visone  -  Modern Storm (Original Mix)  7:10
-04.  Mat Coste  -  Flight 527 (Original Mix)  7:04(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CD52F700B6541A4D477FAFAE64801EAA6CC0A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214885   (761819) от 24.03.2018
-
-VA - Back To Love 03.02 (2002) [FLAC|Lossless|tracks] <House, Breakbeat, Hip-Hop, Garage House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Turntable Orchestra - You're Gonna Miss Me (Original Mix) (5:57)
-02.Victor Romero feat. Latrice Brown - Love Will Find A Way (4:24)
-03.Ann Consuelo - See The Day (Stonebridge Mix) (8:36)
-04.Aftershock - Slave To The Vibe (12' Club Mix) (8:00)(   Читать дальше...   )Жанр: House, Breakbeat, Hip-Hop, Garage HouseПродолжительность: 02:34:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78AC96E44990E50BD9052FD578245F4B175882B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522112   (761909) от 05.01.2022
-
-Johan Tronestam - Cosmic Steps (2021) [FLAC|Lossless|WEB-DL|tracks] <Berlin-School, Space Music>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leaving the Solar System (12:51)
-02. Interstellar Travel (10:50)
-03. Borderland (8:50)
-04. Habitable Zone (6:58)(   Читать дальше...   )Жанр: Berlin-School, Space MusicПродолжительность: 01:19:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D55AD726F597E83A04EB3B5C6074B03418D3E7B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522083   (761915) от 05.01.2022
-
-Riccicomoto - Huge Distances (2021) LP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Dub Techno, Minimal, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interception (Prelude) (6:58)
- 02. The Inner Perception (ft. Gustavo Varela) (6:43)
- 03. Huge Distances (E-Dub Session) (8:05)
- 04. 20thousand Miles (7:43)(   Читать дальше...   )Жанр: Deep House, Dub Techno, Minimal, AmbientПродолжительность: 04:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0DD204DBE217A90BB5540B99A44222187E0E826
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522110   (761920) от 05.01.2022
-
-Johan Tronestam - Luther (2017) [FLAC|Lossless|WEB-DL|tracks] <Berlin-School, Space Music>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chosen (8:13)
-02. Bad Feelings (8:42)
-03. To Rome (7:48)
-04. Come Closer (8:33)(   Читать дальше...   )Жанр: Berlin-School, Space MusicПродолжительность: 01:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:108B2C11D80B8E30314263848A4BA64C13D319C5
 ```
 
 

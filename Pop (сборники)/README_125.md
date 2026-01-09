@@ -1,3 +1,36 @@
+###  Публикация: 605974   (995236) от 21.01.2013
+
+VA - Зажигательная вечеринка. Зимний выпуск. Зарубежная версия (2013) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995236.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alyanna - Fiesta
+ 002. Sandra - Russian Eyes
+ 003. Drei Ros Feat. Diedra - Crazy
+ 004. Chris Brown - Don't Judge Me
+ 005. Chris Brown - 4 Years Old
+ 006. Cheryl Cole - I Like It
+ 007. Sandra - Sand Heart
+ 008. Little Mix - Going Nowhere
+ 009. Nelly Furtado - Parking Lot
+ 010. Justin Bieber Feat. Far East Movement - Live My Life(   Читать дальше...   )Жанр: PopПродолжительность: 06:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FEA1ED236324380DE294BE750084AC6D5C38DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605226   (995863) от 19.01.2013
 
 VA - Шевели Попой 3 (Зарубежный выпуск) (2013) [MP3|128 кб/с]<Pop>
@@ -803,33 +836,6 @@ VA - German Top 100 Single Charts 10.01.2020 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A5FFF4E5DF4CBE4A8EDAC305B812E154627418A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351111   (1002663) от 08.01.2020
-
-VA - The Best Caucasian Hits (Presents Elgujakviso) (2019) [MP3|320 Kbps] <Dance, Pop, Lyric>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Mamikon - Ты и Я
-02 Ирина Алишихова - Золотой
-03 Камила Мурсалова - Жду Тебя
-04 Даниял Алиев - Миражи(   Читать дальше...   )Жанр: Dance, Pop, LyricПродолжительность: 01:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:980F887C24C56DD097AC75D703344133D18AE4B2
 ```
 
 

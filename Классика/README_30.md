@@ -1,3 +1,57 @@
+###  Публикация: 1036896   (617063) от 22.07.2016
+
+Barry Wordsworth & Capella Istropolitana - Mozart: Overtures (1988) Naxos, 1989 [APE|Lossless|image + .cue] <Classical, Orchestral>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apollo Et Hyacinthus K.38    03:11
+02. Bastien und Bastienne K.50    02:04
+03. Mitridate, re di Ponto K.87, Allegro    02:16
+04. Mitridate, re di Ponto K.87, Andante Grazioso    01:58(   Читать дальше...   )Жанр: Classical, OrchestralПродолжительность: 01:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BFBC1DF51D597A24C3E6589E7AFB97EF9779416
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911471   (617679) от 22.06.2015
+
+Johann Sebastian Bach - Cafe Zimmermann vol. I-VI, autentic, 6CD (2001-2011) [WavPack|ISO.wv]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский ансамбль старинной музыки, основан в 1998 году, во Франции (France). Скрипачем и концертмейстером Пабло Валетти, аргентинцем по происхождению, и французской исполнительницей на клавесине - Селин Фриш.01. Ouverture No. 4 en Re Majeur, BWV 1069; I. Ouverture (11:12)
+02. II. Bourree I & II (02:56)
+03. III. Gavotte (01:46)
+04. IV. Menuet I & II (03:21)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 06:17:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA7624B01555F7F4E1B58453BACB5152413415D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523107   (618536) от 15.07.2012
 
 Antonio Vivaldi - Shades of Red - Concertos & Sonatas for Recoder & Strings - Matthias Maute, Rebel / Jorg-Michel Schwarz (2005) [FLAC|Lossless]<Classical, Chamber Music,  Concert, Symph ...
@@ -162,6 +216,39 @@ Johann Sebastian Bach - The 6 Motets: Nikolaus Harnoncourt (1989) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91D5CF54A45E9AA7714777040B2767BFE4F92E42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521904   (624670) от 12.07.2012
+
+VA - Guitar Moments : Cavatina And Other Classical Guitar Favourites (2004) [FLAC|Lossless]<Classical Guitare, Instrimental>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_624670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norbert Kraft - {Myers} Cavatina [03:31]
+02. Den Danske Guitarduo - {Peterson-Berger} Till Rosorna From Frosoblomster, Book 1, Op. 16 [03:01]
+03. Norbert Kraft - {Tarrega} Recuerdos De La Alhambra [04:14]
+04. Graham Anthony Devine - {Pernambuco} Sons De Carilhхes [02:26]
+05. Den Danske Guitarduo - {Sibelius} Berceuse, Op. 40, No. 5 [01:35]
+06. Norbert Kraft - {Barrios Mangore} Julia Florida [04:17]
+07. Wilma van Berkel & Robert Kubica - {Sor} – Allegretto From Souvenir De Russie, Op. 63 [02:56]
+08. Den Danske Guitarduo - {Grieg} Bеdnlеt, Op. 68, No. 5 [03:29]
+09. Den Danske Guitarduo - {Nielsen} Folketone From Fem Stykker, Op. 3 [02:18]
+10. Norbert Kraft with Northern Chamber Orchestra - {Rodrigo} Adagio From Concertio De Aranjuez [10:26](   Читать дальше...   )Жанр: Classical Guitare, InstrimentalФормат: CDПродолжительность: 01:04:29
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -637,94 +724,6 @@ André Rieu - Dreaming (2002) [FLAC|Lossless]<Classic, Instrumental>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292775   (642932) от 31.03.2019
-
-Fabio Fabor - Strings And... (2019) [MP3|320 Kbps] <Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Souplesse
-02. Turbamento
-03. Frase d'Eros
-04. Valzer spirale(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71451A78C4871B930797C60470B2D07FA8F30C8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032799   (643453) от 08.07.2016
-
-VA - Dark Side Of The Classical Music (2011) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему составители посчитали этот сборник темной стороной классической музыки для меня до сих пор осталось загадкой. В своё время он привлёк моё внимание именно схожестью названия с известным диском Пинков. Да и сами диски назывались необычно: классический хэвви металл, классический дефф металл, классический спеед металл... Купил. Послушал.
-Никогда еще я не встречал (   Читать дальше...   )CD1 - Classical Heavy Metal
-01. Richard Strauss - Also spracht Zarathustra, Op. 30 - Introduction  (1:51)
-02. Richard Wagner - Die Walkure - Ride Of The Valkyries  (5:24)
-03. Beethoven - Symphony No. 5 in C minor, Op. 67 -Allegro con brio  (6:54)(   Читать дальше...   )Производство: Naxos – 8.503252FINЖанр: ClassicalПродолжительность: 03:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D2459DF656BB441FB0C8A07B0D99236D076539
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517350   (647280) от 01.07.2012
-
-Mirusia - Always and Forever (2010) [FLAC|Lossless]<Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schubert: Ave Maria   [04:45]
-02. R. M. Sherman, R. B. Sherman: Feed the birds (from Mary Poppins) [02:57]
-03. F. Pascal: Botany Bay [04:05]
-04. Saint-Preux: Concerto pour une voix [03:37]
-05. Grieg: Solveig's Song (from Peer Gynt) [04:03]
-06. Mozart: Porgi Amor (from Le Nozze di Figaro) [04:30]
-07. G. B. Martini: Plaisir d'amour (duet met Monarcha Carmen) [04:32]
-08. Franck: Panis Angelicus [04:13]
-09. F. Schröder: Dancing through the skies [03:14]
-10. A.L. Webber: Memory (from Cats) [03:54](   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA435659C4A7F950949878D196D2BCF9219D9BC6
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1291245   (670577) от 24.03.2019
+
+VA - Top 50 Official Dance Charts 22.03.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Niels Van Gogh - Pulverturm (Tiësto's Big Room Remix)
+02. Calvin Harris - Giant
+03. David Guetta - Better When You're Gone
+04. Rüfüs du sol - Treat You Better (Purple Disco Machine Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302E0CE8D76CE25856AC8AFF41BE75ED48F337C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536953   (670590) от 14.03.2022
 
 VA - 90's One Hit Wonders (2022) [MP3|320 Kbps] <Pop, Dance, Rock>
@@ -690,33 +717,6 @@ VA - German Top 50 Official Dance Charts 04.05.2018 (2018) [MP3|320 Kbps] <Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C00900EBC7100D4EABA370C6F9DD53FB9DEBFF4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291138   (672135) от 23.03.2019
-
-VA - Rock Drive 6  (2019) 4CD, от DON Music[MP3|320 Kbps] <Rock, Hard Rock, Heavy Metal, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672135.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Jan Lindqvist - Tonight
-02. Gathering Of Kings - The Gathering+Forever & A Day(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy Metal, Blues RockПродолжительность: 04:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2905B7C6D2CE8BB1FCC7D0F82C17F0078B76FA84
 ```
 
 

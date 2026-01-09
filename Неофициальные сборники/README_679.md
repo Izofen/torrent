@@ -1,3 +1,30 @@
+###  Публикация: 1444789   (1034231) от 03.02.2021
+
+VA - Intensity: Trance Compilation (2021) [MP3|320 Kbps] <Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторы сборника "Intensity" объединили свои силы, чтобы достичь нового уровня "Интенсивности", так называется представляемый Вашему вниманию новый транс-сборник, с мощными психоделическими звуками и массивной ударной базой, где нет места милосердию и сладкой лирике.001. Salvatore Mascaro - Isabel
+002. Indecent Noise - Pictures Of A Gallery
+003. Above & Beyond - On My Way To Heaven
+004. Vyacheslav Sketch - New Life(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 08:20:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D7D5719385DA47E3935A59464320C08BA16BEF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444546   (1034338) от 02.02.2021
 
 VA - CarMusic for lady (2021) [MP3|320 Kbps] <Pop, House, Other>
@@ -668,33 +695,6 @@ VA - Beatport Electro House: Sound Pack #231 (2021) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B64F3559A86A354EDDC4247649BC58014017E08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443360   (1035771) от 28.01.2021
-
-VA - Beatport Hardstyle: Electro Sound Pack #228 (2021) [MP3|320 Kbps] <Hard Dance, Hardcore, Hardstyle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практически все треки 228-го релиза от Beatport преисполнены бешенными темпами и скоростными семплами, от чего лонгплей превосходно покажет себя на разных клубных площадках. Большое количество электроники наполняет все свободное пространство, тем самым делая музыку прогрессивной и заводной. Надо отметить, что композиции имеют прогрессивный звук, качественные аранжировки, (   Читать дальше...   )001. Xense - Welcome To My World
-002. Nuk3Dom - Goin' Down
-003. Adam Frantic - Colour Of Sound
-004. Audio Damage - Stand Up(   Читать дальше...   )Жанр: Hard Dance, Hardcore, HardstyleПродолжительность: 08:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F0F3FE4B3FEF7B2A1F4D68B93897D0C4EDBCB31
 ```
 
 

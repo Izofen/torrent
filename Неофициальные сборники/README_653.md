@@ -1,3 +1,30 @@
+###  Публикация: 1350464   (1002931) от 07.01.2020
+
+VA - Chill Cristmas Lounge (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002931.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Svendaq - Audience Loops
+002. Maximilien - Crazy Vocoding
+003. Too Ugly - Shootouts
+004. Mofobeatz - Swisong(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:25:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E096247D699A82672710D4A5B912A1AEFE2DF81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350500   (1002944) от 07.01.2020
 
 VA - Amaranth: Deep House Electro Mix (2020) [MP3|320 Kbps] <Deep House>
@@ -668,33 +695,6 @@ Genesis - Greatest Hits (2020) 2CD [MP3|320 Kbps] <Rock, Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B198FCCDA17E601EA49500050DACA4542F9F107
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350005   (1003723) от 04.01.2020
-
-The Kelly Family - We Are The World (2019) Compilation [MP3|320 Kbps] <Pop, Rock, Folk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Why Why
-02. Father's Nose
-03. Cover The Road
-04. Let My People Go(   Читать дальше...   )Жанр: Pop, Rock, FolkПродолжительность: 01:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28FE8058F1A7C61F50743FE5CC4592D77A2C3C54
 ```
 
 

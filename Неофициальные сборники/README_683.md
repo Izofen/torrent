@@ -1,3 +1,30 @@
+###  Публикация: 1439561   (1039560) от 14.01.2021
+
+VA - Beatport Deep House: Electro Sound Pack #220 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Январский 220-й выпуск европейского мегамикса от Beatport будет радовать своих слушателей новыми композициями от самых известных и популярных исполнителей. Лонгплей представит слушателю подборку из 130 треков электронной музыки в стиле Deep House.001. Raw Main - Garden Of Eden
+002. Local F - Bold Cruisin
+003. Invert Of Playground - Drooling Diablo
+004. Daniel Grant - My Perfect Match(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:33:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FB48D79A84BE286FF1771A111AFDAF76A8EF241
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613121   (1039585) от 18.02.2023
 
 VA - Музыка для машины Vol.9 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -668,33 +695,6 @@ VA - Top Female Artists of 2020 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:477A98FC1E45A03B995EB1CFAAFF6D1F6F6B676A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611945   (1040787) от 13.02.2023
-
-VA - I'm Listening Now 3 (2023) [MP3|320 Kbps] <Club, House, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040787.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ELI & DANI, Adam Sellouk feat. Luke Coulson - Restless (6:42)
-002. MIDIN - Ультрачувства (3:01)
-003. Miki Mouse,Krocodile - Today Snow (Original Mix) (3:46)
-004. Olsein feat. Sofia Lecubarri - Lullaby Stranger (AFX & Hypercode Remix) (4:27)(   Читать дальше...   )Жанр: Club, House, OtherПродолжительность: 09:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BCA715D955B860D61086C303A38273FCF13F5CE
 ```
 
 

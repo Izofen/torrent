@@ -1,3 +1,165 @@
+###  Публикация: 1205991   (782962) от 12.02.2018
+
+VA - Nujazzvides (2018) [MP3|320 Kbps] <Lounge, Chillout, Nu-Jazz>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bajka  -  The Hunting (Club Des Belugas Remix)  4:03
+02.  Living Room  -  Liquid Jazz (Original Mix)  3:11
+03.  Cube  -  Power Of Your Love (Original Mix)  10:00
+04.  Weathertunes  -  The New Jazz Five (Original Mix)  4:12(   Читать дальше...   )Жанр: Lounge, Chillout, Nu-JazzПродолжительность: 01:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A363C50834A9FDDE54D09A37E6F91086FA36FF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205806   (782981) от 12.02.2018
+
+VA - Bigroom Miami Smasher Vol.3 (2018) [MP3|320 Kbps] <House, Big Room, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blaster Maxter  -  Armageddon (Original Mix)  5:47
+02.  Bassjunx  -  Carnival (Original Mix)  5:07
+03.  Leopardgecko  -  Yogurt (Original Mix)  6:01
+04.  DoranSilver  -  Portal (Original Mix)  4:00(   Читать дальше...   )Жанр: House, Big Room, ClubПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4570314F2788782296FBBF87E557E232ED5A30DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205544   (782982) от 12.02.2018
+
+VA - Hed Kandi (A Taste Of Kandi Summer 2009) (2009) [FLAC|Lossless|tracks] <Progressive House, House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Warren Clarke & Tara McDonald - Love Crazy (Triple D remix) (6:59)
+02.Disco International - Ready 4 More (feat Miss Lynsey) (5:06)
+03.No Halo - What Is This Feeling (7:43)
+04.Wawa & Herd - The Right Way (feat Amanda Wilson - Triple D remix) (6:39)(   Читать дальше...   )Жанр: Progressive House, House, ElectroПродолжительность: 02:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FC94836FD04633B0C66997E25B353F6EF304C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205552   (782983) от 12.02.2018
+
+VA - A Taste Of Kandi Winter (2010) [FLAC|Lossless|tracks] <House, Disco, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.DJ Neo - Groove With You (feat Soraya Vivian - Soulgangsters Groove dub) (6:33)
+02.Jonni Black - I'm Over This (feat Lauren Rose) (7:18)
+03.Steven Quarre & Morris Mavado - The Reason (feat Stanford) (7:01)
+04.Sosua & Mad - Supaconstellation (7:32)(   Читать дальше...   )Жанр: House, Disco, ElectroПродолжительность: 02:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C4F7169F015BB80AAD231B042EB3E1CA9E53A18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205960   (782984) от 12.02.2018
+
+VA - Deep Booty House Vol.1 (2018) [MP3|320 Kbps] <Future House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Archion – Don’t Lose Control (Instrumental Mix) 3:25
+02. Betamine – Eyes (Original Mix) 3:31
+03. Deepoow – Yep (Original Mix) 6:07
+04. Dimix – State Of Mind (Vocal Mix) (Feat. Taylor William) 4:19(   Читать дальше...   )Жанр: Future HouseПродолжительность: 01:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7F99141E76FD498D6D94F908B07C41D7071AF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390435   (783046) от 15.06.2020
+
+Talamasca - The Experiment (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783046.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Experiment (7:36)
+2. Talamasca; Iván Castro - Anything To Feel Alive (8:17)
+3. Lady Sweet Dream (9:15)
+4. Another Sucker Down (8:03)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC19C9026D98CDDBAB70FBB2617F9BC76BC3F6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390488   (783065) от 15.06.2020
 
 VA - Sea Cruising Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -533,168 +695,6 @@ VA - A New Year Of Vocal House Vol.2 (2018) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8735BD6445F018E10262A1079B42F78C83ED16F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204975   (783510) от 10.02.2018
-
-VA - Nothing But... Total Trance Selections Vol.01 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  IF  -  Classic Universe (Radio Edit)  4:38
-02.  Steve Allen & Patrick Dreama  -  Sensei (Extended Mix)  5:49
-03.  First Sight  -  Tailspin (Extended Mix)  6:17
-04.  DJ Deraven  -  My Soul Cries (Original Mix)  7:28(   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1930B33CD55C56C9B8E2B4FD4C70F9A8EB85E81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205521   (783517) от 10.02.2018
-
-Sasha Malkovich - Practical Levitation (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Practical Levitation 12:58
-02. Erleuchtete Wahrnehmungen 18:50
-03. Sensitive Dub 15:00
-04. White Smoke 09:04(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44971BF2429BA315652632AC281EA168FC138077
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205452   (783519) от 10.02.2018
-
-Don Diablo - Future (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Back To Us (feat. Waters)  3:00
-02.  Everybody's Somebody (feat. Bully Songs)  3:18
-03.  Put It On For Me (feat. Nina Nesbitt)  3:23
-04.  Give Me Love (feat. Calum Scott)  3:28(   Читать дальше...   )Жанр: HouseПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB2FE9EF3B2F88DA2FA1C48892B3561C08B51DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205191   (783524) от 10.02.2018
-
-David Vendetta - Rendez-Vous (2008) 2CD, Limited Edition [FLAC|Lossless|image + .cue] <Progressive House, House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unidos Para La Musica (Cosa Nostra Mix) feat. Akram
-02. Break 4 Love vs. Keith Thompson
-03. Love To Love You Baby
-04. Be The Best feat. Audrey Valorzi(   Читать дальше...   )Жанр: Progressive House, House, ElectroПродолжительность: 02:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7F499A0D0EF2BB5D5DB51804D0C8E2BD8BCC53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205467   (783533) от 10.02.2018
-
-VA - Nothing But... Progressive Selections Vol.01 (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Betelgeuze  -  Dream (Extented Version)  8:38
-02.  Andy Forbes  -  In Search Of Eternal Happiness (Extended Mix)  6:27
-03.  Dax & Atragun  -  Electropulse (Donald Wilborn's Eighties Edit)  3:36
-04.  Ivan Khurtin  -  Eva (Extended Mix)  7:09(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59A37CAE8726E083043B4471F30AED9331C3D481
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205202   (783539) от 10.02.2018
-
-David Vendetta - Rendez-Vous (2008) 2CD, Limited Edition [MP3|320 Kbps] <Progressive House, Euro-House, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Vendetta feat. Akram - Unidos Para La Musica (Cosa Nostra Mix)
-02. David Vendetta vs. Keith Thompson - Break 4 Love
-03. David Vendetta - Love To Love You Baby
-04. David Vendetta feat. Audrey Valorzi - Be The Best(   Читать дальше...   )Жанр: Progressive House, Euro-House, ElectroПродолжительность: 02:31:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DEA98CA537910754C9AF1323C70F5A80DD36840
 ```
 
 

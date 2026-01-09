@@ -1,3 +1,323 @@
+###  Публикация: 284905   (933643) от 22.01.2011
+
+VA - Рапунцель: Запутанная история / Tangled (2010) [MP3|192-320 kbps]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: OSTПродолжительность: 00:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D336CA46544616EB2C77BC9C29F6C071A0C33E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628968   (933657) от 12.03.2013
+
+Cliff Martinez - Solaris (2002) [MP3|192 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+[02:48] 01.Is That What Everybody Else Wants
+[02:52] 02.First Sleep
+[01:44] 03.Can I Sit Next To You
+[05:00] 04.Will She Come Back
+[02:09] 05.Death Shall Have Nno Dominion
+[03:50] 06.maybe you're my puppet
+[03:34] 07.Don't Blow It
+[10:51] 08.hi energy proton accelerator
+[03:10] 09.Wear Your Seat Belt
+[04:33] 10.wormhole(   Читать дальше...   )Жанр: OSTПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AAD1EAEA8C05CA0C7314A9E0AD01BDD1C8DAC39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 285039   (933783) от 22.01.2011
+
+VA - Swing Accordion (2008) [MP3|320 kbps]<Swing>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Clifton Chenier - Bogalusa boogie
+02. Clifton Chenier - Choo choo ch-boogie
+03. Bruno Lorenzoni - Cool en cadence
+04. Clifton Chenier - Cotton-Picker blues
+05. Roland Cedermark - Creol jazz
+06. Richard Galliano - Fou rire
+07. Jan Holland - Guter mound du gehst so stille
+08. Борис Тихонов - Интермеццо
+09. Hector Delfosse - Joyeux accordeoniste
+10. Raul Barboza, Daniel Colin - Moulin a cafe(   Читать дальше...   )Жанр: SwingПродолжительность: 01:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7018CAB04AE30258EE7F976089E652EA9028325
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093165   (933897) от 15.01.2017
+
+Chinmaya Dunster - Gaia's Garden (2017) [MP3|320 Kbps] <World, Instrumental, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocean Emotions
+02. Rainstorm
+03. Blessing from the Ancient Trees
+04. Springing from the Mountains(   Читать дальше...   )Жанр: World, Instrumental, New AgeПродолжительность: 00:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B1FA8F73C60A24305308C1D5FA7A3671233E99F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984916   (934092) от 12.02.2016
+
+VA - Lo Mejor Del Folklore Canario (2008) [FLAC|Lossless|tracks + .cue] <Folklore, Latino>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tasaigo - Coplas Pal Vino (4:50)
+02. Los Sabandenos - Tanganillo de Estevanez (2:11)
+03. Tasaigo - Andres (3:00)
+04. Achaman - Polca Envenenada (5:33)(   Читать дальше...   )Жанр: Folklore, LatinoПродолжительность: 01:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B6C8A1DB9AC02A9D5A4457E816BB4A5F17F5A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 233622   (934182) от 20.01.2015
+
+Prem Joshua - 18 альбомов (1991 - 2014) [MP3|160-320 kbps]<World, New age, Ethnic, Fusion>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+
+2014 - Kashi. Songs From the India Within (with Chintan) --- добавлен 18.01.2015
+2010 - Luminous Secrets (with Band)
+2008 - In Concert (with Band)
+2006 - Taranga
+2006 - Ahir (with Chintan)
+2005 - Yatri - Mystics of Sound
+2003 - Water Down the Ganges (with Manish Vyas)
+2003 - Shiva Moon (Remixed by Maneesh De Moor)(   Читать дальше...   )Жанр: World, New age, Ethnic, FusionПродолжительность: 17:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB1091317CB88BBEEE2A7B584D1820F8A1A6DD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 658275   (934484) от 20.01.2015
+
+Timothy Wenzel - 4 альбома (2011-2014) [MP3|320 кб/с]<New age, Relax, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+
+2011 - A Coalescence of Dreams
+2012 - Mountains Take Wing
+2013 - River Serene
+2014 - Summon The Wind - добавлен 18.01.2015Жанр: New age, Relax, CelticПродолжительность: 03:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38509A32A7EE3FC48ACA66F2F470AC8882E11C13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 860903   (934637) от 20.01.2015
+
+The Secret Sisters - Put Your Needle Down (2014) [FLAC|Lossless]<Country, Pop-Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Rattle My Bones - 03:41
+02. Iuka - 04:42
+03. Dirty Lie - 02:55
+04. The Pocket Knife - 04:34
+05. Let There Be Lonely - 03:10
+06. Black And Blue - 03:31
+07. Lonely Island - 02:32
+08. I Cannot Find A Way - 03:13
+09. If I Don't - 03:53
+10. Good Luck, Good Night, Goodbye - 03:34(   Читать дальше...   )Жанр: Country, Pop-RockПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B3A3D62C4527E359E7ECC852DB3BE2283F0F209
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 176555   (934721) от 18.02.2010
+
+Lawerence Fritts - Blues Backing Tracks (2006) [MP3|192 kbps]<Blues>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Blues
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 861140   (934758) от 20.01.2015
+
+Samaya - Loka Samasta (2015) [MP3|320 кб/с]<New age, Mantras, Vocal>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(03:23) 01. Sarva Mangala Mangalye
+(02:52) 02. Saishvaraya Vidmahe
+(05:46) 03. Om Sri Jesuse
+(05:02) 04. Om Sri Durgaye Namaha
+(04:33) 05. Om Shreem Hreem Kleem
+(04:42) 06. Om Kaaram Bindu
+(04:02) 07. Oh Sweetest Lord Sai
+(02:39) 08. Oh Mata
+(04:09) 09. Oh Ma
+(05:57) 10. Loka Samasta(   Читать дальше...   )Жанр: New age, Mantras, VocalПродолжительность: 01:00:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81299435CC0FE4B4CB4DE81FB3F69A15E6032B73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 753899   (934759) от 06.02.2014
+
+Move D - The Silent Orbiter (2014) [FLAC|Lossless]<Ambient, Experimental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. The Silent Orbiter (54:06)Жанр: Ambient, ExperimentalПродолжительность: 00:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFFD7E156CD4E2F12DC543B06FC0C08FC5408316
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 861136   (934778) от 20.01.2015
 
 Seda Bagcan - Sunrise (2014) [MP3|320 кб/с]<New age, Mantras, Vocal>
@@ -441,319 +761,6 @@ Celtic Woman - Celebration (2020) [MP3|320 Kbps] <Celtic, New age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5946B06C6FB016DD528D1E1EE47F7AA5EAEFD66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364323   (936259) от 03.03.2020
-
-Felix Slovacek - Classic Essential (1994) [FLAC|Lossless|tracks + .cue] <Classic, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C. Debussy - Svit luny
-02. P. I. Cajkovskij - Andante
-03. C. Saint-Saens - Samson a Dalia
-04. S. Rachmaninov - Vokalisa(   Читать дальше...   )Жанр: Classic, InstrumentalПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C54821FD953F43F04CBF6948634E04BE4829BEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753425   (936268) от 05.02.2014
-
-VA - Magic Accordeon (2010) [FLAC|Lossless]<Instrumental, Accordion>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Be My Lover 	(03:01)
-02. Malaika 		(03:24)
-03. Romance 		(04:45)
-04. St.Tropez 		(03:31)
-05. Silent Breeze 	(04:45)
-06. Balaleika 		(04:09)
-07. Tornero 		(03:42)
-08. Magic Melody	(05:40)
-09. Summerwind 		(03:37)
-10. Barbados 		(03:27)(   Читать дальше...   )Жанр: Instrumental, AccordionПродолжительность: 00:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6057FF4BC12B680B090118F5272674E4F9D9769
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364289   (936309) от 03.03.2020
-
-Felix Slovacek - World Melodies (2014) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh Mio Babbino Caro
-02. Una Furtiva Lagrima
-03. Barcarolla
-04. Ave Maria(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89DE0960F1906C5E4336943345A2F619C708DC11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753756   (936331) от 05.02.2014
-
-VA - Sax For Lovers. Romantic Melodies (2004) [MP3|320 кб/с]<Instrumental, Saxophone>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 Unchained Meldody (composer North/Zaret) 		(03:30)
-02 I Will Always Love You (composer Parton)		(04:08)
-03 Songbird (composer Gorelik)				(03:26)
-04 Careless Whisper (composer Michael/Ridgeley)		(04:15)
-05 Me And Mrs Jones (composer Gamble/Huff/Gilbert)	(03:09)
-06 Your Love Is King (composer Adu/Matthewman)		(03:17)
-07 Baker Street (composer Rafferty)			(04:37)
-08 Bridge Over Troubled Water (composer Simon)		(04:43)
-09 Sexual Healing (composer Brown)			(03:39)
-10 Without You (composer Ham/Evans)			(03:07)(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7D53C9C92F9F16CF2635B5F32AA13D009066429
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364472   (936391) от 03.03.2020
-
-Max Arnald - Piano Covers (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Use Somebody (Piano Instrumental) (4:04)
- 02. Firework (Piano Instrumental) (4:20)
- 03. Fix You (4:11)
- 04. Thinking Out Loud (Piano Instrumental) (3:26)(   Читать дальше...   )Жанр: New Age, Modern Classical, Piano, RelaxationПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB2DA294991813E5999D5DE705A26CE5B74BEF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364291   (936399) от 03.03.2020
-
-Felix Slovacek - Con amore (1998) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run To You
-02. Con amore
-03. Tell Him
-04. My Heart Will Go On(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37A02CC919E7CD474F332A53F534F4727F505C96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753404   (936465) от 05.02.2014
-
-Kristopher Carter, Michael McCuistion, Lolita Ritmanis and Shirley Walker - Супермен / Superman: The Animated Series (2014 (1996-2000)) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ScoreПродолжительность: 05:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED81E3D0FC3F0D130FB498BF67C75602C6ADC0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753771   (936765) от 05.02.2014
-
-Ravi Shankar - The Master (3CD Box Set) (2010) [MP3|320 кб/с]<Ethnic, World>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(08:40) 1. Padhasapa
-(04:59) 2. Kaharwa
-(10:46) 3. Improvisation on the Theme of ''Rokudan''
-(07:59) 4. Namah Shivaya
-(13:20) 5. Tribute to Nippon
-(23:35) 6. Raga Hemant (Homage to Baba Allauddin)Жанр: Ethnic, WorldПродолжительность: 01:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02C436D27DA03E0FF63C1B8A0D71B71FD2626C06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284336   (936829) от 19.01.2011
-
-Пелагея - Сибирский драйв (Live) (2009) [FLAC|Lossless]<Rock, Folk Rock, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock, Folk Rock, FolkПродолжительность: 01:03:22
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753510   (936891) от 05.02.2014
-
-Richard Ginns - In Float (2014) [FLAC|Lossless]<Ambient, Sound Art>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. A Wave, a Beginning (08:04)
- 02. Curves on the Surface (07:18)
- 03. Flutter (04:16)
- 04. Gradually Falling (06:42)
- 05. atsands (06:02)
- 06. Gentle Resolve (09:24)Жанр: Ambient, Sound ArtПродолжительность: 00:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96DFA7F8C8E9F31C96DD33863076A167A8677A2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628271   (936921) от 10.03.2013
-
-Jason Graves - Tomb Raider 2013 (2013) [MP3|128-320 кб/с]<Score, OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.Adventure Found Me
-02.The Scavenger's Den
-03.Exploring the Island
-04.First Blood
-05.Reaching Roth
-06.Infiltrating the Bunker
-07.A Call For Help
-08.Entering Himiko's Tomb
-09.The Descent
-10.The One(   Читать дальше...   )Жанр: Score, OSTПродолжительность: 01:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C59C70AB5E76A3C0387EA07E4EE87A473244CC
 ```
 
 

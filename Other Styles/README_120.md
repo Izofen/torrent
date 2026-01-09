@@ -1,3 +1,299 @@
+###  Публикация: 1024500   (717916) от 08.06.2016
+
+VA - Deadpool Reloaded / Дэдпул (More Music from the Motion Picture) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teamheadkick - Merc with a Mouth (03:47)
+02. Junkie XL - Fear the T-Rex (02:55)
+03. Junkie XL - Because I Want To (01:01)
+04. The Chordettes - Mister Sandman (02:22)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0882EFB38857A41C2527E4357123E542D32748BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024302   (718142) от 08.06.2016
+
+Ryuichi Sakamoto, Alva Noto, Bryce Dessner - Выживший / The Revenant (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Revenant Main Theme (02:41)
+02. Hawk Punished (02:14)
+03. Carrying Glass (03:07)
+04. First Dream (03:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9649590417B07F47C6DE54738E2BF645B9DE4111
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 791181   (718325) от 29.05.2014
+
+Инверсия - Под горою диво + 2 EP (2010-2014) [MP3|128-320 кб/с]<Folk, Punk-rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инверсия – это синтез панк-рока и  аутентичных русских народных песен. Это мощь и глубина древних напевов и драйв захватывающей энергетики современности. Это завораживающий саунд фольк-вокала и неистовая мощь панк-музыкантов. Это чистые звуки  этнических инструментов и жёсткий роковый ритм.
+Уникальность Инверсии - в её близости к фольклорным корням. Этнические напевы (   Читать дальше...   )(3:35) 1. Як человече
+(3:26) 2. Ой, немаеЖанр: Folk, Punk-rockПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C850668E356E5C44A2414231A141E615CE80C3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 150041   (718539) от 05.08.2020
+
+Константин Чугунов и Константин Беляков - Гитарная музыка (2003) [OGG|320]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. С. Абреу - Бразильский Карнавал 	(02:24)
+02. Н. Паганини - Соната			(03:58)
+03. Испанский танец - Сальвадор		(02:19)
+04. В. Гомес - Романс			(02:20)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B8F84B598BB4759680FA366D5BA7EBA6549511
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 226304   (718542) от 05.08.2020
+
+Tommy Emmanuel - Midnight Drive (1997) [FLAC|Lossless|image + .cue] <Instrumental, Smooth Jazz>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Get Enough (04:28)
+02. Villa De Martin (04:23)
+03. Midnight Drive (04:09)
+04. Stay Close To Me (03:12)(   Читать дальше...   )Жанр: Instrumental, Smooth JazzПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F417EC29D4C55D6345AA711CCCA8679049665DF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 168945   (718545) от 05.08.2020
+
+VA - Guitarras Virtuosas (2006) [MP3|320 kbps]<Instrumental, Flamenco>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paco De Lucia - Rнo Ancho (4:31)
+02. Manu - Mestizo (3:58)
+03. Al Di Meola - Mediterranean Sundance (5:09)
+04. Embrujo Flamenco - Huapango (8:21)(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 01:12:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D1583A8CF14DCF44C4604E520D876BDD86233CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530463   (718648) от 17.02.2022
+
+Anne Dudley - Искушение / Benedetta (2021) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beata Viscera
+02. A Bride of Christ
+03. Flames Will Not Burn Me
+04. A False Prophet(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFAFDE707F5E172BD4EA27E287E02725B7440368
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531705   (718654) от 17.02.2022
+
+At The Movies - The Soundtrack Of Your Life - Vol. 2 (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting For A Star To Fall (Boy Meets Girl cover from "Three Men And A Little Lady")
+02. King Of Wishful Thinking (Go West cover from "Pretty Woman")
+03. The One And Only (Chesney Hawkes cover from "Doc Hollywood")
+04. When You Say Nothing At All (Ronan Keating cover from "Notting Hill")(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A4AFB13F1A5B788BC2E16FDFC63D0F9096E47A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531465   (718719) от 17.02.2022
+
+The Native American Chanters - Native American Chants & Dances - The Native American Chanters (2008) [MP3|320 Kbps] <Native American, New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circle Of Fire (04:59)
+ 02. Counterclockwise Circle Of Dance (05:38)
+ 03. Return From River Island (06:09)
+ 04. Dance Of The Warrior (05:57)(   Читать дальше...   )Жанр: Native American, New Age, WorldПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F19B7D047E3F75E5CF7EC742116A97521996F116
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 327808   (718731) от 05.08.2020
+
+Hide-Hide - Реминисценции звука (2011) [FLAC|Lossless|tracks] <Instrumental, crossover>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter 		 - Vivaldi	(05:25)
+02. Sarabande         	 - Handel	(04:36)
+03. Ave Maria 		 - Caccini	(05:16)
+04. In the Hall of the Mountain King 	 - Grieg 	(02:48)(   Читать дальше...   )Жанр: Instrumental, crossoverПродолжительность: 00:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDE42E8FB539B717D53359163659F7FDD1A2922
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 219439   (718734) от 05.08.2020
+
+VA - Diving Dreams - The Coral Sea (2005) [APE|Lossless|image + .cue] <New Age, Relax>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Megabyte - Valee De Mai    		(08:12)
+02. Dansing Fantasy - Nautilus    	(04:22)
+03. Venja - Eliah`s Ascension    	(04:14)
+04. Software - Island Sunrise    	(02:51)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5DDDB1E6BCFBE7FA966AD7EBC364BDA25687423
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 217056   (718742) от 05.08.2020
 
 Christophe Goze - A Day In Ibiza (2009) [APE|Lossless|image + .cue] <Easy Listening>
@@ -398,300 +694,6 @@ John Ottman - X-Men: Apocalypse / Люди Икс: Апокалипсис (Origi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2370E39435FE3334772DE0FDEAFA786C1DE2C1F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023997   (720303) от 07.06.2016
-
-John Ottman - X-Men: Apocalypse / Люди Икс: Апокалипсис (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apocalypse (03:43)
-02. The Transference (03:50)
-03. Pyramid Collapse / Main Titles (02:25)
-04. Eric's New Life (01:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0357E92259386C875748C50A943E4B6026C136A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129235   (720326) от 29.04.2017
-
-Conjure One [Fake Enigma] - Sleep (2003) [APE|Lossless|image + .cue] <New Age, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damascus 1:59
-02. Center Of The Sun 5:06
-03. Tears From The Moon 4:18
-04. Tidal Pool 6:51(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:19:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE16ABB3B499C60364A9648F89CE1AF79DCABDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129654   (720439) от 29.04.2017
-
-Deuter - Immortelle (2016) [FLAC|Lossless|tracks] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720439.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Monarda
- 2. Sonnenbraut
- 3. Traubensilberkerze
- 4. Lily of the Valley(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F802343E703FDC1BFD7257E6653BB79D8499E883
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531702   (720540) от 16.02.2022
-
-At The Movies - The Soundtrack Of Your Life - Vol.1 (2020) Reissue, 2022, Atomic Fire [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. No Easy Way Out (Robert Tepper cover From "Rocky IV")
-03. Maniac (Michael Sembello cover From "Flashdance")
-04. St. Elmo's Fire (Man In Motion) (John Parr cover From "St. Elmo's Fire")(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40B19E0FDBCE5B7EE70E0F3F5DDE99421ABF2CF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024032   (720546) от 07.06.2016
-
-Isaac Shepard - Mosaic (2015) [FLAC|Lossless|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sad Romantic [00:04:38]
-02. Forest [00:04:26]
-03. Letting Go [00:02:57]
-04. Hope [00:03:57](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BFFBDBDF77AA83D94D4F978D0C3E5C87E6845BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128936   (720714) от 29.04.2017
-
-Dagda - Celtic Trance (2002) [APE|Lossless|image + .cue] <Tribal, Ambient, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am Celt (Introduction) (1:01)
-02. Oroshay (3:00)
-03. The Primal Gods (2:27)
-04. Celtic Trance (3:55)(   Читать дальше...   )Жанр: Tribal, Ambient, CelticПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64561BE10B804F3D32B99446BAB195CCE861967
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 261497   (720732) от 04.08.2020
-
-VA - Saxophone Hits (3CD Box) (2007) [FLAC|Lossless]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 02:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C29A94DCCD646FCBF50601A66C20C8CB983DAEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199459   (720740) от 04.08.2020
-
-VA - Ballroom Nights vol.1-2 (4 CD) (2006, 2009) [MP3|256, 320 kbps] <Dance>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Don't Close Your Eyes		(04:24)
-02 - Three Times A Lady			(03:10)
-03 - Stronger Every Minute		(03:24)
-04 - Believe In Miracles		(04:44)(   Читать дальше...   )Жанр: DanceПродолжительность: 04:11:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:456B8085FEBD9220A93D0D5CD2B5D64CF0FDC63D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 177414   (720743) от 04.08.2020
-
-Santana - The Best Instrumentals (1995) [APE|Lossless|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Samba Pa Ti (C. Santana) (04:36)
-02. Aqua Marine (D. C. Santana - A. Pasqua) (05:31)
-03. Bella (C. Santana - C. Thompson - S. Crew) (04:31)
-04. Flor D'luna (Moonflower) (T. Coaster). (04:50)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F359BDA10C8070A374BF5CD13AADE38F1EF364D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129541   (720783) от 29.04.2017
-
-Jeronimo Jonas - Inner Journey to the Real (2017) [MP3|320 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Being Resonances
-02. Beyond Shapes
-03. The Silence and the Guitar
-04. Automatic Cosmos(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26465500B9DB1D80EE2CBDC64D5186EF51A710F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 258033   (720820) от 04.08.2020
-
-Ottmar Liebert + Luna Negra XL - Little Wing (2001) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agua Fria (Cold Water)	(04:02)
-02. Little Wing			(04:49)
-03. The Girl From Ipanema	(06:31)
-04. Interlude #1: Longing	(01:10)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91FAED298740D8FE93E2FE75A6D9FA01B727816E
 ```
 
 

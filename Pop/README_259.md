@@ -1,3 +1,247 @@
+###  Публикация: 1023558   (724399) от 05.06.2016
+
+Orax - 2 Albums (2012, 2016) [MP3|320 кб/с] <Electronic, Synthwave, Italo-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянский музыкант и продюсер. С 1995 года по 2003 год  был гитаристом и композитором итальянской электрогруппы Xilema.
+В 2010 году Orax начал работу над своим сольным проектом.01. Betray ( 1:32)
+02. Rockers ( 3:58)
+03. Stars ( 3:06)
+04. D.A.D.O.E.S. ( 5:10)(   Читать дальше...   )Жанр: Electronic, Synthwave, Italo-DiscoПродолжительность: 01:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2259F7F26A958B8DFFFFD54EC7747D45F05B946E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023421   (724403) от 05.06.2016
+
+Bottle Of Moonshine - Believe The Numbers (2015) [FLAC|Lossless|tracks] <60's-70's Retro Pop, Female Vocal Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stand Your Ground
+02. Centerfold
+03. Happiness In Boxes
+04. To The Lighthouse(   Читать дальше...   )Жанр: 60's-70's Retro Pop, Female Vocal JazzПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B02C40B6F7B4D978788F5DFD9C3DFA3E17652F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023559   (724414) от 05.06.2016
+
+The Golden Filter - Voluspa (2010) [FLAC|Lossless|tracks + .cue] <Nu-Disco, Indietronica, Synth Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance Around The Fire
+02. Hide Me
+03. Look Me In The Eye
+04. Moonlight Fantasy(   Читать дальше...   )Жанр: Nu-Disco, Indietronica, Synth PopПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6CB7FF4D889BC57A4148DA5A392B66CB374EB2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284992   (724477) от 24.02.2019
+
+Blue System - The UltraTraxx Remixe 1-2 (2009) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. History (UltraTraxx 12 Inch Version) (6:26)
+02. Laila (UltraTraxx 12 Inch Version) (6:39)
+03. That's Love (UltraTraxx 12 Inch Version) (7:31)
+04. Only With You (UltraTraxx 12 Inch Version) (7:43)(   Читать дальше...   )Жанр: DiscoПродолжительность: 02:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A80A8F01563CCA2F717E2D2EDE1D3ABBF72BF5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129106   (724500) от 27.04.2017
+
+Shannon - Let The Music Play (1984) LP [MP3|320 Kbps] <Electronic, Freestyle, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let The Music Play (3:36)
+02. Sweet Somebody (4:45)
+03. Someone Waiting Home (4:37)
+04. Give Me Tonight (6:10)(   Читать дальше...   )Жанр: Electronic, Freestyle, DiscoПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:872E881E89D739233DD7427AF69C44FA63802D2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023531   (724538) от 05.06.2016
+
+Superbus - Sixtape (2016) [MP3|320 кб/с] <French Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (00:20)
+02. Strong & Beautiful (04:05)
+03. Soul Sister (03:45)
+04. On The River (03:47)(   Читать дальше...   )Жанр: French PopПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A934043CD568EB9D2DF47D386F8ED98BD985D887
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129146   (724666) от 27.04.2017
+
+Babette - Gypsy (1979) LP [MP3|320 Kbps] <Electronic, Pop, Chanson, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gypsy (4:17)
+02. Super Deal (3:56)
+03. Reves Vos Belles Histoires (3:58)
+04. Le Silence (4:25)(   Читать дальше...   )Жанр: Electronic, Pop, Chanson, DiscoПродолжительность: 00:28:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F42E489671894D11DC429699D316169B34F8F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284899   (724783) от 24.02.2019
+
+Vera Lynn - Something To Remember - Wartime Memories (1995) Mono [FLAC|Lossless|image + .cue] <Jazz, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Something To Remember You By
+02 Yours
+03 Wish Me Luck As You Wave Me Goodbye
+04 I'll Pray For You(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 01:11:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA55B983594AC6245942BF59FC8CA98DACB6C8EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284995   (724789) от 24.02.2019
+
+Bodies Without Organs - Prototype (2005) [FLAC|Lossless|image + .cue] <Europop, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sixteen Tons Of Hardware (3:28)
+02. Conquering America (3:20)
+03. Son Of A Gun (3:25)
+04. Open Door (Ballad Version) (3:29)(   Читать дальше...   )Жанр: Europop, Synth-pop, DiscoПродолжительность: 00:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84761A5DA64E33581E95CBE082136D319FB6F951
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399807   (724850) от 02.08.2020
 
 Adriano Celentano - Antologia (Remastered) (2020) [MP3|320 Kbps] <Pop>
@@ -454,249 +698,6 @@ Mariah Carey - MTV Unplugged (1992) EP [FLAC|Lossless|image + .cue] <Hip Hop, So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C757F38E77B4A7C634FCECE83DADD99C9C32B28D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128928   (726555) от 26.04.2017
-
-The Splash Band - The Music Of John Carpenter (1984) Reissue CD, 2015, ZYX Music [MP3|320 Kbps] <Electronic, Experimental, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End (Disco) (5:14)
-02. Unheimliche Schattenlichter (4:00)
-03. Das Ding (4:18)
-04. The Fog (3:34)(   Читать дальше...   )Жанр: Electronic, Experimental, Synth-pop, DiscoПродолжительность: 01:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B0CEA3E79D62C366E3B2ABE1166B1CD06AF8BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284545   (726576) от 23.02.2019
-
-VA - The Partytime-Singers - Party-Time (1997) Box Set  3CD [MP3|320 Kbps] <Pop, Cover>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726576.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01
-01. Y.M.C.A.
-02. Aber Bitte Mit Sahne
-03. Centerfould(   Читать дальше...   )Жанр: Pop, CoverПродолжительность: 02:51:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0F4A22A3561D1827A352261F8E6154AC50E6B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023306   (726689) от 04.06.2016
-
-David Christie - The Best Of (1994) [MP3|320 кб/с] <Electronic, Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saddle Up ( 5:47)
-02. Our Time Has Come ( 3:19)
-03. Lazy Love ( 3:03)
-04. Stress ( 3:51)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB3EEDE05A33384845900A22976E3A682280718D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023392   (726701) от 04.06.2016
-
-Vanessa Daou - Make You Love (2000) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You (3:52)
-02. A Little Bit of Pain (2:55)
-03. Mess Around (3:52)
-04. Make You Love (4:26)(   Читать дальше...   )Жанр: Electronic, Jazz, PopПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E806772A3CE08FEE1A1BD8D8BF6AA29747299D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022755   (727243) от 03.06.2016
-
-Roxette - Good Karma (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Don'tcha? (2:45)
-02. It Just Happens (3:46)
-03. Good Karma (3:19)
-04. This One (3:11)(   Читать дальше...   )Жанр: Pop, Rock, Pop Rock, Soft RockПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4441E12694DF9D2DDD9017C8EDB892E1AE4220
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022773   (727361) от 03.06.2016
-
-Roxette - Good Karma (2016) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Dontcha?
- 02. It Just Happens
- 03. Good Karma
- 04. This One(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:898A3D86BC92C20FA32A8DF68D11DBF22EBC536A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128496   (727444) от 25.04.2017
-
-Texas - Jump On Board (2017) [FLAC|Lossless|image + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Work It Out (3:42)
- 02. Can't Control (3:43)
- 03. For Everything (4:32)
- 04. It Was Up to You (3:19)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81363537BAF79EA0412218B227FF8218D85590BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530882   (727729) от 12.02.2022
-
-The Soul Affair Orchestra - 2 Albums (1976) LP [MP3|320 Kbps] <Funk Soul, Instrumental, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727729.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Soul Affair Orchestra - оркестр под управлением бельгийского певца и гитариста Эрика Бейренса.01. Amor (4:45)
-02. Begin The Beguine (4:04)
-03. Only You (4:18)
-04. Love Strut (2:34)(   Читать дальше...   )Жанр: Funk Soul, Instrumental, DiscoПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB688F71E3BFCFFD1327B012C02D8F00F4DB230D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022599   (728335) от 02.06.2016
-
-Roxette - Good Karma (2016) [MP3|320 кб/с] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Dontcha?
- 02. It Just Happens
- 03. Good Karma
- 04. This One(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB8D8C1FFE707CEFCC5274C68744855304E2703
 ```
 
 

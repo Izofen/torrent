@@ -1,3 +1,54 @@
+###  Публикация: 186067   (881959) от 25.03.2010
+
+VA - 100Hits Rock (5CD) (2007) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_881959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 06:20:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995866   (882958) от 12.03.2016
+
+Rhythm Sophie - Born To Live The Blues (2014) [MP3|320 кб/с] <Rhythm & Blues, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Til The Well Runs Dry (01:53)
+02. 5-10-15 Hours (03:00)
+03. She'll Be Gone (02:24)
+04. I'm Gonna Tell My Daddy (01:59)(   Читать дальше...   )Жанр: Rhythm & Blues, Rock & RollПродолжительность: 00:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25EA827C6684F2DF7387D8ED3449665B837E7DAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103836   (883522) от 13.02.2017
 
 VA - Eddie Stobart Trucking Songs: Trucking All over the World (2014) [MP3|320 Kbps] <Rock>
@@ -645,60 +696,6 @@ Stray - Saturday Morning Pictures (1972) Remastered, 2006, Castle Music [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F728C6BFAD4A75B4A53CD1531E04125C9F5183B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492787   (898918) от 01.09.2021
-
-U2 - Live At The Apollo (For One Night Only) (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Will Follow (04:05)
- 02 - The Electric Co. (04:16)
- 03 - Out of Control (04:56)
- 04 - Red Flag Day (03:31)(   Читать дальше...   )Жанр: RockПродолжительность: 01:24:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:383CA7ED7DA9D28F2B7967AD2192A2F7710B85AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100501   (899787) от 04.02.2017
-
-The Don Harrison Band - The Don Harrison Band (1976) Reissue, 2006, FruitGum Corp. [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899787.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sixteen Tons
-2. Who I Really Am
-3. Rock 'N' Roll Records
-4. Fame And Fortune(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B0DD0F1D20EAE0C3EEC5CD06E82B39ADC2478B3
 ```
 
 

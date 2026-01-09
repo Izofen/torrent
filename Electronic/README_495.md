@@ -1,3 +1,162 @@
+###  Публикация: 1487917   (1002826) от 08.08.2021
+
+Saive - Closer (2021) Click Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saive - Closer (06:37)
+ 02. Saive - Stay (08:38)
+ 03. Saive & Jan Bleidorn - Unknown Land (08:28)
+ 04. Saive & Kleiber - Cyode (06:14)Жанр: Tech House, Progressive HouseПродолжительность: 00:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:885152DC953E0C021160FAAFE0AD50AB21CA9F72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487953   (1002856) от 08.08.2021
+
+LTN - The Path Of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nowhere To Run (3:56)
+ 02. Zodiac Sign (ft. ENZO) (LTN Sunrise Mix) (3:12)
+ 03. Happy Life (ft. Aelyn) (3:30)
+ 04. Rise Like Smoke (ft. Kyler England) (LTN Sunrise Mix) (3:24)(   Читать дальше...   )Жанр: EDM, Progressive House, TranceПродолжительность: 01:10:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC3530CA6128656FDD1AFAEF1490E7D054920BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035992   (1002955) от 07.08.2021
+
+Autumn Of Communion - Discography 28 Releases + Box Set 20 Releases (2012-2021) ...txt [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Space, Psybient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High,Just As High And Third (59:44)Тип издания: CD, WEBЖанр: Ambient, Space, Psybient, Experimental, Techno, Drone •Продолжительность: 55:15:11 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA8B2C9C33EB77D3AD27DCB0D2FCE97332D91FE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350791   (1002960) от 07.01.2020
+
+Pleiadians - Pyramid (2019) [FLAC|Lossless|WEB-DL|tracks] <Psytrance, Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pleiadians - New Dimension (09:19)
+02. Pleiadians - Virtual Reality (08:54)
+03. Pleiadians - Pyramid (08:30)
+04. Pleiadians - Alien Artifact (08:10)(   Читать дальше...   )Жанр: Psytrance, Goa TranceПродолжительность: 01:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E808F6DC56F3D567D97B83AC44DBA631FADD2B79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350743   (1002988) от 07.01.2020
+
+Iris - Siх (2019) [FLAC|Lossless|image + .cue] <SynthPop, SynthWave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Third Strike
+02. Joy Kill
+03. Feeder
+04. Silent(   Читать дальше...   )Жанр: SynthPop, SynthWaveПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4877E13A9945CECA8C7CE26110D634E9056CFF79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350670   (1003000) от 07.01.2020
+
+Sole Massif & Jacob Newman - Santraukos (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Field recordings>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santrauka I [08:00]
+02. Santrauka II [04:17]
+03. Santrauka III [03:46]
+04. Santrauka IV [04:00]Жанр: Ambient, Experimental, Field recordingsПродолжительность: 00:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:592DC8D2B904D750CF8A835D918FFAC4E5D64A58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350827   (1003010) от 07.01.2020
 
 Above & Beyond - Live @ The New York Expo Center, United States 2019-12-31 [MP3|~245 Kbps (V0)] <Trance>
@@ -528,167 +687,6 @@ The Sweet Life Society - Antique Beats (2018) [MP3|320 Kbps] <Trip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:002B9DA0B2201A65FCA79C3615B4D0E0112E80B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349946   (1003797) от 04.01.2020
-
-VA - Best Of Ibiza 2020 [MP3|320 Kbps] <Minimal, Tech House, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Sassari - Put A Record On (Extended Mix) 5:19
-02. Sneaky Sound System - We Belong (Extended Mix) 5:11
-03. Roger That (Uk) - How Does It Feel (Endor Remix - Extended Mix) 5:46
-04. Robbie Doherty - Pour The Milk (Matt Sassari Remix - Extended Mix) 5:42(   Читать дальше...   )Жанр: Minimal, Tech House, FunkyПродолжительность: 05:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:060C953E511E70ECA3636C73228F2F3D9453060D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350009   (1003810) от 04.01.2020
-
-VA - The Aperitif Party (House Grooves Only) (2020) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003810.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mark Garrett - Report (Sunrise House mix)
-2. Radical Razors - Get Perfect (House mix)
-3. Lorentz 'O - Loop Again (Club Night mix)
-4. Grand Star - Given Some Fain (Dyba's House mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E09F596B5D2769215F762F5E8C053CF131187844
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487208   (1003857) от 04.08.2021
-
-W O L F C L U B (Wolfclub) - Just Drive - Part 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flashbacks (feat. Dora Pereli) (4:38)
-02. California Days (feat. Dora Pereli) (3:19)
-03. Sunset To Sunrise (feat. Dora Pereli) (3:36)
-04. Crossroads (feat. Dora Pereli) (4:20)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF151BE958C55F1254001F1C0285563A2BFB2F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487335   (1003882) от 04.08.2021
-
-Midub - The Story Dub (2017) [FLAC|Lossless|tracks] <Dub Techno, Deep Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003882.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Forest Dub (Original Mix)
-2. Horizons Dub (Original Mix)
-3. The Story Dub (Original Mix)Жанр: Dub Techno, Deep Techno, AmbientПродолжительность: 00:20:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C96EB00014A431BF9CE25FCE148AB38D9892D69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232147   (1003921) от 03.01.2020
-
-Na-Hag - Discography 7 Releases (2011-2020) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, IDM, Tribal, Industrial, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Altars In Anthills (07:26)
- 02. Victim And Executioner (07:46)
- 03. Amazement (09:58)
- 04. Righteous Anger (09:39)Тип издания: WebЖанр: Industrial/Tribal/Rhythmic Noise/Dark AmbientПродолжительность: 05:55:38 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A84FBA57F83D11D5AC3EAB206F9839A1D3DD9E9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349809   (1004063) от 03.01.2020
-
-VA - Train with Us, Vol. 1 (2020) [MP3|320 Kbps] <Drum'n'Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flanger Drummer - DnB Check 03:07
-02. NuClear - No Mas 04:02
-03. DMPR - Gloom & Harror 05:14
-04. DUVRTE - Texas Noon 04:21(   Читать дальше...   )Жанр: Drum'n'BassПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93242A01970D97ABAF8A65878221E8588A671A02
 ```
 
 

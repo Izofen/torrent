@@ -1,3 +1,250 @@
+###  Публикация: 1105644   (873524) от 19.02.2017
+
+Peter Wilson - Overdrive (2017) 2CD [MP3|320 Kbps] <Italo-Disco, Hi NRG, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold You Tight (03:52)
+02. Brokenhearted (03:55)
+03. Take A Chance On Loving You (03:56)
+04. Overdrive (04:02)(   Читать дальше...   )Жанр: Italo-Disco, Hi NRG, Synth-popПродолжительность: 01:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C0EB96DA826F2F8514ACC4AEE75428BB4CD0298
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997470   (873556) от 17.03.2016
+
+VA - Best Of The 90s (2016) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поскольку 90-е от нас убежали не так уж и далеко, наверное у каждого из нас свой best музыки этого времени. Поэтому предвижу ворчание, что вот этого нет, а этот не бэст... Но вот в UM посмотрели хитпарады тех недалеких лет и на их основе родился этот небольшой сборник. Ну чтож пусть каждый сравнит со своим "лучшим" того времени...01. Freddie Mercury - Living On My Own  (3:38)
+02. Ace Of Base - All That She Wants (Remastered Version)  (3:27)
+03. Michael Jackson - They Don’t Care About Us  (4:45)
+04. Crazy Town - Butterfly  (3:33)(   Читать дальше...   )Жанр: PopПродолжительность: 02:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9D3E5221FFE41B232344C4E0A546CDDF2C2273
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997530   (873558) от 17.03.2016
+
+VA - Best Of The 90s (2016) 2CD[MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873558.jpg" />
+</div>
+
+
+###  Подробнее
+
+По просьбам одноклубников публикую этот релиз для плееров в МП3. Ссылку на качество lossless Вы найдете внизу раздачи. Пусть каждый сравнит со своим "лучшим" того времени...01. Freddie Mercury - Living On My Own  (3:38)
+02. Ace Of Base - All That She Wants (Remastered Version)  (3:27)
+03. Michael Jackson - They Don’t Care About Us  (4:45)
+04. Crazy Town - Butterfly  (3:33)(   Читать дальше...   )Жанр: PopПродолжительность: 02:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:728AC37FD050CE18153AB10CB5C010D884473666
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997642   (873560) от 17.03.2016
+
+Joy - The Original Maxi-Singles Collection and B'Sides (2015) [FLAC|Lossless|image + .cue] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost In Hong Kong (12'' Version) [04:48]
+02. Lucky Star [03:48]
+03. Touch By Touch (12'' Version) [05:25]
+04. Fire In The Night (12'' Version) [05:16](   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C6BE18197E59F08816DF27278A36F860B90BC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106164   (873640) от 19.02.2017
+
+Stella - Works for You (2017) [FLAC|Lossless|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_873640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Come Collect
+02 – Nest
+03 – Watch Me Dive
+04 – One Toy(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5050CE0AD6CDCB741B1AB509313B95DFDB8ED493
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997612   (873894) от 17.03.2016
+
+Two Of Us - Inside Out (1988) [APE|Lossless|image + .cue] <Synth-Pop, Sophist-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Inner Voices
+02. I ll Be Around
+03. Building An Empire
+04. We Got A Break It Out(   Читать дальше...   )Жанр: Synth-Pop, Sophist-PopПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:053B5304FA80BA517FBC327CD100DE8CCB365593
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 300618   (874372) от 25.02.2011
+
+Akcent - French Kiss With Kylie (2006) [MP3|320 kbps]<Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874372.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Akcent - Dragoste De Inchiriat (4:08)
+2. Akcent - French Kiss (3:59)
+3. Akcent - Jokero (4:02)
+4. Akcent - Kylie (4:08)
+5. Akcent - Last Summer (3:24)
+6. Akcent - Phonesex (3:06)
+7. Akcent - Spune Mi Hey Baby (3:24)
+8. Akcent - Suflet Pereche (4:22)Жанр: DiscoПродолжительность: 00:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F921EF800762AAB8D5EFE804B89BFCA4A9BCF78E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374307   (874581) от 09.04.2020
+
+Jive Bunny And The Mastermixers - ...The Best!! (1994) [FLAC|Lossless|image + .cue] <Rock & Roll, Big Band>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The JB Shuffle (4:06)
+02. That's what I like (4:04)
+03. Glen Miller Medley (3:55)
+04. The Juke Box Story (5:37)(   Читать дальше...   )Жанр: Rock & Roll, Big BandПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CB4783239DF42ACEBC3D8C2598D4CA8CF70405
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496213   (874650) от 16.09.2021
+
+Gabrielle - Do It Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killing Me Softly with His Song
+02. Everything I Wanted
+03. Falling
+04. Stop Right Now(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68879A5B266F8011EA3C4DF578BC01092FD82AD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374290   (874715) от 09.04.2020
 
 Minx - Disco-Mondo (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -450,247 +697,6 @@ DJ BoBo - Rare Trax (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2FC6B085BF298C35F51E4741EE60A9150199117
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996860   (877306) от 15.03.2016
-
-Icehouse - White Heat: 30 Hits (2011) 2CD [MP3|320 кб/с] <New Wave, Pop Rock, Synth Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877306.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Can't Help Myself
-02. We Can Get Together
-03. Walls(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth PopПродолжительность: 02:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E74DCC19349598819DACE216C6964F268EFCEAA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996763   (877323) от 15.03.2016
-
-Fun Fun - Greatest Fun - The Best Of (1994) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop, Italodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа, в которой начинала свою карьеру 30-летняя Spagna в качестве вокалистки и автора песен. Слабее, конечно, материал, но есть достаточно известные и популярные треки.01. Happy Station (Remix) (Remixed By Ben Liebrand) 3:16
-02. Give Me Your Love (Remixed By Ben Liebrand) 3:53
-03. Sing Another Song 3:29
-04. Tell Me 3:47(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, ItalodanceПродолжительность: 01:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25699B89AA884855997AF7A8660B29CE9E81EF87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495760   (877345) от 14.09.2021
-
-VA - 100 Greatest Wedding Songs (2021) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etta James - At Last
-02. Elvis Presley - Can't Help Falling In Love
-03. Louis Armstrong - What A Wonderful World
-04. Paul McCartney - Maybe I?m Amazed(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 06:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24EBAF532E52160D0F911A8991DCAAA386D68840
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871794   (877370) от 23.02.2015
-
-VA - 80 Original Eurovision Hits (2013) 4CD [MP3|320 кб/с] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cliff Richard - Congratulations (1968) (02:33)
-02. Dana - All Kinds Of Everything (1970) (03:05)
-03. Katrina & The Waves - Love Shine A Light (1997) (02:52)
-04. Minouche Barelli - Boum Badaboum (1967) (02:16)(   Читать дальше...   )Жанр: PopПродолжительность: 04:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF1F2807597B0E538CF61D6D1FBB9D003B75B53F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996654   (877569) от 15.03.2016
-
-Freiheit - Fantasy (1988) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keeping The Dream Alive (Single Version) [04:16]
-02. Kissed You In The Rain [03:48]
-03. Diana [04:17]
-04. The Land Of Fantasy [04:55](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17FA75E15E67B17B6373C90A4D7D8B31E91E033C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104739   (878212) от 16.02.2017
-
-Patchworks Galactic Project - Space (2013) [MP3|320 Kbps] <Electronic, Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Tripping (2:04)
-02. Cruising Through Space (4:16)
-03. Approaching The Black Whole (1:44)
-04. Time And Space (5:09)(   Читать дальше...   )Жанр: Electronic, Soul, DiscoПродолжительность: 00:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFFE3E103B3B49A04A68B2C8EDF972E54F089BCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104643   (878219) от 16.02.2017
-
-Cosmic Hoffmann - Weltraumboogie / Space-Disco (1982) 7" [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weltraumboogie (3:48)
-02. Space-Disco (4:30)Жанр: Electronic, DiscoПродолжительность: 00:08:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0209CF4A1773BEF9E8E896392CD904F3C1E9BC49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373655   (878482) от 07.04.2020
-
-Teri DeSario - Moonlight Madness (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonlight Madness (5:07)
-02. Heart Of Stone (3:24)
-03. With Your Love (4:27)
-04. Hold On, Hold On (4:54)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D88E7BF54C573E9D1E59EC79A35F7B99ED39BE00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495610   (878937) от 13.09.2021
-
-VA - Monster Pop Hits (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taylor Swift - Love Story (Taylor’s Version) (03:55)
-02. Maroon 5 - Beautiful Mistakes (03:47)
-03. OneRepublic - Run (02:49)
-04. Shawn Mendes - Señorita (03:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:33:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:798A4863B803EEF7A643F8554787F9F75DED19DC
 ```
 
 

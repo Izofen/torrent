@@ -1,3 +1,165 @@
+###  Публикация: 1011287   (797022) от 27.04.2016
+
+Sieren - Transients of Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. See You (04:08)
+02. Marbles (04:27)
+03. Hold On (06:15)
+04. Chroma (07:16)(   Читать дальше...   )Жанр: Deep House, AmbientПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87496E14B7BAB5A3A58320AD86BF7ED52FE0F83B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011247   (797031) от 27.04.2016
+
+Forteba - Stereoform (2012) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Magnetik Fluid
+03. Breath
+04. Linoleum(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A370CD87ED04236B7364C0573FED4D478A587C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011231   (797040) от 27.04.2016
+
+VA - Melodic Progressive House Vol. 05 (2016) [MP3|320 кб/с] <House, Progressve House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LTN,Kokai, Arielle Maren -  Just Believe (Blood Groove & Kikis Remix)  6:40
+02. Schodt -  You're Brighter Than The Sun (Original Mix)  6:15
+03. Blugazer -  Feel Me Wondering (Dub Mix)  7:30
+04. Universal Solution -  Pressure Point (Original Mix)  7:25(   Читать дальше...   )Жанр: House, Progressve HouseПродолжительность: 02:31:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35129F39BF96B270E1FC098E4E547E536EDD42C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011260   (797050) от 27.04.2016
+
+Forteba - For Some Time Past (2008) [FLAC|Lossless|image + .cue] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	For Some Time Past
+02.	Dizoxin
+03.	Caliphone
+04.	Piko(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91B1446512AC84C1A12EE73848223C81A6614701
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328112   (797122) от 25.05.2020
+
+Eguana - Synchronicity (2019) [MP3|320 Kbps] <Electronic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Hugs (3:42)
+02. Believe Me (3:31)
+03. Keep My Hands (3:39)
+04. Sad Story (4:04)(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A1B9E81FE7A04EA9AC576F4E57AB7CBE415BA4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385692   (797141) от 25.05.2020
+
+VA - Homestudio Fitness Moves: 100 Great Tracks to Train At Home (2020) [MP3|320 Kbps] <Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797141.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bob Lee - Roundup (4:12)
+2. Ben Billson - Wallets (4:12)
+3. Bandpass Cut - Voyage (4:12)
+4. Ax7is - Specks (4:12)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 06:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78784E542758620A811183D846994D1370CCEC0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385718   (797160) от 25.05.2020
 
 VA - Pop Hits in Bossa (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Pop, Bossa Nova>
@@ -533,168 +695,6 @@ VA - Miguel Migs – Nude Tempo One (2002) [FLAC|Lossless|tracks + .cue] <Deep H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D471CFDA7C5E52E8CD4A9E5AA44308BCC1E1CFD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385336   (797803) от 24.05.2020
-
-VA - Erotic Lounge Essential Summer (2020) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LA F Project - Berlin (05:20)
-02. Gil Ward - Fluctuate (Red Chill Mix) (04:31)
-03. Spike Melo - Encendido (Sun Chill Edit) (11:08)
-04. Ibeeza Grooves - Maxell (Keep Calm Mix) (03:27)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3CEEFCA5B1127134AEA5A38289019774E7209D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385411   (797807) от 24.05.2020
-
-V.A. - Coffee Bar Lounge, Vol. 19 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allume - So Dance (Original Mix)
-02. Mazelo Nostra - Smooth Background (Original Mix)
-03. Dreamhunter - La Nostalgie (Original Mix)
-04. Kingstone - Dead Vally (Original Mix)(   Читать дальше...   )Жанр: Easy Listening, Lounge, DowntempoПродолжительность: 01:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BBCFDFC8D3125362F642A91FDAE97435E489B5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385305   (797810) от 24.05.2020
-
-Testpattern - Apres-Midi (1982) Reissue CD, 1990, Yen Records [MP3|320 Kbps] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crescent Moon (4:09)
-02. Souvenir Glace (3:52)
-03. Beach Girl (3:17)
-04. Sea Breeze (4:22)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A15C000088FF5020069F58110C405C5C5782A92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385469   (797811) от 24.05.2020
-
-Lisa Shaw - Cherry (2005) [FLAC|Lossless|tracks + .cue] <Deep House, Broken Beat, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cherry.flac
-02. Don't Know What To Do.flac
-03. When I.flac
-04. Grown Apart.flac(   Читать дальше...   )Жанр: Deep House, Broken Beat, DowntempoПродолжительность: 00:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D0362843C2D2B21DC138960F4FD96943D77AE20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385249   (797813) от 24.05.2020
-
-Aurolab - Anna (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Nu-Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above The Rainbow (6:07)
-02. Anna (5:49)
-03. Artek (4:53)
-04. Close Your Eyes (6:43)(   Читать дальше...   )Жанр: Synthwave, Nu-DiscoПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EED296569EBA394E3B8B75FCB062A5AACA2709C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385162   (797873) от 24.05.2020
-
-Jody Wisternoff - Nightwhisper (2020) Extended Edition [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning U (3:24)
- 02. Nightwhisper (3:37)
- 03. Here To Stay (4:04)
- 04. Emochine (3:50)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:998B041732AE20C4159989D56E431F8AC44FB7CB
 ```
 
 

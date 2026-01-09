@@ -1,3 +1,30 @@
+###  Публикация: 905747   (649602) от 06.06.2015
+
+VA - Resident Advisor Top 50 Charted Tracks For May (2015) [MP3|320 кб/с]<House, Funky, Deep, Electronica, Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KiNK - Cloud Generator (Original Mix) [07:11]
+02. Stephan Bodzin - Singularity [07:02]
+03. Trulyors - Expeditions (Grandmoms Hands Remix) [06:36]
+04. Recondite - Serak (Original Mix) [07:28](   Читать дальше...   )Жанр: House, Funky, Deep, Electronica, MinimalПродолжительность: 06:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE2360A37FA409EA208E8AC8A9921A8094FDC9C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031797   (649672) от 05.07.2016
 
 VA - I Love Summer - Ministry of Sound (2016)(3CD)[MP3|256 Kbps] <Pop, Eurodance>
@@ -689,33 +716,6 @@ Ronnie James Dio - We Rock (2016) (Compilation) 2CD [MP3|320 Kbps] <Rock, Hard R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA227495C248268644EA5E9C238C6DAA12C4A797
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031685   (651376) от 04.07.2016
-
-VA - Огонек (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Женя Белоусов - Золотые купола [05:18]
-02. Мираж - Музыка нас связала [04:28]
-03. Андрей Державин - Чужая свадьба [04:27]
-04. Aлена Апина - Электричка [04:33](   Читать дальше...   )Жанр: PopПродолжительность: 04:16:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3FB16DA7BAFD8613B14C882285BE0068EBB843
 ```
 
 

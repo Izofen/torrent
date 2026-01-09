@@ -1,3 +1,36 @@
+###  Публикация: 602537   (997489) от 13.01.2013
+
+Cyndi Lauper - She's So Unusual (1983) [FLAC 2.0 96/24|image (vinylRip)]<Contemporary Pop/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money Changes Everything (5:04)
+02. Girls Just Want to Have Fun (3:57)
+03. When You Were Mine (5:05)
+04. Time After Time (4:01)
+05. She Bop (3:51)
+06. All Through the Night (4:31)
+07. Witness (3:39)
+08. I'll Kiss You (4:11)
+09. He's Son Unusual (0:46)
+10. Yeah Yeah (3:13)Жанр: Contemporary Pop/RockПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08DE481F3E2E6CD4D024C9271EC82EFECC054612
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601499   (997997) от 11.01.2013
 
 Ольга Кормухина - За гранью слов (1991) [APE 2.0 24/96|image + .cue (Vinyl-Rip)]<Rock>
@@ -676,33 +709,6 @@ A4 They'll Get You Anyway = Z Blata Do Louze(   Читать дальше...   )
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21A076D554BE6AE5FAB761F7D08FE619BC73C6FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450767   (1028846) от 27.02.2021
-
-Ryszard ''Skiba'' Skibinski - 1951-1983 (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028846.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Lutek - Pogromca Lwow
-A2 Boogie Dziadka Skiby
-A3 Jak Nas Gonili Tacy Jedni
-A4 MPO Blues(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF8086AA473E2A386A93B4DAA40853E5D2DBEAC6
 ```
 
 

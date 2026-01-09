@@ -1,3 +1,57 @@
+###  Публикация: 1607633   (1043965) от 27.01.2023
+
+The One - Sunrise (2023) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Thoughts Of Light (3:32)
+02. Time Out (5:54)
+03. The Past Haunts Again (8:57)
+04. Remember (3:32)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51080665F4546DE6F411211A697047FE89B7584D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607464   (1044068) от 26.01.2023
+
+Skrizhali - В холодном свете (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044068.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Быть твоей болью
+2. Истекло навсегда
+3. Супер-герой
+4. Зови когда ты ослабеешь (Гитарная версия)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D917E7437579BA808A50DD4991C2672C727C5BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607240   (1044080) от 26.01.2023
 
 Silent Hope - Silent Hope (2023) [MP3|320 Kbps] <Gothic Rock, Gothic Metal>
@@ -641,60 +695,6 @@ Elephant Groove - Annihilation (2023) [MP3|320 Kbps] <Heavy, Psych, Stoner, Spac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:061A71E8F085E722263D2D3FE847BE85AAA68341
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602036   (1046260) от 03.01.2023
-
-Black Sky Giant - 5 Albums (2020-2023) [MP3|320 Kbps] <Heavy Psych, Stoner, Space>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2020 - Orbiter (Remastered, 2021)
-2021 - Falling Mothership
-2021 - Planet Terror(   Читать дальше...   )Жанр: Heavy Psych, Stoner, SpaceПродолжительность: 5 CD, 03:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80739D3922EED91EF54DF069545B8D888ADDA515
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601725   (1046357) от 02.01.2023
-
-Caravela Escarlate - 3 Albums (2016-2023) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2016 - Rascunho
-2017 - Caravela Escarlate
-2023 - IIIЖанр: Progressive Rock, Symphonic ProgПродолжительность: 3 CD, 02:12:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA62529CFBC5AC44B459A304835A75A14F19159A
 ```
 
 

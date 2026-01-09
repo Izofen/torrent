@@ -1,3 +1,248 @@
+###  Публикация: 1006509   (826765) от 12.04.2016
+
+АлоэВера - Держи меня в курсе (2016) EP [MP3|320 кб/с] <Pop-Rock, Indie Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826765.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Держи меня в курсе» – это песни про то, что нас волнует, это аранжировки про то, как мы хотим звучать, это переосмысление старых текстов и нечто совершенно новое.01. Беги (EP версия)
+02. Неумело
+03. Не ломайте
+04. Оправданий нет(   Читать дальше...   )Жанр: Pop-Rock, Indie PopПродолжительность: 00:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98190AEA3A1350630ADCAFAA3EB1B3226DEABA60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 774651   (827145) от 07.04.2014
+
+VA - 100 Hits: 70s (2007) [FLAC|Lossless]<Top 40, Pop, Rock, Disco, Funk & Soul, New Wave, Glam>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carly Simon - You're So Vain (1972) - 4:20
+02. Alvin Stardust - My Coo Ca Choo (1973) - 2:47
+03. Guys & Dolls - There's A Whole Lot Of Loving (1974) - 3:15
+04. Michael Nesmith - Rio (1976) - 4:31(   Читать дальше...   )Жанр: Top 40, Pop, Rock, Classic Rock, Pop Rock, Disco, Funk &Soul, Folk, World, & Country, Folk Rock, Prog Rock, Punk, New Wave, Glam, Doo-wop, RockabillyПродолжительность: 01:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECEA1FDE1129EF77C5695E41C7652731ECEC0478
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 653322   (827283) от 09.05.2013
+
+Modern Tracking - Running Away (Special Single Edition) (2013) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running away (Original Version) (4:24)
+02. Running Away (Remix) (4:25)
+03. Running away (Alex Neo Electro Mix) (5:39)
+04. Running Away (Alex Neo Remix) (4:50)
+05. Running Away (80` Alex Neo Version) (4:52)
+06. Running away (Extended Version) (6:10)Жанр: Pop,EurodanceПродолжительность: 00:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:941B02702518ECA196EF52EBE3D11C383FF8002D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381343   (827814) от 06.05.2020
+
+Candido - Candi's Funk (1979) LP [MP3|320 Kbps] <Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Candi's Funk (8:25)
+02. Do You Wanna Dance? (8:12)
+03. Samba Funk (7:43)
+04. Super City (7:45)Жанр: Funk Soul, DiscoПродолжительность: 00:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A5DD90C98B9FAD8B5F75F2F30828565E1B336BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115203   (828058) от 17.03.2017
+
+The Chantoozies - Chantoozies (1988) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_828058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanna Be Up
+02. Kiss 'N' Tell
+03. Bang Bang
+04. Slightest Notion(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, PopПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B88C3BE1234A6F981FEBFEDD1F97441191FC8C3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115243   (828059) от 17.03.2017
+
+Zara Larsson - So Good (2017) [MP3|320 Kbps] <Pop, R'n'B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_828059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. What They Say (03:39)
+02. Lush Life (03:21)
+03. I Would Like (03:45)(   Читать дальше...   )Жанр: Pop, R'n'BПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6BC725ADDCA12D86966DCAB27A030768258EA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115252   (828152) от 17.03.2017
+
+Hazmat Modine - Extra-Deluxe-Supreme (2015) [MP3|320 Kbps] <SKA, Fusion, World>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_828152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Day (04:25)
+02. Plans (05:12)
+03. Your Sister (05:37)
+04. Up & Rise (05:30)(   Читать дальше...   )Жанр: SKA, Fusion, WorldПродолжительность: 00:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63E14F4FE895AE7F37B0366FFE8FC9F06463374
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 773336   (829011) от 06.04.2014
+
+VA - Pure... america (2011) Box Set, 4 CD [FLAC|Lossless]<Pop, Dance, Rock, R&B, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829011.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ответ на американские санкции публикую очередной сборник американских песен, изданных Sony Music в 2011 году. Интересно, что на ebay его жанр определили как Country, а уж на AllMusic разошлись - здесь целый букет: Adult Contemporary, Adult Contemporary R&B, AM Pop, Contemporary Pop/Rock, Country-Pop. Так что выбирайте, что вам хочется послушать больше из списка.01. Boston - More Than A Feeling  (3:31)
+02. The Calling - Wherever You Will Go  (3:29)
+03. Train - Drops Of Jupiter (Tell Me)  (4:21)
+04. Phantom Planet - California  (3:15)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 04:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F94E4500D658EDE8A005721C44C872A93FEE1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381200   (829668) от 05.05.2020
+
+VA - Mega Dance Mix - 1 (Unknown) [FLAC|Lossless|image + .cue] <Medley, Cover, Italo-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829668.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 -	Party Time/Salsa Mix	10:06
+1.1	Piano Groove
+1.2	Ritmo De La Noche
+1.3	Everybody Salsa(   Читать дальше...   )Жанр: Medley, Cover, Italo-DiscoПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95F9B61CD4B3B88377D28001D699F67103EBA8BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114835   (829704) от 16.03.2017
 
 Supermax -  Fly With Me (1979) Remastered, 2005, CD-Maximum [FLAC|Lossless|image + .cue]<Electronic, Pop, Funk, Reggae>
@@ -448,249 +693,6 @@ VA - Acoustic Morning (To Wake Up Well in Your House!) (2017) [MP3|320 Kbps] <Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:228EF5A80EE661361F9FB0B800312628AE0FC614
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502019   (831816) от 12.10.2021
-
-VA - Я тебя знаю (Дмитрий Маликов Трибьют) (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831816.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дмитрий Маликов/Анна Плетнёва «Винтаж» - Мир без твоей любви
-2. Артур Пирожков - Ты моей никогда не будешь
-3. Филипп Киркоров - Ещё, ещё
-4. EMIN - Love Story(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23CBBA11C285C32F0F1E6CBB3060C6C80A6C3F14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502056   (831825) от 12.10.2021
-
-Enzo Persuader - Pretty Lover (Single) (1983) Remaster, 2019, Borgatti/Sweet Moon [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831825.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 PRETTY LOVER (Disco Mix version) 07:00
-2 PRETTY LOVER (Radio version) 03:59
-3 PRETTY LOVER (Instrumental) 06:57
-4 PRETTY LOVER (Mix 128 B.p.m.) 06:34(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:26:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2DD455BC89B7027555D111D67D00AAC83DE6E80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114657   (831980) от 15.03.2017
-
-VA- Ike & Tina Turner - Revue Live (1964) 2007, P-Vine Records [FLAC|Lossless|tracks + .cue] <Pop, Funk, Soul, Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ike & Tina Turner - Please, Please, Please [06:57]
-02. Jerry Thomas - Feel So Good [03:22]
-03. Vanetta Fields - The Love Of My Man [04:01]
-04. Bobby John - Think [02:32](   Читать дальше...   )Жанр: Pop, Funk, Soul, BluesПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0035ED37B91C3416FF1B0D564A8509D155D41B17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114344   (832156) от 15.03.2017
-
-Teeth & Tongue - Give Up On Your Health (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop, Indie Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Up On Your Health
-02. Do Harm
-03. Small Towns
-04. When We Met(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Indie RockПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6E9509366F0A3428CEE055DCA253A35362939BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005712   (832634) от 09.04.2016
-
-DJ Mash Up - Summer Vibes: Chill-Out and Dance Hits (2016) [MP3|320 кб/с] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer (03:42)
-02. Summertime Sadness (Remix) (03:36)
-03. High By The Beach (04:15)
-04. Hideaway (04:16)(   Читать дальше...   )Производство: Dance Mash Up EntertainmentЖанр: Pop, DanceПродолжительность: 01:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C79029CAF964CB4C542C7F7A848FD4E58691408
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380517   (832945) от 03.05.2020
-
-Suzanne Vega - An Evening of New York Songs and Stories (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Pop, Folk Rock>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marlene on the Wall
-02. Luka
-03. So How Many People Are Here from out of Town?'
-04. New York Is a Woman(   Читать дальше...   )Жанр: Pop, Folk RockПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D44A1DA410C8DD75F1E63BAC0786DE475B5495
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501761   (833543) от 11.10.2021
-
-VA - 538 Hitzone: Best Of 2020 (2020) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Hip-hop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восполняю пробел по ежегодным сборникам нидерландской радиостанции 538. Все релизы этой серии вы как всегда сможете найти по ссылке внизу. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию. Так что наслаждайтесь...CD1:
-01. The Weeknd - Blinding Lights  (3:23)
-02. Sheppard - Die Young  (3:24)
-03. Davina Michelle & Snelle - 17 Miljoen Mensen (Live@538 In Ahoy)  (1:48)(   Читать дальше...   )Тип издания: Box Set, 2CD, CompilationРелиз состоялся: 13 ноября 2020 годаЖанр: Pop, Dance, Hip-hop, ElectronicПродолжительность: 02:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04DF26EFC6173072BE0520CBEE92CAAF819C5A4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501756   (833546) от 11.10.2021
-
-VA - 538 Hitzone 98 (2021) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как то давно на трекере не было выпусков от известной нидерландской радиостанции 538. Последний был 91-й аж почти два года назад. Между тем Sony Music с завидной периодичностью выпускает сборники хитов по итогам ротации на радиостанции. А Universal Music сборники лучших треков по итогам года (следите за анонсами трекера, скоро появиться лучшее за 2020).01. Coldplay - Higher Power  (3:30)
-02. Chef'Special - Afraid of the Dark  (3:08)
-03. Majestic X Boney M. - Rasputin  (3:06)
-04. Tom Grennan - Little Bit of Love  (3:45)(   Читать дальше...   )Тип издания: CD, CompilationРелиз состоялся: 2 июля 2021Жанр: Pop, Rock, DanceПродолжительность: 01:18:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EEE929A68319B5B04213D4CD22877B0BA20CF64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114470   (833602) от 14.03.2017
-
-Blush - Out Of This World (1978) Reissue, Private Records, 2013 [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shooting Star (6:19)
-02. I Can't Refuse (4:01)
-03. Lift Off (5:40)
-04. Gyspy Guitar (4:10)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42072F597F737508D6E0198CC1E5F15142FF356C
 ```
 
 

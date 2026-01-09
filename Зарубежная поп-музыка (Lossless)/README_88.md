@@ -1,3 +1,30 @@
+###  Публикация: 986352   (930872) от 14.02.2016
+
+Whitney - The Greatest Hits (2000) 2CD [FLAC|Lossless|tracks + .cue] <Soul, Disco, RnB/Swing>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitney Houston & George Michael - If I Told You That (4:32)
+02. Fine (3:34)
+03. My Love Is Your Love (4:18)
+04. It's Not Right but It's Okay (4:49)(   Читать дальше...   )Жанр: Soul, Disco, RnB/Swing, Downtempo, Synth-pop, BalladПродолжительность: 02:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D97A02BA4BFEC2F6500DA81C3E3A170BF0CE3B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 629864   (931274) от 13.03.2013
 
 Justin Timberlake - The 20/20 Experience (Deluxe Edition) (2013) [FLAC (tracks+cue)|Lossless]<Pop, R&B>
@@ -724,39 +751,6 @@ Loredana Berte - Sei Bellissima 2CD (2004) [FLAC|Lossless]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF4FF0209F49ADB798EC2AC3C4DC3A2380AE16E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 752871   (938341) от 04.02.2014
-
-Raffaella Carra - Raffica Carra (2007) 2CD [APE|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Concrete Jungle (4:14)
-02. Burnin' And Lootin' (4:17)
-03. Rebel Music (3 O'Clock Roadblock) (6:47)
-04. Jah Live (4:15)
-05. Positive Vibration (3:35)
-06. Smile Jamaica (3:14)
-07. Natural Mystic (3:31)
-08. Punky Reggae Party (6:53)
-09. Satisfy My Soul (4:32)
-10. Africa Unite (2:58)(   Читать дальше...   )Жанр: PopПродолжительность: 01:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFE069E0FC1A2E6E0317E8179A55885D2F0ABD2D
 ```
 
 

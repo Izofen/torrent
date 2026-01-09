@@ -1,3 +1,30 @@
+###  Публикация: 1203026   (789109) от 31.01.2018
+
+VA - Progressive Psychodelic Trance (Exlusive Tracks) (2018) [MP3|320 Kbps] <Psy Trance, Psychodelic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nerso  -  Spectral Waves (Original Mix)  6:17
+02.  Sean Tyas  -  People (Extended Mix)  8:07
+03.  Ace Ventura & Ryanosaurus  -  Still Searching (Original Mix)  7:57
+04.  Animato & Pettra  -  Feelings (Original Mix)  7:46(   Читать дальше...   )Жанр: Psy Trance, PsychodelicПродолжительность: 03:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:036985501846AC7F92637E93C1794A2C680FCDCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511122   (789248) от 20.11.2021
 
 VA - Soft Chill House (2021) [MP3|320 Kbps] <Chill, Deep House, Relax Electro>
@@ -662,33 +689,6 @@ VA - Top 100 Зайцев.Нет Декабрь 2018 (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFF55F11E60CDD420630543272C09794B0B2163A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201595   (789684) от 29.01.2018
-
-VA - Tropical Vibes vol. 1 (2017-2018) [MP3|320 Kbps] <Tropical House, Deep House, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kygo & Selena Gomez - It Ain't Me (DJ VoJo Remix)
-02. Oblomov - Gray-Haired Roses (DJ VoJo Remix)
-03. Linkin Park - Roads Untraveled (DJ VoJo Remix)
-04. The Doors - Riders on the Storm (DJ VoJo Remix)(   Читать дальше...   )Жанр: Tropical House, Deep House, Nu DiscoПродолжительность: 04:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49A9D8264C85D12D7E4EAE1AE5CC4F6F16B7F5B
 ```
 
 

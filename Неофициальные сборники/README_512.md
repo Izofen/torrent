@@ -1,3 +1,30 @@
+###  Публикация: 1388547   (786635) от 06.06.2020
+
+VA - Авторадио: Золото дискотек Vol. 1 (2020) [MP3|320 Kbps] <Euro Disco, Italo Disco, Euro Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Boys Blue - From Heaven To Heartache 3:33
+02. C.C. Catch - Stay (Maxi-Version) 5:47
+03. Grant Miller - Colder Than Ice 5:35
+04. DJ's Project - Vision Of Love 6:40(   Читать дальше...   )Жанр: Euro Disco, Italo Disco, Euro DanceПродолжительность: 06:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26576B916745F1D4E46FD946ACFB63CDA539F2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388352   (786716) от 06.06.2020
 
 VA - Worldwide Rap Singles - Май 2020 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -665,33 +692,6 @@ VA - Beatport Deep House: Sound Pack #371 (2021) [MP3|320 Kbps] <Deep House, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B28BDBDF477348CB571D715709FFBB187E046D0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512356   (787467) от 24.11.2021
-
-VA - Techno Frozen (2021) [MP3|320 Kbps] <Techno, Minimal, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787467.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Q-Green - Bubbles
-002. Hardchemist - Red Dragon
-003. Bearface - Live For Life
-004. Alex Tb - Cyberpunk(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 11:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E17AF71B01BC9F66F24B1D282BE8B732831DFF
 ```
 
 

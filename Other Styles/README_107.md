@@ -1,3 +1,318 @@
+###  Публикация: 1226856   (653785) от 22.05.2018
+
+Joseph L Young - Every Moment (2018) [MP3|320 Kbps] <New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prism 05:37
+02. Falling Through Time 04:50
+03. Every Moment 05:07
+04. Twilight 04:20(   Читать дальше...   )Жанр: New ageПродолжительность: 01:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A4131B30A2C9FDDD19D10087560BF93E7289A07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140952   (653856) от 08.06.2017
+
+Chris Snelling, Jonathan Sarlat - Peaceful Classical Music Playlist: 14 Relaxing and Calm Classical Pieces (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only Questions - Chris Snelling
+02. Raindrops - Jonathan Sarlat
+03. Fyrsta - Chris Snelling
+04. White Light (Eastfjord Mix)Жанр: Classical, InstrumentalПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A254F98660E00196ADAF1B85B4751FB0511B334E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140887   (653945) от 08.06.2017
+
+VA - Life Force: Natural Meditation, Total Relaxing, Anxiety Free Life (2017) [MP3|320 Kbps] <Ambient, New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Spiritual Music Collection - Life Force (Natural Meditation)  3:57
+02.  Restful Music Consort - Gold Awakening  3:46
+03.  Buddhist Meditation Music Set - Crystal Healing Journey  3:57
+04.  Chakra Healing Music Academy - Yoga And Massage  3:39(   Читать дальше...   )Жанр: Ambient, New Age, RelaxПродолжительность: 03:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E018D1CE640ADC371B4523C29FC01BF14D514BDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516022   (654412) от 27.06.2012
+
+William Joseph - Be Still (2012) [MP3|320 кб/с]<Contemporary Instrumental, New Age, Neo-Classical, Piano>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654412.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:42) 01. Come Thou Fount
+(3:56) 02. Jesus Once of Humble Birth
+(4:09) 03. Be Still My Soul
+(3:19) 04. A New Day
+(4:38) 05. I Know That My Redeemer Lives
+(3:49) 06. With Royal Praise
+(4:07) 07. God Be With You Still We Meet Again / He Is Risen
+(4:09) 08. Nearer My God to Thee
+(5:20) 09. How Great Thou Art
+(3:57) 10. Silent Night(   Читать дальше...   )Жанр: Contemporary Instrumental, New Age, Neo-Classical, PianoПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC318126C53D550B73C8D6876B68769EFFADE52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515676   (654680) от 27.06.2012
+
+Don Williams - The Best of Don Williams (2003) [MP3|320 кб/с]<Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654680.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:26) 01. I Recall a Gypsy Woman
+(3:27) 02. Till The River All Runs Dry
+(3:04) 03. Say It Again
+(2:46) 04. Some Broken Hearts Never Mend
+(3:04) 05. I'm Just a Country Boy
+(3:12) 06. Tulsa Time
+(2:30) 07. It Must Be Love
+(4:05) 08. I Believe In You
+(3:41) 09. Love Is On a Roll
+(3:04) 10. Stay Young(   Читать дальше...   )Жанр: CountryПродолжительность: 01:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B43763D95FE9F7DF792ADA85F6347D88EBE8B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226534   (654712) от 21.05.2018
+
+Atom Music Audio - Collision (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fuel of War [01:45]
+02. Flatline [01:44]
+03. Unbreakable [01:36]
+04. Puma [01:23](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233101C2E098D5738E94C8460ECFBFD573169F38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140583   (654768) от 07.06.2017
+
+Indiajiva - Inner Sanctum (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654768.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Indiajiva - Awakening (7:16)
+2. Indiajiva - Dreaming (14:30)
+3. Indiajiva - Immersion (12:53)
+4. Indiajiva - Inner Sanctum (31:16)Жанр: New AgeПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7420D4F18F78AEC0896D979255B8B0A5FADC0C9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226536   (654770) от 21.05.2018
+
+Atom Music Audio - Mechanize, Vol. 1: Industrial Hybrid Rock Tracks (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 6th Gear [02:05]
+02. ReDesign [02:05]
+03. Kill Switch [02:25]
+04. Sprocket [02:36](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C0BBA16CA8FDD41D2D312F90170F1DFE40BBC65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140727   (654772) от 07.06.2017
+
+Nikolya - Organic 3 The Longest Journey (2017) [MP3|320 Kbps] <New Age, Electronic, Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening
+02. What If...
+03. Butterfly Temple
+04. Indigo Child(   Читать дальше...   )Жанр: New Age, Electronic, LoungeПродолжительность: 00:57:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F3FC98976715DCBADA458BEBD395310712560C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903976   (655102) от 02.06.2015
+
+Marcin Przybylowicz & Mikolai Stroinski – The Witcher 3: Wild Hunt (2015) Unofficial / Game-Rip Soundtrack [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655102.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ambient Hims House (Mix)
+002. Ard Skellig - General Combat Layer 01
+003. Ard Skellig - General Combat Layer 02
+004. Ard Skellig - General Combat Layer 03(   Читать дальше...   )Жанр: GameRip, SoundtrackПродолжительность: 11:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336E87523ABD531C5C5A7DA79C88A209D496792C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514784   (655328) от 26.06.2012
+
+Нирвана / Nirvana (by Mauro Pagani, Federico De Robertis & VA) - 1997, FLAC (tracks+.cue), lossless (1997) [FLAC|Lossless]<Score / Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_655328.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Whatever It Is - Pagani, Della Volpe and Now (vocals) 4:17
+2.John Barleycorn (Must Die) - S.L. Winwood and Traffic (vocals) 6:24
+3.Eqbirotz - Mauro Pagani 2:34
+4.Sodae - Cabral, Morais and Cesaria Evora (vocals) 4:54
+5.Hotels - Federico De Robertis 3:51
+6.Chelsea Hotel - Mauro Pagani 3:27
+7.Nirvana - Federico De Robertis 6:54
+8.Last Dance - Eraldo Bernocchi, Bill Laswell and Monks of the Gyued Monastery (vocals) 3:41
+9.Town House - Mauro Pagani 1:50
+10.Tema di Lisa - Federico De Robertis 1:45(   Читать дальше...   )Жанр: Score / SoundtrackПродолжительность: 01:04:36
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226346   (655655) от 20.05.2018
 
 VA - Latino Fitness Club 2018 (3CD) (2018) [MP3|320 Kbps] <Pop, Latin-Dance, Reggaeton>
@@ -436,308 +751,6 @@ Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CADDB831BFD28C4A9325062B5F02323159DE5DB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139395   (660006) от 02.06.2017
-
-Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rupert Gregson-Williams - Amazons of Themyscira (06:48)
-02. Rupert Gregson-Williams - History Lesson (05:16)
-03. Rupert Gregson-Williams - Angel on the Wing (03:45)
-04. Rupert Gregson-Williams - Ludendorff, Enough! (07:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57E3208AAC262B98ED367CCBE8842B158B2A9AE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139511   (660008) от 02.06.2017
-
-John Barry - The Real... John Barry (2016) 3CD [FLAC|Lossless|tracks + .cue] <Soundtrack, Stage & Screen>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. The James Bond Theme
-2. 007
-3. From Russia With Love(   Читать дальше...   )Жанр: Soundtrack, Stage & ScreenПродолжительность: 02:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D163C8F3B750B453ABE29F482EEBFC83BBA4C7C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513743   (660499) от 22.06.2012
-
-Берлинский Симфонический Оркестр - Charlie Chaplin - The Film Music (1996) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660499.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Opening Music (2:41)
- 2. Garret Walz (1:29)
- 3. Blue Eyes (1:51)
- 4. Kidnap (3:39)
- 5. Doss House (4:31)
- 6. Overture And Storm (2:41)
- 7. Thanksgiving Dinner (2:59)
- 8. Georgia (3:53)
- 9. Dance Of The Rolls (1:25)
- 10. Rejected (2:05)(   Читать дальше...   )1996Жанр: OSTПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997A501CA5562CD0E290C20FE98E7083ED56AAC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139237   (661291) от 01.06.2017
-
-KoolSax - Meditation (Relax Your Mind to Save the World) (2014) [MP3|320 Kbps] <New Age & Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angels Echoes - Meditation Mix (05:47)
-02. Face to Face - Caress Mix (05:54)
-03. Harmonie - Angel Mix (05:40)
-04. Sign of Life - Esoteric Mix (05:55)(   Читать дальше...   )Жанр: New Age & MeditationПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13EC5F55A8876C7EDAB20850DA4B64F43ACF846
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139042   (661293) от 01.06.2017
-
-VA - Deep Silence Meditation: Best New Age 2017 Asian Garden Chinese Music [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yoga Training Music Sounds — Calm Waves
-02. Buddha Music Sanctuary — Asian Zen
-03. Reiki Music Zone — Fire (Tranquility)
-04. Buddha Music Sanctuary — Chinese Meditation (Sanxian)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F5D7E6BDDFF5ACA3D713922FEC07415470529B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 901360   (663350) от 26.05.2015
-
-Eilen Jewell - Sundown Over Ghost Town (2015) [MP3|320 кб/с]<Americana, Country, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Worried Mind (03:15)
-02. Hallelujah Band (02:54)
-03. Rio Grande (03:23)
-04. Half-Broke Horse (03:27)(   Читать дальше...   )Жанр: Americana, Country, FolkПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8FA3D2C9A50CA7E569DABD4C09BCA17BA56A51D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138151   (664194) от 29.05.2017
-
-The Romantic Strings and Orchestra - Stardust Moods (1989) [MP3|320 Kbps] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664194.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Some Enchanted Evening (3:36)
-2. All The Things You Are (3:55)
-3. Tenderly (3:39)
-4. With A Song In My Heart (2:59)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196DFF8DCC450A07A96E6450F9EA7C0E24191D6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537973   (664342) от 19.03.2022
-
-Diane Arkenstone & David Arkenstone - Avalon: Between Earth and Sky (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Reigns Through Tears (04:14)
-02. The Crystal Shores (03:49)
-03. If a Heart Could Speak (04:10)
-04. A Queen Reborn (03:44)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574002EB34F6C2BAC5A2428CC1CDF47A566F58DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511564   (664684) от 18.06.2012
-
-VA - Союз нерушимый... - Песни и танцы народов СCCP (2007) 5 CD [MP3|320 kbps] <Retro, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Государственный гимн Советского Союза Оркестр Государственного Академического Большого Театра СССР, Юрий Симонов
-02. Государственный гимн Украинской ССР Хор и оркестр Государственного академического театра оперы и балета имени Т.Шевченко, Стефан Турчак
-03. Государственный гимн Белорусской ССР Хор и эстрадно-симфонический оркестр Белорусского Гостелерадио, Б. (   Читать дальше...   )Жанр: Retro/FolkПродолжительность: 05:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D5F1A8D7C0417003BEA067A2677AB85F93BAC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137659   (665421) от 28.05.2017
-
-David Garcia Diaz - RiME (2017) Deluxe Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Song of the Sea (feat. Mirella Díez Morán)
-02. Departure
-03. Elder Silence
-04. Promenade(   Читать дальше...   )Жанр: ScoreПродолжительность: 1:27:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8527A324B9D7DA4A35A130990E1A181CE0033F40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224481   (666008) от 10.05.2018
-
-Jupiter Panic - Days of Sorrow (2018) [MP3|320 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Days of Sorrow (3:26)
-02. The Return (5:06)
-03. Retired By a Mistake (3:18)
-04. Futura (4:50)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D040F7C50BCB1A70075FE0A9AF3993D39FDC15
 ```
 
 

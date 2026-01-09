@@ -1,3 +1,165 @@
+###  Публикация: 1196701   (822403) от 03.01.2018
+
+Karl Maddison - On the Road to Tibet (2006) [FLAC|Lossless|image + .cue] <New Age, Relax, Meditative>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wishing Wheel
+02. Pearls Of Wisdom
+03. Sacred Mountain
+04. Legend(   Читать дальше...   )Жанр: New Age, Relax, MeditativeПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C2B891E807C67D4511E7CBF4229C34CB4FDC5D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196504   (822417) от 03.01.2018
+
+bvdub - Heartless (2017) [FLAC|Lossless|tracks + .cue] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleepless (9:33)
+02. Nameless (12:01)
+03. Flawless (6:45)
+04. Limitless (6:18)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:16:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C1173F8CCD7ABD522DFC108DF8F1BD42CB4B12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196485   (822419) от 03.01.2018
+
+VA - Erotica (2000) [FLAC|Lossless|WEB-DL|tracks] <House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PS-Band - Erotica (4:27)
+02. Domina - Auf die Knie (3:20)
+03. James Brown - Sex Machine (5:02)
+04. Construction - Sex Is Like Fire (3:31)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 00:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE2B8E0871C0D0F37EA5E714FBF3740F0EA1785
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196600   (822423) от 03.01.2018
+
+VA - Inner Symphony Gold 2017 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mashk & Soul Button - Penses [07:35]
+02. Soul Button - Placid [07:39]
+03. Clawz SG - Perennial [07:38]
+04. Fractal Architect & Dan Baber - Antikythera Mechanism [06:45](   Читать дальше...   )Жанр: Progressive House, Tech House, Chill HouseПродолжительность: 01:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A62E62D319B20FAB972E33BCA51D0EAE5020B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196676   (822425) от 03.01.2018
+
+VA - Ori Uplift - Uplifting Only 255 (Tune of the Year Vote - Top 25 Countdown) (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.RAM & Arctic Moon with Stine Grove - A Billion Stars Above (Extended Mix)
+02.illitheas - Moments with You (Maratone Remix)
+03.Manuel Rocca & Illitheas - Enchanted
+04.Afternova feat. Andrea Becker - For You (Trance Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF736E282606A586DB41DD2E65C1A27D424C68ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196660   (822547) от 03.01.2018
+
+Mi Chan - In The Night (2017) [MP3|320 Kbps] <Trance,Progressive Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Morning (Original Mix)
+02. Way (Original Mix)
+03. Where I Am (Original Mix)
+04. Sunrise (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive Trance,Uplifting TranceПродолжительность: 01:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FA6244A845E584C45A950F854111C2190992FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196478   (822552) от 03.01.2018
 
 VA - Focus On Nicholas Van Orton (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
@@ -539,167 +701,6 @@ Bob Moses - Days Gone By (Never Enough Edition) (2016) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6964C55E9A7D68118BFC90D5D628C379D5F9EAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196070   (824013) от 02.01.2018
-
-Real Life - Send Me An Angel • '80s Synth Essentials (2009) Compilation [FLAC|Lossless|image + .cue] <Synthpop, New Wave, 80's>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Send Me An Angel (2009) (4:12)
- 02. Sweet Dreams (Are Made Of This) (3:24)
- 03. Cars (3:42)
- 04. Fade To Grey (3:16)(   Читать дальше...   )Жанр: Synthpop, New Wave, 80'sПродолжительность: 01:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3D2F8CC1BBAEC8A8ABFC8FDDB7B12D92B273D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 736402   (824072) от 25.03.2015
-
-Zero Cult - Discography (12 Releases) (2006-2015) [MP3|320 кб/с]<Downtempo, Psybient, Progressive Trance, Ambient, Psychill>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zero Cult - Aleph (5:07)
-02. Zero Cult - Fullmoonight (8:02)
-03. Vibrasphere - Sweet September (Zero Cult Remix) (7:02)Жанр: Downtempo, Psybient, Progressive Trance, Ambient, Psychill |Продолжительность: 00:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20688081F878056DB6E079F2230540E93B28AF10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196344   (824123) от 02.01.2018
-
-VA - Running Music 2018 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mykel Mars - Give Me the Sunshine (Ibiza Groove Squad Edit) 03:31
-02. David Caruso - Life Is Better with Sunshine (Disco Aerobic Edit) 03:15
-03. Tiziara - Red Light (Radio Mix) 03:29
-04. John Disco - The Need In Me 05:45(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B4A85BCF1D1A7E38ACDC5899D09433ED5DBF9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196473   (824132) от 02.01.2018
-
-Liquid Bloom - ReGen: Lucid Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Psychill, Psydub>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emerging Heart (Nanosphere Remix) (6:00)
-02. Roots of the Earth (Hedflux Remix) (7:43)
-03. Fire Gathering (Land Switcher Remix) (5:30)
-04. Sacred Blessing (Kaminanda Remix) (11:14)(   Читать дальше...   )Жанр: Downtempo, Psychill, PsydubПродолжительность: 01:21:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E92F4EEC3D51A8BE5E931D7A9BA4C45942DA4F5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196108   (824142) от 02.01.2018
-
-VA - Bodybuilding Music Top 100 For 2018! [MP3|320 Kbps] <Tech House, Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Xenias - Phrases 3:11
-02. Wunkeris - Region 3:11
-03. Walo Pils - Classic 3:11
-04. Voice Output - Main 3:11(   Читать дальше...   )Жанр: Tech House, Funky, Club HouseПродолжительность: 05:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF4CA9A24BF0E3E99303FDA961F6FA1E72679E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196267   (824235) от 02.01.2018
-
-VA - Yoshitoshi: Best Of 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yoshitoshi: Best Of 2017 (continuous DJ mix 1) [57:17]
-02. Yoshitoshi: Best Of 2017 (continuous DJ mix 2) [01:02:22]
-03. Aaaron - Black Arp (original mix) [07:05]
-04. PQM Feat. Cica - The Flying Song (UNER remix) [06:29](   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 04:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330BDEAE2F416DC9271F8F76A2C2A020BBA1AE11
 ```
 
 

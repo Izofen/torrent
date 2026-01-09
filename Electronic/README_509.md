@@ -1,3 +1,162 @@
+###  Публикация: 1279628   (1022170) от 07.04.2021
+
+Bucky - Discography 49 Releases (2012-2021) [FLAC|Lossless|WEB-DL|tracks] <UK Garage, Ambient, Future Garage, Downtempo>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zenith (03:57)Тип издания: WEBЖанр: UK Garage, Ambient, Future Garage, Downtempo •Продолжительность: 14:48:28 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6573967BEABA7008E433F2EE76980D9C5F5CE3D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201052   (1022258) от 07.04.2021
+
+Stasis Device - Discography 4 Releases (2009-2021) Solanic, Raumklang Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Experimental , Downtempo, Industrial>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sewaquo (05:11)
+ 02. Molakul (05:44)
+ 03. Erehps (05:26)
+ 04. LakuLaku (05:33)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Ambient, Experimental, Downtempo, Industrial •Продолжительность: 02:43:00 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84018A6315D7DF91D76DEF285CBD2E81C0494FC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460892   (1022270) от 07.04.2021
+
+VA - Sunrise Morning Colours: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Hitching a Ride to Paradise - Original Mix (3:18)
+02. Dreamhunter - Good Morning - Original Mix (3:08)
+03. Schwarz & Funk - Fate of Destiny - Original Mix (6:05)
+04. Marga Sol - Morning Sun - Original Mix (4:23)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF78A948D380824A866EAF1DD7750D1CB069550A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460928   (1022302) от 07.04.2021
+
+The Blizzard - AVACast Guest Mix (2021-03-29) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Blizzard - Torden
+02. The Blizzard & The Madison - Sequoia
+03. The Blizzard - Sol
+04. The Blizzard - Snøfnugg(   Читать дальше...   )Жанр: TranceПродолжительность: 00:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6131CA723FBD3CD80DB8AE678A1D233C7AE0E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149180   (1022399) от 06.04.2021
+
+Ochre - Discography 28 Releases (2001-2021) Toytronic, Aura Materia, Benbecula [FLAC|Lossless|tracks+.cue, tracks] <IDM, Glitch, Ambient, Techno, Abstract, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Copacetia (07:50)
+ 02. Yugen (05:14)
+ 03. Calmed Robbery (Ochre remix) (05:38)
+ 04. Bass Recorder (Ochre remix) (03:55)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Glitch, Ambient, Techno, Abstract •Продолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8DD977EFAC95E3092A6296CF0EC2108219E4A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304444   (1022411) от 06.04.2021
+
+Gradient - Discography Discography 17 Releases (2009-2021) U-Cover, Greyscale, Entropy Records, ZeECc [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cloud One (08:30)
+ 02. Cloud One (Submoon Remix) (06:44)
+ 03. Cloud Two (06:30)
+ 04. Cloud Three (07:20)Тип издания: CD, WebЖанр: Dub Techno, Ambient •Продолжительность: 16:08:36 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B4DF040D7F074E3A369893ED0265018946DA798
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460529   (1022446) от 06.04.2021
 
 Aviators - Dreams Of The Deep (2021) [MP3|320 Kbps] <Synthwave, Cinematic Rock>
@@ -532,164 +691,6 @@ VA - Tails Of The Unexpected (2021) Pulse State [FLAC|Lossless|WEB-DL|tracks] <I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17A541FDB755B03A0F4E74980E7C5E2506F1E3A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459006   (1023495) от 31.03.2021
-
-VA - Cafe Del Amor: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Cafe Del Amor (03:52)
-02. Schwarz & Funk - Communication (04:35)
-03. Chillson - Pappas Do, Pappas Don't (04:52)
-04. Chilled Ibiza - Naked Nova (06:32)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFC7ED6E6647177D73F4C2591C83A3F1C9AE9789
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364806   (1023644) от 30.03.2021
-
-Vector Lovers | Martin Wheeler - Discography 30 Releases (1997-2020) Soma Quality Recordings [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Ambient, Techno, Glitch>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Eyed Girl (04:18)
- 02. Odd Mannequinisms (05:56)
- 03. Sulphuric Dawn (05:12)
- 04. Something On The Moor (06:00)Тип издания: CD, Web, VinylЖанр: IDM, Electro, Ambient, Techno, Glitch •Продолжительность: 15:26:39 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FAF5F8A17C70722C8BD71E9D5DE3F0664B8760E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458931   (1023663) от 30.03.2021
-
-Advanced Suite - Cruzin (2021) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Psychill, Dub, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chill The Spectra (02:42)
- 02. Swashbuckler (05:17)
- 03. Lost In Endless (07:58)
- 04. Flexible (05:15)(   Читать дальше...   )Жанр: Psychill, Dub, Downtempo, AmbientПродолжительность: 01:05:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2433E4FCB22742BF357CC0116AF929D540CC252
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458622   (1023683) от 30.03.2021
-
-Alien Skin - Cold War Pop (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electropop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold War Pop [00:03:12]
-02. My Machine [00:03:14]
-03. Someone With Your Name [00:03:34]
-04. I Say I Do But [00:03:24](   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 00:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:371D3168050FB03E705920D32D93F6C40BE12B04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301183   (1023771) от 29.03.2021
-
-Tim Hecker | Jetone - Discography 28 Releases (2000-2019) Alien8 Recordings, Room40, Kranky [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental, Glitch, Drone, Minimal, Abstract>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norberg (20:25)
- 02. Apondalifa (08:48)Тип издания: CD, WebЖанр: Ambient, Experimental, Glitch, Drone, Minimal, Abstract •Продолжительность: 20:33:56 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6CDA8AF2FE5B188A681811F2E26FBA3F728D963
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 866252   (1023786) от 29.03.2021
-
-edIT | エディット - Discography 7 Releases (2004-2021) Alpha Pup Records, Planet Mu [FLAC|Lossless|tracks+.cue, tracks]<Glitch, IDM, Glitch Hop>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Game Is Not Over (feat. Dabrye/J-Dilla/Phat Kat) (05:39)
- 02. More Lazers (04:55)Тип издания: CD, Web •Жанр: Glitch, IDM, Glitch Hop •Продолжительность: 04:24:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EAB5D8383CDB1E703D704BABA535091FE60A9B8
 ```
 
 

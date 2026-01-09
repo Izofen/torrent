@@ -1,3 +1,30 @@
+###  Публикация: 1151830   (694127) от 02.03.2022
+
+Shy - Excess All Areas (1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694127.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Emergency
+A2 Can't Fight The Nights
+A3 Young Heart
+A4 Just Love Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFEBED8B5EB0AAA6D219FDB7F9D961E29262A747
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534184   (694255) от 02.03.2022
 
 Lou Gramm - Ready Or Not (1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock, Pop Rock>
@@ -670,33 +697,6 @@ A4. Nobody Home (3:54)(   Читать дальше...   )Производств
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C66386E6A8D4786D67AF6FC32B3C01129F9B5963
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530226   (728683) от 11.02.2022
-
-ДДТ - Я Получил Эту Роль (1989) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Blues Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728683.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Поэт (1985)
-A2 Мальчики-мажоры (1985)
-A3 Конвейер (1987)
-A4 Не Стреляй! (1982)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A38E00B185EEA503AC903D3D22F951017B5460
 ```
 
 

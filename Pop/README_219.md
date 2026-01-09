@@ -1,3 +1,111 @@
+###  Публикация: 1146652   (609490) от 02.07.2017
+
+The Human League - Greatest Hits (1995) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't You Want Me [03:55]
+02. Love Action (I Believe in Love) [03:48]
+03. Mirror Man [03:48]
+04. Tell Me When [04:39](   Читать дальше...   )Жанр: PopПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F5CE8E25061C80850F3C79B0EDB289C542BA2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 684680   (609893) от 26.07.2016
+
+Пающие Трусы (Пающіє Труси) - Интимнепредлагать (2012) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Девчонки олигархов (3:31)
+02. Интимнепредлагать (4:00)
+03. Как Алла (3:48)
+04. Василёк (3:17)(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EEED764045AE8D60C6DF33D19AA4F9504C07DFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295756   (610122) от 18.04.2019
+
+2 Unlimited - Let The Beat Control Your Body (1994) [FLAC|Lossless|tracks + .cue] <Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610122.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Let The Beat Control Your Body (Airplay Edit) 3:38
+2	Let The Beat Control Your Body (X-Out In Trance Remix) 5:11
+3	Let The Beat Control Your Body (Extended) 5:58
+4	Let The Beat Control Your Body (X-Out In Rio) 5:06(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:26:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B067CFAD7D46293CBC985A810C674E84DB81E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296728   (610243) от 18.04.2019
+
+VA - NOW Thats What I Call Music! 2 (2019) [MP3|320 Kbps] <Synthpop, Reggae, Dancehall>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610243.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Queen - Radio Ga Ga
+02. Nik Kershaw - Wouldn't It Be Good(   Читать дальше...   )Жанр: Synthpop, Reggae, DancehallПродолжительность: 01:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4A1A7AD7EE6004D90C2BCDA587EC4F8DD116E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296585   (610256) от 18.04.2019
 
 Beyonce - Homecoming: The Live Album (2019) [MP3|320 Kbps] <Pop, RnB>
@@ -587,114 +695,6 @@ Italove - Extended And Remixed (2018) [MP3|~245 Kbps (V0)] <Synthpop, Italo-Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E7A26F6C460E1585A447A084EE95DFE6DC96DC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912439   (612388) от 25.06.2015
-
-Фристайл - Кораблик любви (Переиздание) (1997) [FLAC|image +.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Фонари (А. Розанов - Т. Назарова)"
-02. "Старый клён (А. Розанов - С. Кузнецов)"
-03. "Кораблик любви (А. Розанов - Т. Назарова)"
-04. "Белая орхидея (А. Розанов - Т. Назарова)"(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E410D207A5FD1C0694CBCE0E59F5F356C6EAFB2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912269   (612400) от 25.06.2015
-
-Pomplamoose - Besides (2015) [MP3|320 кб/с]<Indie Pop, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 I'm the Shit 03:03
-02 I Feel Good 02:43
-03 Come Together 02:47
-04 Like A Prayer 03:14(   Читать дальше...   )Жанр: Indie Pop, Female VocalПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DBE34A40B556CA908037BD7B644074C1E3B11D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912270   (612429) от 25.06.2015
-
-Tori Kelly - Unbreakable Smile (2015) Target Edition [MP3|320 кб/с]<Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where I Belong (1:27)
-02. Unbreakable Smile (3:49)
-03. Nobody Love (3:23)
-04. Expensive (Feat. Daye Jack) (3:27)(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D41F3A5E5102CDBA9F4071D4DF5A0E2166ED4EB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520546   (612467) от 30.06.2017
-
-Иванушки International - Лучшая Коллекция (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Реви
- 02. Фонари
- 03. Этажи
- 04. Зачем вы, девочки, любите белобрысых(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC91393042F5CE881F3FC74A3C2B4B1987DB42CB
 ```
 
 

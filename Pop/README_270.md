@@ -1,3 +1,246 @@
+###  Публикация: 1280090   (763522) от 01.02.2019
+
+The Beloved - Sweet Harmony: The Very Best of The Beloved (2011) 2CD, RM. [FLAC|Lossless|tracks + .cue] <Pop, Synthpop, House, 80s, 90s>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loving Feeling (3:44)
+02. Satellite (4:15)
+03. Ease the Pressure (4:20)
+04. Scarlet Beautiful (4:40)(   Читать дальше...   )Жанр: Pop, Synthpop, House, 80s, 90s |Продолжительность: 02:38:59 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED3A78B2ED87167D53AFF30641CD9514DC72D84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279937   (763524) от 01.02.2019
+
+Clean Bandit - What Is Love (2018) Japanese Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, Dance-pop, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symphony (feat. Zara Larsson) (03:32)
+02. Baby (feat. Marina & Luis Fonsi) (03:25)
+03. Solo (feat. Demi Lovato) (03:43)
+04. Rockabye (feat. Sean Paul & Anne‐Marie) (04:10)(   Читать дальше...   )Жанр: Indie Pop, Dance-pop, ElectroПродолжительность: 01:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD2AD34D5C5FD57F5ABCE35AEBEBD35D98F52E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280074   (763638) от 01.02.2019
+
+Вика Дайнеко (Виктория Дайнеко) - Магнитные (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763638.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Твоя девочка
+2. Без ума
+3. Под красной луной
+4. По приколу(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFECDB9D2349F7058FC94439AD73509ED29F0567
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280078   (763639) от 01.02.2019
+
+Luis Fonsi - VIDA (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sola (3:24)
+02. Apaga la Luz (3:32)
+03. Le Pido al Cielo (4:07)
+04. Luis Fonsi & Ozuna – Imposible (2:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFA6AC37E87D10C99DCCC7CEC8B0392EF2C29C9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280162   (763642) от 01.02.2019
+
+VA - Bravo Hits,Vol.104 (2019) [MP3|320 Kbps] <Pop, Dance, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763642.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Ava Max - Sweet But Psycho 3:08
+02. HUGEL feat. Amber Van Day - WTF 2:41
+03. Rita Ora - Let You Love Me 3:10(   Читать дальше...   )Жанр: Pop, Dance, R&BПродолжительность: 02:29:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A766D1C3267B491E760FE8BA2FA21A914DC8345C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280082   (763650) от 01.02.2019
+
+НЕСОЛНЦЕ - Восход (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Рай
+02 - Проснись
+03 - Ау
+04 - Сладкая тоска(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B985490D856C7EC46FDE5B8706582053926805C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394477   (763750) от 05.07.2020
+
+The Lagoons - Midnight Afternoon (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FOMO (05:06)
+02. Angel Of My Life (04:00)
+03. So Did I (04:12)
+04. Something Good (03:42)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF44DBC44554D441E1D998DD10A9E08FA80F9B30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214523   (763972) от 22.03.2018
+
+VA - 44 Hits Latino (2018) [MP3|320 Kbps] <Reggae Fusion, Salsa, Bachata, Dembow>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763972.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Camilla Cabello - Havana 3:37
+02. Maluma Feat. Nego Do Borel - Corazon 3:04
+03. Luis Fonsi Feat. Demi Lovato - Echame La Culpa 2:54(   Читать дальше...   )Жанр: Reggae Fusion, Salsa, Bachata, DembowПродолжительность: 02:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C7BD56BB3127FB7C33658EF6075C9F70B2AEE1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214553   (763988) от 22.03.2018
+
+VA - NRJ Future Hits (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763988.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Maitre Gims & Super Sako feat. Hayko  -  Mi Gna (Maitre Gims Remix)  3:35
+02.  Luis Fonsi & Demi Lovato  -  Echame La Culpa  2:54
+03.  Madame Monsieur  -  Mercy  3:58(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4625D88457D4C534438FAC45945C8179EE4F8C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214578   (764058) от 22.03.2018
 
 Motion - Make My Feet Wanna Dance (1997) The Best Of [MP3|320 Kbps] <Electronic, Disco, Electro>
@@ -452,247 +695,6 @@ VA - Club Latino (2000) приложение к журналу Stereo & Video 03
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B80D33BA0CC1D8D9F9FD33EC6B3F90BDBBB921A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126512   (765479) от 18.04.2017
-
-VA - Total Disco (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discotron – Mr Worldwide (Original Mix)
-02. Jack Le Funk – The Disco Ride (Audio Jacker Remix)
-03. Serial Thrilla – Ain’t A Game (Hype The Phunk Remix)
-04. Discotron – I Gotta Go (Original Mix)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33EB826816DFE1B64B5877AF84ED29C88F6561BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126526   (765480) от 18.04.2017
-
-Sign System - Burning Down (1985) LP [MP3|320 Kbps] <Electronic, Synth-pop, Italo-Disco, Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Man On The Run (3:48)
-02. On Fire (4:24)
-03. Stay With Me (4:44)
-04. Game Of Love (4:01)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Italo-Disco, EuropopПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF038A9698B09A76FC136D2DF3FFB8695E70A5DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126607   (765486) от 18.04.2017
-
-Sound Of Music - 2 Albums (1986, 1987) CD [MP3|320 Kbps] <Electronic, Synth-pop, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шведская поп-группа, существовавшая с 1985 по 1987 год в составе вокалисток Angelique Widengren, Nanne Nordqvist со своим мужем Питерем Gronvall, композитором, клавишником и продюсером, сыном известного Benny Andersson из ABBA.01. A Pretty Lovesong (4:27)
-02. Eldorado (4:49)
-03. Peek-A-Boo (3:30)
-04. West Indies Nights (4:45)(   Читать дальше...   )Жанр: Electronic, Synth-pop, PopПродолжительность: 01:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD7894390B2DD6CFEDD54D297290BB2ECA0E699
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126303   (766004) от 17.04.2017
-
-VA - 100 Hits 80s Pop (2017) 5CD, Box Set[FLAC|Lossless|tracks + .cue] <80s, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легкая ностальгия вас иногда пронизывает? Меня ностальгия не мучает – разве что иногда приятно вспомнить суету и веселье тех времен когда ничего в магазинах не было, но у всех всё было, когда была бесшабашная молодость и шабашки летом. А вы когда путешествуете по родным, далеким местам, какие чувства испытываете? Вот и этот сборник по волнам нашей памяти унесет нас (   Читать дальше...   )CD1:
-01. Dead Or Alive - You Spin Me Round (Like A Record)  (3:16)
-02. Haircut 100 - Fantastic Day  (3:15)
-03. Bros - I Owe You Nothing  (3:36)(   Читать дальше...   )Жанр: 80s, Pop, RockПродолжительность: 06:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B5AFCA43564E2B160C45ED7218C3E146A3854C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279391   (766113) от 29.01.2019
-
-One-Two-Three - One-Two-Three (1983) LP [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор и продюсер: Bobby Orlando01. Runaway (5:19)
-02. Midnite Fantasy (5:22)
-03. Another Knife In My Back (6:05)
-04. Falling In Love With Myself (6:51)(   Читать дальше...   )Жанр: Electronic, Hi NRG, DiscoПродолжительность: 00:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC41E49229DF8423CCE174B3A938B6D6C5E30668
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393785   (766212) от 02.07.2020
-
-VA - NRJ Summer Hits Only (2020) 3 CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Напомню, что NRJ Hits является французским телеканалом. Это 100% -ная дочерняя компания NRJ Group, и её предназначение круглосуточная ротация самых последних музыкальных клипов во Франции по кабельному и по спутниковому телеканалам. Дважды в год по итогам ротации выпускает совместно с Sony Music Entertainment France сборники поп-музыки. Один из них - летний сборник (   Читать дальше...   )01. Soolking feat. Dadju - Meleğim  (3:38)
-02. KAROL G & Nicki Minaj - Tusa  (3:21)
-03. Ava Max - Kings & Queens  (2:42)
-04. Soprano - Ninja  (3:05)(   Читать дальше...   )Релиз состоялся: 26 июня 2020 годаЖанр: Pop, Rock, DanceПродолжительность: 02:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D95DBC6DAEE7827520B14D76A38AA6A59ECCDA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393825   (766292) от 02.07.2020
-
-VA - Sexy Bedroom Songs 2020 (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ne-Yo - Sexy Love
-02. Jeremih - Oui
-03. Elias Boussnina - Closer
-04. J Holiday - Bed (Album Version)(   Читать дальше...   )Жанр: PopПродолжительность: 02:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC7ECB8D1C941F898CFB0336C913F31D4D8DB814
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393835   (766295) от 02.07.2020
-
-Zazu - Captain Starlight (1979) 12'' [MP3|320 Kbps] <Electronic, Pop Rock, Cosmic Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Captain Starlight (Englische Original-Aufnahme) (10:53)
-02. Andromeda (4:01)Жанр: Electronic, Pop Rock, Cosmic DiscoПродолжительность: 00:14:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F070A7677275601633C90EEFEE03BCE77CB0B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126353   (766322) от 17.04.2017
-
-Ariane - Boogie Me (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boogie Me (5:22)
-02. Taxi Driver (5:04)
-03. Wig Wam Lady (Cherokee Lover) (4:54)
-04. Your Love Is Heaven And Hell (8:14)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8098E43D6116213ADB54344885707C1AAE6F8EE9
 ```
 
 

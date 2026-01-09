@@ -1,3 +1,165 @@
+###  Публикация: 1537036   (670744) от 14.03.2022
+
+The Future Sound Of London - Music For 3 Books (2021) Compilation [FLAC|Lossless|image + .cue] <Ambient, Experimental, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viewed From Outside (02:47)
+02. The Whispering Masses (04:25)
+03. Orrery (04:20)
+04. Fracti (03:06)(   Читать дальше...   )Жанр: Ambient, Experimental, Modern ClassicalПродолжительность: 00:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A0FD3181828780E35CC15FDA0571F55C824BD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291418   (670834) от 24.03.2019
+
+VA - Radio Dance Charts Vol.1 (40 Radio Smashers) (2019) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ron Reeser & Kriss Norman - Need You (Radio Edit) 3:15
+02. Purple Cafe - Cities (Radio Edit) 3:01
+03. Mr Finga feat. Sven Bünjer - Check The Beatz (Radio Edit) 3:55
+04. Sandy Kay & Antastic - My Way (Radio Edit) 3:05(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DECC0C9803F9A9EA6613D096992DDD7A71388F0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291416   (670835) от 24.03.2019
+
+L A N D (Land) - Night Within (2012) [FLAC|Lossless|tracks + .cue] <Dark Ambient, Dark Jazz, Post Rock>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing Is Happening Everywhere (feat. David Sylvian) (5:40)
+02. Into The Blue (4:46)
+03. Stillman (5:54)
+04. Nighthawks (1:57)(   Читать дальше...   )Производство: Important Records – IMPREC360Жанр: Dark Ambient, Dark Jazz, Post Rock, ElectronicПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00A0A829BD7F8765A8630613BF8EB240950EE8EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291174   (670836) от 24.03.2019
+
+James Dymond - Live @ Elation, Las Vegas [Extended Set] (09-03-2019)[MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Sherry & Alex Di Stefano vs Coming Soon & WAIO - Everyone Is Looking At Us (James Dymond Intro Rework)
+02. Antinomy - A New Dawn (Original Mix)
+03. GMS & Upgrade - 90 Million Degrees (Original Mix)
+04. Paul Denton - Wasp (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F99E7942B91DA791AFD386C49A1A162A185BD248
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291417   (670837) от 24.03.2019
+
+L A N D (Land) - Anoxia (2015) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Experimental Electronic, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Labyrinthitis (3:06)
+02. Neutra (5:36)
+03. Drop City (2:50)
+04. Metamorphosis (9:07)(   Читать дальше...   )Производство: Important Records – imprec429Жанр: Dark Ambient, Experimental Electronic, DroneПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2022461D8AA2FEBBDD393B750D56C5E25F19BA1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136884   (671142) от 24.05.2017
+
+Aly & Fila - Future Sound Of Egypt 497 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marymoon & Martin Roth - Ahead of Time (Original Mix)
+02. Yotto - Wilderness Girl (Original Mix)
+03. Danito & Athina - City Lights (Stereo Underground Remix)
+04. Stoneface & Terminal - North Cape (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4CF2B61D68C585639E0C6422275862CAE604C55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136855   (671149) от 24.05.2017
 
 VA - Space Love (2017) [MP3|320 Kbps] <Balearic, Downtempo, Psychill>
@@ -531,168 +693,6 @@ VA - Ibiza Opening 2017 [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7FE8F8D56CAC79FC4A66B205AAD4890280A9EE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136468   (673246) от 23.05.2017
-
-VA - Scarpa Mykonos 2017  [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gregor V feat. Nina R - With My Soul 04:58
-02. Petros Odin - Sanity (feat Antony Lazos - Sax & Lovers mix) 06:23
-03. V-Sag - Apnoea 06:16
-04. DSF, Dino MFU - The Way I Loved You 05:49(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883DD7780D8B691D9EDC027FD7DDA5054D1B6D5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223604   (673301) от 05.05.2018
-
-VA - Deep House Hits: Ibiza 2018 [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loud Luxury – Body (feat. brando) (Dirtcaps Remix)
-02. Armin van Buuren – Sex, Love & Water (feat. Conrad Sewell) (Loud Luxury Remix)
-03. Lost Frequencies & Zonderling – Crazy (James Remix)
-04. Thomas Gold – Begin Again(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:08:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924A1336F53D7A18A4A416F9F7B709EA0B95932E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223513   (673305) от 05.05.2018
-
-VA - Club Sounds Vol.85 (2018) [MP3|320 Kbps] <Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rudimental Feat. Jess Glynne, Macklemore & Dan Caplen - These Days (Ajr Remix)
-02. Kygo & Miguel - Remind Me To Forget
-03. Felix Jaehn Feat. Marc E. Bassy & Gucci Mane - Cool
-04. The Chainsmokers - Everybody Hates Me(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: Dance, Club
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB95FC4E39F59F3403D74297BDCDD7A1171D334A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223629   (673419) от 05.05.2018
-
-The Future Sound Of London - My Kingdom (Re-Imagined) (2018) FSOLDigital [FLAC|Lossless|WEB-DL|tracks] <Abstract, Ambient, IDM, Leftfield>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Kingdom - Path 7 (11:40)
- 02. Transient Empires (01:53)
- 03. Collapsed Structures (05:38)
- 04. Sound Shadow (01:00)(   Читать дальше...   )Жанр: Abstract, Ambient, IDM, LeftfieldПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5675FCE2703AF7C248C216D0949427607FC4A9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290615   (674073) от 22.03.2019
-
-Flume - Hi This Is Flume (2019) Mixtape [MP3|320 Kbps] <Electronic, Hip-Hop>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674073.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hi This Is Flume
-2. Ecdysis
-3. High Beams (ft. Slowthai)
-4. Jewel(   Читать дальше...   )Жанр: Electronic, Hip-HopПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB38F124FE712E6997FCDC3EE2E681D9859001E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290979   (674080) от 22.03.2019
-
-Autumn - Synthesize (2011) LP, Compilation [MP3|320 Kbps] <Electro, Synth-pop, Minimal>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Say You Hello (5:32)
-02. The Third Autumn (4:33)
-03. Night In June (4:38)
-04. Viginaigre (4:10)(   Читать дальше...   )Жанр: Electro, Synth-pop, MinimalПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF56BB7EA10E31462AB7F8DB6A7960E06B0AB331
 ```
 
 

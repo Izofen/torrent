@@ -1,3 +1,36 @@
+###  Публикация: 752871   (938341) от 04.02.2014
+
+Raffaella Carra - Raffica Carra (2007) 2CD [APE|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Concrete Jungle (4:14)
+02. Burnin' And Lootin' (4:17)
+03. Rebel Music (3 O'Clock Roadblock) (6:47)
+04. Jah Live (4:15)
+05. Positive Vibration (3:35)
+06. Smile Jamaica (3:14)
+07. Natural Mystic (3:31)
+08. Punky Reggae Party (6:53)
+09. Satisfy My Soul (4:32)
+10. Africa Unite (2:58)(   Читать дальше...   )Жанр: PopПродолжительность: 01:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFE069E0FC1A2E6E0317E8179A55885D2F0ABD2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 752873   (938354) от 04.02.2014
 
 Toto Cutugno - Insieme (2004) 2CD [FLAC|Lossless]<Pop>
@@ -701,33 +734,6 @@ Grimes - Miss Anthropocene (2020) [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9BFE07AC5A0483211A0EE6E378D72E0479736B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362415   (949561) от 23.02.2020
-
-Poppy - I Disagree (2020) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Hardcore>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concrete (3:20)
-02. I Disagree (3:13)
-03. BLOODMONEY (3:02)
-04. Anything Like Me (3:19)(   Читать дальше...   )Производство: Sumerian Records – SUM1247Жанр: Pop, Rock, HardcoreПродолжительность: 00:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F8F8B0138A398D010B1E192459A6DAD578B77F8
 ```
 
 

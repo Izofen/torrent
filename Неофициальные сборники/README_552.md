@@ -1,3 +1,30 @@
+###  Публикация: 1114667   (831762) от 15.03.2017
+
+Howlin' Wolf - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coon on the Moon
+02. Louise
+03. Speak Now Woman
+04. Trying to Forget You(   Читать дальше...   )Жанр: BluesПродолжительность: 01:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D55C9989BC7F61F1A6DAF5C201AE1E641FD2A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114390   (831968) от 15.03.2017
 
 VA - Record Super Chart #478 (2017) [MP3|320 Kbps] <House, Club, Dance>
@@ -668,33 +695,6 @@ VA - Deep House Collection Vol.111 (2017) [MP3|320 Kbps] <Deep House, Club House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6825F908C4332F6CBD76CCC5604A33D7C6706276
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114255   (833493) от 14.03.2017
-
-VA - I Love Music! - Nu Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Alternative Metal, Modern Rock, Nu Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833493.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A Day To Remember - We Got This 3:49
-002. Aeges - Drying Out 5:12
-003. Aeges - Save Us 4:27
-004. Afterlife - Pain & Pleasure 3:26(   Читать дальше...   )Жанр: Alternative Metal, Modern Rock, Nu MetalПродолжительность: 06:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4C46E5EC61309DA8617C394FAA3FDD00D848DB1
 ```
 
 

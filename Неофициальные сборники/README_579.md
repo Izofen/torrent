@@ -1,3 +1,30 @@
+###  Публикация: 1106049   (873651) от 19.02.2017
+
+VA - Лучшие блатные хиты года. Выпуск № 7 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873651.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ирина Коган - Поверь Мне Поздно 2:51
+002. Александр Казанцев (Сотник) - Интелегент 3:01
+003. Рома Рязанский - Письмо Матери 5:39
+004. Хасан & Хусен Исмоиловы - Ты Половинка Моя 5:49(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F3173D13FFC158E95A88952D5E5800D8F1BE28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997681   (873681) от 17.03.2016
 
 VA - Deep Meditation 50 Tracks - Healing Sounds of Nature (2016) [MP3|320 кб/с] <Lounge>
@@ -680,33 +707,6 @@ VA - Music News vol.132 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD14227C242E1D2CD1F9765657D911FAED3FB717
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496209   (874639) от 16.09.2021
-
-VA -   Kontor Summer Jam (2021) [MP3|320 Kbps] <Dance, Disco, House, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tinlicker & Helsloot - Because You Move Me
-02. Riton & Nightcrawlers Feat. Mufasa & Hypeman - Friday (Dopamine Re-Edit)
-03. Leony - Faded Love
-04. Purple Disco Machine Feat. Moss Kena & The Knocks - Fireworks(   Читать дальше...   )Жанр: Dance, Disco, House, TranceПродолжительность: 03:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58CB0A8D37246431123161958C5FCF9C958E1EAA
 ```
 
 

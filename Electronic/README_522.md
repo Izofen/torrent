@@ -1,3 +1,157 @@
+###  Публикация: 1445813   (1033507) от 06.02.2021
+
+Tim Schaufert - Save Myself (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tim Schaufert - when we escape (03:46)
+02. Tim Schaufert, Akacia - this time i'll save myself (03:32)
+03. Tim Schaufert - unbroken (03:22)
+04. Tim Schaufert, CASHFORGOLD - i can't get through to you (02:56)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F52466C0311D0081E74A2EDB9EE254E1B0BF604
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445783   (1033519) от 06.02.2021
+
+Bucky - Retribution (feat. D-DUBLL) (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Retribution (feat. D-DUBLL) (03:11)Жанр: Electronic, AmbientПродолжительность: 00:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF1D868B23E00074C87681966D07C0954B6A9064
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445732   (1033521) от 06.02.2021
+
+Bucky - Deep Down (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Down (04:04)Жанр: Electronic, AmbientПродолжительность: 00:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF52049434FFC7A658E211399494F5396E1EAC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445711   (1033534) от 06.02.2021
+
+VA - Armin van Buuren & Ferry Corsten - A State of Trance 1002 (2021) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omnia – Eternity
+02. Kyau & Albert – Runaway Girl
+03. ilan Bluestone & Maor Levi feat. Alex Clare – Hold On
+04. 7 SKIES – ZAO(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE655AECBF1A6A95D3336A7227F6D9D7D2ACD19E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445543   (1033555) от 06.02.2021
+
+VA - Source Of Life CD1 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Facing Jinx, Collette Warren - Missing You (06:17)
+02. Rowpieces - Always Remember The Roots (05:57)
+03. Anthony Kasper - Blockhead (06:39)
+04. Paul SG - FASO (05:39)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:20:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37ABC9F7813A79905750C964C7ED7EFBB88C31D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445571   (1033557) от 06.02.2021
+
+Dubble Vision & Pixel (DNB) - Rastafari Army (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dubble Vision - Rastafari Army (05:27)
+02. Pixel (DNB) - Rich Man Dub (05:09)Жанр: Drum & BassПродолжительность: 00:10:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04AD87776BA2708185EE49C9AAD4842C5B75E760
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445523   (1033558) от 06.02.2021
 
 Newt - -273C (1997) Quantum Loop [FLAC|Lossless|tracks+.cue] <IDM, Techno, Experimental>
@@ -528,168 +682,6 @@ MAS 2008 - De-Cyphered Music (2000) Elektrolux [FLAC|Lossless|tracks] <Electro, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD2DC4C2962683F4C234361A82B0EDE91242BB58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618226   (1033891) от 12.03.2023
-
-Водяные Эльфы - Гики на выгуле (2023) [FLAC|Lossless|WEB-DL|tracks] <Nintendo Core>
-
->>Electronic
->>Hardstyle, Jumpstyle, Hardcore (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Арбузер [00:02:55]
-02. Гики на выгуле [00:03:11]
-03. Мезозой (Remastered 2023) [00:03:02]
-04. Натуралу по е**** [00:03:04](   Читать дальше...   )Жанр: Nintendo CoreПродолжительность: 00:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DB0005626EBA614BFCE737476BCB60DD42730B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618332   (1033893) от 12.03.2023
-
-Peter Mergener - New Horizons (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Berlin School>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033893.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Discovery  6:58
-2. Spaceshuttle  5:47
-3. Surroundings  3:45
-4. Kosmonaut  8:32(   Читать дальше...   )Жанр: Electronic, Berlin SchoolПродолжительность: 00:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B27F32AF34C49F50B30A2375610EEA12769297E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318373   (1033943) от 04.02.2021
-
-Datawave | Aquatronics - Discography 16 Releases (2017-2020) [FLAC|Lossless|tracks] <Electro, Ambient, Acid, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thermofluids (02:40)
- 02. Profuse Elements (03:41)
- 03. Lophelia (04:32)
- 04. Immensity Fields (05:33)(   Читать дальше...   )Тип издания: Web, VinylЖанр: Electro/TechnoПродолжительность: 06:34:51 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A75B77C51BD2ED6506205C15BAF427F7D412F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444966   (1033979) от 04.02.2021
-
-VA - Training Motivation 2021 [MP3|320 Kbps] <House, Dance, Pop>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meduza - Lose Control (02:48)
-02. Bree Runway - ATM (03:07)
-03. Safri Duo - Played-A-Live (The Bongo Song) (06:45)
-04. LittGloss - Might Be (03:08)(   Читать дальше...   )Жанр: House, Dance, PopПродолжительность: 01:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC70022736C209697F510D082335DCA32E5DA98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445013   (1033980) от 04.02.2021
-
-VA - Trance Anthems Vol 9 (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. #LoopMonkeys - The Smell (Re:MSTRD Mix)
-02. 06R - Las Esperanzas (Original Mix)
-03. 10Stage - My Heart & Soul (Outer Space Remix)
-04. 13 Region - Sputnik (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:325448EF9934C850D282631353EB82AD0B907E93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445019   (1033991) от 04.02.2021
-
-VA - Markus Schulz - Global DJ Broadcast - Top 20 January (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & HALIENE - Tidal Wave (Extended Mix)
-02. Fonzerelli - Hope (Extended Mix)
-03. F. Massif - Understatement (Arkham Knights Extended Remix)
-04. Kamaya Painters - Wasteland (Nifra & Fisherman Extended Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6436799CEDE8EF2595FD188D9FE51D35EAA7C38F
 ```
 
 

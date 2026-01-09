@@ -1,3 +1,297 @@
+###  Публикация: 1201235   (780042) от 21.02.2018
+
+Поль Мориа - Музыка хорошего настроения (2005) [APE|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прости мне этот детский каприз
+02. Мой дом и река
+03. Девушка в бикини
+04. Глупышка(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13387109394679395F6965A69F09655CEC857DBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207995   (780078) от 21.02.2018
+
+David Wahler - Mosaic (2018) [MP3|320 Kbps] <New age, Relax, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mosaic (5:56)
+02. Afterain (4:19)
+03. A Promise to Keep (5:47)
+04. Child of the Universe (5:51)(   Читать дальше...   )Жанр: New age, Relax, InstrumentalПродолжительность: 01:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:671D9086F190FCC92F3097B07DE42F0776A2320A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208188   (780097) от 21.02.2018
+
+Guido Negraszus - Night Cafe III (Freedom Travellers) (2012) Guido Negraszus Music [MP3|320 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Guido Negraszus - немецкий композитор, музыкант, продюсер и аудио-инженер в одном лице, живет в красивом предместье на юго-западе города Busselton в Западной Австралии. Изначально начинал как музыкант электронной музыки, но постепенно пришел к своему собственному стилю: универсальному многожанровому звуку. С 1990 года он выпустил много студийных альбомов в жанрах (   Читать дальше...   )01. The Glory 4:27
+02. Travellers of the Skies 5:37
+03. Kiting Dreamers 4:48
+04. Young Heroes (Olympic Dreams) 3:25(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E555511FFBBBA9D81C2421CB7B477918AFD915
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207669   (780242) от 20.02.2018
+
+Brandi Carlile - By the Way, I Forgive You (2018) [FLAC|Lossless|tracks + .cue] <Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Time I Hear That Song 4:01
+02. The Joke 4:39
+03. Hold Out Your Hand 4:23
+04. The Mother 3:17(   Читать дальше...   )Жанр: FolkПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F015A25286819CBEB3708EB70D2FE06A2EAD2ED7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207859   (780245) от 20.02.2018
+
+VA - New Age Style - Greatest New Age Hits, Vol. 18 (2018) [MP3|320 Kbps] <New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Haiku Project feat. Sara Grabow - Earth (4:41)
+02. Leo Rojas feat. Chantelle Barry - Wolf's Heart (3:25)
+03. Terry Oldfield & Carlos Garo - Orbital (3:57)
+04. The Sound Of Love - My Sweet Dream (4:48)(   Читать дальше...   )Жанр: New ageПродолжительность: 02:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F138DAD248D95D90D3D7C49426A838FD9AACA64C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207596   (780391) от 19.02.2018
+
+Maria Rita - Amor E Musica (2018) [MP3|320 Kbps] <Latin Music, Samba>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chama De Saudade 4:36
+02. Nos Passos Da Emocao 2:55
+03. Saudade Louca 4:41
+04. Cara E Coragem 4:01(   Читать дальше...   )Жанр: Latin Music, SambaПродолжительность: 00:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FACDD9148A271FB26FE86928AE6AF22A3CC49D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207122   (780856) от 17.02.2018
+
+Ken Verheecke - Consider the Moon & Stars (2018) [MP3|320 Kbps] <Electronic, New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780856.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  This Languid Motion (6:05)
+2.  Consider the Moon & Stars (4:25)
+3.  Avalon Nights (3:04)
+4.  A Dream in Tangerine (5:04)(   Читать дальше...   )Жанр: Electronic, New ageПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E473264C99B5DBACB564DF250043A0891E555BDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 185059   (781495) от 13.05.2010
+
+VA - New Crystal Vibrations. Compilation 1 - 11 (2010) [MP3|192-320 kbps]<New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New Age, AmbientПродолжительность: 27:30:54
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 50989   (781784) от 18.06.2020
+
+Николай Парфенюк - Собрание заблуждений - 2000
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C'est La Vie 03:39
+02. Рыжики 02:05
+03. Амазонки 04:28
+04. Сожаление 03:39(   Читать дальше...   )Продолжительность: 58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6ACD075A39AD69186509EED7A2A30F27814DAD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390882   (781881) от 18.06.2020
+
+Tim Buckley - Discography (1966-2001) [FLAC|Lossless|tracks + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тим Бакли (Tim Buckley, полное имя — Тимоти Чарльз Бакли III (Третий)) 14 февраля 1947 — 29 июня 1975) — американский исполнитель и автор песен. Его музыка и стиль менялись на протяжении всей карьеры; первый альбом (Tim Buckley, 1966 год) был ориентирован в основном на фолк, но со временем музыкант перешёл к джазу, психоделии, фанку, соулу и авангард-музыке, развивая (   Читать дальше...   )01. I Can't See You (2:43)
+02. Wings (2:34)
+03. Song of the Magician (3:09)
+04. Strange Street Affair Under Blue (3:13)(   Читать дальше...   )Жанр: FolkПродолжительность: 01:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0E597E8BBD2B15538AB0D5B98236FE40D42E0AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205303   (782053) от 14.02.2018
+
+Justin Johnson - Turquoise Trail: Soundtrack for a Western (2017) 2CD [MP3|320 Kbps] <Western, Bluegrass, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782053.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Turquoise Trail
+02. Black Heart of Gold
+03. Pistolero(   Читать дальше...   )Жанр: Western, Bluegrass, FolkПродолжительность: 01:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC78F44E49625760960178C7CAB8559E7F3B3BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390760   (782253) от 17.06.2020
 
 Robert Wyatt - EPs (1974-1978) 1999 Box Set 5 CD, Compilation [FLAC|Lossless|tracks + .cue] <Jazz, Folk, World, & Country>
@@ -395,301 +689,6 @@ Armik - Pacifica (2018) [MP3|320 Kbps] <Nuevo Flamenco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36675BFFC0ADBFB12D573992BE0A8CA781E769FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204613   (784350) от 07.02.2018
-
-Armik - Romantic Spanish Guitar Vol. 3 (2016) [FLAC|Lossless|image + .cue] <Instrumental, Nuevo Flamenco>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sol De Sevilla (04:33)
-02. Noche De Romance (04:42)
-03. For Every Kiss (04:38)
-04. Only for You (04:37)(   Читать дальше...   )Жанр: Instrumental, Nuevo FlamencoПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9AA334D91C5B083D8351229911421CE189317E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203876   (785196) от 04.02.2018
-
-ДиДюЛя - Пещерный город Inkerman (2006) [FLAC|Lossless|tracks + .cue] <Flamenco, Ballad>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тайна скал, ветров туман
-02. Пещерный город Инкерман
-03. Таял звук по капле где-то
-04. Винил крутил времён вендетту(   Читать дальше...   )Жанр: Flamenco, BalladПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD46E8C0F86EE47A08037105A83F3711084D256
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202735   (785302) от 04.02.2018
-
-Sagor Som Leder Mot Slutet - 2 Альбома (2016-2018) [MP3|320 кб/с]<Post-Rock, Post-Metal, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785302.jpg" />
-</div>
-
-
-###  Подробнее
-
-2016 - Sagor Som Leder Mot Slutet
-2018 - IIЖанр: Post-Rock, Post-Metal, InstrumentalПродолжительность: 01:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E46F460A72B5BDAD61CB726E57C0EF103E1867C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276824   (785332) от 20.01.2019
-
-VA - Virtually Surrounded (Headphone Demo) (2018) [FLAC|Lossless|tracks + .cue] <Demonstration & test>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Botti - Lisa (5:06)
-02. Roxy Music - Avalon (4:17)
-03. Nirvana - Come As You Are (Live) (4:00)
-04. Dire Straits - Brothers In Arms (6:52)(   Читать дальше...   )Жанр: Demonstration & testПродолжительность: 01:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B62C07F587149A7CA2A8D0EA7CA7566AE53F7028
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204024   (785350) от 04.02.2018
-
-The Romantic Strings and Twin Pianos - Full Moon & Empty Arms (1993) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laura (3:32)
- 02. I'm Always Chasing Rainbows (3:44)
- 03. Hey There (3:46)
- 04. Moon Love (4:36)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD62E0AFCCFBD47B37DA17F17D74951370F868B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204037   (785360) от 04.02.2018
-
-Stephen Rhodes - Relax II: Your Essential Spa Music (2013) [FLAC|Lossless|image + .cue] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discovery
-02. Voices From The Past
-03. Air of Tenderness
-04. Love Remembered(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C89BF26A12FD4AB1C0D565FAFA0AD583705E0F35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277318   (785361) от 20.01.2019
-
-Сергей Садов - Ближний восток (2018) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785361.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Ближний восток (6:22)
-2.На крыльях ангела (7:18)
-3.Алтай (11:49)
-4.Танец дарвиша (3:36)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6693EF39EC1B989D69FAB7E47D3036BCB0F7FB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203284   (785391) от 04.02.2018
-
-Dino Solera - Classicaly: Dino Solera (1977 /2015) Remastered, Unofficial [FLAC|Lossless|image + .cue] <Instrumental, Disco>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Classically Elise (Elise '77) (5:23)
-02. Suite Concerto (5:12)
-03. Easy Feelin' (4:42)
-04. Theme From A Dream (6:05)(   Читать дальше...   )Жанр: Instrumental, DiscoПродолжительность: 00:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1997A8E92B24344A531A8214A758644CE93AE972
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277282   (785404) от 20.01.2019
-
-David Arkenstone - Fairy Dreams (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Twinklelace Glen
-02 – The Water Fairy
-03 – Dream Shadows
-04 – Fairy Dreams(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB9A61642EB7BDE9ED9320C0F9BB2B6742D7E72A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124715   (785613) от 12.04.2017
-
-Птицы Тёрна - «Живой» альбом (2017) Live [MP3|320 Kbps] <Fantasy Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Конферансье [1:16]
-02. Вступление [1:30]
-03. Пой, Клинок! [2:49]
-04. Идущим [4:04](   Читать дальше...   )Жанр: Fantasy FolkПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F6B77946B4FF7409BEC4771ABC41F809EA671E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124746   (785646) от 12.04.2017
-
-Аlрha Wаvе Моvemеnt - Сеruleаn Skіes (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785646.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. As Above So It Flows 05:37
-2. Organic Metamosphosis 14:21
-3. Thermospheric Induction 05:32
-4. Lattices Of Light 09:18(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:761F83ACCC0DF539C087EC730796FC0C72CAEFE9
 ```
 
 

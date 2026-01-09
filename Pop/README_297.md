@@ -1,3 +1,246 @@
+###  Публикация: 1117670   (815200) от 24.03.2017
+
+Любовные истории - Любовные истории (2004) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не могу сказать тебе
+02. Три ночи
+03. Позволь мне
+04. Мы с тобой снова встретились(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7865993C86AB647111DBAF254B13DE944CEE04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197552   (815290) от 07.01.2018
+
+VA - Московские окна. Песни на все времена (1995) [FLAC|Lossless|tracks + .cue] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Леонид Утёсов - Московские окна (Т.Хренников-М.Матусовский) (4:51)
+02. Эмиль Горовец - Голубые города (А.Петров-Л.Куклин) (3:00)
+03. Эдуард Хиль - Человек из дома вышел (С.Пожлаков-А.Ольгин) (2:29)
+04. Эдита Пьеха - Только ты (Бук Раманд-И.Самойлов) (2:01)(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:50:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F4460EF7751AFD16AED295464FD410236AF997
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008488   (815356) от 18.04.2016
+
+Леонид Агутин - Просто о важном (2016) [FLAC|Lossless|tracks + .cue] <Pop, Bossa Nova, Jazz Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Отец рядом с тобой (4:12)
+02. Севастополь (4:27)
+03. Птица чёрная (3:53)
+04. Ты плачешь (3:43)(   Читать дальше...   )Жанр: Pop, Bossa Nova, Jazz PopПродолжительность: 00:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3037AE24C9F15913E8CC3FFC3071B8DFDED5D98C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197384   (815424) от 07.01.2018
+
+VA - 90's Spirit (2014) 4CD [MP3|320 Kbps] <Eurodance, Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815424.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1-Hits 90's:
+01.  Gala  -  Freed From Desire  3:42
+02.  Haddaway  -  What Is Love  4:41
+03.  Dr. Alban  -  Sing Hallelujah !  3:38(   Читать дальше...   )Жанр: Eurodance, Euro HouseПродолжительность: 05:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:861AA9CE33F162B9AC1397ECB0D31DF92833ABF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118058   (815475) от 24.03.2017
+
+VA - MUM: The Collection (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sister Sledge - We Are Family (3:37)
+02. Chaka Khan - I'm Every Woman (4:07)
+03. Duran Duran - Girls On Film (Night Version) (5:43)
+04. Plan B - Love Goes Down (3:52)(   Читать дальше...   )Жанр: PopПродолжительность: 04:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC64C1B82A3F53DF5F337D5ABC8EA63652DBC28B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382993   (815586) от 13.05.2020
+
+Camp Galore - Deco Disco (1976) LP [MP3|320 Kbps] <Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yes, Sir That's My Baby (3:49)
+02. Ballin The Jack (4:19)
+03. Golden Slippers (4:31)
+04. I'm Looking Over A Four Leaf Clover (4:11)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B346EFF349B0E2DFF331696C361048314BB8939E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197393   (815669) от 07.01.2018
+
+VA - ZYX Italo Disco Instrumental Hits (2017) 2CD, Compilation [MP3|~245 Kbps (V0)] <Instrumental, Italo Disco, Eurodisco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radiorama - Aliens (Instrumental) (3:54)
+02. P. Lion - Happy Children (12" Instrumental) (6:32)
+03. Valerie Dore - The Night (12" Instrumental Version) (5:32)
+04. Mike Mareen - Love-Spy (Instrumental) (4:07)(   Читать дальше...   )Жанр: Instrumental, Italo Disco, EurodiscoПродолжительность: 02:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80C945F722EF9DD07B44CF60B9659FF9C79E94A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197577   (815675) от 07.01.2018
+
+VA - Venti Compilation 4 (2016) 2CD, Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Disco, Hi NRG, Electro, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Albert One - Face To Face (5:46)
+02. Digital Emotion - Full Control (6:06)
+03. California - Volerei (6:21)
+04. Rofo - Summer Love (5:49)(   Читать дальше...   )Жанр: Italo-Disco, Disco, Hi NRG, Electro, Synth-popПродолжительность: 02:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F8716C7A9D19A4DE46CCEB687A6B779FB63224
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197074   (815681) от 07.01.2018
+
+VA - Glam Rock Party Supermix (1998) [FLAC|Lossless|image + .cue] <Glam, Cover>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hello Hello, I'm Back Again? / I'm the Leader of the Gang / Glisten Yeah / Rock and Roll / I Didn't Know I Loved You / Do You Wanna Touch Me / I Love You Love Me
+02.Blockbuster! / Teenage Rampage / Wig-Wam Bam / The Ballroom Blitz / Hell Raiser / Fox on the Run
+03.Daytona Demon / Can the Can / Devil Gate Drive / 48 Crash
+04.You, You,You / Red Dress / My Coo Ca (   Читать дальше...   )Жанр: Glam, Cover versionПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4814C5188E5CFE840283918901FD64397924BDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008594   (815686) от 18.04.2016
 
 GooGooSha - GooGooSha (2012) [MP3|320 кб/с] <ElectroPop>
@@ -453,249 +696,6 @@ Montmartre - Hope (2016) [MP3|320 кб/с] <Synthpop, Electropop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FADA70594AD19A44301C85E88762DDA4A185DDD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008219   (818093) от 17.04.2016
-
-Paul Handyside - Tide, Timber & Grain (2016) [FLAC|Lossless|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flowers Won't Bloom    05:38
-02. Fond Farewell    04:16
-03. Let Me Down Easy    03:52
-04. All Will Be Revealed    03:51(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:871A7F57B4D6F94E86384CC9D1B24E950851E4BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117234   (818558) от 22.03.2017
-
-Arabesque - The HQ Vinil Collection (1978-1984) All Studio Albums [MP3|320 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкая поп-группа, работавшая в жанре диско с элементами хай-энерджи, получившая мировую славу. Основная вокалистка группы Сандра, после распада группы продолжила успешную сольную карьеру (в 1990-х годах также принимала участие в проекте Enigma). Раздача представляет полную дискографию группы, состоящую из студийных альбомов, выходивших на фирменных виниловых дисках, (   Читать дальше...   )Список альбомов:
-1978 - Friday Night
-1979 - City Cats
-1980 -  Marigot Bay(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 05:34:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEE24CC92368844CEAE1A9601B9D554E6D4CFD39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196872   (818771) от 05.01.2018
-
-Георг Отс - Золотые россыпи романса (2000) [APE|Lossless|tracks] <Ретро, Романс>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ария Мистера Икса 3:57
-02. Я вас любил 7:13
-03. Я помню вальса звук 3:47
-04. Услышь меня, хорошая 4:45(   Читать дальше...   )Жанр: Ретро, РомансПродолжительность: 01:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D287E01A982A420E4227A3B9FC2E9587B6D000
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197024   (818778) от 05.01.2018
-
-Joy - Best (1986) Compilation, Reissue [FLAC|Lossless|tracks + .cue] <Synth-pop, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch By Touch (3:50)
-02. Kisses Are The Doctor's Order (3:29)
-03. Chinese Girls (3:40)
-04. Valerie (4:12)(   Читать дальше...   )Жанр: Synth-pop, Euro-DiscoПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E479A8167AB748C5BD7A78FDEDB57D4BDE7132E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117433   (818783) от 22.03.2017
-
-Fancy - Bolero The Hit Collection & More (2012) [FLAC|Lossless|tracks + .cue] <Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flames Of Love (5:20)
-02. Colder Than Ice (5:06)
-03. Bolero (Hold Me In Your Arms Again) (5:40)
-04. After Midnight (4:42)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 01:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC57D33478DC3AC383F02F908913F491120E1B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196963   (818873) от 05.01.2018
-
-Maroon 5 - Red Pill Blues (2017) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Best 4 You
-02. What Lovers Do (Feat. SZA)
-03. Wait
-04. Lips On You(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29881F19FC1D4F153AA678EAB4274FB134410927
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117249   (818930) от 22.03.2017
-
-VA - Acoustic: The Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alanis Morissette - Ironic (Acoustic Version) (3:56)
-02. Coldplay - The Scientist (5:10)
-03. Bruno Mars - Grenade (Acoustic) (4:07)
-04. James Blunt - 1973 (Acoustic) (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 03:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91BA5E68B9D9B9EF0703A4F8C1CAFA5D82ABAF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117411   (818938) от 22.03.2017
-
-Fancy - Bolero The Hit Collection & More (2012) [MP3|320 Kbps] <Disco, Italo-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flames Of Love (05:21)
-02. Colder Than Ice (05:08)
-03. Bolero (Hold Me In Your Arms Again) (05:41)
-04. After Midnight (04:43)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 01:18:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2DE136A436F34892A8B75D836F35862F9D93AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117415   (818939) от 22.03.2017
-
-Лариса Черникова - Любовное настроение (2004) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Одинокий волк [4:03]
-02. Рука в руке [4:16]
-03. Ты полети, моя звезда! [4:53]
-04. Подари мне ночь [4:05](   Читать дальше...   )Жанр: PopПродолжительность: 01:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62C0B6691C99E315C4DF506F694D0040142D3DD0
 ```
 
 

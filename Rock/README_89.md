@@ -1,3 +1,57 @@
+###  Публикация: 1490727   (915405) от 22.08.2021
+
+Eric Clapton - Eric Clapton (2021) Anniversary Deluxe Edition [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teasin' [00:02:14]
+02. Comin' Home (Alternate Version) [00:06:52]
+03. Blues In "A" [00:10:26]
+04. She Rides [00:05:10](   Читать дальше...   )Жанр: RockПродолжительность: 4CD, 02:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B75EF6C4F03FB11FDB63FCCA8637A3E46A120F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367545   (915637) от 16.03.2020
+
+VA - I Love Rock Ballads (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matchbox Twenty - Push 3:59
+02. Yes - Owner Of A Lonely Heart (2008 Remaster) 4:27
+03. Marillion - Kayleigh (1998 Remaster) 3:35
+04. White Lion - When The Children Cry 4:18(   Читать дальше...   )Жанр: RockПродолжительность: 02:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92425B97E6A7C2FA7C36CF8418B5BCBEA177396B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989799   (915781) от 23.02.2016
 
 ME - Another Story High (2012) [MP3|320 кб/с] <Alternative, Progressive Rock>
@@ -666,60 +720,6 @@ QSP (Quatro Scott Powell) - QSP (2017) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:919434E95D82AA69D25AF7F0D087D22F19F32B17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095464   (924471) от 21.01.2017
-
-Mason - Harbour (1971) Reissue, 1999, Gear Fab Records [MP3|320 Kbps] <Psych-Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Burn
-02. Tell Me
-03. Electric Sox And All
-04. Golden Sails(   Читать дальше...   )Жанр: Psych-Prog RockПродолжительность: 00:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FDB34C232044C220B79D1E75F4DB966EB97761D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365929   (925503) от 10.03.2020
-
-The Karaoke Band - The Led Zeppelin 1960- 70s Karaoke Songbook 1 (2008) 2CD [MP3|320 Kbps] <Instrumental Rock, Karaoke>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Immigrant Song
-02. Four Tops
-03. Tangerine
-04. Gallows Pole(   Читать дальше...   )Жанр: Instrumental Rock, KaraokeПродолжительность: 01:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831AD6A7D10F01B0189930C133F04CE8540F67F0
 ```
 
 

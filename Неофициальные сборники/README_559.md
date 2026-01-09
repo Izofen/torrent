@@ -1,3 +1,30 @@
+###  Публикация: 1379223   (840746) от 28.04.2020
+
+Bonfire - 100% Bonfire (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gotta Get Away
+02. Hold Me Now
+03. When an Old Man Cries
+04. Temple of Lies(   Читать дальше...   )Жанр: RockПродолжительность: 03:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D1EB7B60E14D8ADE7BCB022513B3C3D005465C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 309840   (840913) от 16.03.2011
 
 Va - Дискотека От Руки Вверх (2011) [MP3|256 kbps]<Pop/Dance >
@@ -653,33 +680,6 @@ magnet:?xt=urn:btih:7D41628A0DCF22D9309B85F8F6D958C7C798CB7D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEE4D44F68BC8EA1F8DF1C657D05A3BAEC373C49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112093   (842935) от 08.03.2017
-
-VA - Blues Forever vol.69 - vol.72 (2017) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delta Twins - It Won't Be Long
-02. Larry Miller - Road Runner
-03. Kal David & Lauri Bono - Help The Poor
-04. Derric Procell - Who Will Tell Lucille(   Читать дальше...   )Жанр: BluesПродолжительность: 05:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44CEF850C96EE188B45049F5BA3FF611763449AB
 ```
 
 

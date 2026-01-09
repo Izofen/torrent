@@ -1,3 +1,84 @@
+###  Публикация: 74433   (693618) от 18.08.2020
+
+Telarc: Sampler Five Plus, Sound Effects Library [1996] [flac] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Newman / 20th Century Fox Fanfare    [0:00:25.55]
+      Kunzel / Cincinnati Pops Orchestra
+
+02. Williams / Music from Space Camp    [0:04:01.57](   Читать дальше...   )Жанр: ClassicalПродолжительность: 68:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6648C7EA95E09C097F5C87F8ECEFC959E7C46C48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027856   (694170) от 20.06.2016
+
+Anderson & Roe Piano Duo - The Art of Bach (2015) [FLAC|Lossless|tracks] <Classical, Keyboard>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gottes Zeit ist die allerbeste Zeit, BWV 106 'Actus tragicus' 
+01.  BWV 106 - Sonatina in E flat  02:30
+Concerto for 2 Harpsichords in C major, BWV 1061
+02.  BWV 1061A- 1. (Allegro)    07:07(   Читать дальше...   )Жанр: Classical, KeyboardПродолжительность: 01:14:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DBA9268199177AF8AE0BB1D23095559F12CC40F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027848   (694292) от 20.06.2016
+
+Ensemble Il Trittico, David Greenlees - Joseph Joachim Raff: Piano Quartets (2011) [FLAC|Lossless|tracks] <Classical, Chamber Music>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Quartet in G major, Op. 202, No. 1
+01.  Op.202, No.1 - 1. Allegro    12:49
+02.  Op.202, No.1 - 2. Allegro molto    05:46
+03.  Op.202, No.1 - 3. Andante quasi Adagio    11:43(   Читать дальше...   )Жанр: Classical, Chamber MusicПродолжительность: 01:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D95F7530825EA162A7C6A6648331332CC2ADB4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288452   (695548) от 11.03.2019
 
 Ilyin - Lie (2019) [MP3|320 Kbps] <Neo-Classical, Baroque>
@@ -614,87 +695,6 @@ VA - Great Romantic Symphonies (2012) Naxos 25th Anniversary. The Great Classics
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:612EF465954F617B234D5D49847F4AA537102F71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530793   (727815) от 12.02.2022
-
-Sofiane Pamart - LETTER (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Solo Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DEAR (2:39)
- 02. PUBLIC (3:42)
- 03. YOUR (2:16)
- 04. LOVE (4:17)(   Читать дальше...   )Жанр: Modern Classical, Solo PianoПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58030DEEE25B7635F77DFFF8BF358549F0539983
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022470   (728586) от 02.06.2016
-
-Mario Lanza (Марио Ланца) - Welterfolge/Mein Herz Singt Nur Für Dich! (1991) [APE|Lossless|image + .cue] <Classical, Vocal>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Begin the beguine
-02. On the street where you live
-03. Yours is my heart alone
-04. Mamma... quel vino(   Читать дальше...   )Жанр: Classical, VocalПродолжительность: 01:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D1C725AA10ECECD1059C12ACBF6A423D47F919C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283278   (731940) от 18.02.2019
-
-Yann Tiersen - ALL (2019) Mute Artists Ltd. [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Ambient, Contemporary>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tempelhof (6:09)
- 02. Koad (6:01)
- 03. Erc’h (9:21)
- 04. Usal Road (2:59)(   Читать дальше...   )Жанр: Neoclassical, Ambient, ContemporaryПродолжительность: 01:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72D1B2854CD40FAF3BB02464304F526F034E8ABF
 ```
 
 

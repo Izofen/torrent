@@ -1,3 +1,30 @@
+###  Публикация: 1286976   (707120) от 05.03.2019
+
+VA - Mastodon (2019) [MP3|320 Kbps] <Hard Rock, Metall>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707120.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Old Red Skin - Three Plagues
+002. Warmarshal - Armageddon Awaits
+003. Serpents Kiss - Dragon Lord
+004. Kobra And The Lotus - Losing My Humanity(   Читать дальше...   )Жанр: Hard Rock, MetallПродолжительность: 11:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E8B75F8C0C1686C75FC8EA7753B5B4ADBD7244
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 894531   (707306) от 02.05.2015
 
 VA - Extra Lounge (episode 8) (2015) [MP3|320 кб/с]<Lounge, Chill Out>
@@ -669,33 +696,6 @@ VA - Hits Cocktail Vol.6 (2017) [MP3|320 Kbps] <Dance , Club House , Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE962AE9D1FC3B3ECBE5159027ECC60ED2C822F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131415   (708783) от 05.05.2017
-
-VA - Громче чем Бомба. Жаркий Уикенд. (Sound Clinic - Bass Edition) (2017) [MP3|320 Kbps] <Bass House, Tech House, G-House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708783.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adtr - If It Means A Lot To You (Cherney Remix) 2:58
-002. Affkt - Notch (Original Mix) 6:15
-003. Alberto Ruiz - Kryptonita (Original Mix) 6:21
-004. Ale F & Crazy Sonic - Synchronize (Original Mix) 7:09(   Читать дальше...   )Жанр: Bass House, Tech House, G-HouseПродолжительность: 01:02:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:003D35897CC4BA5673BEAB8A90A3C00E39523E52
 ```
 
 

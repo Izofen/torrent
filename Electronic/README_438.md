@@ -1,3 +1,165 @@
+###  Публикация: 1501614   (835126) от 10.10.2021
+
+NTO - Apnea (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apnea (03:09)
+02. Petit Matin (07:29)
+03. Beyond Control (feat. Monolink) (05:33)
+04. Vivre beaucoup (06:44)(   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 01:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E71FBAA30022E4E0D27D0FB9D31A0BDE8ED9882E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114125   (835339) от 13.03.2017
+
+VA - Artist Choice 049. Seven24 (Chillout Selection) (2017) [MP3|320 Kbps] <Chillout, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Barrel - On the Beach (6:46)
+02. Deep Active Sound - Sunrise (Dynamic Illusion Chill Out Mix) (5:01)
+03. Erin - Sun Children (Dynamic Illusion 'Solar Flare' Remix) (6:54)
+04. Robert R. Hardy - Eastern Crying (7:49)(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 02:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51057434C660B076B601CA16F0609388E580FBFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 879762   (835665) от 19.03.2015
+
+Aly & Fila - The Chill Out (2015) [MP3|320 кб/с]<Chillout, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila - Lost Language (Chill Out Mix) (4:54)
+02. Aly & Fila feat. Sue McLaren - Mysteries Unfold (Chill Out Mix) (3:47)
+03. Aly & Fila feat. Jwaydan - We Control The Sunlight (Chill Out Mix) (3:28)
+04. Aly & Fila - First Sun (Chill Out Mix) (4:36)(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 01:02:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A919A6D6E61BC924E7BF4BFCBD081DAC487401
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379676   (836108) от 01.05.2020
+
+VA - Sexy and Beautiful (Chillout Edition) (2020) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836108.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rainbow Beats – Bugel (Chillout Mix)
+2. Las Vegas Grooves – Maenace (Nocturne Mix)
+3. Chill Boys – Cineteca (Chillout Mix)
+4. Solarian – Solarian (On the Sea Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0110D5CA2321B141FBB659CDE9817A7D4104C5CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380005   (836265) от 01.05.2020
+
+VA - Positive Vibrations, Vol.1 (Compiled By Vicky Merlino) (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836265.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Vicky Merlino - Positive Vibrations (Dj Set) (1:00:00)
+2. Vicky Merlino; Haley; Gig141 - My Little Alien Frog (7:29)
+3. Pleiadians - Pleione (Morning Mix) (8:17)
+4. Midiride; Liquid Space - Bubblegun (8:03)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70E5D4F181AD99040CCBC041AE5B94262F9D4F29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379836   (836378) от 01.05.2020
+
+VA - Southbeat Music Pres: Gym Music Motivation (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Project 91 And Enyo - Amigos
+02. Manuel Costa And Oscat - Out Of Control
+03. Mirro And WDBS - Land Dance
+04. Van Snyder - For You(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8764CD84E86FBA64CD5FAEC24BCCCB107B6B9824
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379987   (836387) от 01.05.2020
 
 Interactive Noise - The Unreleased Live Mix (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
@@ -532,165 +694,6 @@ Munich Syndrome - электронная поп-группа, основанна
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A835850B1D8959F3697B33EBDF8F67921D101CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004673   (838183) от 06.04.2016
-
-Motorcitysoul - Technique (2008) [FLAC|Lossless|tracks + .cue] <Deep House, Tech House, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Start (1:20)
-02. Deliver Me (feat. Ernesto) (6:36)
-03. Space Kätzle (6:45)
-04. Solar (5:15)(   Читать дальше...   )Производство: Simple Records – SIMPLECD04Жанр: Electronic, Deep House, Tech HouseПродолжительность: 01:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08BB5F919CEEB6355838764EC4A9A002FB5A6B46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113083   (838319) от 11.03.2017
-
-B-Movie - Climate of Fear (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic Pop Rock, Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another False Dawn
-02. Come Closer
-03. San Francisco
-04. Corridors(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3554886C023644239D8F101F223129E8F7280AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113364   (838543) от 11.03.2017
-
-V.A. - House Del Mar (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sabado Playground - Perdoname (Tropical House Version)
-02. Red Hot Viper - Gabardino
-03. Gridlocks - The Cratouille
-04. Elton Ames - Beach House(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 02:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F99437098A1CD5A12835B9793EC404DA00DEFC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112973   (838548) от 11.03.2017
-
-VA - Dumbbell Training Overcome Your Weakness (2017) [MP3|320 Kbps] <Deep House, Electronic, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838548.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lucifah - Learn 03:36
-002. Martin Pool - Comples 02:58
-003. Joel Fuel - Stage 03:37
-004. Interfacer - Charge 04:41(   Читать дальше...   )Жанр: Deep House, Electronic, ProgressiveПродолжительность: 06:51:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:382CB1F55A7A7117C034C63CF4D61B32CFECE853
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112906   (838641) от 11.03.2017
-
-Marbert Rocel - In The Beginning: Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold On (Deetron Dub) (6:08)
- 02. Dawn Of The Day (Snacks Remix) (5:50)
- 03. With Your Love (Quarion Remix) (7:05)
- 04. Hold On (M.ono & Luvless Remix) (6:54)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8587E5545310842E1EE2D47F91FB1A9D430C7BED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 772762   (838713) от 01.04.2014
-
-VA - HeavensGate vol.3 Aluminium Edition (Mixed by Alex M.O.R.P.H B2B Woody Van Eyden) (2014) [FLAC|Lossless|WEB-DL]<Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 02:23:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E002E29703C707E74E6DED6AC3F87946410D3E88
 ```
 
 

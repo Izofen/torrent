@@ -1,3 +1,30 @@
+###  Публикация: 1402937   (697438) от 16.08.2020
+
+VA - Зайцев.нет Лучшие новинки Августа (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 044 ROSE - Виды (3:10)
+02. 2 Chainz feat. Lil Wayne - Money Maker (3:00)
+03. 6ix9ine - PUNANI (1:55)
+04. Alexandra Stan feat. LiToo - Tikari (2:34)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C3931A836D8632559AB4C2B8F8AAF7978BDD0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 794344   (697452) от 08.06.2014
 
 VA - My Favourite Hits of 1983 (10CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth pop, New age, Pop rock, Rock>
@@ -668,33 +695,6 @@ VA - Вальяжный Май: Сборник Шансона (2017) [MP3|256 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2572B5BE0E938637BE4C9A219B9FF9A7D4F3F442
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221118   (698707) от 22.04.2018
-
-VA - View In Color: Deep House Club Essential (2018) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698707.jpg" />
-</div>
-
-
-###  Подробнее
-
-С каждым наступившим новым днём все больше убеждаешься, что прочувствовать приход весны, тёплого солнца и настоящего отдыха помогает правильная музыка. Речь идет о направлении House, Deep-House – это относительно спокойная, гармоничная и глубокая музыка, помогающая максимально расслабиться и отрешиться от суеты.001. Universe 314 - The Segret Is Dream (Deepbass Mix)
-002. Captain Freeman - Don't Do It
-003. Star Hub - A Matter (Modell & Mercier's Fashion Mix)
-004. Todor Ivanov - Sunrise (Original Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 08:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:948B062E969AA46EC547AAE163B5CB7E395FB887
 ```
 
 

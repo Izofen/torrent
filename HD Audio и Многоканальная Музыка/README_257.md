@@ -1,3 +1,30 @@
+###  Публикация: 1090476   (947206) от 06.01.2017
+
+Annie Lennox - Diva (1992) Unofficial Release [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947206.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Why (4:54)
+A2. Walking on Broken Glass (4:13)
+A3. Precious (5:10)
+A4. Stay by Me (6:26)(   Читать дальше...   )Производство: Not On Label - ДRT 1008Жанр: PopПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F90EFB35DE2E7ADE63B7B4637B29FD79445BDAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 174227   (947635) от 24.02.2020
 
 Yello - The New Mix In One Go (Upmix) (1980-1985) [DTS]<Electro, Synth-pop>
@@ -668,39 +695,6 @@ Patricia Kaas - Mademoiselle Chante... (1988) [FLAC 2.0 24/96|image (Vinyl-Rip)]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4569D68A1729E88EBF9C677A6815528BCCFFE8D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616296   (976088) от 09.02.2013
-
-U2 - Achtung Baby (1991) [FLAC 2.0 24/192|tracks (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976088.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Zoo Station 4:30
-A2. Even Better Than the Real Thing 4:04
-A3. One 3:54
-A4. Until The End Of The World 5:31
-A5. Who's Gonna Ride Your Wild Horses 4:31
-A6. So Cruel 4:21
-B1. The Fly 4:38
-B2. Mysterious Ways 3:42
-B3. Tryin' to Throw Your Arms Around the World 4:37
-B4. Ultraviolet (Light My Way) 4:40(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A890FFA649118C5568151D5A8EE3EDC5439569
 ```
 
 

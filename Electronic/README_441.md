@@ -1,3 +1,165 @@
+###  Публикация: 1499918   (844156) от 04.10.2021
+
+Yello - Yello 40 Years (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Synth-Pop, Techno, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844156.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - THE FIRST 20 YEARS:
+01. Bimbo (Remastered 2005) (3:35)
+02. Pinball Cha Cha (Remastered 2005) (3:24)
+03. The Evening's Young (Remastered 2005) (3:08)(   Читать дальше...   )Жанр: Synth-Pop, Techno, ElectronicПродолжительность: 04:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34AAEFD3E057D4C383C38B85B802D30996FE450
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499877   (844522) от 04.10.2021
+
+Eisfabrik - 10 Releases (Discography) (2015-2020) [MP3|320 Kbps] <Synthpop, Futurepop, EBM>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ice Crystal (3:53)
+02. Ice Crystal (Melting Point Mix) (6:12)
+03. New Signs (3:46)
+04. Ice Crystal (Bitter Cold Mix) (3:40)(   Читать дальше...   )Жанр: Synthpop, Futurepop, EBMПродолжительность: 07:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35BF66176748C159E55F057449F3C470F3FF8707
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112207   (844604) от 07.03.2017
+
+Depeche Mode - Where's the Revolution (Remixes) (2017) Single [FLAC|Lossless|tracks + .cue] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where's The Revolution (Album Version) (4:59)
+ 02. Where's The Revolution (Ewan Pearson Remix) (8:36)
+ 03. Where's The Revolution (Algiers Remix) (4:55)
+ 04. Where's The Revolution (Terence Fixmer Remix) (6:23)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9FFBCE2DA30B9F1EB304906F75C09EA0792E4E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111957   (844839) от 07.03.2017
+
+NKOHA - autumn (2015) EP [MP3|192 Kbps] <Electronic, Cloud, Beat>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. destined 3:57
+02. for prince 4:24
+03. backroom 3:55
+04. then 3:36(   Читать дальше...   )Жанр: Electronic, Cloud, BeatПродолжительность: 00:22:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94F5E1EF6F1B8FABE2764B944D9BE95B94E00DC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112176   (844853) от 07.03.2017
+
+Moby - Suara Remixes (2017) [MP3|320 Kbps] <Techno, Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go (Victor Ruiz Remix) 09:19
+02. Porcelain (Julian Jeweil Remix) 06:31
+03. Natural Blues (Reinier Zonneveld's Homage Remix) 07:17
+04. Go (Victor Ruiz Warehouse Mix) 07:43(   Читать дальше...   )Жанр: Techno, Deep House, Tech HouseПродолжительность: 00:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36AEDF228A52E063F9C2C9B49C7CDCC166AE394D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112134   (845048) от 07.03.2017
+
+Beborn Beton - She Cried (2016) EP [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Cried (Single Edit) (4:25)
+ 02. The Black Hit Of Space (Version) (4:55)
+ 03. She Cried (Extended Club Remix) (6:21)
+ 04. 24/7 Mystery (Remix by Val Solo of S.P.O.C.K.) (3:53)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAFC97E32B94C51799A3450E3DDD3755CBB67A0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002971   (845112) от 02.04.2016
 
 Sasha - Scene Delete (2016) [MP3|320 кб/с] <Electronic, Ambient, Downtempo>
@@ -530,168 +692,6 @@ Lemongrass - Temptations (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D5CA7A1E6EA0DF1397BE4C0DC9874C09419576B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002809   (847102) от 01.04.2016
-
-VA - Lounge Deluxe, Vol 3 (50 Fantastic Lounge Grooves) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steen Thottrup - Save a Little Prayer - Original Mix [06:39]
-02. Jose Delgado - Summerset Area - Original Mix [05:28]
-03. Stefano Monza - People from Ibiza - Chill-Out Mix [04:14]
-04. Florito - Nokondi - Original Mix [06:25](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A031B90F01347AA1BC012DAC0798AC0D3049DFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002829   (847108) от 01.04.2016
-
-VA - Goa Vol.2 (Compiled by DJ Bim) (2016) [MP3|320 кб/с] <Trance, Psy Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Invisible Reality - Invention & Innovation 07:46
-02 PehrBerg - Footprints 08:57
-03 Hasche - Solid Ground 08:21
-04 Kristallklar - Global Spin 07:58(   Читать дальше...   )Жанр: Trance, Psy TranceПродолжительность: 02:27:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A82EF2E8C20688368C51A4CBFCAE04F86323283
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378039   (847958) от 24.04.2020
-
-IC3PEAK - До Свидания (2020) [MP3|320 Kbps] <Electronic, Experimental>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мертвая Луна [03:17]
-02. Я целую твой труп [03:54]
-03. Интерлюдия [01:37]
-04. Все равно [03:03](   Читать дальше...   )Жанр: Electronic, ExperimentalПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EC22FAA18669A85C25A320BB6120BD197C3EF6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378147   (848158) от 24.04.2020
-
-Boris Brejcha - Thunderstorm (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848158.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Thunderstorm (7:37)
-2. The Awakening (8:38)
-3. Nothing Seems To Be (9:19)
-4. Titelbild (7:43)Жанр: Tech House, MinimalПродолжительность: 00:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26B5EF67CE4E2AE3A90852F05182A6504168A24E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378125   (848168) от 24.04.2020
-
-Parov Stelar - Voodoo Sonic: The Trilogy, Pt. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Nu Jazz>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brass Devil
-02. Piano Boy
-03. Don't You Forget (feat. Lilja Bloom & Anduze)
-04. Fade to Red (feat. ESCHES)(   Читать дальше...   )Жанр: Electronic, Nu JazzПродолжительность: 00:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990B4444CF2EFDE96E5C70D8ADD0FBDB4A2156AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378133   (848340) от 24.04.2020
-
-Zymosis - Timeless (2020) Sentimony Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Breaks, Downtempo, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zymosis - You Don't Have Time (07:43)
- 02. Zymosis - Discover Yourself (07:53)
- 03. The Doox - Rano (Zymosis Remix) (05:29)
- 04. Zymosis - Perception Limit (07:06)(   Читать дальше...   )Жанр: Psybient, Breaks, Downtempo, Progressive TranceПродолжительность: 01:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D5636F5F18632A956924FD12E5061DC2EE44C2
 ```
 
 

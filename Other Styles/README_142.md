@@ -1,3 +1,300 @@
+###  Публикация: 1009475   (808110) от 22.04.2016
+
+Trailer Radio - Country Girls Ain't Cheap (2016) [MP3|320 кб/с] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Granny's Got the Baby (Cause Mama's Doin' Time) (03:42)
+02. Country Girls Ain't Cheap (04:09)
+03. Dirt Queen (04:30)
+04. Woe Is Me (04:23)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED64DA8CF560CCFE48C11718DACD410B2CDB1F79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383807   (808139) от 17.05.2020
+
+The Soft Music Box - Classic Piano Lullabies - U.S. Edition (2020) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Are You Sleeping
+02. Hush Little Baby
+03. All The Pretty Little Horses
+04. Incy Wincy Spider(   Читать дальше...   )Жанр: Piano, Instrumental, Easy ListeningПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:861C82C5FEF96ED4AD2FA15B1E7FD7FBF7560C5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009106   (810040) от 21.04.2016
+
+Myristica - Waiting for Yesterday (2014) [FLAC|Lossless|tracks] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Existence    03:20
+02. Once Upon a Dream    05:43
+03. When the Wind Blows    03:16
+04. Soul Searcher    03:53(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB661F4CD47B99250FCDD3B3F62823F4FB3BB3D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383549   (810122) от 16.05.2020
+
+Daniel Waples & Friends (Hang In Balance) - 'Lisn (2013) [FLAC|Lossless|Web-DL|tracks] <Experimental, Chillout, Hang Drum>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Petit Son (5:59)
+02. Hang Out Back (featuring Martin Cradick) (3:50)
+03. Lago (5:29)
+04. Bello Revive (5:26)(   Читать дальше...   )Производство: Street RitualЖанр: Experimental, Chillout, World Music, Hang DrumПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1711633D528E741473BE0B76C11E50D93F6182
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383548   (810128) от 16.05.2020
+
+Daniel Waples & Friends (Hang In Balance) - 'Lisn: The Remixes (2014) [FLAC|Lossless|Web-DL|tracks] <Experimental, Chillout, Hang Drum>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lago (Subaqueous Remix) (5:00)
+02. Cajon (Conscious Kalling Remix) (4:19)
+03. Einsof (Jnana Remix) (4:19)
+04. Bello Revive (Animatronix Remix) (9:09)(   Читать дальше...   )Производство: Street RitualЖанр: Experimental, Chillout, World Music, Hang DrumПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3819D3DB1C880EB2076F3EEF59C43878171371F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198231   (810134) от 10.01.2018
+
+Michael Reimann - Eine entspannende Reise (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Linha Verde Highway Ride
+02. Bahia Freedom
+03. Firedance
+04. Valley of the Gods(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30C49F35AD059050027F34700F5391E434072FD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118384   (810939) от 26.03.2017
+
+Bill Brown, Mikael Sandgren - Command & Conquer: Generals+Command & Conquer: Generals Zero Hour (Original Soundtrack) (2003-2005) [MP3|192 Kbps] <Game OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zero Hour Main Theme
+02. Helix Armada
+03. Resistance
+04. GLA Anthem(   Читать дальше...   )Жанр: Game OSTПродолжительность: 01:32:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB28678B22D2EE0031872EDE36D693D5D5C8EF83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118129   (811079) от 26.03.2017
+
+VA - La La Land / Ла-Ла Ленд - The Complete Musical Experience (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La La Land Cast - Another Day of Sun (with Radios) (04:34)
+02. Justin Hurwitz - Mia Gets Home (00:24)
+03. Justin Hurwitz - Bathroom Mirror / You’re Coming Right? (01:19)
+04. Emma Stone, Callie Hernandez, Sonoya Mizuno & Jessica Rothe - Someone in the Crowd (04:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED91AC80A84E8DF8D9EB0AEBEE7F8F09432B631
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118127   (811083) от 26.03.2017
+
+VA - La La Land / Ла-Ла Ленд - The Complete Musical Experience (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La La Land Cast - Another Day of Sun (with Radios) (04:34)
+02. Justin Hurwitz - Mia Gets Home (00:24)
+03. Justin Hurwitz - Bathroom Mirror / You’re Coming Right? (01:19)
+04. Emma Stone, Callie Hernandez, Sonoya Mizuno & Jessica Rothe - Someone in the Crowd (04:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A218F52D16017FE6FE88E53E4E48527378BB66D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118299   (811227) от 26.03.2017
+
+VA - Intimate Piano: Moonlight Love (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811227.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Roger Williams - Ebb Tide (2:55)
+2. Ronnie Price, London Pops Orchestra - Full Moon and Empty Arms (3:38 )
+3. Roger Williams - Moonlight Love (Clair de Lune) (3:43)
+4. Norman Percival & Orchestra - Tennessee Waltz (2:23)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC1BB326DA39ACF2FC39DAEE1B858DD739F9B31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 247365   (811328) от 20.04.2016
+
+En Voice - Дискография (2005-2006) [FLAC|Lossless]<Ambient, Chillout, Pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_811328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hall Of Dreams (5:48)
+02. Orange Moon (4:26)
+03. Rising (5:27)
+04. Burning Soul (5:22)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118282   (811374) от 26.03.2017
 
 Ryan Farish - United (2017) [FLAC|Lossless|tracks] <Electronic, New Age, Downtempo>
@@ -395,300 +692,6 @@ magnet:?xt=urn:btih:3529BF234314CEA4A2E74057835E2844736A868F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE02EB91B8CAB9809CF0DF0876AD913888B08E82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117860   (814918) от 24.03.2017
-
-John Paesano - Mass Effect: Andromeda (Original Score) (2017) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Better Beginning (04:26)
-02. Memories (02:49)
-03. Exaltation (04:59)
-04. A Trail Of Hope (02:44)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DADB9DBF2A198AED276EF022B8293D3CADD8B25C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117538   (815195) от 24.03.2017
-
-Danny Elfman, VA - Fifty Shades Darker / На пятьдесят оттенков темнее (Original Score) + (Original Deluxe Soundtrack) (2017) [FLAC|Lossless|tracks/tracks + .cue]<Score, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZAYN & Taylor Swift - I Don't Wanna Live Forever (Fifty Shades Darker) (04:07)
-02. Halsey - Not Afraid Anymore (03:47)
-03. JRY feat. Rooty - Pray (03:22)
-04. Tove Lo - Lies In The Dark (03:42)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:01:36 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43505F62FFCA6131AFEA8929485DA3614260B866
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117536   (815336) от 24.03.2017
-
-Danny Elfman, VA - Fifty Shades Darker / На пятьдесят оттенков темнее (Original Score) + (Original Deluxe Soundtrack) (2017) [MP3|320 кб/с]<Score, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZAYN & Taylor Swift - I Don't Wanna Live Forever (Fifty Shades Darker) (04:07)
-02. Halsey - Not Afraid Anymore (03:47)
-03. JRY feat. Rooty - Pray (03:22)
-04. Tove Lo - Lies In The Dark (03:42)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:01:36 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D273C273679A882E8B6B8D271451FE88823BFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117638   (815347) от 24.03.2017
-
-Martian Love - You, Never Sleep (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You, Never Sleep [00:04:05]Жанр: Electronic, AmbientПродолжительность: 00:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D474B80A90C85A7A200DE904C3D56DBACEFA1EFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008485   (815372) от 18.04.2016
-
-Mark Knopfler & Evelyn Glennie - Altamira (2016) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Altamira (2:59)
-02. Maria (3:34)
-03. Dream Of The Bison (2:53)
-04. By The Grave (2:00)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF6B2EA78E3938E49323F05A4A129F023F5A2219
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117506   (815476) от 24.03.2017
-
-Rejean Paquin - Erotic Music (2006) [MP3|320 Kbps] <New Age, Enigmatic, Erotic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preleminaries (8:52)
-02. Act 1 (5:43)
-03. Act 2 (5:40)
-04. Act 3 (6:05)(   Читать дальше...   )Жанр: New Age, Enigmatic, EroticПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9ED2A7BDA9B3D2DD98A4939F0EC40E764DEBF49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197190   (815687) от 07.01.2018
-
-Richard Clayderman - Zeit Zum Traumen (1984) [FLAC|Lossless|image + .cue]<Pop, Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woman In Love 2:28
-02. I Have A Dream 3:08
-03. Bright Eyes	2:52
-04. Hey Jude 2:44(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D70B3326D56FBDD06007108ECB89780A7A74D7EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197488   (815691) от 07.01.2018
-
-VA - Cocktail Piano Romance (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dennis Wilson Quartet — Misty (3:36)
-02. The Ronnie Price Quartet — Mack The Knife (3:51)
-03. The Dennis Wilson Quartet — Autumn Leaves (2:21)
-04. The Frank Horrox Quintet — Moonglow (2:15)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B46E42ACE253A17C7DF41CD4FF707C5D02DAECA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008282   (815700) от 18.04.2016
-
-VA - Los clasicos argentinos Tango - Vol.10  - Alfredo De Angelis: El tango alegre (1996) [MP3|128 кб/с] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carlos Gardel - Senda florida
-02. Nelly Omar - Sus ojos se cerraron
-03. Oscar Alonso - Sueno de juventud
-04. Alfredo De Angelis y su Orquesta - Cuando llora la milonga(   Читать дальше...   )Жанр: TangoПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E40CB4E360653BEC60386CACF5B55F78766BF56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503976   (815876) от 21.10.2021
-
-VA - Peaceful Night Instrumental Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Soft Rock>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wildlife - Wishing You Were Here (04:17)
-02. Ray Hamilton Orchestra - Anytime You Need A Friend (04:25)
-03. Tony Skeggs - Hotel California (06:44)
-04. Wildlife - Take It Easy (03:35)(   Читать дальше...   )Жанр: Instrumental Soft RockПродолжительность: 00:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36026D76084CDEF2205226031308E64CB2DA2958
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117463   (816785) от 23.03.2017
-
-Jon Henrik Fjallgren - Goeksegh - Jag ar fri (2015) [FLAC|Lossless|tracks] <Ethnic, Folk, Joik>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jag ar fri | Jag ar fri (03:01)
-02. Daniel's Joik | Daniel's Joik (06:32)
-03. The Reindeer Herder's Joik | The Reindeer Herder's Joik (05:58)
-04. Utoya | Utoya (07:59)(   Читать дальше...   )Жанр: Ethnic, Folk, JoikПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A0B3766C19E0729833DA6CF185251E3C62610D
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1539677   (653962) от 29.03.2022
+
+Kraftwerk - Remixes (2020) Remastered, Reissue [FLAC 2.0|48, 44.1/16, 24|tracks|WEB-DL] <Electronic, synth-pop, krautrock>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Non Stop [00:08:32]
+02. Robotnik  (Kling Klang Mix) [00:07:58]
+03. Robotronik  (Kling Klang Mix) [00:05:05]
+04. Radioactivity  (William Orbit Hardcore Remix - Kling Klang Edit) [00:05:35](   Читать дальше...   )Жанр: Electronic, synth-pop, krautrockПродолжительность: 02:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC6CD1C9D1352C645A8EED5D343F7F128B1F5F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140983   (653987) от 08.06.2017
+
+VA - Nothing But - Electronica I (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Elyzimila - Earthvibes (Original Mix)  5:37
+02.  Falck - Lacking Soul (Original Mix)  8:05
+03.  John Blast & Purecloud5 - To Fly (Purecloud5 Remix)  4:30
+04.  Max SunRise - Russian Venice (Original Mix)  4:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EF869BE5A5C201F28316CEB88F88F7154EF42F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140892   (653988) от 08.06.2017
+
+VA - Naked Ibiza Vol.1 (Pure Fresh Balearic Summer Chill Tunes) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Wilton de Grey - Premadhara The Stream Of Love (Extended Orchestral Version)  4:22
+02.  Kai French - Balearic Dreams  3:05
+03.  Zer - Riding The Yellow  4:47
+04.  Breezz Studio - Dancing Butterfly (Remix 2017)  4:38(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F50742F703751C12384AC5FD0597F8692342E65D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140902   (653992) от 08.06.2017
+
+Astrobiologia - Астробиология (2017) [MP3|320 Kbps] <Trance, Breaks, House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moongravity (07:01)
+02. Астробиология (06:08)
+03. Terra Futura (07:28)
+04. Персефона (06:19)(   Читать дальше...   )Жанр: Trance, Breaks, HouseПродолжительность: 01:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A5610ED659FEAAA4C5E46AA3E71476AC3948364
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140897   (654015) от 08.06.2017
+
+VA - Balearic Dinner Vol.1: Island Chill Dream Dinner Tunes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Luc Forlorn - Take Me Home  4:28
+02.  Zeequencha - So Alive  7:15
+03.  Taste Of Dream - Sweet Falling  5:28
+04.  Tonica Rara - Como Antes  4:41(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B01F35B090479B4584E80CC4BE981FB6DA26FC39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140987   (654017) от 08.06.2017
+
+VA - Throwback EDM Tracks (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meltdown – Free 03:53
+02. 2 Steps Up – Finally 03:51
+03. Conscious Funk – Infinity 03:59
+04. Underground Spell – Born Slippy 05:21(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:897C773B2F6C708F40D116C2647061F41EEE61BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140913   (654018) от 08.06.2017
 
 VA - Recoverworld Trance Sessions 17.03 (2017) [MP3|320 Kbps] <Trance>
@@ -536,168 +698,6 @@ She Said Disco - Lady Airplane EP (2012) [MP3|128 кб/с]<Disco, House, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52726B044E7C11A87AF17D1919AB5E4A2942AC58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903710   (655688) от 02.06.2015
-
-VA - Evening Lounge Absolute Chill Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spiridion - Beyond The Shyness
-02. Dr. Diver - Check-In
-03. Bananaquit - Walking Down In Trellis Bay
-04. Popy Zeddil - Expectations(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7892075D4C18181D3B4D2560770835C2211EECD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903413   (655689) от 02.06.2015
-
-VA - London Cafe Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Piccino - Summer Jazz
-02. Fineconfine - Drops
-03. Fineconfine - Engine On
-04. Prince Jay - Maya(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:884A3AAEA90CDC29B69468ACCACBC3B6B29CFAA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226240   (655839) от 20.05.2018
-
-VA - The Best Of Nu Communicate (Spring Edition) (2018) [FLAC|Lossless|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7 Baltic – Guantanamo (Original Mix)
-02. Active Limbic System – North Atlantic (Photographer Remix)
-03. Alexander One & Davide Battista – Distant Echoes (Original Mix)
-04. BDH – Distance (DenSity FuZion Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D5E6AF5E2E46B2A97DD342D7AE0C34E4077213
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226252   (655847) от 20.05.2018
-
-VA - Ori Uplift & DJ Ruby - Uplifting Only 275 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeitam Osheen - Anck Su Namun (Intro Mix)
-02. PRE-RELEASE PICK: Roman Messer & Betsie Larkin - Unite (Steve Allen Extended Remix)
-03. Orla Feeney feat. Susan McDaid - Can't Give Up (Estigma & Pinkque present Hybrid Theory Remix)
-04. Christopher Corrigan - Sleepless Nights (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69D5F90B9D025B5B1932319737D0395B198F4310
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140523   (655894) от 06.06.2017
-
-VA - Ibiza Chillout 2017 [MP3|320 Kbps] <Easy listening, Smooth Jazz, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spinne – Daemmerung 04:59
-02. Spinne – Global People 04:56
-03. Monodeluxe – Groove On 06:24
-04. Vitali And His Lounge Orchestra – La Strada 04:53(   Читать дальше...   )Жанр: Easy listening, Smooth Jazz, ChilloutПродолжительность: 02:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:739AA466FBA37DE6F0363CF3AB22A4F8369AE686
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140420   (655895) от 06.06.2017
-
-VA - Tree Of Life Vol.1 (Selection Of Wonderful Calm Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sami Sivananda - Lotus Yoga 4:22
-02.  Guna Nada Das - Beyond The Sky 4:43
-03.  Sunyata Project - Words Of Vishnu (Ibiza Ethno Mix) 7:17
-04.  Chris Le Blanc - Stranded 5:10(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13EA3CF14B0A912CA2F7ED0A8BF4F3664D7ACAB9
 ```
 
 

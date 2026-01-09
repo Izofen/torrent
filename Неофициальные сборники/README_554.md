@@ -1,3 +1,30 @@
+###  Публикация: 1005076   (834365) от 08.04.2016
+
+VA - Nu Jazz Instrumentals (2016) [MP3|320 кб/с] <Nu Jazz, Lounge Jazz, Jazz House>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agostino Maria Ticino – If I Had Said to You
+02. Acusmatic Group – Un grosso guaio - Dave Masoch Re-Jazzed
+03. 2 Men 4 Soul – So Fine - Instrumental Bonus Track
+04. Black & Brown – Cool Affair(   Читать дальше...   )Жанр: Nu Jazz, Lounge Jazz, Jazz HouseПродолжительность: 02:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D0CF3BFAF2C80F04FD073B53BC689A36B2C57B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005048   (834438) от 08.04.2016
 
 VA - 45 Jahre ZDF Disco - Nr.1 Hits Der 70er (2016) [MP3|256 кб/с] <Pop, Rock, Soul, Disco>
@@ -668,33 +695,6 @@ VA - Reggae On The Roof Vol.11 (2020) [MP3|320 Kbps] <Reggae, Dancehall, Regaeto
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84154BBDD93EFAA7603BDA8C13F4D0DB6F83C137
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380224   (835058) от 02.05.2020
-
-VA - Romantic R&B (2020) [MP3|320 Kbps] <R&B, Pop, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835058.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Mario - Let Me Love You (4:09)
-2.Nelly - Dilemma (4:49)
-3.Usher - My Boo (3:43)
-4.BROCKHAMPTON - SUGAR (Remix) feat. Dua Lipa (3:42)(   Читать дальше...   )Жанр: R&B, Pop, OtherПродолжительность: 03:40:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8B76EAFCEC2E8F18F5900E4A6D28A3CFE295AA2
 ```
 
 

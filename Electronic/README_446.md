@@ -1,3 +1,165 @@
+###  Публикация: 1109597   (857460) от 28.02.2017
+
+VA - Re Confirmed: Deep House Selection Vol.2 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857460.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bunched - Ame?lie's Symphony - Fabian Schumann Remix 6:32
+002. Joe Pycasso - Feel Love - Original Mix 8:21
+003. James Rod - Lipstick 78 - Schwarz 100 Remix 5:40
+004. Q Narongwate - Local Talk - Original Mix 5:42(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB91B2645C9C1677390A2A9F4F27077F6ABF0C23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109556   (857483) от 28.02.2017
+
+VA - Boutique Lounge Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857483.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Omaya - Fanatically - Original Mix 3:26
+002. Mowree - Expanse - Original Mix 5:33
+003. Felipe Gonzalez - No Hablas Espagnol - Original Mix 4:56
+004. Mathieu & Florzinho - Eternal Now - Original Mix 5:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB4E82DDA758AF7961359F71ABE1626F342BEAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109677   (857484) от 28.02.2017
+
+VA - Natural Born Chillas, Vol. 7 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857484.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. York - Interlude 0:59
+002. 351 Lake Shore Drive - Day Of Light 2:19
+003. Simon Le Grec - Forbidden Love 3 (radio mix) 4:25
+004. Project Blue Sun - Ad Astra Per Aspera 5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B308646340322B9662864DBD9CE7B38EC9FB85E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109674   (857485) от 28.02.2017
+
+VA - Eivissa Chill Vol.1 (Balearic Island Chill) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  E-Motive - Street Waves  4:11
+02.  Roberto Sol - Te Amo (feat. Ines Prados)  4:40
+03.  Rinat KaaS - Inside Emotions  4:36
+04.  Sunyata Project - Mystic Adventures (Oriental Chill Mix)  3:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A9E964ABA76E5811576EB78ACB6A16FC8F24565
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109552   (857486) от 28.02.2017
+
+VA - All Good In The Hood Vol.2: 20 Groove Monsters (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857486.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Frank Richmond - Mirror Of Truth 3:09
+002. Gee Lovers - Cops And Robbers 3:24
+003. Jonathan Goldman - Outside The Lines 3:13
+004. 6th Floor Groove Ensemble - Party Girls 2:55(   Читать дальше...   )Жанр: HouseПродолжительность: 01:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C9C8CC27E49B8CEB8E4F36FFC33F067DA0C7BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109684   (857487) от 28.02.2017
+
+VA - Let's Get Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Gorda Project - Mild And Quiet  6:47
+02.  Enrico Donner - Sensual Education  5:57
+03.  Cane Garden Quartet - Flying With No Wings  5:54
+04.  Baghira - A Thrill Of Anticipation  5:36(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7636730A87BFBB592D0A79A52EE4697AC780D949
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109669   (857488) от 28.02.2017
 
 VA - Clinique Mixed XI (2017)(by zweitausendeins Traum) [MP3|320 Kbps] <Progressive House,House>
@@ -532,168 +694,6 @@ VA - Body Building Music Hits 2020 Fitness Session (2020) [MP3|320 Kbps] <Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1E16A72ABFFD379297139AF0624B254D33568C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376402   (860486) от 17.04.2020
-
-Freedom Fighters - Era (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860486.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Freedom Fighters; Ryanosaurus - Dawn 'till Dusk (9:00)
-2. Freedom Fighters; Modus - Drumville (6:30)
-3. Freedom Fighters; Domestic; Sphera - One Level Down (7:00)
-4. Freedom Fighters; Modus - Uncharted Territory (9:03)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:076E0379C6AC524ABFC88006CAFCB3290829E61B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376196   (860488) от 17.04.2020
-
-VA - Psychedelic Selections Vol 005 (Compiled by Khromata) (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860488.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rocky Tilbor - 11911 (Original mix) (8:28)
-2. Martin Vice; Michael Banel; Silent Sphere - Space Travel (Original mix) (7:55)
-3. Flip-Flop - Blocks (Original mix) (6:34)
-4. Rinkadink; Silent Sphere - Hidden Patterns (Original mix) (6:39)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 03:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9329F88D39DFC30C6A268E11292259CF717A1F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376126   (860499) от 17.04.2020
-
-Tim Dash - Afterlight 001 (2020) unmixed [MP3|320 Kbps] <Deep Techno, Progressive House, Melodic Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Novakk - Hela (Ivory Hypnotic Treatment) (5:40)
-02. Booka Shade - Atlantic Beam (5:56)
-03. Enamour & Nox Vahn - Sleep Paralysis (5:39)
-04. Nico Morano & Radeckt - Resilio (Night Talk Remix) (6:44)(   Читать дальше...   )Жанр: Deep Techno, Progressive House, Melodic TechnoПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C98D38DCE1D8E16B3E4A9E11722E35E93B02CBB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376414   (860614) от 17.04.2020
-
-VA - Best Of 5 Years Of Disco Balls Records, Pt. 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco, Indie-Dance, Jackin' House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J Nitti - Another Night Alone (Stephane Deschezeaux Remix) (6:57)
-02. Luigi Egitto - Temptation (Original Mix) (7:35)
-03. J Nitti - I Need You (Full Piano Mix) (5:53)
-04. Paco Caniza - Sax In St. Gaudens (Original Mix) (5:53)(   Читать дальше...   )Жанр: House, Nu-Disco, Indie-Dance, Jackin' HouseПродолжительность: 02:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4EB6C9695D9A503D981D0A6F5AAC2B8F2155B14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376410   (860615) от 17.04.2020
-
-VA - Best Of Disco Balls Records 2018, Pt. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco, Indie-Dance, Jackin' House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FederFunk - Please, Don't Stop The Disco ! (Original Mix) (5:18)
-02. Jon Lockley - Before All That (Original Mix) (7:30)
-03. Jerem A - I Need You (Zonum & Xavi V Remix) (5:51)
-04. Pyperb - Wainting For A Girl (Original Mix) (6:17)(   Читать дальше...   )Жанр: House, Nu-Disco, Indie-Dance, Jackin' HouseПродолжительность: 02:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0038C3E5A7F661B53A9A7DFF3765CD574CA843B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376405   (860616) от 17.04.2020
-
-VA - Best Of Disco Balls Records 2018, Pt. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco, Indie-Dance, Jackin' House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jerem A - Everybody (B2 Nu Disco Mix) (6:03)
-02. Tim Serra - Discoworld (Original Mix) (5:35)
-03. Filth & Smell - The Fifth Filthy Take (Original Mix) (5:41)
-04. Simioli - Funk Access (Original Mix) (5:26)(   Читать дальше...   )Жанр: House, Nu-Disco, Indie-Dance, Jackin' HouseПродолжительность: 02:13:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8142A0022992B57B413C3368B098D58DAC8E4805
 ```
 
 

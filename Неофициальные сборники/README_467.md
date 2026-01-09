@@ -1,3 +1,30 @@
+###  Публикация: 1528575   (734449) от 02.02.2022
+
+VA - World Music (Unified Land) (2022) 2CD [MP3|320 Kbps] <World Music>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pietra Montecorvino - Qualcosa arrivera (02:50)
+02. Sounds of Isha - Bhairavi Shatakam (04:16)
+03. Ludovico Einaudi - Taranta (04:23)
+04. Очелье Сороки - Песнь (05:28)(   Читать дальше...   )Жанр: World MusicПродолжительность: 07:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68DB0484606F3181463C78F286BF7861B2FAD19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398853   (734557) от 28.07.2020
 
 VA - 100 Greatest Songs Of The 90s (2020) [MP3|320 Kbps] <Pop, Rock>
@@ -674,33 +701,6 @@ VA - German Top 100 Single Charts 24.07.2020 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:135F26D992A82230EDD7F6B7F57F4E50E293DBE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527651   (736247) от 29.01.2022
-
-VA - Крутые пушки Зима 2022 [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MELISA & TOMMO - I'm Alone (RAKURS RADIO REMIX) (2:17)
-02. Acraze feat. Cherish - Do It To It (Yudzhin Radio Remix) (2:08)
-03. R3HAB, Jonas Blue, Ava Max, Kylie Cantrall - Sad Boy (Cat Dealers Remix - Extended Version) (3:12)
-04. Tom Boxer feat. Antonia - Morena (Lavrushkin & Larichev Remix) (2:47)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 05:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9959DFAB5BCD3448251B8521CE59F3AB8236FC7A
 ```
 
 

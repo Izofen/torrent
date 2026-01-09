@@ -1,3 +1,30 @@
+###  Публикация: 1009706   (808238) от 22.04.2016
+
+VA - After Midnight (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808238.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bonsugi - Under the Cool Rain
+002. Monroe Days - A Gentle Wind
+003. Cane Garden Quartet - Toca Me
+004. Baghira - Put Your Arms(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA8140B313AA5342A11B712D6460268C9BB91E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009842   (808245) от 22.04.2016
 
 VA - Trance Maniacs Party -  Melody Of Heartbeat #162 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
@@ -668,33 +695,6 @@ VA - Beatport Synth Electronic: Sound Pack #358 (2021) [MP3|320 Kbps] <Synthwave
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED12BC073E33922C513164E0929D718CE08219F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009249   (809546) от 21.04.2016
-
-VA - Need For Speed (2016) [MP3|256-320 кб/с] <Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Spencer & Brooklyn Bounce - Don't Stop (Raindropz! Remix)
-02. Nick Skitz & Raverockerz feat. Brooklyn Bounce - Rock The Party (Original Mix)
-03. Off Tap - Focus (Ryan N Remix)
-04. Xam Soto - Flatline (Original Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 05:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B2C36949175897F93EB82C7D78CA00684B8131
 ```
 
 

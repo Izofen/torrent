@@ -1,3 +1,30 @@
+###  Публикация: 1282494   (745255) от 12.02.2019
+
+Demis Roussos - 20 Golden Hits (1995) Unofficial Release [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Souvenirs to Souvenirs
+02. Goodbye My Love Goodbye
+03. My Friend the Wind
+04. Rain and Tears(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC6C92E0EE8F88D5033BFE004CC510540848BF3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282409   (745313) от 12.02.2019
 
 Nelly Furtado - The Best Of Nelly Furtado (2010) Geffen Records [FLAC|Lossless|tracks + .cue] <Electronic, Pop, RnB, Latin>
@@ -666,33 +693,6 @@ Prince - 5 Albums (1978 - 2004) [APE|Lossless|image + .cue] <Pop, Soul, Funk, Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A357F012AEF9B9AB3EDC0F052E3CC1243FFF852B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214660   (763295) от 23.03.2018
-
-Bosson - RockStar (2004) [FLAC|Lossless|tracks + .cue] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Need Love (3:35)
-02. You Opened My Eyes (3:41)
-03. One Of A Kind (3:55)
-04. A Little More Time (3:56)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:18:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8537E2BE63DCC3877AD03E86B54EE10EA675448E
 ```
 
 

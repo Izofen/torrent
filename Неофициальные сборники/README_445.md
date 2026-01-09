@@ -1,3 +1,30 @@
+###  Публикация: 1131415   (708783) от 05.05.2017
+
+VA - Громче чем Бомба. Жаркий Уикенд. (Sound Clinic - Bass Edition) (2017) [MP3|320 Kbps] <Bass House, Tech House, G-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708783.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adtr - If It Means A Lot To You (Cherney Remix) 2:58
+002. Affkt - Notch (Original Mix) 6:15
+003. Alberto Ruiz - Kryptonita (Original Mix) 6:21
+004. Ale F & Crazy Sonic - Synchronize (Original Mix) 7:09(   Читать дальше...   )Жанр: Bass House, Tech House, G-HouseПродолжительность: 01:02:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:003D35897CC4BA5673BEAB8A90A3C00E39523E52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131245   (708784) от 05.05.2017
 
 VA - Synthetic (2017) [MP3|320 Kbps] <Synth Pop, Dark Electro, EBM>
@@ -665,33 +692,6 @@ VA - Get The Indie Music (2020) [MP3|320 Kbps] <Indie Pop-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D9F9233979A6F954A42954A104E7DA8339FD068
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401424   (709395) от 10.08.2020
-
-VA - Summer Magic Morning: Chillout Party (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709395.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Dark - Sole
-002. Mauro Rawn - Reception Hall
-003. Jasmon - Flying Carpet
-004. Michael E - Back To Nature(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82C3C9839585C1D4591A7437CEF141B17650477B
 ```
 
 

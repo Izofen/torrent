@@ -1,3 +1,30 @@
+###  Публикация: 1104456   (878218) от 16.02.2017
+
+VA - Blueas About It  (2017) [MP3|256-320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878218.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. BRUCE SPRINGSTEEN - Badlands 4:03
+002. Ana Popovic - Waiting on You (Double-Time Swing) 3:58
+003. Ana Popovic - Who’s Yo' Mama 3:16
+004. Cliff Stevens - If I Didn't Love You 3:51(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 10:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B5F581CE28BE9EA46450BEFF2B966982ABE843
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104439   (878223) от 16.02.2017
 
 VA - Ресторан Кураж для друзей. Сборник № 4 (2017) [MP3|256 Kbps] <Шансон>
@@ -663,33 +690,6 @@ VA - Оп-оп... Послушай поп (2015) MP3 (2015) [MP3|256 кб/с] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58D09552AA1499FFC5E54224B7365A05B90D2F2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996746   (879406) от 14.03.2016
-
-VA - Returned Trance Around The World (2016) [MP3|320 кб/с] <Trance, Energy, Harmonic, Emotional, Melodic, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879406.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Super8 & Tab feat. Julie Thompson - Patience (Club Mix) 05:34
-002. Sylvermay - Prometheus (Original Mix) 06:57
-003. Sunlounger - Sunkissed (Roger Shah Rework) 05:02
-004. Upfly & Stellarium - Noah's Ark (Original Mix) 06:46(   Читать дальше...   )Жанр: Trance, Energy, Harmonic, Emotional, Melodic, ProgressiveПродолжительность: 16:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:882AD610081FB47329C47AE141229240BD9156FF
 ```
 
 

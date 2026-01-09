@@ -1,680 +1,662 @@
-###  Публикация: 1124345   (785824) от 11.04.2017
+###  Публикация: 1210862   (778535) от 04.03.2018
 
-VA - Essential Guide: Progressive Trance Vol.12 (2017) [MP3|320 Kbps] <Trance>
+Радостная душа (1985) TVRip
 
->>Архив торрентов
->>Архив Музыки
+>>Документалистика и Телепередачи
+>>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785824.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778535.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Axis - Daylily (Extended Mix)  5:24
-02.  Jens Jakob - Horizon (Original Mix)  8:58
-03.  Emanuele Braveri & Amo R - Mauna Kea (Original Mix)  6:03
-04.  Elitist - Again & Again (Original Mix)  6:17(   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:14
+Это рассказ о клоун-мим театре "Лицедеи". Мы смеемся над клоунами, наверное, потому, что эти взрослые люди не смогли расстаться с детством. Только благодаря им мы можем вновь вернуться в детство и прыгать, свистеть, петь, бросаться воздушными шариками и забыть обо всех условностях, которые так, порой, мешают нам быть самими собой. "Лицедеи" - (   Читать дальше...   )Телекомпания: СССР, ЛентелефильмЖанр: Искусство, БиографияПродолжительность: 00:29:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F97D357D49786C92919E394E29F6EF58A9E83A92
+magnet:?xt=urn:btih:96BCF2084450690CABEC952C663F86A5694783BE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124318   (785825) от 11.04.2017
+###  Публикация: 1210806   (778536) от 04.03.2018
 
-VA - Ibiza Night Tales: The Best of Mediterranean Chillout Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ambient Grooves - Sunset Beach Cruise  7:04
-02.  Exit Gravity - Late Night Fever  5:22
-03.  Wagu - Forms & Colours  4:45
-04.  Skye Dream - Ocean's 66  7:49(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D420B8CC9ED108A5C230D72F3CCE092859A81DEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124522   (785826) от 11.04.2017
-
-Волейбол. Лига Чемпионов 2016-2017. Мужчины. Плей-офф-Раунд 12. 2-й матч. Зенит (Россия) — Кнак (Бельгия) (22.03.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785826.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 марта 2017 года
-Лига Чемпионов 2016-2017. Мужчины. Плей-офф  «Раунд 12-ти».. 2-й матч
-Зенит (Казань, Россия) — Кнак (Руселаре, Бельгия)
-Стадион:	Центр волейбола "Казань" (Казань, Россия), 3250 зрителей(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D19D783C7B2FD1F52C439B48E2970A472FEBBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124475   (785827) от 11.04.2017
-
-VA - Summer Dream Chill Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Peter Pearson - Feeling Free  6:03
-02.  Michael E - She's Hypnotic  5:27
-03.  Placid Larry - Mend  4:32
-04.  Lazy Hammock - Surround Me  5:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:02:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:729CD9CD6F2B699CA229868180D60901035A4282
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124442   (785828) от 11.04.2017
-
-Eric Alexander Trio - Just One Of Those Things (2016) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Post-Bop>
+Crow Black Chicken - Pariah Brothers (2017) [MP3|320 Kbps] <Blues Rock>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785828.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778536.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.You'd Be So Nice To Come Home To [06:48]
- 02.Just One Of Those Things [06:45]
- 03.Wise One [06:20]
- 04.Beautiful Love [06:48](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 00:56:06
+01. Jonestown (05:33)
+02. Justice (03:44)
+03. Bleedin' (04:16)
+04. Calib (03:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AD52188211685F2D3CF63F8859F352E0A1CBACA
+magnet:?xt=urn:btih:C23B3B602253FA1E576B9A95F61A5F9B0EF8137C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124438   (785829) от 11.04.2017
+###  Публикация: 1210788   (778537) от 04.03.2018
 
-Chet Baker Quartet - Jazz At Ann Arbor (1954) 2002, Toshiba [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+Юхан Борген | Тёмные источники (2018) [MP3]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785829.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778537.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Line For Lyons [07:33]
- 02.Lover Man [06:00]
- 03.My Funny Valentine [05:31]
- 04.Maid In Mexico [05:17](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:46:00
+"Да, жизнь была прекрасна для тех, кто обитал в маленькой столице маленького государства, которое в географическом смысле лежало в стороне от остального мира; в географическом смысле – да, в экономическом – нет. К концу третьего года мировой войны светлые источники били с небывалой силой. Они, искрясь, взмывали над накрытыми столами под выстрелы пробок. В соседних (   Читать дальше...   )Жанр: РоманПродолжительность: 14:31:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DFE0DC210FD69115CC58DFEEA293BE799CED41B
+magnet:?xt=urn:btih:3C8938887829EAE14800683D6CA44DB608884725
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124417   (785830) от 11.04.2017
+###  Публикация: 1210739   (778538) от 04.03.2018
 
-VA - When The Sun Goes Down Vol.6 (Deep House Essentials) (2017) [MP3|320 Kbps] <House>
+Лев Николаевич Толстой | Сказки для детей (1912) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник сказок для детей младшего и среднего школьного возраста.Жанр: Детская проза, СказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF3A0B7276C58C63E60E6172863C0B8B5CE94B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210618   (778539) от 04.03.2018
+
+Газета | Сезон у дачи №4 (257) (Февраль 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D33D298BFC0050368322D1D27B93A06D4F8BAD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210684   (778540) от 04.03.2018
+
+VA - Toolroom Miami (2018) [MP3|320 Kbps] <House, Tech House, Progressive>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785830.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Soap Bubbles - I Remember U & Me (Extended Mix)  5:13
-02.  Bildertal - Sunder Uul (Soundspretty Remix)  4:53
-03.  Sak Chaime - Swag (Extended Mix)  5:08
-04.  After Sunrise - Time To Chill  7:48(   Читать дальше...   )Жанр: HouseПродолжительность: 02:30:59
+01.  Patrick Topping  -  Be Sharp Say Nowt (Original Mix)  7:24
+02.  KDA & Patrick Cash  -  Hate Me (Original Mix)  7:25
+03.  Eyes Everywhere  -  Murder Weapons (Original Mix)  5:23
+04.  The 2 Bears  -  London Are You There? (Original Mix)  8:13(   Читать дальше...   )Жанр: House, Tech House, ProgressiveПродолжительность: 11:21:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8CDC344706388AA0A39936F0E55AC2BB9952939
+magnet:?xt=urn:btih:1162A216F9EC63A2D8FE77DB283D1D274291F6EE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124565   (785831) от 11.04.2017
+###  Публикация: 1210675   (778541) от 04.03.2018
 
-VA - Lone Scapes: Chillout and Relaxation (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enrico Donner - Golfinhos
-02. Don Gorda Project - Greenwood
-03. Cane Garden Quartet - Erotisme
-04. Cane Garden Quartet - Into the Green(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B61D183DEB1544385F43487E9F2DE753EE856EBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124239   (785832) от 11.04.2017
-
-QuickPhotos for Google 1.1.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785832.jpg" />
-</div>
-
-
-###  Подробнее
-
-QuickPhotos for Google - это самый простой способ использования Google Фото на Mac.
-QuickPhotos for Google - это приложение для Mac, в котором пользователи могут загружать, просматривать и загружать фотографии в облаке Google. Это приложение даст вам быстрый доступ к вашим фотографиям Google в компактном макете приложения, откуда пользователи смогут загружать и загружать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04.04.2017Разработчик: AppEaseПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773CFAE75E6B795901A98374FD54EE5BD5D86A72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124538   (785833) от 11.04.2017
-
-Takeri - Imagination Vol. 7 (2017) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above The Ocean (07:06)
-02. In The Quest Of An Angel (10:31)
-03. Sunrise (06:48)
-04. Beyond Reality (03:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F868F966AACB8A94E5C1F7EA222C3023FC42DA4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124412   (785834) от 11.04.2017
-
-А. И. Лобачев | Против тьмы (1990) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785834.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге освещается деятельность профсоюзов республик Средней Азии по утверждение социального равенства женщин в период построения социализма. Через призму критического осмысления опыта прошлых лет даются рекомендации по совершенствованию работ партийных, профсоюзных, государственных и хозяйственных органов среди женщин на современном этапе.Жанр: История, политология, культурологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0195BE7946E5F7D39915F60C3755BD98487AE82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124429   (785835) от 11.04.2017
-
-VA - Just Slow Music: 10 Exclusive Selected Electronic Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armanda Carlay - Paris - Dakar - Slow Beat Mix
-02. St. Robert - Inner Light
-03. Ann Carola - Feel the Presents
-04. Maya Girl - Rain Forrest(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C93853DA05C9D34DAA1ECF352343FB31C918AF7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124308   (785836) от 11.04.2017
-
-VA - Lounge Expression. Chillout Selection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rawback - Web Dream - Bunny Mix
-02. Inside Soul - Grassland - Rose Extended
-03. Roben Bucks - Falling Apart - Mirror Version
-04. Vintage Bullet - Dance Hole - Soul Cut(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B8CA35134DBA3BE64130ABA154D534CA9B0C760
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124296   (785837) от 11.04.2017
-
-VA - Lounge Sensations Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Deeper Sublime - La Musica Sei Tu  5:58
-02.  Fade - Aguhja  7:06
-03.  Mark One - Out Of Touch  4:05
-04.  Marc Hartman - People Of Beijing  4:36(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB403258BC4DD24C84D0894CD9BD5F79B82A49D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124516   (785838) от 11.04.2017
-
-Волейбол. Лига Чемпионов 2016-2017. Мужчины. Плей-офф-Раунд 12. 2-й матч. ЗАКСА (Польша) — Белогорье (Россия) (22.03.2017) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785838.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 марта 2017 года
-Лига Чемпионов 2016-2017. Мужчины. Плей-офф  «Раунд 12-ти».. 2-й матч
-ЗАКСА (Кендзежин-Козле, Польша) — Белогорье (Белгород, Россия)
-Стадион:	Дворец спорта "Кендзежин-Козле" (Кендзежин-Козле, Польша), 2700 зрителей(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE64BB05BA28521F0BDFF372D2CF4E9EB2B80FBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124367   (785839) от 11.04.2017
-
-Taliandorogd - Neverplace (2002) [APE|Lossless|image + .cue] <Black Metal>
+Exodus - Bonded By Thrash (2017) 2CD Bootleg [FLAC|Lossless|image + .cue] <Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785839.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778541.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. De Profundis 02:21
-02. Progeny 04:39
-03. Utopia Sworn 05:25
-04. The Glimpse 07:29(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:31:52
+01. Song Introduction
+02. Verbal Razors
+03. Song Introduction
+04. Braindead(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9ABAF866A9883AC6687B0E00CAECFFC2D3480190
+magnet:?xt=urn:btih:98A14F9AF48EA4F60AD98425D7B6BE730C08DB77
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124503   (785840) от 11.04.2017
+###  Публикация: 1210724   (778542) от 04.03.2018
 
-Lou Donaldson - The Righteous Reed! The Best Of Poppa Lou (1967 - 1973) 1994, EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+Татьяна де Ронэ | Русские чернила (2018) [MP3]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785840.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778542.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Alligator Bogaloo [06:54]
- 02.Rev. Moses [06:26]
- 03.Peepin' [08:19]
- 04.Midnight Creeper [06:32](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:16:32
+Впервые на русском языке новый роман Татьяны де Ронэ "Русские чернила". Молодой писатель Николя Дюамель внезапно попадает в странную ситуацию: при попытке получить новый паспорт он узнает, что в прошлом его отца есть некая тайна. В поисках своих корней он отправляется в путешествие, которое приводит его в Санкт-Петербург.
+Пораженный своим открытием, он (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 08:36:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3AF826B68E985E0C0113B31CD4B026E81EB48993
+magnet:?xt=urn:btih:A3EFF15AC52600675E8A0FF9CB3020A14983E355
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124505   (785841) от 11.04.2017
+###  Публикация: 1210677   (778543) от 04.03.2018
 
-Волейбол. Лига Чемпионов 2016-2017. Мужчины. Плей-офф-Раунд 12. 2-й матч. Динамо (Россия) — Аркас (Турция) (21.03.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Журнал | Elle Decoration [UK] №4 (апрель 2018) [PDF] [En]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользующийся большой популярностью журнал "Elle Decoration" - замечательный и полезный интернациональный журнал о современном интерьере. Для тех, кто думает о перестройке и обустройстве дома, журнал будет помощником в области качественных материалов и тенденций интерьерной моды. В любом номере — дизайнерские новости, демонстрация лучших дизайн-объектов (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70AF644ABCE84EA13E5E1EB7F9FA1D68F68820F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210729   (778544) от 04.03.2018
+
+Лев Николаевич Толстой | Басни (1912) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Басни для младшего и среднего школьного возраста.Жанр: Детская проза, БасниФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC20BF41E33B955852CB51C9327C8D687013DBFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210834   (778545) от 04.03.2018
+
+VA - The Last Note Of Life (2018) [MP3|320 Kbps] <Progressive Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778545.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Queensryche  -  Empire  5:24
+002.  Kamelot  -  Silent Goddess  4:14
+003.  Liquid Tension Experiment  -  Acid Rain  6:36
+004.  Threshold  -  Avalon  4:45(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 08:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BFEDD8E4270282F7336B379389D59410B0770B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210624   (778546) от 04.03.2018
+
+Hennie Bekker - Spring Rain (1992) Holborne [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. Old Friends 3:56
+02. Spring Rain 5:57
+03. Time Out 6:02
+04. Hello Again 5:33(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18EC7007B24BF1B689F0613553E1B88FCD76296
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210615   (778547) от 04.03.2018
+
+Газета | Сезон у дачи №3 (256) (Февраль 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:542595067AAD7AB6ADEB5A3D2915EE0DE3CC8462
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210699   (778548) от 04.03.2018
+
+VA - The Official UK Top 40 Singles Chart 02.03.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drake - God's Plan (03:20)
+02. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen) (03:31)
+03. Dua Lipa - IDGAF (03:39)
+04. Post Malone Feat. Ty Dolla $ign - Psycho (03:42)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7157623DD0B29EDD1B4FF935B31BE1E6C5512D91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210732   (778549) от 04.03.2018
+
+Hennie Bekker - Winter Reflections (1994) Holborne [MP3|256 Kbps] <New Age, Piano, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. Reunion 5:13
+02. Jacquelyn 5:10
+03. Arctic Child 5:19
+04. Christmas Spirit 4:39(   Читать дальше...   )Жанр: New Age, Piano, RelaxПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4CAAC54184BD62706A8CC77E242BC63FE1C6BB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210771   (778550) от 04.03.2018
+
+VA - Alternative Space Ambient & Chillout Music Vol.7 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sami Sivananda  -  Samadhi Vibes  3:16
+02.  L'Art Mystique  -  Underwater Twilight  4:33
+03.  Chris Le Blanc & Miss Luna  -  Debussy En Es Vedra  4:23
+04.  Sunyata Project  -  Journey To Mandura (Extended Mix)  6:38(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 03:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EAC489F559B0EF04FB4505F3EF1AF6FCED7FF77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210622   (778551) от 04.03.2018
+
+Hennie Bekker - Relaxing Pachelbel (2005) Tapestries [MP3|320 Kbps] <New Age, Tribal>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. Canon In D 9:23
+02. Canon In D (Reprise) 8:40
+03. Canon In D (Reprise) 9:52
+04. 18th Variation from rapsodie on a theme of Paganini 4:33(   Читать дальше...   )Жанр: New Age, Piano, RelaxПродолжительность: Tapestries - TAPCD 601
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D77E172901B40E50CE730836EBFE226F1C504256
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210676   (778552) от 04.03.2018
+
+Журнал | Elle Decoration [UK] №3 (март 2018) [PDF] [En]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользующийся большой популярностью журнал "Elle Decoration" - замечательный и полезный интернациональный журнал о современном интерьере. Для тех, кто думает о перестройке и обустройстве дома, журнал будет помощником в области качественных материалов и тенденций интерьерной моды. В любом номере — дизайнерские новости, демонстрация лучших дизайн-объектов (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769366462F1933DD293AC766873521733EBC5081
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210560   (778553) от 04.03.2018
+
+Abigor - Hollenzwang (Chronicles of Perdition) (2018) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Hail Darkness and Evil 04:02
+02. Sword of Silence 04:47
+03. Black Death Sathanas (Our Lord's Arrival) 02:58
+04. The Cold Breath of Satan 04:06(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:36:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC73C073D76EF1DE0E34F602BE54F066768541F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210655   (778554) от 04.03.2018
+
+Журнал | Цветники в саду №4 (апрель 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красочный и очень полезный журнал для тех, кто действительно любит жизнь, для всех ценителей красоты и любителей цветов, будь то садоводы-любители или профессионалы, владельцы небольших участков или современных коттеджей. Журнал станет незаменимым помощником при проектировании и разработке цветников, поможет вам правильно подобрать цветы и растения для оформления (   Читать дальше...   )Жанр: ЦветоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12922103D897C8FE6A6F08523397CBE95E0C2BA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210483   (778555) от 04.03.2018
+
+Владимир Ильич Ленин (ред.)| Огоньки (1912) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рождественский альманах для детей младшего возраста.Жанр: Детская проза, Сказки, СтихиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC7BCC02EEEC824E2CE8B55ACAB80996B24C983
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210780   (778556) от 04.03.2018
+
+Yo La Tengo - There's a Riot Going On (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785841.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778556.jpg" />
 </div>
 
 
 ###  Подробнее
 
-21 марта 2017 года
-Лига Чемпионов 2016-2017. Мужчины. Плей-офф  «Раунд 12-ти». 2-й матч
-Динамо (Москва, Россия) — Аркас (Измир, Турция)
-Стадион:	СК Динамо (Москва, Россия), зрителей: 1900 (вместимость: 5000)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:45:04
+01. You Are Here
+02. Shades of Blue
+03. She May, She Might
+04. For You Too(   Читать дальше...   )Жанр: Indie RockПродолжительность: 01:03:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7005F08F497D97D5F63479A0533C8591A231DD5
+magnet:?xt=urn:btih:E15260FBEF04C7B14D6924F3DEDA6682E90C6682
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124435   (785842) от 11.04.2017
+###  Публикация: 1210727   (778557) от 04.03.2018
 
-Johnnie Pate Trio - Complete Recordings 1955-1956 (2013) Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+Translatium - translator 8.0.0 [En]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785842.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778557.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Oo, You're A Livin' Doll [02:10]
- 02.Midnight Sun [03:12]
- 03.Montoona [02:51]
- 04.A Foggy Day [02:48](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:06:36
+Translatium - одно из самых мощных приложений перевода для macOS, с поддержкой боле чем 150 направлений перевода, проговаривания текста и несколько уникальных функций, таких, как - оптическое распознавание текста (используйте камеру) и рукописное распознавание текста.Тип издания: macOS SoftwareРелиз состоялся: 01.03.2018Разработчик: Quang LamПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:024DE7037FCEA870505600BF0DEE0176F8BF85C5
+magnet:?xt=urn:btih:C9571C6DAA90EDEF09E43D4F5D48D5A858F043E1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124280   (785843) от 11.04.2017
+###  Публикация: 1210711   (778558) от 04.03.2018
 
-Valery Ponomarev - The Messenger (2001) Reservoir [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+VA - Sound Of Serenity Vol.6 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785843.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778558.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Driving To A Gig II [06:15]
- 02.Messenger From Russia [09:05]
- 03.Long Distance Relationship [06:11]
- 04.Escape From Gorki Park [09:43](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:50:02
+01.  Alexander S. Karlov  -  I Sea  3:29
+02.  Ocean Mind  -  Dream On  5:26
+03.  Nova Casa  -  You Get Me (Instrumental)  3:57
+04.  Sami Sivananda  -  Wisdom  3:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:06:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCCBAE7BD5472BA685E7EAFC7B307BA2903A5316
+magnet:?xt=urn:btih:5B94BD0A257B1A719F6D9514D52039BC6EC384EB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124443   (785844) от 11.04.2017
+###  Публикация: 1210730   (778559) от 04.03.2018
 
-Paul Bley - Live In Haarlem (1966) 1999, DA Music [FLAC|Lossless|image + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jazz>
+Hennie Bekker - Summer Breeze (1993) Holborne [MP3|256 Kbps] <New Age>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Other Styles
+>>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785844.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778559.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Blood [18:41]
- 02.Mister Joy [23:53]Жанр: Avant-Garde Jazz, Free Improvisation, Piano JazzПродолжительность: 00:42:33
+Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. June Dance 5:01
+02. Summer Dawn 4:34
+03. Chasing Dreams 3:56
+04. Algonquin Trails 5:08(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:302E913289D6E97CC9FB4E88E30DE3AF1FB12D7B
+magnet:?xt=urn:btih:24A14E350DF82FC9083802EB5D5AEC69580AB8B4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124114   (785845) от 10.04.2017
+###  Публикация: 1210728   (778560) от 04.03.2018
 
-Navitel / Навител Навигатор v9.8.3 RePack для карт релиза Q1-2017 [Ru/En]
+Лев Николаевич Толстой | Рассказы из детской жизни (1912) [JPG]
 
->>3
->>4
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785845.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778560.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 09.04.2017Разработчик: NAVITEL ®Поддерживаемая ОС: Android 2.0 +Язык интерфейса: Русский / Английский
+Рассказы для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4FB7F2D43D26C805698C76DABF28BE11855EA9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123825   (785846) от 10.04.2017
-
-Need for Speed: Undercover (2008) [Ru/Multi] (1.0.1.18/dlc) Repack ivandubskoj
-
->>След.
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто бы мог подумать, что твоя жизнь обернется погоней, где ты - то дичь, то охотник. Садись за руль, чтобы внедриться в безжалостный международный преступный синдикат и обрушить его изнутри. Тот, кого ты преследуешь, - настоящий маньяк на колесах. Он гоняет, словно от этого зависит его жизнь, и, возможно, так оно и есть. У него ответы на все твои вопросы, и твоя (   Читать дальше...   )Тип издания: RepackРазработчик: EA Black BoxЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A342085DDA195A239F3DA780A352C2703EB23F00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124297   (785847) от 10.04.2017
-
-Red Giant Knoll Light Factory for Photoshop CS5 - CC 2017 (в составе пакета Effects Suite) v3.2.3 [En]
-
->>След.
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Red Giant Effects Suite 11 представляет собой набор из 9 инструментов, которые служили сообществу визуальных эффектов в течение многих лет, обеспечивая творческую свободу для получения профессиональных эффектов.
-
- В сборник вошли следующие компоненты: Knoll Light Factory 3.0, Knoll Light Factory 3.2.3 for PS, Composite Wizard 1.4.6, Toonlt 2.1, Holomatrix 1.2, Image (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2014Разработчик: Red GiantПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1A5703E12206C420B4DA46547C5E8A791C4D5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123924   (785848) от 10.04.2017
-
-Profileschool | Основы аналоговой фотографии (2017) PCRec [H.264/1080p]
-
->>След.
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваши пленочные кадры смотрятся хуже цифровых? Вы делаете много лишних дублей в надежде угадать экспозицию? В лаборатории вам портят черно-белые пленки плохой проявкой? Вам кажется, что съемка на пленку — дорогое удовольствие? Узнайте, как правильно определять экспозицию, что нужно знать о ручной проявке фотопленок и какое вспомогательное оборудование сделает процесс (   Читать дальше...   )Жанр: ФотоПродолжительность: 06:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A29FB8CC3E743FB1E20A1271A17D40E65D2D25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124347   (785849) от 10.04.2017
-
-Hide Folders 5.5 Build 5.5.1.1161 RePack by KpoJIuK [Multi/Ru]
-
->>След.
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hide Folders - это удобный инструмент для сокрытия вашей конфиденциальной информации от посторонних. Программа позволяет скрывать целые папки на компьютерах под управлением Windows® XP/Vista/7/8. Очень удобна и проста в использовании, достаточно просто перетащить скрываемую папку в окно программы и нажать всего одну кнопочку. Программа Hide Folders была специально (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD1CFAE7AA8D7801E35C10891F02B19F81FC370
+magnet:?xt=urn:btih:D38BB5B06A9093D2C490E45D744E499051DB44CC
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1547692   (600253) от 02.05.2022
+
+Faun - Pagan (2022) [FLAC|Lossless|WEB-DL|tracks] <Medieval, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galdra (6:10)
+02. Halloween (3:54)
+03. Gwydion (3:59)
+04. Wainamoinen (4:02)(   Читать дальше...   )Жанр: Medieval, FolkПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B101F44C05B5777AB78E0C8D31FC1D0CA03EED5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913613   (601132) от 30.06.2015
 
 VA - Golden Cinema Hits (2006) [FLAC|image + .cue]<Soundtrack>
@@ -664,33 +691,6 @@ VA - Borderlands 3 Original Game Soundtrack (2019) [FLAC|Lossless|tracks] <Game 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B1B5783847552EB87C0E4693376FC380345A0E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148497   (603412) от 07.07.2017
-
-Teddy Pendergrass - The Real... Teddy Pendergrass (The Ultimate Collection) (2014) 3CD [FLAC|Lossless|tracks + .cue] <Funk, Soul>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. The Love I Lost
-02. Satisfaction Guaranteed (Or Take Your Love Back)
-03. Be For Real(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 03:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCDD75659B38FC441E7ED8F25AA5584D42A85D24
 ```
 
 

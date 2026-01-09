@@ -1,3 +1,30 @@
+###  Публикация: 1440829   (1038197) от 19.01.2021
+
+VA - Top 100 Most Streamed Songs On Spotify 2020 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038197.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Queen - Bohemian Rhapsody - Remastered 2011 (5:54)
+002. Travis Scott - SICKO MODE (5:12)
+003. Adele - Hello (4:55)
+004. Ed Sheeran - Thinking out Loud (4:41)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3798DD8FD58C20EFA26B848B6B654A44F018A8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440891   (1038235) от 19.01.2021
 
 VA - Smooth Jazz: The Magic Of Improvisation (2021) [MP3|320 Kbps] <Smooth Jazz>
@@ -668,33 +695,6 @@ VA - Glam Deep House (2021) [MP3|320 Kbps] <Deep House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B51B07DF59AFC1EE56E798ED9AD765AFE946044A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439561   (1039560) от 14.01.2021
-
-VA - Beatport Deep House: Electro Sound Pack #220 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Январский 220-й выпуск европейского мегамикса от Beatport будет радовать своих слушателей новыми композициями от самых известных и популярных исполнителей. Лонгплей представит слушателю подборку из 130 треков электронной музыки в стиле Deep House.001. Raw Main - Garden Of Eden
-002. Local F - Bold Cruisin
-003. Invert Of Playground - Drooling Diablo
-004. Daniel Grant - My Perfect Match(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FB48D79A84BE286FF1771A111AFDAF76A8EF241
 ```
 
 

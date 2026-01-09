@@ -1,3 +1,30 @@
+###  Публикация: 1148497   (603412) от 07.07.2017
+
+Teddy Pendergrass - The Real... Teddy Pendergrass (The Ultimate Collection) (2014) 3CD [FLAC|Lossless|tracks + .cue] <Funk, Soul>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. The Love I Lost
+02. Satisfaction Guaranteed (Or Take Your Love Back)
+03. Be For Real(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 03:24:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCDD75659B38FC441E7ED8F25AA5584D42A85D24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148309   (603483) от 07.07.2017
 
 Jonn serrie - Thousand star (2009) [FLAC|Lossless|tracks + .cue] < New Age, Ambient>
@@ -463,6 +490,33 @@ magnet:?xt=urn:btih:E7B4B5AB31340CE8B0C6FC2E917763547F0588A0
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 222010   (609412) от 27.07.2010
+
+Adiemus - Дискография (1995 - 2006) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_609412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adiemus (Adiemus I - 1999 Version) (3:57)
+02. Pie Jesu (Requiem) (4:33)
+03. Hymn Before Action (The Armed Man) (2:38)
+04. Cantus: Song of Tears (Adiemus II - Journey Edit) (3:56)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545800   (609618) от 22.04.2022
 
 Chet Atkins – From Nashville With Love & Solo Flights (2015) [FLAC|Lossless|image + .cue] <Country>
@@ -665,60 +719,6 @@ Arnaud Rebotini - Curiosa (Bande originale du film) (2019) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ADACAF335D1A847BEFEEE1FD581D6EA5D4DEBB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037870   (610194) от 26.07.2016
-
-Hennie Bekker - Beyond Dreams - Pathways to Deep Relaxation (2016) [FLAC|Lossless|tracks] <New Age, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Self Connect [00:08:49]
-02. Floating to Forever [00:11:04]
-03. Letting Go [00:06:40]
-04. The Calm [00:13:20](   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036D0AE4D761985CB99DE541D8CFA8E33583D401
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296536   (610254) от 18.04.2019
-
-VA - Now That's What I Call Country Vol 12 (2019) (2019) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kacey Musgraves - Space Cowboy
-02. Luke Bryan - What Makes You Country
-03. Luke Combs - She Got The Best Me
-04. Kane Brown - Lose It(   Читать дальше...   )Жанр: CountryПродолжительность: 00:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E82DA767B8FBC513C040C653624BED60AF37505
 ```
 
 

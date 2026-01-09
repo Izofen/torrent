@@ -1,3 +1,30 @@
+###  Публикация: 993144   (897585) от 04.03.2016
+
+Леонид Азбель и Катенька Дроздовская - Старая Одесса (2001) [MP3|320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Иволга
+03. Перебиты, поломаны крылья
+04. Однажды сценку я наблюдал(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0FF58597676804597B2FA1B38D4EEE279F90FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993043   (897647) от 04.03.2016
 
 Va - Top Eurodance Tunes (2016) MP3 (2016) [MP3|320 кб/с] <Pop, Dance, Eurodance, House>
@@ -662,33 +689,6 @@ VA - Hear My Soul: Deep House Fashion Mix (2020) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA6DEF14A56884343F471B2F09FF5E13A2A594AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370149   (898484) от 26.03.2020
-
-VA - Exotic Chill House (2020) [MP3|320 Kbps] <Chill House, Relax, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898484.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nazca - Unchained
-002. Lord Of The Flies - Ice Water
-003. Cool Jaques - About Us
-004. Archelix - By Night (Original Mix)(   Читать дальше...   )Жанр: Chill House, Relax, ChilloutПродолжительность: 08:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A02F13CBA1A4E9920B2087044FC185A7E2B7C7
 ```
 
 

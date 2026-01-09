@@ -1,3 +1,30 @@
+###  Публикация: 1114255   (833493) от 14.03.2017
+
+VA - I Love Music! - Nu Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Alternative Metal, Modern Rock, Nu Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833493.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A Day To Remember - We Got This 3:49
+002. Aeges - Drying Out 5:12
+003. Aeges - Save Us 4:27
+004. Afterlife - Pain & Pleasure 3:26(   Читать дальше...   )Жанр: Alternative Metal, Modern Rock, Nu MetalПродолжительность: 06:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C46E5EC61309DA8617C394FAA3FDD00D848DB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114175   (833496) от 14.03.2017
 
 VA - Музыкальный подарок на радио Europa Plus (2017) [MP3|256 Kbps] <Pop>
@@ -669,33 +696,6 @@ VA - 100 Хитов в дорогу (2016) [MP3|256 кб/с] <Shanson>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51AA4A6A241184221B76C987AA78D270A9BED4B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005076   (834365) от 08.04.2016
-
-VA - Nu Jazz Instrumentals (2016) [MP3|320 кб/с] <Nu Jazz, Lounge Jazz, Jazz House>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agostino Maria Ticino – If I Had Said to You
-02. Acusmatic Group – Un grosso guaio - Dave Masoch Re-Jazzed
-03. 2 Men 4 Soul – So Fine - Instrumental Bonus Track
-04. Black & Brown – Cool Affair(   Читать дальше...   )Жанр: Nu Jazz, Lounge Jazz, Jazz HouseПродолжительность: 02:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D0CF3BFAF2C80F04FD073B53BC689A36B2C57B9
 ```
 
 

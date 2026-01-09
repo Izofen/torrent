@@ -1,3 +1,30 @@
+###  Публикация: 1455582   (1025628) от 19.03.2021
+
+VA - ЕвроХит Топ 40 Europa Plus 19.03.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Save Your Tears (3:35)
+02. Travis Scott, HVME - Goosebumps (Remix) (2:42)
+03. Nea & Nio Garcia - Diablo (2:45)
+04. Michael Patrick Kelly - Beautiful Madness (2:55)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AFFAF1E15977F6838814A751656DC12BCC648BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455392   (1025650) от 19.03.2021
 
 VA - Soft House Lounge (2021) [MP3|320 Kbps] <Soft House, Lounge>
@@ -668,33 +695,6 @@ VA - The Rapsody Overture / Hip-Hop Meets Classic (2021) [MP3|320 Kbps] <Hip-Hop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF49EF8559063557C3927589A72AD4D202A9BFF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453290   (1026920) от 11.03.2021
-
-VA - Sexy Vocal Deep House (2021) [MP3|320 Kbps] <House, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elephante, Nevve, Anden - Have It All (Anden Remix) (4:37)
-02. Hayden James, NAATIONS, Dom Dolla - Nowhere To Go - Dom Dolla Remix (4:35)
-03. jackLNDN - The Feels (4:31)
-04. Tara Louise, Masoud - My Dreams - Radio Edit (4:12)(   Читать дальше...   )Жанр: House, PopПродолжительность: 03:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB5E1BF4CC0130298280A5CB0EBD0B367B055D5
 ```
 
 

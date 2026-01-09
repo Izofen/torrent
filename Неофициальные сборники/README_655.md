@@ -1,3 +1,30 @@
+###  Публикация: 1486529   (1004593) от 01.08.2021
+
+VA - Beatport Electro House: Sound Pack #320 (2021) [MP3|320 Kbps] <House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004593.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lockafella - Ndiyahamba
+002. Kuriose Naturale - Total Holzmarktstrasse
+003. Timmy Regisford - Smooth Track
+004. Framework - Flashback(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 12:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0C2871ACBA4B8A02D0A49788C1CE4FDDE52484
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486526   (1004596) от 01.08.2021
 
 VA - Beatport Drum And Bass: Sound Pack #324 (2021) [MP3|320 Kbps] <D&B, Bassline, Electro Bass>
@@ -668,33 +695,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB41CEE02D3BDFB842AE49D7F902E8E107B656E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483096   (1006988) от 12.07.2021
-
-VA - Music Love: Romantic Sound Mix (2021) [MP3|320 Kbps] <Pop, Romantic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maisie Peters - John Hughes Movie
-02. Jackson R.A. - Little Love
-03. Cautious Clay - Cheesin’
-04. D.Polo - Tenderlove(   Читать дальше...   )Жанр: Pop, RomanticПродолжительность: 04:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E47BD75A2234771E3ED647DD6AF2455A069EEBF6
 ```
 
 

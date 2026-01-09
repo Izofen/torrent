@@ -1,3 +1,338 @@
+###  Публикация: 431701   (991036) от 06.01.2012
+
+Kaoru Kukita - Unplugged Ghibli (2007) [MP3|192-320 kbps]<OST, Instrumental>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Town with an Ocean View (Kiki's Delivery Service)
+02. Merry Go Round of Life (Howl's Moving Castle)
+03. Love Is a Flower, You Are a Seed (Only Yesterday)
+04. Talk of Bygone Days (Porco Rosso)
+05. Sheeta's Courage Carrying You (Laputa)
+06. Mei Is Lost Totoro Theme (My Neighbour Totoro)
+07. Mei in the Village Stroll (My Neighbour Totoro)
+08. Nausicaa Requiem (Nausicaa of the Valley of the Wind)
+09. Message from Rouge (Kiki's Delivery Service)
+10. The Day of the River (Spirited Away)(   Читать дальше...   )2007Жанр: OST, InstrumentalПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088428F1BBE62810EDBF544EC218C70D578B6413
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607096   (991214) от 28.01.2013
+
+Narada Artists - Grand Piano: Narada Anniversary Collection [2CD] (1997) [MP3|320 kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Mexican Memories (08:07)
+02. Long Way From Home (03:52)
+03. Courage Of The Wind (07:36)
+04. Blue Ridge Part 2 (04:27)
+05. Soliloquy (04:18)
+06. The Last Roundup (02:50)
+07. Aspen Summer (08:32)
+08. Sacred Dance (04:51)
+09. Stray (06:04)
+10. Spirit (05:31)(   Читать дальше...   )Жанр: New Age |Продолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE8119F0FDD2C21D7E3CA77966AC43D46E56089F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 431175   (991480) от 05.01.2012
+
+Зеленый фургон (1983) [MP3|160-320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Тема
+02. Двадцатый год
+03. Ты где, июльЖанр: SoundtrackПродолжительность: 00:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2F1808EF4B80027EB50491244A6A03F702F90EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 162244   (991890) от 01.01.2010
+
+VA - EL TANGO pasion y emocion (Танго - страсти и эмоции)(Box Set 10 CD) (2007) [APE|Lossless]<Classic Tango>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classic TangoПродолжительность: 09:58:31
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 162377   (991965) от 01.01.2010
+
+Сварга - Кровь-Река (2009) [MP3|320 kbps]<Neofolk, Pagan-Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro
+02 - Девять дней
+03 - Сжечь
+04 - Дочь Воды
+05 - Прощай
+06 - Спрячь меня
+07 - Голос Лютеня
+08 - Без лучины темно
+09 - Смотри
+10 - Песня вдали(   Дальше...)Жанр: Neofolk, Pagan-Folk
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 161344   (992016) от 01.01.2010
+
+VA - I love NY - 13 песен для веселого Нового Года (2005) [MP3|320 kbps]<Folk-rock, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. When the Trickster Starts A-Poking (Bordello Kind of Guy)
+02. Iza Susumeyo, Ibara No Michi Wo
+03. New Mind Polka
+04. Medicine
+05. Maxglaner
+06. The Dybbuk
+07. Sutu
+08. Humppamedia
+09. Dumbala Dumba
+10. Barbut(   Читать дальше...   )2005Жанр: Folk-rock, FolkПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608110   (992170) от 27.01.2013
+
+VA - Country Legends (12CD) (2005) [MP3|320 кб/с]<Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992170.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Rawhide01. Johnny Cash - Cry, Cry, Cry
+ 02. Charley Pride - Happiness Of Having You
+ 03. Frankie Laine - Granada
+ 04. Lynn Anderson - Heaven's Just A Sin Away
+ 05. Tina Turner - If It's Alright With You
+ 06. Jimmie C. Newman - A Fallen Star
+ 07. Anne Murray - It's All Over
+ 08. Patsy Cline - Hungry For Love
+ 09. Jim Reeves - Wind Up Doll
+ 10. Jerry Lee Lewis - Your Cheatin' Heart(   Читать дальше...   )Жанр: CountryПродолжительность: 00:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF32E4DE86015100417B04A45DE33682A3A8BEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352824   (992632) от 17.01.2020
+
+Evgeny Grinko - Naive Album (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Art Thou (4:12)
+02. Dusty Room (2:42)
+03. Someone Who Forgot His Watch (3:42)
+04. Short Memory (2:45)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:22:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9F805D4D7DD4D641536183BFB80875FC3B8A8D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608553   (993423) от 25.01.2013
+
+V.A. - Chill n' Brazil (2008) [FLAC|Lossless]<Bossa, Chillout, Lounge>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stereo Dub - Insensatez (How Insensitive)
+02. Celso Mendes ft. Lua - Fotografia (Diva Mix)
+03. Karen Souza - Corcovado (Quiet Nights Of Quiet Stars)
+04. Lila ft. Rhythmic Control - Aquarela (Brazilian Tradition Mix)
+05. Aural ft. Ituana - Amanha Talvez
+06. Urban Love ft. Moana - Samba De Uma Nota So
+07. Lalann - Seguir No Caminho
+08. Sound Behaviour - Fixacao (Outro Lado Remix)
+09. Karen Souza - Do You Really Want To Hurt Me
+10. Os Alquimistas - Aguas De Marco (Unconscious Edit)(   Читать дальше...   )Жанр: Bossa, Chillout, LoungeПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 430921   (993567) от 02.01.2012
+
+Eion Alea - 6 альбомов  (2011) [MP3|160-320 kbps]<Instrumental, Classical, New age>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+2011 - Endless Mysteries of Love
+2011 - Resurrection Of Atlantis
+2011 - Soft Touch
+2011 - Stella Transmontana
+2011 - The Beauty Of Sadness
+2011 - The Major ArcanaЖанр: Instrumental, Classical, New ageПродолжительность: 07:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CF142525FFA244B4913B67AD959A1F5AC348FE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 430662   (993811) от 02.01.2012
+
+Donna de Lory - Sanctuary (2009) [MP3|320 кб/с]<New Age, World, Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(07:11) 1. Aham Prema
+(06:30) 2. Sanctuary
+(07:11) 3. Guru Om
+(06:27) 4. Jai Ma
+(06:41) 5. Bathe In These Waters
+(10:10) 6. Lokah Samasta Sukhino Bhavantu
+(09:31) 7. Om Namah Shivaya (Thy Will Be Done)Жанр: New Age, World, MantrasПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B0F97266A333ABE84CDD6F1956A7115D737229A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608219   (994021) от 24.01.2013
 
 Sleepthief - Labyrinthine Heart (2009) [FLAC|Lossless]<New Age, Ethereal>
@@ -478,366 +813,6 @@ Sacred Spirit Band - Sacred Spirit (2004) [MP3|320 кб/с]<Native American,New 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EAABE20DED09D30F03578719FFBEFB86F0C31BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580234   (997545) от 13.01.2013
-
-Wang Wei - 2 albums (2011) [MP3|320 кб/с]<New age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997545.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:32) 01. Because Of Love
-(3:04) 02. Powder
-(3:29) 03. Morning Please Don't Come
-(4:32) 04. Better Not To See Again
-(3:51) 05. Forever Beautiful
-(3:32) 06. Loving Embrace
-(4:09) 07. Love Letter
-(3:35) 08. Amour
-(3:47) 09. A Heart On Fire
-(3:52) 10. 23 Seconds, 32 Years(   Читать дальше...   )Жанр: New age, Instrumental, PianoПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B7544CBB09609ACCED9E4A42F2BE7B147E84D66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602115   (997585) от 13.01.2013
-
-Wingmakers - 3 albums (2000) [MP3|320 кб/с]<Native American,New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ancient Arrow Chamber 11 [00:08:16]
-02. Ancient Arrow Chamber 12 [00:08:13]
-03. Ancient Arrow Chamber 13 [00:10:32]
-04. Ancient Arrow Chamber 14 [00:04:27]
-05. Ancient Arrow Chamber 15 [00:06:38]
-06. Ancient Arrow Chamber 16 [00:06:53]
-07. Ancient Arrow Chamber 17 [00:07:27]Жанр: Native American,New AgeПродолжительность: 01:01:21 + 00:34:47 + 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED5D74692E07549DFCC0E97AF8851FF5C212F1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 406528   (997676) от 12.01.2013
-
-Toto - Дюна/Dune (1984) [MP3|320 kbps]<OST/Score/Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1 - Prologue/Main Title - 3:20
-2 - Guild Report - 0:55
-3 - House Atreides - 1:44
-4 - Payul Atreides - 2:22
-5 - Robot Fight - 1:23
-6 - Leto's Theme - 1:23
-7 - The Box - 2:41
-8 - The Floating Fat Man (The Baron) - 1:16
-9 - Departure - 1:14
-10 - The Trip to Aarakis - 2:40(   Читать дальше...   )Жанр: OST/Score/SoundtrackПродолжительность: 01:12:12
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600495   (998322) от 10.01.2013
-
-Dishonored (2012) [MP3|128 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1.Main Theme 02:09
-2.The Return 01:10
-3.Empress Death 01:06
-4.Corvo Tortured 00:51
-5.Daud Encounter 01:12
-6.Survival 01:15
-7.Wrenhaven River 02:40
-8.Streets Exploration 03:11
-9.Streets Suspense 02:44
-10.Aristocracy Suspense 02:31(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598895   (999059) от 07.01.2013
-
-Однажды в сказке / Once Upon a Time OST (2012)[MP3|320 кб/с]
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Upon a Time Orchestral Suite
-02. Henry's Proposal
-03. The Queen's Curse
-04. Jiminy Cricket
-05. Dealing with Rumplestiltskin
-06. Belle's Story
-07. Dwarves
-08. The Huntsman
-09. Things Are Changing in Storybrooke
-10. Cinderella(   Читать дальше...   )Жанр: OSTПродолжительность: 01:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B54EFBCF7F05C5481C5602DF0701F7EF29E0ADF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598128   (999082) от 07.01.2013
-
-New Sun Pops Orchestra - Sax Mood 2 and Guitar Mood 2 (1976) [MP3|320 кб/с]<JPop Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sax Mood 2
-Продолжительность: 00:43:34
-  1 Nakanoshima Blues
- 2 Futari No Tabiji
- 3 Tomoshibi
- 4 Sakaba Nite
- 5 Ame Ga Yandara
- 6 A A Hito Koishi
- 7 Futsuka Yoi
- 8 Otouto Yo(   Читать дальше...   )Тип издания: VinilRipЖанр: JPop Instrumental, Easy ListeningПродолжительность: 01:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA1A45F5F1560D41994F40F9BFECCB2691BB3DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598573   (999092) от 07.01.2013
-
-Bel Suono - Мегаполис (2012) [MP3|320 кб/с]<Instrumental, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Libertango, (I've seen that face before) музыка Astor P.Piazzolla
-02 Мегаполис музыка Евгений Соколовский
-03 Одинокое сердце музыка Евгений Соколовский
-04 Bolero музыка Maurice Ravel
-05 Вальс музыка Евгений Соколовский
-06 Танец рыцарей
-музыка Сергей Прокофьев (Ромео и Джульетта / Танец Рыцарей)
-сузыка Сергей Рахманинов (Прелюдия Соль минор)
-07 Молитва (Bel Suono & Камо Сейранян (дудук)) музыка Алексей Рыбальчик
-08 Лето музыка Antonio Vivaldi (Four Season - Summer)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 01:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987491B1617A0762BA46341999C5BADBCB055563
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598666   (999103) от 07.01.2013
-
-James Last - Title Of Album: Christmas with Romance (2011) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romance For Violin And Orchestra No.2 In F Opus 50
-02. Stille Nacht
-03. Air On A G String
-04. Medley: White Christmas / Midnight In December / Jingle Bells
-05. Elvira Madigan
-06. Rosen Aus Dem Suden Opus 388
-07. Impromptu No.2 In A Flat Opus 142
-08. Le Quattro Stagioni Opus 8: Largo
-09. Sonata No.8 In C Minor Opus 13 "Pathetique": 2. Adagio
-10. Nocturne No.8 In D Flat Opus 27 No.2: Lento Sostenuto(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB00C4F6D7478BD7303686FED263DCD324E1348B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598653   (999116) от 07.01.2013
-
-Anthony Ventura - Romantische Momente (2010) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999116.jpg" />
-</div>
-
-
-###  Подробнее
-
-1) La vie en rose (Schau mich bitte nicht so an) 03:03
-2) I Have A Dream 04:17
-3) Blue Bayou 02:29
-4) Tornero - Non succedera piu 04:52
-5) Save The Last Dance For Me 02:36
-6) You've Lost That Loving Feeling - Unchained Melody 04:01
-7) Bright Eyes 02:45
-8) Soleado (Tranen lugen nicht) 02:09
-9) Hey Jude 04:05
-10) Morning Has Broken 02:16(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC962415115965278C10CE33C7BF65E0EA645F46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598659   (999119) от 07.01.2013
-
-Fausto Papetti - Movie Land (2011) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Theme from 'The Godfather'
-02. Sleep Walk
-03. Cabaret
-04. Love Theme from 'Blade Runner'
-05. Laura
-06. Love Story
-07. Djamballa
-08. Love me tender
-09. As Time Goes By
-10. Hello Dolly(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D02D24FC60C33879EBB5C95F8B010CC0822FEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598967   (999120) от 07.01.2013
-
-Jesse Cook - Greatest Hits (2CD) (2010) [MP3|320 кб/с]<New Age, Flamenco, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999120.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-Продолжительность: 01:19:34
-01. [03:49] Mario Takes a Walk
-02. [03:01] Tempest
-03. [04:10] Paloma
-04. [03:06] Bogota by Bus
-05. [03:29] Matisse the Cat
-06. [04:08] Virtue
-07. [03:48] Rattle and Burn
-08. [03:58] Gravity(   Читать дальше...   )Жанр: New Age, Flamenco, InstrumentalПродолжительность: 02:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BBBC911DF331113F9E476EF046940E229CB052B
 ```
 
 

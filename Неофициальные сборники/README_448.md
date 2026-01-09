@@ -1,3 +1,30 @@
+###  Публикация: 1025291   (712213) от 11.06.2016
+
+VA - Real Retro House Party (2016) [MP3|320 кб/с] <Jumpstyle, Techno, Hard Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real Retro Noize - Intro [0:16]
+02. Age of Love - The Age of Love [6:49]
+03. Systematic Parts - Violin De La Nuit [4:02]
+04. B.B.E. - Seven Days and One Week [2:56](   Читать дальше...   )Жанр: Jumpstyle, Techno, Hard TranceПродолжительность: 03:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC7DC0C0CD5A4C5025EAB588AFB0627B3DF9A4B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025040   (712217) от 11.06.2016
 
 VA - FLASHBACK! MIXED BY FERRYS (2014) [MP3|320 кб/с] <Electronic, House, Euro House>
@@ -668,33 +695,6 @@ VA - Ultimate Chillout Dreams (2018) [MP3|256-320 Kbps] <Ambient, Chillout, New 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C16B051E3CDE27EEAF4333CB7780A0A5C41365CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401016   (713344) от 08.08.2020
-
-VA - Expression Vocal House (2020) [MP3|320 Kbps] <Vocal House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713344.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cocino - Where Do We Go
-002. Jay Fox - Heartbeat
-003. Sunnery James - Pray (Extended Mix)
-004. Asher Postman - Walk Away(   Читать дальше...   )Жанр: Vocal House, ElectroПродолжительность: 08:12:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6DD1F0E3C5C55A47EA2341DCC56971DD72A2E9
 ```
 
 

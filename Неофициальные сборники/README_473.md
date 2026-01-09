@@ -1,3 +1,30 @@
+###  Публикация: 1020724   (743891) от 27.05.2016
+
+VA - Sweet Supernova: Ibiza Deep House Mix (2016) [MP3|320 кб/с] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743891.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aerial Revision - Acid Six (Original Mix)
+002. Fritzbeat - Your Hero - Radio Version
+003. Cycle Of Life - Set the Tone
+004. Eddy Chrome - Feel It in Your Soul - Vocal Mix(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 09:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA2B3E4A0B20BB2E71899D17589DE6C57E7E1E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020820   (743947) от 27.05.2016
 
 VA - Sun Goes Down: Chill Party (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -662,33 +689,6 @@ VA - German Top 50 Party Schlager Charts 11.02.2019 (2019) [MP3|320 Kbps] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2A627907922B5E857E1F31EDA75BA611552C0D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396638   (745438) от 16.07.2020
-
-Dread Zeppelin - The Song Remains  (2020) Compilation [MP3|320 Kbps] <Reggae, Rock>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immigrant Song
-02. Stairway To Heaven
-03. Black Dog
-04. Communication Breakdown(   Читать дальше...   )Жанр: Reggae, RockПродолжительность: 01:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C912FE830929D53C79CB9083ECD2E47717B89D8
 ```
 
 

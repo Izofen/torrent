@@ -1,3 +1,51 @@
+###  Публикация: 207691   (717193) от 08.06.2010
+
+Emerson, Lake & Palmer - From the Beginning [5 CD Boxset] (2007) [MP3|320 kbps]<Progressive rock, Symphonic rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_717193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive rock, Symphonic rock
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 208384   (717437) от 08.06.2010
+
+The Mamas & The Papas - All The Leaves Are Brown: The Golden Era Collection (2CD) (2001) [MP3|320 kbps]<Pop-Rock,Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_717437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop-Rock, Folk-Rock
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285612   (718814) от 27.02.2019
 
 Randy Pie - 6 Albums (1974-1986) Collection [MP3|320 Kbps] <Krautrock, Prog Rock, Pop Rock>
@@ -647,60 +695,6 @@ Deep Purple - Turning To Crime (2021) Bonus Track Edition [MP3|320 kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F3B20AF3290A4FFFFB23A48D9C0D4E44A9C3E29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397648   (739869) от 21.07.2020
-
-The Hardkiss - Акустика. Live (2020) [MP3|320 kbps] <Acoustic, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мелодія (Acoustic Live) (05:18)
-02. 00:00 (Acoustic Live) (04:11)
-03. Антарктида (Acoustic Live) (04:21)
-04. Андромеда (Acoustic Live) (01:42)(   Читать дальше...   )Жанр: Acoustic, Pop RockПродолжительность: 01:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B12A242C430C8B6FBB0DFC0FFDAACA7C941B65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283190   (740265) от 16.02.2019
-
-Find Me - Angels in Blue (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Tears in Paradise
-02. Chain of Love
-03. True Believer
-04. Straight for Eternity(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B1E45518EDCBEF1686CBA52DDC5E4A03B346378
 ```
 
 

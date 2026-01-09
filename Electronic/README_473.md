@@ -1,3 +1,165 @@
+###  Публикация: 1366381   (923737) от 11.03.2020
+
+Junkie XL - The Racing Collection (2018) [MP3|320 кб/с] <Electronic, Breakbeat, Glitch, House>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923737.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:50| 01. Apex
+|02:50| 02. Disclosed
+|03:28| 03. DRS Engaged
+|03:00| 04. Finish Line(   Читать дальше...   )Жанр: Electronic, Breakbeat, Glitch, HouseПродолжительность: 00:34:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED9FD9AF46884CF9938E54296E650CE1A8D0D5B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489701   (923748) от 17.08.2021
+
+VA - Vajra (Compiled by Josko) (2006) Indica Music [FLAC|Lossless|tracks+.cue] <Psychill, Dub, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaudi - Lunar Patchouli (05:14)
+ 02. Cell - Idea Spiral (07:12)
+ 03. Tripswitch - Cumulus (09:54)
+ 04. Mauxuam - Sounds A Lot (07:52)(   Читать дальше...   )Жанр: Psychill, Dub, Downtempo, AmbientПродолжительность: 01:08:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB5BA05B74683DFE5E000998DFDA6464294218A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489757   (923838) от 17.08.2021
+
+Martin Sturtzer - The Stellar Winds (2021) Echo Elberfeld [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, IDM, Psybient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atmosphere (10:40)
+02. NGC 6565 (08:25)
+03. Energy Scale (07:58)
+04. Kaskade (10:28)(   Читать дальше...   )Жанр: Ambient, IDM, PsybientПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:732C1677E6C596A78EC8D820E30B56746E18C8E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489756   (923846) от 17.08.2021
+
+Transponder - Terminae Space (2021) Exosphere [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Berlin-School>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atlas (07:30)
+02. Aegis (04:48)
+03. Terminus Worlds (06:58)
+04. Outer Halo (07:22)(   Читать дальше...   )Жанр: Ambient, Berlin-SchoolПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133C993750C8D80B757B4A8041A8D51087F65FCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366276   (923901) от 11.03.2020
+
+VA - Goa - The Power of Shiva, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923901.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. VA - Goa - The Power Of Shiva Vol 1 (continuous DJ mix 1) (1:17:08)
+2. VA - Goa - The Power Of Shiva Vol 1 (continuous DJ mix 2) (1:16:15)
+3. Neelix - You Can Change the World (Alex M.O.R.P.H. Remix) (7:23)
+4. Reality Test; Off Limits - Daga Dagom (Original Mix) (5:56)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 05:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB0603AF617BA888F9D35B6893FFA039FB3927D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366286   (923902) от 11.03.2020
+
+Aviators - The Cinematic Future (2020) [MP3|~278 Kbps (V0)] <Synthpop, Alternative, Cyberpunk>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cities In The Distance (Feat. Nirre) [07:07]
+02. Dark Star [05:36]
+03. Glow [05:28]
+04. Ghosts Of Our Fathers [05:56](   Читать дальше...   )Жанр: Synthpop, Alternative, CyberpunkПродолжительность: 01:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5AD241BAB61E4D9BBA24BD633E07CD42D2A2FB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489760   (923962) от 17.08.2021
 
 Eric "The" Taylor - The Guidance Of Ancestry (2019) Touched Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
@@ -531,168 +693,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D629C215FE56DCAA352CCA0B9824C08283F5B64C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366041   (925526) от 10.03.2020
-
-VA - Absurd Idea (2020) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Xie Product - Dub 13 [03:54]
-02. The Qub - One More [05:42]
-03. Bad Signal - Tarantula [04:11]
-04. Cubsonic - Summer Breath [05:14](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:250184D894A90AA356A4C2CCDA56F6B58BC0EF44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366040   (925607) от 10.03.2020
-
-VA - Segment (2020) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Emotion - Horseman [05:01]
-02. Axedent - Thousand Planet [06:04]
-03. Keri Beats - Take Me [08:16]
-04. Badline - Lost World [03:54](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:172C320553FD6925B27934A2159E56481CF9FB83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366039   (925615) от 10.03.2020
-
-VA - Lush Buns (2020) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Area - Mad Funk [05:16]
-02. Massa Under - Minigun [04:09]
-03. Total Destruction - Jigsaw Killer [06:11]
-04. Infecta - Space Odyssey [04:58](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0B18C3CAC414D6780A7B327E6464F27ECF7E498
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366037   (925620) от 10.03.2020
-
-VA - GRL GANG Presents: RIOT! (2020) [MP3|320 Kbps] <Dirty Dubstep, Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JEANIE - Inferno [02:14]
-02. Lizzy Jane - High Again [03:28]
-03. Jinx - Make You Mine [03:18]
-04. Risik - QUEEN BITCH [02:54](   Читать дальше...   )Жанр: Dirty Dubstep, Drum & BassПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9129DB4D47A545E4527054CD8E69456CA6593F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366038   (925631) от 10.03.2020
-
-VA - Halva (2020) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Art Pryde - My Winter [04:38]
-02. System Chaotica - X Files [05:10]
-03. Andrey Aryutkin - Motion [05:06]
-04. Fireblade - Your Depressions [05:46](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19953174CBDBB5B5DC819858C1D23EB7BB0FB263
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366030   (925725) от 10.03.2020
-
-X-Dream - X-Dream Remixed (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925725.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Radio (Eat Static Remix) (7:44)
-2. Out Here We Are Stoned (Shpongle Remix) (6:18)
-3. Our Own Happiness (Dickster Remix) (9:10)
-4. Parent Plant (Sybarite Remix) (8:30)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADFDC4F01080F6A6247C45A973DDD25DBE1CA66F
 ```
 
 

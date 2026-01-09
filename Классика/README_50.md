@@ -1,3 +1,84 @@
+###  Публикация: 1088473   (953609) от 02.01.2017
+
+Damien Poisblaud - Chant Grégorien - Abbaye du Thoronet (1990) PAVANE Records [FLAC|Lossless|image + .cue] <Григорианский хорал>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953609.jpg" />
+</div>
+
+
+###  Подробнее
+
+GREGORIAN CHANT
+1. Gradual "Beata gens"
+2. Introit "Loquebar"
+3. Gradual "Adjuvabit"(   Читать дальше...   )Жанр: Григорианский хоралПродолжительность: 01:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A155AC2395914787DC46900066835CD30DC0D55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089103   (953685) от 02.01.2017
+
+Josquin Desprez - Missa Gaudeamus (1990) [FLAC|Lossless|image + .cue] <Classical sacred>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Josquin Desprez
+1 Introitus Gaudeamus omnus in domino
+
+Josquin Desprez: Missa "Gaudeamus"(   Читать дальше...   )Жанр: Classical sacredПродолжительность: 01:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AC8EB28DFD88CCBAFF04D9FAF8CCDF001651221
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980572   (954598) от 30.01.2016
+
+Святослав Рихтер, Lovro von Matacic, Orchestre Nacional de l'Opera de Monte Carlo - Grieg, Schumann: Piano Concertos  [FLAC|tracs + .cue] <Classical>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grieg - Piano Concerto in A minor, op. 16
+01 (1) Allegro molto moderato
+02 (2) Adagio
+03 (3) Adagio moderato molto e marcatoЖанр: ClassicalПродолжительность: 01:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E869D5ACFCD0208E1C23312607CA15BE65EBEE01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978523   (956058) от 29.01.2016
 
 Gershwin - Second Rhapsody - Piano Concerto in F, Porgy and Bess: Symphonic Suite (1995) [FLAC|Lossless|image + .cue] <Classical, Orchestral, Symphonic>
@@ -635,94 +716,6 @@ Requiem for soloists, chorus, and orchestra, K. 626
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF3B6A5D721C98B459C99976767D953C37C01ECF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615985   (974802) от 10.02.2013
-
-Jie Chen - Chinese Piano Favourites (2007) [FLAC|Lossless]<Classical Instrumental>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tang Bi-guang (arr. Wang Jian-zhong): Liu Yang River [03:56]
-02. Trad. (arr. Wang Jian-zhong): A Hundred Birds Paying Respect to the Phoenix [05:57]
-03. Ren Guang (arr. Wang Jian-zhong): Silver Clouds Chasing the Moon [03:17]
-04. Trad. (arr. Li Ying-hai): Flute and Drum at Sunset [08:31]
-05. Lu Wen-cheng (arr. Chen Pei-xun): Autumn Moon Over the Calm Lake [04:04]
-06. Trad. (arr. Wang Jian-zhong): Glowing Red Morningstar Lilies [05:09]
-07. Hua Yan-jun (arr. Chu Wang-hua): The Second Spring Bathed in Moonlight [07:46]
-08. Zhu Jian-er (arr. Chu Wang-hua): Celebrating Our New Life [02:06]
-Ding Shan-de: Children's Suite
-09. I. Going to the Suburb [01:29](   Читать дальше...   )Жанр: Classical InstrumentalПродолжительность: 01:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:212088637B3830307AE779DB2F5127D4EB857567
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616209   (974930) от 10.02.2013
-
-CPE Bach - Harpsichord Conceros Wq45, Wq3, Wq44, Wq32 (Ludger Remy & Les Amis De Philippe Orhestra) (1998) [FLAC|Lossless]<Classical, Symphony, Concert>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto for harpsichord, 2 horns, strings & continuo in D major, H. 478, Wq. 45
-01. Allegretto    (06:09)
-02. Andantino    (06:56)
-03. Allegro    (03:25)Жанр: Classical, Symphony, ConcertПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B5511DC97F4799E90575FB8130E7DB12C1F76B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616551   (974978) от 10.02.2013
-
-Tchaikovsky - Symphony No. 6; Scriabin: The Poem of Ecstasy - (Riccardo Muti & The Philadelphia Orchestra) (1990) [FLAC|Lossless]<Classical, Symphony, Romantic Period>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pyotr Il'yich Tchaikovsky, Symphony No.6 in B minor, op.74 “Pathétique”
-01. Adagio - Allegro non troppo    (18:44)
-02. Allegro    (09:18)
-03. Allegro Molto    (09:20)
-04. Finale: Adagio Lamentoso   (10:36)Жанр: Classical, Symphony, Romantic PeriodПродолжительность: 01:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A241A805C1BEE5D7E0F46D90315F65B9AEDDFF
 ```
 
 

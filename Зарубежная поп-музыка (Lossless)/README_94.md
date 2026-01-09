@@ -1,3 +1,30 @@
+###  Публикация: 970801   (988477) от 01.01.2016
+
+Sandra - The Art Of Love (2007) [FLAC|Lossless|image + .cue] <Pop, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What D'Ya Think Of Me [04:34]
+02. The Way I Am [03:31]
+03. The Art Of Love [04:14]
+04. What Is It About Me [03:54](   Читать дальше...   )Жанр: Pop, ElectroПродолжительность: 00:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB45FAEAB22CDB38866E7DC56228A5479E0BF20C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970984   (988480) от 01.01.2016
 
 Степ - Ти не пожалкуєш (1997) [FLAC|Lossless|image+.cue] <Pop, Dance>
@@ -674,33 +701,6 @@ VA - July 2021 Hits [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BCDE7B624CEE981ED50AF4E13E74202CD21D5D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484777   (1005821) от 22.07.2021
-
-Bebe Rexha - Better Mistakes (2021) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break My Heart Myself (feat. Travis Barker)
-02. Sabotage
-03. Trust Fall
-04. Better Mistakes(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B70F5718B576FA6E73490D435C3181EBFA6BE5D
 ```
 
 

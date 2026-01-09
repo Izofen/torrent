@@ -1,3 +1,28 @@
+###  Публикация: 1096832   (917628) от 25.01.2017
+
+Olivia Holt - Olivia (2016) EP [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917628.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Phoenix (3:20)
+2. Thin AirЖанр: PopПродолжительность: 00:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77152A1EBA1ECF13AEC5F57A4CF0D82DA4500659
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367101   (918763) от 14.03.2020
 
 VA - 80's Gold (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Disco>
@@ -682,33 +707,6 @@ VA - The Best Of The 80's Volume II (1998) [FLAC|Lossless|tracks + .cue] <Pop Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3782C86B0E5E7ABFB4398F90C1F3E34D0A65303E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986352   (930872) от 14.02.2016
-
-Whitney - The Greatest Hits (2000) 2CD [FLAC|Lossless|tracks + .cue] <Soul, Disco, RnB/Swing>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whitney Houston & George Michael - If I Told You That (4:32)
-02. Fine (3:34)
-03. My Love Is Your Love (4:18)
-04. It's Not Right but It's Okay (4:49)(   Читать дальше...   )Жанр: Soul, Disco, RnB/Swing, Downtempo, Synth-pop, BalladПродолжительность: 02:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D97A02BA4BFEC2F6500DA81C3E3A170BF0CE3B7
 ```
 
 

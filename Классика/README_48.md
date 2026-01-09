@@ -1,3 +1,84 @@
+###  Публикация: 992342   (902391) от 01.03.2016
+
+VA - Палитра Классики (2003) S&V #12/2003 [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ф.Шуберт - Ave Maria (5:50)
+02. Ф.Куперен - 'Любимая' (чакона) (5:34)
+03. Т.Альбиони - Адажио (2:48)
+04. Ф.Шопен - Фантазия-экспромт (4:33)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8706293DCDBBEE1BCFD57332CA3095DFB0617886
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992254   (902416) от 01.03.2016
+
+Прокофьев - Piano Concerto no. 3, piano pieces (Прокофьев, Coppola - London Symphony Orchestra) (2001) [FLAC|Lossless|tracks] <Classical, Concerto, Классическая музыка>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto no. 3 in C major, op. 26
+01 (1) Andante - Allegro
+02 (2) Tema con variazioni (Andantino)
+03 (3) Allegro ma non troppo(   Читать дальше...   )Жанр: Classical, Concerto, Классическая музыкаПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7499CA0D5D3F96DAFE9A21D3BEFF97E513F1DE36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992288   (902418) от 01.03.2016
+
+VA - Classical 2008 (2007) compilation, CDx2 [FLAC|Lossless|image + .cue] <Classic>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902418.jpg" />
+</div>
+
+
+###  Подробнее
+
+СD1: 
+01. Sarah Brightman -  Time To Say Goodbye (Quarantotto) (4:07)
+02. Il Divo -  You Raise Me Up (Lovland) (4:02)
+03. Nigel Kennedy -  Czardas ((Monti) (5:24)(   Читать дальше...   )Жанр: ClassicalПродолжительность: СD1: 01:14:49; CD2: 01:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD12FD85EFC495BE19EAD94D7812A598C91CD72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992247   (902424) от 01.03.2016
 
 Montserrat Caballe - Caballe and Friends (1997) [FLAC|Lossless|image + .cue] <Classical, Opera>
@@ -623,87 +704,6 @@ Piano Concerto no. 1 in E minor, op. 11
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5B3FA292282BA5BCB2B56BFA1FAA28C240EFD2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093892   (932082) от 16.01.2017
-
-Dan Laurin - Telemann, Corelli & Bach (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical, Chamber Music>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Höör Barock - Concerto for 2 Recorders & 2 Oboes in B-Flat Major, TWV 54:B2: I. Andante [00:06:00]
-02. Dan Laurin - Concerto grosso in G Minor, Op. 6 No. 8 "Christmas Concerto": I. Vivace - Grave [00:02:39]
-03. Höör Barock - Ouverture-Suite in C Major, TWV 55:C3: I. Ouverture [00:01:58]
-04. Anna Paradiso - Keyboard Concerto in (   Читать дальше...   )Жанр: Classical, Chamber MusicПродолжительность: 01:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0FDB82EBBFDDA050D97CC85A963578740526E7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093430   (933324) от 15.01.2017
-
-Rick Wakeman - Piano Portraits (2017) [MP3|320 Kbps] <Classical, Piano>
-
->>Классика
->>Фортепиано
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Help 03:55
-02. Stairway To Heaven 06:12
-03. Life On Mars 03:23
-04. Im Not In Love 03:10(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBCB9FEFA53DB7ED90ED51F16AEC3EAFD684635E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985333   (935143) от 11.02.2016
-
-Escala - Quadrasonic (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Pop>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aerodynamic
-02. Bittersweet Symphony
-03. Hysteria
-04. Libertango(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B716EB0CAA352129E2E8C2A8D3F008CE30CAD3A
 ```
 
 

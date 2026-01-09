@@ -1,3 +1,165 @@
+###  Публикация: 1139995   (658276) от 04.06.2017
+
+VA - Lounge System Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Acqua Panna - Too Much Heaven 4:12
+02.  Oscar Walker - Reflex (Beach Edit) 3:12
+03.  Richie Alverez - One More Time 5:30
+04.  Jack Funk - Best Love 11:33(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:14:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F65B350CC108A25399FA1437F36F73C8D40F509
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140163   (658277) от 04.06.2017
+
+VA - Strong Stuff (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Following Light - Intention (Michael A Remix) 06:29
+02. Magnetic Brothers - Morning Feelings (K Nass Remix) 07:03
+03. Ewan Rill - Scanners 06:32
+04. Platunoff - Secret 07:09(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D90A49FBCEF789A7FB01FDF54F1060A0A8AF8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225687   (658828) от 17.05.2018
+
+VA - Best Of Series: Miroslav Vrlik Vol.01 (2018) [MP3|320 Kbps] <Progressive House, House,Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miroslav Vrlik - Another Night (Mark & Lukas Remix)
+02. Miroslav Vrlik - Words Mean Nothing (Original Mix)
+03. Miroslav Vrlik - Pathfinder (Original Mix)
+04. Miroslav Vrlik - Find You (Original Mix)(   Читать дальше...   )Жанр: Progressive House, House,TranceПродолжительность: 01:13:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:112713D3394B7905619DDC02B19B4FC1D6559AD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225679   (658835) от 17.05.2018
+
+VA - Spring Collective 01 (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ametrine - Axyridia (Original Mix)
+02. Anlaya Project - Baltica (Original Mix)
+03. Asioto - Downhearted (Original Mix)
+04. Axxound and Z8phyR - Storybrooke (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:078070D53CD7AE30A9790D34E3173876ED38CFE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139716   (659004) от 03.06.2017
+
+Teddy Killerz - Nightmare Street (2017) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teddy's Song
+02. Unbelievable
+03. Wasteland (feat. The Qemists)
+04. Bounce(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB8DE4CC4E0E2F842533D080A2D10E6EFD92C20D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139647   (659007) от 03.06.2017
+
+DJ Smash - Smash World (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Intro Robin Bad Theme 2:46
+02.  Love & Pride (feat. Vengerov) 2:55
+03.  Lovers 2 Lovers (feat. Ridley) 2:52
+04.  Cosmos 3:07(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 00:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21BCB5843BC9E39F02133B12243E50B51065B839
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139682   (659080) от 03.06.2017
 
 VA - Buddha Gold Vol.1 – The Finest In Mystic Bar Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -533,168 +695,6 @@ VA - Classic Progressive House Vol 3 (2017) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:958C744EA2D2F2093F67A732CE795640E8C57F3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225650   (659581) от 16.05.2018
-
-VA - Coastal Remixes 02 (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Smyk - Crossroads (Myni8hte 80's Re-Interpretation Mix)
-02.Michael Rehulka - Addicted To Music (Anlaya Project Remix)
-03.Sixthsense - Yal-Ku (Nuestro Remix)
-04.Clarks - Liquid Blue (Eric De La Vega Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F95C8DEAEE647A9FB850DDA943475B35F2FA0C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225511   (659653) от 16.05.2018
-
-Skee Mask - Compro (2018) Ilian Tape [FLAC 2.0|48/24|tracks|WEB-DL] <Techno, Ambient, IDM, Breakbeat>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cerroverb (05:33)
- 02. Session Add (06:20)
- 03. Rev8617 (03:44)
- 04. 50 Euro To Break Boost (05:07)(   Читать дальше...   )Жанр: Techno, Ambient, IDM, BreakbeatПродолжительность: 01:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FFB679D0A49492783E98E4E7D5DDA10DAB6A54D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902741   (659727) от 29.05.2015
-
-Martin L. Gore (Depeche Mode) - MG (2015) [FLAC|Lossless]<Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pinking
-02. Swanning
-03. Exalt
-04. Elk(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4711E20A1E04C165C51B9688ABA2BF290EEDE4E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225475   (659756) от 16.05.2018
-
-VA - Aly & Fila - Future Sound of Egypt 547 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Kamilo Sanclemente - Secret Garden (Original Mix)
-02.Lucas Rossi - Singularity (Original Mix)
-03.Ezequiel Arias - Passenger (Original Mix)
-04.Boss Axis - Fango (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B327D71E933D8567B7D02B562F03F1C14EF3838
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225467   (659759) от 16.05.2018
-
-VA - Aly & Fila - Future Sound of Egypt 546 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sasha feat. Polica - Out Of Time (Original Mix)
-02. Dezza - Law of Attraction (Original Mix)
-03. Stan Kolev - Oblivion (Extended Mix)
-04. Matan Caspi & Ziger - Templar (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2D1C07F2F865BD7EFCC9AC5806ED66A6D4183C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902963   (659835) от 29.05.2015
-
-Alesso - Forever (2015) Deluxe Edition [FLAC|Lossless|WEB-DL]<Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alesso - Profondo
-02. Alesso - PAYDAY
-03. Alesso Feat. Tove Lo - Heroes (We Could Be)
-04. Alesso - Tear The Roof Up(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8757430E4EE93AB3448F350D40657B9C4668B7F9
 ```
 
 

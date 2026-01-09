@@ -1,3 +1,243 @@
+###  Публикация: 625187   (909881) от 29.01.2017
+
+ВИА Верасы - Советская эстрада. Избранное (2CD) (2009) [MP3|320 кб/с]<поп, ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: поп, ретроПродолжительность: 01:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5786207C0B6C2359E21CB2D771674E06592DB3FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990843   (909992) от 26.02.2016
+
+VA - World Dance Music (2004) [FLAC|Lossless|tracks + .cue] <Trance, World & Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rahmaj - Fly to India (1:59)
+02. Gitan Suite - Spanish Dream (1:54)
+03. Lya Cannes - Vuela Vuela (3:00)
+04. Kariber - Mueve (3:29)(   Читать дальше...   )Жанр: Trance, Folk, World, & Country, PopПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4105AE9EFD27D4F3362A1B4929BC9A23598CB5B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491476   (910344) от 25.08.2021
+
+VA - Disco Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bee Gees - More Than A Woman (From "Saturday Night Fever" Soundtrack) (03:16)
+02. Donna Summer - Hot Stuff (Single Version) (05:14)
+03. Abba - Waterloo (02:45)
+04. Kool & The Gang - Celebration (04:58)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC8A840E002B52A16E22ADA2A885E8B25A25177
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491625   (910578) от 25.08.2021
+
+London Boys - Requiem: The London Boys Story (2021) 5CD Expanded Box Set [MP3|320 Kbps] <Eurodance, Eurobeat>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Requiem (4:20)
+02. Kimbaley (My Ma-Mama Say) (4:19)
+03. Harlem Desire (3:50)
+04. Chinese Radio (3:50)(   Читать дальше...   )Жанр: Eurodance, EurobeatПродолжительность: 06:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE16EA56EC76FDF33F122098250736F533932AA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491487   (910699) от 25.08.2021
+
+VA - All Acoustic (2021) [MP3|320 Kbps] <Pop, RnB, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katy Perry - The One That Got Away (Acoustic) 4:19
+02. Florence + The Machine - Shake It Out (Acoustic) 4:13
+03. Jp Cooper, Jonas Blue - Perfect Strangers (Acoustic) 3:11
+04. Niall Horan - Slow Hands (Acoustic) 2:41(   Читать дальше...   )Жанр: Pop, RnB, OtherПродолжительность: 02:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E63B2985ABE8F3556CF0E0F218A29B0FD2A088F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368217   (910871) от 19.03.2020
+
+Stylove - The 2nd Album (2019) Limited Edition [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Music Energy (4:39)
+02. Canzone (4:20)
+03. Dolce Vita (Edit Version) (3:37)
+04. Lady Fantasy (3:12)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924B89BC8A34EC03F5AE862D8B70144D85C1ABBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368281   (911024) от 19.03.2020
+
+Качеля - Грустить и танцевать (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Море зовёт (4:22)
+02. Если ты уйдёшь (4:49)
+03. Город детства (4:00)
+04. Ветра (4:33)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ABFBD0609010BE9C7FE0EDFA341F83342ABC713
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989954   (911281) от 25.02.2016
+
+VA - Легендарные Песни. Выпуск 01 (86-91) (2002) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ласковый Май - Белые Розы (5:40)
+02. Мираж - Музыка Нас Связала (4:25)
+03. Евгений Белоусов - Девочка Моя Синеглазая (6:09)
+04. Комбинация - Бухгалтер (4:31)(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64313CC589EA5FD6B2AC1FB7C52C0BB46CA307B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097747   (912049) от 28.01.2017
+
+VA - NOW That's What I Call Music! 61 (US series) (2017) [FLAC|Lossless|tracks] <Pop, Dance, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Mars - 24K Magic (3:45)
+02. Maroon 5 feat. Kendrick Lamar - Don't Wanna Know (3:33)
+03. Alessia Cara - Scars To Your Beautiful (3:46)
+04. Ariana Grande feat. Nicki Minaj - Side To Side (3:42)(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 01:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99F0B9DA1AADED0356F208D529F6137B140A10C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 758346   (912062) от 19.02.2014
 
 VA - Pure... singer/songwriter (2011) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Singer - Songwriter, Folk>
@@ -447,249 +687,6 @@ VA - 100 Hits: Acoustic (2014) Box Set, 5 CD [FLAC|Lossless|tracks + .cue] <Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6495EB5A53AEA76545754855A35522423407683
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096808   (915256) от 26.01.2017
-
-VA - 69 Hits Winter (2017) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915256.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Rag N Bone Man - Human
-02. Vianney - Je M En Vais
-03. M Pokora - Belinda(   Читать дальше...   )Жанр: PopПродолжительность: 03:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB905419AB087B06E196F6BAD75E50A859D94901
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490813   (915375) от 22.08.2021
-
-Mylene Farmer - Plus grandir: Best Of 1986 - 1996 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plus grandir
-02. Libertine (Mix 2001)
-03. Tristana
-04. Sans contrefaçon(   Читать дальше...   )Жанр: PopПродолжительность: 01:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A8612CC873D2F62746E15A28C4FCCA7932E6292
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490780   (915654) от 22.08.2021
-
-Talisha Karrer - Acoustic Covers 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here with Me (Acoustic) (3:51)
-02. Hallelujah (Acoustic) (4:26)
-03. Fix You (Acoustic) (3:42)
-04. Bridge over Troubled Water (Acoustic) (4:27)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E692DB4FEBA5FAF2E63D44EB10F4B4DBFD49D065
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367568   (915658) от 16.03.2020
-
-Tom Jones - Hide & Seek (The Lost Collection) (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915658.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Breathless
-2. City Girl
-3. Promise Her Anything
-4. Once There Was A Time (Stereo Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05B0BE9180ACAF6C71789EA6CF53941417529A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097395   (915683) от 26.01.2017
-
-Сергей Трофимов (Трофим) - Всё Не Важно (2010) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шансонье (4:00)
- 02. Формула счастья (2:56)
- 03. Густо - не пусто (3:44)
- 04. Отпускная (2:58)(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF877F6D6269A92172A1023047B2CAAB74D7BE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989875   (915693) от 23.02.2016
-
-VA - Танцы COVER (1999) S&V #05/1999 [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dana International - Women In Love (3:41)
-02. Dionne Faux - My Heart Will Gone On (4:23)
-03. Didi - Believe (4:22)
-04. Michael T - Horny (3:49)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E966581FF958D314DF71D40F6016165F4438D88F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097276   (915710) от 26.01.2017
-
-Сергей Трофимов (Трофим) - Сорокапяточка (2011) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нет, Я Не Стал (3:20)
- 02. Жми На Фузз (5:14)
- 03. Во Облацех (2:19)
- 04. Наблюдения Во Время Прогулки (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC161A3D61AB1E6F1A002C04E1A8C3448ECF0BEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988621   (916620) от 22.02.2016
-
-Юрий Антонов - Зеркало (1993) Unofficial Release [FLAC|Lossless|image + .cue] <Schlager, Pop Rock>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Зеркало 	03:40
-02. 	Не Забывай 	03:54
-03. 	Двадцать Лет Спустя 	03:39
-04. 	Вот Как Бывает 	03:25(   Читать дальше...   )Жанр: Schlager, Pop RockПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71A8D67312CEAB5CDDE5B56BB1B1A9E55764AD4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989168   (916637) от 22.02.2016
-
-Shania Twain - 6 студийных альбомов и 2 сборника (1993-2007) [FLAC|Losless|image+.cue] <Country, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальная дискография Шанайи Твэйн по версии Википедии и Wikipedia:
-1. Shania Twain (20 апреля 1993)
-2. The Woman in Me (7 февраля 1995)
-3. Come on Over (4 ноября 1997)(   Читать дальше...   )Жанр: Country, Pop, RockПродолжительность: 09:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:416905C4A69EDB019173946DCA0CBA3206C68C91
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1603468   (1045740) от 09.01.2023
+
+VA - Day In Hits 2023 Genres Navigator (2023) [MP3|320 Kbps] <Electro House, Techno, Afrobeat, Reggaeton>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wooddrowe - Sky Meet
+02. Oliver Tree & Robin Schulz - Miss You (GESES Remix) (Dirty)
+03. Wooddrowe - Sky Meet (Radio Edit)
+04. Route 94 feat. Jess Glynne vs. David Guetta & MORTEN - My Love (Rye & Josh Stylez 'Element' Edit)(   Читать дальше...   )Жанр: Electro House, Techno, Afrobeat, ReggaetonПродолжительность: 02:13:21 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F7BE2E1C837B022E73FC93AB59943987650D5E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603433   (1045743) от 09.01.2023
 
 VA - New Years Eve Ultimate House Party (2022) [MP3|320 Kbps] <Club, Progressive, Afro House, Groove>
@@ -668,33 +695,6 @@ VA - Christmas Blues for the Evening (2025) [MP3|320 Kbps] <Blues, Blues rock, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47F2E8A427C2649B0BE04D1CD2F8D33AA0F0D069
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840944   (1047688) от 08.12.2025
-
-VA - #010 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Was - I Am The Cool (4:08)
-02.  Eric Johanson - Undertow (Live) (4:17)
-03.  Kirk Fletcher - Every Dog Has Its Day (3:43)
-04.  Shawn Pittman - Low No More (4:07)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75C26466DA114FAAB9A1EECE52102A55EDA9650C
 ```
 
 

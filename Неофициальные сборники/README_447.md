@@ -1,3 +1,30 @@
+###  Публикация: 1131060   (710401) от 04.05.2017
+
+VA - Italo & Space Disco Vol.3 (2017) [MP3|320 Kbps] <Italodisco , Spacesynth>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Retronic Voice - Shot Down  5:03
+02.  Peter Wilson - Love Into Action  5:20
+03.  Ryan Paris - I Wanna Love You Once Again  7:08
+04.  Leo Rojas - Serenade To Mother Earth  5:21(   Читать дальше...   )Жанр: Italodisco , SpacesynthПродолжительность: 07:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4166D109BE52793AC34B84A1509B73467890B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131122   (710402) от 04.05.2017
 
 VA - Italo & Space Disco Vol.4 (2017) [MP3|320 Kbps] <Italo-Disco, Synthpop, Syntwave>
@@ -668,33 +695,6 @@ VA - Pussy Lounge (2016) [MP3|320 кб/с] <Hardstyle>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98C70CC95FAD581F9279D633DDF013B5A93816F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025291   (712213) от 11.06.2016
-
-VA - Real Retro House Party (2016) [MP3|320 кб/с] <Jumpstyle, Techno, Hard Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real Retro Noize - Intro [0:16]
-02. Age of Love - The Age of Love [6:49]
-03. Systematic Parts - Violin De La Nuit [4:02]
-04. B.B.E. - Seven Days and One Week [2:56](   Читать дальше...   )Жанр: Jumpstyle, Techno, Hard TranceПродолжительность: 03:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC7DC0C0CD5A4C5025EAB588AFB0627B3DF9A4B8
 ```
 
 

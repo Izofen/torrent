@@ -1,3 +1,57 @@
+###  Публикация: 1549916   (592524) от 10.05.2022
+
+Cain's Dinasty - The Witch & The Martyr (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rising - Renegades (01:24)
+02. Wanderer (04:21)
+03. Two Graves (04:41)
+04. The Past - Dark Lullaby (01:04)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D202FA38AE130812D1B3B5B059E436F4DC4609
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550012   (592527) от 10.05.2022
+
+Icarus Witch - Rise (2012) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End
+02. (We Are) The New Revolution
+03. Rise
+04. Asylum Harbour(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C8E263EDB935129DB16EDF66ECFCEDCE14E36A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550056   (592533) от 10.05.2022
 
 Aiwass - Wayward Gods (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom Metal>
@@ -638,60 +692,6 @@ Stöner (Stoner) - totally… (2022) [FLAC 2.0|44.1/16|WEB-DL|tracks] <Stoner Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7AED600B36567E836D3947DAD816A9F11D5AF97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549544   (592958) от 08.05.2022
-
-Affirm featuring Bayley & Hunt - One More Moment (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Overflowing (00:06:59)
-02 - Cry Cry (00:06:23)
-03 - Who Am I (00:04:50)
-04 - Where Are You Now (00:06:46)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB6786A289D6E87339026D435D14BBDC9CFE3C70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549582   (592961) от 08.05.2022
-
-Fernando Perdomo - Out to Sea 4 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Out To Sea 4 Theme (00:04:35)
-02 - Bliss Ascending (00:03:19)
-03 - Crestfallen (00:03:34)
-04 - Water Landing (00:03:42)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3300DFCBDDA95905C59D114AD597AE0586F225F9
 ```
 
 

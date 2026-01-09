@@ -1,3 +1,30 @@
+###  Публикация: 979580   (959868) от 26.01.2016
+
+Robyx Party - Long Single Mix 1990 Mix Part 1-2 (2016) [MP3|320 кб/с] <Italo-Disco, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savage - I just died in your arms (Extended Mix)
+02. Savage - I'm loosing you (Re-Euroedit Remix)
+03. Savage - Goodbye (Trans-Express Mix)
+04. Ice MC - Easy (Attack Remix)(   Читать дальше...   )Жанр: Italo-Disco, DanceПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:711A81BEC9494F4133BBD41E107EDB52A4D08206
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 621951   (959942) от 22.02.2013
 
 VA - Romantic Blues Collection Vol.4 (2013) [MP3|320 кб/с]<Pop,Blues>
@@ -672,33 +699,6 @@ magnet:?xt=urn:btih:41AF4CB7CBF52E88F60C903945DBF6A808FFEBF5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F63A32D58F845BE19BF7C34050EC4197024623E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359840   (963097) от 13.02.2020
-
-VA - 100 Greatest Love Songs (2020) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963097.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Whitney Houston - I Will Always Love You
-002. Snow Patrol - Chasing Cars
-003. Adele - Someone Like You
-004. Céline Dion - My Heart Will Go On(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4112EA2CC3DFDC24F70F7BBF47AC26264465D8E5
 ```
 
 

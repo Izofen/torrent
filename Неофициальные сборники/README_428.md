@@ -1,3 +1,30 @@
+###  Публикация: 1289690   (684457) от 17.03.2019
+
+VA - The Official UK Top 40 Singles Chart 15.03.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lewis Capaldi - Someone You Loved
+02. Calvin Harris - Giant
+03. Mabel - Don't Call Me Up
+04. Ariana Grande - break up with your girlfriend, i'm bored(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:10:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9DC4A9CF08E9025049A2F91BB80D1ADB0F7C8BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289565   (684458) от 17.03.2019
 
 VA - Electro House Without Framework (2019) [MP3|320 Kbps] <Club, Dance, House>
@@ -671,33 +698,6 @@ VA - LUXEmusic - Dance Super Chart Vol.117 (2017) [MP3|320 Kbps] <Club House, De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:431DA38891A9BE617854841596DA5697E77D037C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134955   (685084) от 17.05.2017
-
-Неба Жители - Посланники Пространств (2017) [MP3|320 Kbps] <Electronic, Downtempo, Drum & Bass, Drumfunk>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  1961 (С Голосом Первого Космонавта Планеты Земля)  12:24
-02.  Выше Всех Звёзд  4:37
-03.  Танец на Небесном Балконе  4:21
-04.  Вслед Грибному Ливню  3:35(   Читать дальше...   )Жанр: Electronic, Downtempo, Drum & Bass, DrumfunkПродолжительность: 01:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01A2A2A04F4B2337965218D4766A1B53B37E4B0C
 ```
 
 

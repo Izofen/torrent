@@ -1,3 +1,165 @@
+###  Публикация: 1359424   (963281) от 13.02.2020
+
+VA - Битва Dj - Dj Denis Binokl & Dj Arseniy (2008) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Spirals Permission To Fly (7:09)
+02. TommyBoy & Soultan Feat. Zara - B With U (Add2Basket Remix) (6:29)
+03. D-Pulse - Cant Stop Morning Light (Yvel & Tristan Remix) (6:36)
+04. Yvel & Tristan - Adagio (6:36)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40BD35305244667ED50DBE660CBB358F730C8AAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359423   (963282) от 13.02.2020
+
+VA - Resonance (Mixed by DJ Arseniy) (2004) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simply Red - Sunrise (Motivo Simply Mad Mix) (4:40)
+02. Tori Amos - Don't Make Me Come To Vegas (Timo On Tori) (6:03)
+03. Unknown Artist - Is It Real? (2:31)
+04. Poww Project - Junkhouse (Silverboys Remix) (5:33)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF4858107F1F1D1D9617B82F45CE0DDC7C7AF826
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978216   (963441) от 23.01.2016
+
+Adam Fielding - Discography 11 Releases (2008-2015) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, IDM, Post Rock, Ambient, Breaks, Synth-pop, Deep House, Experimental>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Renew (03:43)
+ 02. Changes (02:27)
+ 03. Catacombs (03:58)
+ 04. Cards (03:26)(   Читать дальше...   )Тип издания: WEBЖанр: Downtempo, IDM, Post Rock, Ambient, Breaks, Synth-pop, Experimental |Продолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBF0FBF5DED6F0AA085BFCCCD68BCEB227EB1DCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977841   (963580) от 23.01.2016
+
+VA - Dance Max 2003/1 (2003) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ATB - I Don't Wanna Stop (Radio Edit) (3:33)
+02. Sylver - Livin' My Life (Radio Edit) (3:43)
+03. Mario Lopez - Where Are You (Radio Edit) (3:34)
+04. Kate Ryan - Libertine (Radio Edit) (3:13)(   Читать дальше...   )Жанр: House, TranceПродолжительность: 01:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB3DF797FCB603FCB3BCF9D7595AEE86FFE1791B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359588   (964129) от 12.02.2020
+
+Depeche Mode - Spirit (2017) 2CD, Dlx. Ltd. Japanese Edition [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cover Me (Alt Out) (4:27)
+02. Scum (Frenetic Mix) (5:26)
+03. Poison Heart (Tripped Mix) (4:16)
+04. Fail (Cinematic Cut) (5:38)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, SynthpopПродолжительность: 01:16:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2803B251D60952CB239612104C4A66789C529170
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359415   (964296) от 12.02.2020
+
+VA - The Perfect Valentine's Day (2020) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964296.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Wermuth - Inkberry (5:34)
+2.Aurtigards - A Story of Stories (7:09)
+3.Vostok Divers - Taking Root (5:57)
+4.Komplextum - A Drinkable Feeling (5:38)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:51:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:708B1B87E831C6F02E222BF0172C2DD4C81AD3F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359418   (964354) от 12.02.2020
 
 VA - Uplifto-1: - Первая (2007) [MP3|320 Kbps] <House, Progressive House>
@@ -530,167 +692,6 @@ VA - House Chill Hop for Lovers (The Best Erotic Sound For Dance Floors) (2020) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5EA42A845003DED8EE57B0B2FE13365EE9C1471
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358808   (967433) от 09.02.2020
-
-VA - Live @ Transcend 7th Birthday, Club Reina London, United Kingdom 2020-02-01 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daniel Skyver:
-01. Alex Di Stefano - Escape From The Past (Skyver intro edit)
-02. Cirez D - In The Reds
-03. Ruben de Ronde & PROFF feat Deirdre McLaughlin - Fade Away With Me (Key 4050 remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D292BBF66BDBEC29EA940EBD7AF6B47C6D17AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358653   (967500) от 09.02.2020
-
-Rupesh Cartel - Death With Soft Names (2005) [FLAC|Lossless|image + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967500.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Death With Soft Names (Extended) 7:28
-2 Yours To Command (Extended) 6:21
-3 Nowhere Fast (Extended) 6:40Жанр: Synth-popПродолжительность: 00:20:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7695FB48D706625BBDB0D92FDB37481F37A75AF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 863215   (967662) от 19.01.2016
-
-DJ S.I.D.R. - Keep It Ob'ecore Podcast # 1-20 (2013-2015) [MP3|320 кб/с]<Happy Hardcore, Hardcore, Rave>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Prospect - I Just Wanna Feel (UK Hardcore Edit)
-02. Re-Con & Demand ft. Mandy Edge - I'm Sorry (Original Mix)
-03. Eufeion & Patch - Crash
-04. UniqForm - Oooo Fuck(   Читать дальше...   )Жанр: Happy Hardcore, Hardcore, RaveПродолжительность: 23:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCED436A21C0C87E465DBBB4ED5454FCE4B3CF6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985564   (968505) от 08.02.2020
-
-Iszoloscope - Discography 18 Releases (2001-2019) Ant-Zen [FLAC|Lossless|tracks+.cue, tracks] <Industrial, Rhythmic Noise, Dark Ambient, Breakcore, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something Wicked This Way Comes (06:11)
- 02. The Apocryphal Market (Merchants Of Babel Remix By Manufactura) (06:42)
- 03. Unearth Me (Iszoloscope Remix) (04:42)
- 04. -28°C And Falling (Pummeled Sweating Testies Mix By Caustic) (04:07)(   Читать дальше...   )Тип издания: CD, Vinyl, WebЖанр: Rhythmic Noise/Industrial/Breakcore/AmbientПродолжительность: 15:26:47 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D66E861079F7DE8D16C8611716E6B4008093B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040547   (968566) от 08.02.2020
-
-VA - Ambient Diary (One, Two, Three) (1997-2000) Elektrolux [FLAC|Lossless|tracks+.cue] <Ambient, IDM, Downtempo, Techno Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soehngenetic - Schwimmschleifer (04:53)
- 02. Dron - Pheon (11:15)
- 03. Ruxpin - Flying (06:06)
- 04. Quantum Leap - Scope (05:07)(   Читать дальше...   )Тип издания: CD, CompilationЖанр: Ambient, IDM, Downtempo, Techno Ambient •Продолжительность: 06:52:38 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BC857B10AE655CC410616EEF4D46F952BC21833
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358115   (968628) от 08.02.2020
-
-Soulware - All That Binds Us - Rua (2018) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Down beat, Dub, Dubstep>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let the Moment speak (06:21)
-02. Boundaries (07:34)
-03. The Light at the end of the Tunnel (06:28)
-04. The White Rabbit (02:10)(   Читать дальше...   )Жанр: Down beat, Dub, DubstepПродолжительность: 00:31:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365F6AD6F725492FBCFC8784CC8DA304FF78E6EA
 ```
 
 

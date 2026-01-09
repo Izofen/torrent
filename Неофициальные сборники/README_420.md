@@ -1,3 +1,27 @@
+###  Публикация: 1290751   (673725) от 22.03.2019
+
+Heiko And Maiko - Techno Rock (2018) Radio Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673725.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Heiko And Maiko - Techno Rock (DJ Savin Alex Pushkarev Remix) Radio VersionЖанр: Club, DanceПродолжительность: 00:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10CD1512635B4B0B67ABADB24A73C7E958297943
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030527   (673799) от 30.06.2016
 
 Enrique Iglesias - The Best Songs (2016) [MP3|320 Kbps] <Pop>
@@ -667,33 +691,6 @@ VA - Зарубежная Дискотека ХХ Века - 34 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DA3C76C037872AD2F02F2EC68F4E49980C6B143
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030191   (674716) от 30.06.2016
-
-VA - Зарубежная Дискотека ХХ Века - 31 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Del Faro - Bandiera La Playa Del Sol ( 1987 )
-02. Blondie - Atomic ( 1980 )
-03. Anika - Precious Love ( 1994 )
-04. Tavares - Heaven Must Be Missing an Angel ( 1976 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A2D7F33CF440CCE40993742A0DB70CFAA39A9AB
 ```
 
 

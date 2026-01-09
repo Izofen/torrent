@@ -1,3 +1,165 @@
+###  Публикация: 329403   (709213) от 29.04.2011
+
+London Elektricity - Yikes (2011) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elektricity Will Keep Me Warm
+02. Meteorites (ft. Elsa Esmeralda)
+03. Had a Little Fight
+04. The Plan That Cannot Fail(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 147117   (709253) от 12.06.2010
+
+The Chemical Brothers - Discography - 66 Releases (1994-2010)|320]<Electro/Big Beat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electro/Big BeatПродолжительность: 00:59:09
+01. Setting Sun & Chemical Beats (San Fransico '96) (14:56)
+02. The Sunshine Underground (Woodstock '99) (9:15)
+03. The Private Psychedelic Reel (Open Air Field Festival '02) (17:36)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218767   (709960) от 16.04.2018
+
+joergmueller - Discography 4 Releases (2009-2018) [FLAC|Lossless|WEB-DL|tracks+.cue, tracks] <Dub Techno, Ambient, Dub, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DFM #1 (05:36)
+ 02. DFM #2 (06:47)
+ 03. DFM #3 (05:53)
+ 04. DFM #4 (05:32)(   Читать дальше...   )Тип издания: CD, WebЖанр: Dub Techno/Ambient/DowntempoПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AD328B91C67CBE09D25C5B6DD2892E539DE01C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025583   (710110) от 12.06.2016
+
+VA - Electric for Life - Ibiza (Mixed by Gareth Emery) (2016) [MP3|320 кб/с] <Progressive House, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noah Neiman & Meredith Call - You Are [5:12]
+02. Lyar Ft. Laura Luppino - Trigger (Summer Edit) [3:04]
+03. Jus Jack - Stargazing [3:09]
+04. Lane 8 - Sunlight (Jody Wisternoff Remix) [4:17](   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 06:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5984BFB249939890011517C4B213B0FB57566B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130698   (710394) от 04.05.2017
+
+VA - Best Of Progressive House Vol.03 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Shingo Nakamura - Always (Extended Mix)  6:52
+02.  eleven.five & LTN - LiPo (Original Mix)  6:46
+03.  Nigel Good & Sarah Clark - This Is You (Blood Groove & Kikis Remix)  7:42
+04.  Mango & Jan Martin - Pillows (Stendahl Remix)  7:54(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9B1E87934B1BC5025875801787E4A46B03CA5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131013   (710656) от 04.05.2017
+
+Dive - Underneath (2017) [FLAC|Lossless|WEB-DL|tracks] <EBM, Darkwave, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/10. Underneath (4:08)
+ 02/10. Far Away (4:19)
+ 03/10. Sacred Skin (5:26)
+ 04/10. Let Me In (4:21)(   Читать дальше...   )Жанр: EBM, Darkwave, IndustrialПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AAEFDD7380DD520092313A32A14DDC7815893D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130912   (710671) от 04.05.2017
 
 VA - Psy Moon Trance Vol.1 (2017) [MP3|320 Kbps] <Psy-Trance>
@@ -532,168 +694,6 @@ Henry Saiz & Band - Human (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Downte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8305230B7621A1CA375CC9F06CC0A58A8B509FC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219692   (711916) от 15.04.2018
-
-Monolink and Acid Pauli - The End (2015) 3000° Grad Records [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End (08:14)
-02. New Morning (07:49)
-03. The End (Mollono.Bass Remix) (07:52)
-04. New Morning (The Micronaut Remix) (06:24)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A593CD95BF51604E9A470B4BE258423EEC455CC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219575   (711917) от 15.04.2018
-
-Prime Minister Of Doom - Mudshadow Propaganda (2018) Planet Uterus [FLAC|Lossless|Vinyl|tracks] <Techno, Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Getting Things Started (06:01)
- 02. Tribal Days Part II (08:49)
- 03. Tribal Days Part III (09:06)
- 04. The Vibe (05:03)(   Читать дальше...   )Жанр: Techno, Dub Techno, AmbientПродолжительность: 01:15:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6591DB72C32205581CDF9833890B1F73E2640EB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025246   (711964) от 11.06.2016
-
-VA - Hed Kandi Beach House (2016) [MP3|320 кб/с] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Delay - The Boy Is Mine (feat Alexandra Prince - Mark Lower remix) [7:02]
-02. NY's Finest - Do You Feel Me (City Soul Project Club mix) [7:14]
-03. O&O Music - Music's Hypnotising [4:22]
-04. Sonny Fodera - Feeling U (feat Yasmin - Deep mix) [6:09](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3063FE87E9F76F7D70E5997A30341B73F7C905D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219630   (711970) от 15.04.2018
-
-VA - Superhits Spring 2018, 2CD [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711970.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Negramaro - La Prima Volta 3:58
-02. Portugal. The Man - Feel It Still 2:43
-03. Lost Frequencies & Zonderling - Crazy 2:33(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68C35E5000FE20496E7B4C893232E5E0D917D81D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025272   (712049) от 11.06.2016
-
-VA - 538 Dance Smash 2016 vol.2 (2016) [FLAC|Lossless|image + .cue] <House, Club, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fais & Afrojack - Fais
-02. Kungs vs. Cookin' On 3 Burners - This Girl
-03. Galantis - No Money
-04. Tinie Tempah & Zara Larsson - Girls Like(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBD287D882B4256D47D6B0A912C6B34B7E4861DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025050   (712055) от 11.06.2016
-
-ROTANOV - DEEP DANCE 01 (2016) [MP3|320 кб/с] <Deep House, Nu Disco>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Aleksave & Maryana Dan - In My Room (Original mix)
- 02 Optick & Manuel Riva - Close the Deal (Midi Culture Remix)
- 03 Richard Durand feat. Ellie Lawson - Wide Awake (RoelBeat Remix)
- 04 Cotry, JazzyFunk, Hot Light, Nikita Silver - Red Roses (Original Mix)(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 01:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:309E83AE1F0A4E97ED4B98A9B12D81CD1E2D2120
 ```
 
 

@@ -1,3 +1,156 @@
+###  Публикация: 1369193   (905705) от 22.03.2020
+
+Kirill Doomsky - Housemission II - Only One In The World (2004) [MP3|320 Kbps] <House, Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DB Boulevard - Frequency (Megahertz Remix) (5:03)
+02. Sergio Del Rio - Parazaar (Gambafreaks vs. Fedo Remix) (4:46)
+03. Roland Clark	- Resist (Jason Jinx Remix) (5:14)
+04. Torso - Latin Fusion (4:44)(   Читать дальше...   )Жанр: House, DiscoПродолжительность: 01:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86DA8A124A1A50822CBA8CF4A56AAF06D57A3A4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369138   (905706) от 22.03.2020
+
+Dj Бинокль - Tribalhouse 2 (2004) [MP3|256 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905706.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dj Бинокль - Untitled (01:09:21)Жанр: HouseПродолжительность: 01:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C792959B0860B29CE051A9E780C11B1E8EE441E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369183   (905707) от 22.03.2020
+
+VA - Mixed by Dj K.Doomski (2005) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905707.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. VA - Mixed by Dj K.Doomski - Untitled (01:12:04)Жанр: HouseПродолжительность: 01:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:363FD26C44E75B594DCBB86ED6E9484908CEAB88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369125   (905708) от 22.03.2020
+
+Dj Бинокль - Ночное Видение (2006) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905708.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dj Бинокль - Untitled (01:05:45)Жанр: HouseПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08C98D457D2CDA9D642A98FC9DFA9F9FB368B737
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368981   (905710) от 22.03.2020
+
+VA - Dub Backups Collection (1997-2000) Elektrolux [FLAC|Lossless|tracks+.cue] <Dub, Downtempo, House>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905710.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+ 01. Tricky Cris - Watch The Mix (05:08)
+ 02. G² - Con-Fused (06:04)
+ 03. Benjamin Wild - Außenliegend 24 (06:17)(   Читать дальше...   )Тип издания: CDЖанр: Dub/House/DowntempoПродолжительность: 05:31:12 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347981DFA1F24FA612B6A78CE190AF5C23E86A1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991388   (905841) от 28.02.2016
+
+Moby - Long Ambients 1: Calm. Sleep. (2016) [MP3|~245 кб/с (V0)] <Ambient, Drone>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LA1 (20:53)
+ 02. LA2 (19:00)
+ 03. LA3 (22:52)
+ 04. LA4 (17:32)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 04:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7897F47E6666E3A0D14579DA697E2C5B0ED11A54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991711   (905905) от 28.02.2016
 
 Scooter - Ace (2016) [FLAC|Lossless|image + .cue] <Techno, Hardstyle, Dance>
@@ -527,165 +680,6 @@ Blank & Jones - Pure Lounge: Chilling Club Sounds (2016) [FLAC|Lossless|tracks+.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D1DEDBC7347A195EEFCED1CE600E32B7D4A6DC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991314   (907908) от 27.02.2016
-
-Coming Soon!!! - The Album (2016) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance , Progressive Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anti Social Media (feat. Bryan Kearney) (7:20)
-02. Ghetto Rebels (6:50)
-03. Instant Rush (6:21)
-04. Prism (5:58)(   Читать дальше...   )Жанр: Psy-Trance , Progressive Psy-TranceПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F78BA946475AADA46C8C879A42E102B9EA2554
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990810   (907923) от 27.02.2016
-
-Eric Prydz - Opus (2016) [FLAC|tracks|WEB-DL]<House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907923.jpg" />
-</div>
-
-
-###  Подробнее
-
-[05:44] 01. Liam
-[06:17] 02. Black Dyce
-[05:23] 03. Collider
-[06:37] 04. Som Sas(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2DD8FC29C4AF98B576DC18DA962D0260E319D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991239   (908019) от 27.02.2016
-
-Ferry Corsten - Hello World (2016) [MP3|320 кб/с] <Progressive Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart's Beating Faster (feat Ethan Thompson) (3:03)
-02. Find A Way (4:08)
-03. Beat As One (feat Angelika Vee) (2:56)
-04. Homeward (5:32)(   Читать дальше...   )Жанр: Progressive Trance, Progressive HouseПродолжительность: 01:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46CF2848F3E20AD6C8840A538281BD7D782BD696
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991108   (908020) от 27.02.2016
-
-VA - Various Artists LP Vol. 1 (2016) [MP3|320 кб/с] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dereck - Boom (Original Mix)
-02. Dextems - Blackrelief (Original Mix)
-03. Electrosoul System - Here We Go (Original Mix)
-04. Frosper - Tonal Twist (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADEEEC91AC7B7D47464CFF51F2182180AFC1BC60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990805   (908021) от 27.02.2016
-
-Eric Prydz vs. CHVRCHES - Tether (2015) Single [FLAC|tracks|WEB-DL]<Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908021.jpg" />
-</div>
-
-
-###  Подробнее
-
-[05:40] 01. Eric Prydz vs. CHVRCHES - Tether (Original Mix)Жанр: Progressive HouseПродолжительность: 00:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:183EF09536E126957DEE5C737B31C803EF1D9436
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098485   (908597) от 30.01.2017
-
-Animotion - Obsession - The Best Of Animotion (1996) Compilation [FLAC|Lossless|tracks + .cue] <Pop-Rock, Synthpop, 80s>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Obsession (5:37)
- 02. Let Him Go (4:28)
- 03. I Want You (4:38)
- 04. I Engineer (4:15)(   Читать дальше...   )Жанр: Pop-Rock, Synthpop, 80sПродолжительность: 01:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E273AC7B3CA1233048A79ED55BC3E38A77BAECFC
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1196797   (820638) от 04.01.2018
+
+VA - German Top 100 Single Charts 05.01.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820638.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Perfect
+002. Bausa - Was du Liebe nennst
+003. Mariah Carey - All I Want for Christmas Is You
+004. Wham! - Last Christmas(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:841B79A93071BCCA9CBEBBF90FE73D581A074076
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382291   (820758) от 10.05.2020
 
 VA - Best Electronic Of All Time (2020) [MP3|320 Kbps] <Electro, House, Other>
@@ -671,33 +698,6 @@ VA - Electric Nights Dance Sensation Vol.4 (2016) [MP3|320 кб/с] <House, Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB7868E57A56F4F6444406C1F44F1B08EC738ED6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007520   (821710) от 15.04.2016
-
-VA - Ministers Of Progressive (2016) [MP3|320 кб/с] <Trance, Psy Trance, Psychedelic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Physis - Through the Looking Glass 06:30
-02. Galactic Cowboy - Windows of Soul 07:28
-03. Physis - Rising Citizens 03:27
-04. Monu - The Moonlight 06:32(   Читать дальше...   )Жанр: Trance, Psy Trance, PsychedelicПродолжительность: 02:19:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC617B1EB446F843753569980BF50A6A8955A6D
 ```
 
 

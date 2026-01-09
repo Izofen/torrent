@@ -1,3 +1,30 @@
+###  Публикация: 1358703   (967407) от 09.02.2020
+
+VA - German Top 100 Single Charts 07.02.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joker Bra & Vize - Baby
+02. The Weeknd - Blinding Lights
+03. Samra - Mon Ami
+04. Juju x Loredana - Kein Wort (feat. Miksu & Macloud)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36FF5135932CE57A86C26ADD9E66BE20C60882C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976865   (967669) от 19.01.2016
 
 VA - Звездный Mix. Улетная 100-ка (2016) [MP3|256-320 кб/с] <Pop>
@@ -710,33 +737,6 @@ VA - Shazam Хит-парад Russia Top 100 Январь (2020) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04D24463805695EA158DF0A7CD0650DE4A4B14B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972766   (980653) от 07.01.2016
-
-VA - Танцевальная Зима 50/50 (2016) [MP3|320 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Frequencies ft. Janieck Devy - Reality 02:39
-02. Джанет Джексон - BURNITUP! (feat. Missy Elliott) 03:28
-03. Anna Naklab ft. Alle Farben - Supergirl 03:33
-04. Нюша - Где Ты, Там Я (DJ Nejtrino & DJ Baur Remix) 03:30(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:458FD3B78EC50211F801F4DF530ABD0A66A243A4
 ```
 
 

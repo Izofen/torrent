@@ -1,3 +1,30 @@
+###  Публикация: 1450767   (1028846) от 27.02.2021
+
+Ryszard ''Skiba'' Skibinski - 1951-1983 (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028846.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Lutek - Pogromca Lwow
+A2 Boogie Dziadka Skiby
+A3 Jak Nas Gonili Tacy Jedni
+A4 MPO Blues(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF8086AA473E2A386A93B4DAA40853E5D2DBEAC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623730   (1029090) от 03.04.2023
 
 Grant Miller - Greatest Hits & Remixes (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
@@ -669,33 +696,6 @@ A4 (Sitting On) The Dock Of The Bay(   Читать дальше...   )Жанр:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:940B4EA19BA495BA8D9C3CB20E6DB82AB6DA766C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611888   (1040558) от 14.02.2023
-
-Karel Gott/Карел Готт - Stori/Рассказы (1982) [FLAC 2.0|192/24|image+.cue] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040558.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Тарантелла • La Danza
-A2 Леди Карнавал • Lady Carneval
-A3 Конец Птичьих Арий • Konec Ptacich Arii (Z Filmu ''My, Ztraceny Holky'')
-A4 До Ре Ми Ля • Do Re Mi La(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A065670089BA3C270CD0C8D8545F0B707EC4AB60
 ```
 
 

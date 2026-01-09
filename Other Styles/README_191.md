@@ -1,3 +1,299 @@
+###  Публикация: 1483144   (1007170) от 11.07.2021
+
+Kárpátia (Karpatia) - Csatazaj (2021) [FLAC|Lossless|tracks + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harcoljatok! (2:20)
+02. Hópehely (3:45)
+03. Páncélos menetinduló (3:08)
+04. A köddel jövök (3:12)(   Читать дальше...   )Производство: Exkluziv Music Kiadó – EMK 069Жанр: Folk RockПродолжительность: 00:28:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC94F09E45906E774CC20B899034192CD340BF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 788862   (1007838) от 06.07.2021
+
+Дживан Гаспарян - 5 альбомов (2004) [MP3|224 Kbps] <Instrumental, Ethnic>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джива́н Арамаи́сович Гаспаря́н (арм. Ջիվան Գասպարյան; 12 октября 1928, деревня Солак, Армения) — всемирно известный армянский музыкант и композитор, знаток армянской национальной музыки, мастер игры на дудуке. Народный артист Республики Армения. Профессор Ереванской (   Читать дальше...   )01. Zucchabar Gladiator Soundtrack
+02. To The River
+03. With This Love
+04. Fallen Star(   Читать дальше...   )Жанр: Instrumental, EthnicПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D1F90CA9D92D9F64936020FC216FF5A188DD14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116520   (1007872) от 06.07.2021
+
+Jivan Gasparian \Дживан Гаспарян - 33 Masterpieces (2010) 3CD Limited Edition [FLAC|Lossless|image + .cue] <Armenian Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007872.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Duduk & Orchestra - World Music
+CD2 - Duduk - Love Music
+CD3 - Duduk - Soul MusicЖанр: Armenian FolkПродолжительность: 02:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32143BED5B1F74459B40F34AD47F612E88D61DA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480598   (1008710) от 30.06.2021
+
+David Arkenstone - Celtic Chillout Beats (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Of The Celts (4:13)
+02. Navarre's Return (4:07)
+03. They Danced All Night (4:02)
+04. Siren Of The Sea (4:03)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F54F7BB87271A073BA05E4CABC255A657005990
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480823   (1008723) от 30.06.2021
+
+Johnny Whitehorse - Totemic Flute Chants (2007) [FLAC|Lossless|tracks + .cue] <Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cougar
+02. Coyote
+03. Thunderbird
+04. Emergence(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5662C4094E11109649CBC1F08F792D9828192B1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480446   (1008981) от 28.06.2021
+
+Piano Peace - Calm Piano & Ocean Waves (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocean Wave Flow (3:18)
+02. Relax Song (With Ocean Waves) (2:17)
+03. Sleeping In Ocean Sounds (2:33)
+04. Ocean Waterfall (3:12)(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E8497146F3A82DE120EAC5BC57765015A738B15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479927   (1009293) от 26.06.2021
+
+Peter Kater - Rapture (2021) [FLAC|Lossless|WEB-DL|tracks] <New age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rapture (5:03)
+02. Valley Of Love (4:52)
+03. Promising (3:43)
+04. Love You So (4:16)(   Читать дальше...   )Жанр: New age, PianoПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AC37B760720335E68F000EBC30907920CC55193
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478902   (1010005) от 21.06.2021
+
+Fernand Deroussen - Islande: Carnet de voyage (2001) [FLAC|Lossless|tracks + .cue] <Nature>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le prince de Myvatn - The Prince of Myvatn
+02. Le cirque d'Asbyrgi - The Cirque of Asbyrgi
+03. Quand la terre mijote - When the Earth Bubbles
+04. Les cygnes chanteurs - Whooper Swans(   Читать дальше...   )Жанр: NatureПродолжительность: 01:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C616F1A216620FF9771BA6F0209FE69E2E48B9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477076   (1011359) от 13.06.2021
+
+The Ugly Guys - Senior Moments (2018) [WavPack|Lossless|image + .cue] <Country Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Of Dixie
+02. Mama Has Gone
+03. Heads Turn
+04. Handsome Boy(   Читать дальше...   )Жанр: Pub RockПродолжительность: 00:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEC7D905BD5FD17E51BCE57FF164BB9FC4E7EE2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476442   (1011493) от 12.06.2021
+
+Neal Schon - Universe (2020) Reissue, 2021, Neal Schon Music [FLAC|Lossless|tracks + .cue] <Instrumental Guitar Rock>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something in the Heart 07:13
+02. The Eye of God 02:16
+03. The Universe 04:23
+04. Caruso 05:43(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 01:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08223BB4C7CADFD716A88BF98E3B5F893829D4D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476023   (1011928) от 09.06.2021
+
+ДиДюЛя - 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Еду-доеду
+02. Две сестры
+03. Танго добрых ветров
+04. Схватка(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2EFE8EA09BFFC631EB13E0FFC05FC51686BDEAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 169972   (1012498) от 05.06.2021
 
 Roses Never Fade - Roses Never Fade (2009) [FLAC|Lossless|image + .cue] <Folk Rock, Neo-Folk, Psychedelic>
@@ -398,305 +694,6 @@ Autogenic Training Channel - Self Hypnosis, Nature Music (2021) [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:240F00624F569B0B411873072CC049EB79D2B39F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469997   (1016129) от 14.05.2021
-
-Autogenic Training Channel - Daily Ritual Meditation (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daily Ritual Meditation (4:01)
-02. Happy to See You - Rain Sounds (3:13)
-03. Shimmer (4:17)
-04. Inner Peace (3:13)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CED711CDCBD8D646D974A4C8034056627E09D84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469518   (1016395) от 12.05.2021
-
-Kundalini Yoga Music - Autogenic Training Channel (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kundalini Yoga Music (4:01)
-02. Spa Relaxation - Rain Sounds (3:13)
-03. Spirituality (4:17)
-04. Nocturnal Relaxation (3:13)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D753A13A1294DA8F3F750A9B500533B5564FF812
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465873   (1018772) от 28.04.2021
-
-Tierra Negra - Discography (1997-2020) WEB [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Acoustic Guitar, Flamenco Nuevo>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rafaga De Luz (3:29)
-02. Boreal (3:40)
-03. Djobi Djoba (2:47)
-04. Tramontana (3:49)(   Читать дальше...   )Жанр: Flamenco, Acoustic Guitar, Flamenco Nuevo |Продолжительность: 14:40:19 | Кодек: FLAC | Битрейт: Lossless|WEB-DL | Тип рипа: tracks
-
-Tierra Negra - немецкий гитарный дуэт Leo Henrichs and Raughi Ebert. Оба участника называют свой стиль музыки Mediterranean Guitar Lounge и Flamenco Nuevo. Кроме этого, они продают свою собственную фирменную модель гитары фламенко (для справки - Gipsy Kings играет только на гитарах марки Tierra (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87443B3532F8C2D27EAD5B4404FAA5228AAE7069
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465723   (1018931) от 27.04.2021
-
-Medwyn Goodall - The Wolfstone (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth Mother Rising
-02. Shield Maiden
-03. The River Folk
-04. The Fields of Summer(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A38A72821D8AAEF1C6BB77A24463C774025539D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027900   (1019280) от 25.04.2021
-
-Shanti People - Urban Mantras (2015) [MP3|320 Kbps] <New age, Folk, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saraswathi Devi Sloka (3:36)
-02. Bolo Krishna (3:57)
-03. Om Namo Bhagavate Vasudevaya (4:52)
-04. Surya Narayana Dandakam (5:03)(   Читать дальше...   )Жанр: New age, Folk, MeditativeПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5818760EF3D62AE6812313E2540D8837871F3BB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465042   (1019285) от 25.04.2021
-
-Johannes Linstead - Discography (1999-2017) [FLAC|Lossless|tracks + .cue] <Flamenco, Guitar, Latin>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mountain Mist (3:46)
-02. The Temple at Delphi (3:39)
-03. Don Juan (3:55)
-04. Gypsy Rain (3:50)(   Читать дальше...   )Жанр: Flamenco, Guitar, Latin, New Age |Продолжительность: 08:38:50 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E4EE1DEF1A69E57F6FCD8DB9BFC56F85130BCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464936   (1019297) от 25.04.2021
-
-Tierra Negra - Discography (1997-2020) [MP3|320 Kbps] <Flamenco, Acoustic Guitar, Flamenco Nuevo>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rafaga De Luz (3:29)
-02. Boreal (3:40)
-03. Djobi Djoba (2:47)
-04. Tramontana (3:49)(   Читать дальше...   )Жанр: Flamenco, Acoustic Guitar, Flamenco NuevoПродолжительность: 14:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5C4345398AAAF6570EBFC85BCC9246CF856FBD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465267   (1019312) от 25.04.2021
-
-Shanti People - Krishna is Love (2013) [MP3|320 Kbps] <New age, Folk, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (3:32)
-02. Sri Mangala Gita (4:42)
-03. Sri Radhika Stava (6:25)
-04. Bolo Radha Ramana (3:10)(   Читать дальше...   )Жанр: New age, Folk, MeditativeПродолжительность: 00:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F5949C9733F9BFE20F63DC649FDD2FE6FE05D85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464851   (1019632) от 23.04.2021
-
-Johannes Linstead - Discography (1999-2017) [MP3|320 Kbps] <Flamenco, Guitar, Latin>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mountain Mist (3:46)
-02. The Temple at Delphi (3:39)
-03. Don Juan (3:55)
-04. Gypsy Rain (3:50)(   Читать дальше...   )Жанр: Flamenco, Guitar, Latin, New AgeПродолжительность: 08:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DAD341FABF92DC4E4F3BEAF3AC5580B59F91575
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464431   (1019728) от 22.04.2021
-
-OST - Вампиры средней полосы (2020) [MP3|320 Kbps] <Саундтрек>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро (2:39)
-02. Расследование (3:02)
-03. 1947 (1:43)
-04. Маркиз Де Шамм (3:22)(   Читать дальше...   )Жанр: СаундтрекПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C21F80FF669231B70EFC8952031A86C1910647A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464189   (1019973) от 21.04.2021
-
-Kailash Kokopelli - Collection (2000-2005) 2альбома [MP3|320 Kbps] <Native American, Didgeridoo, Trance>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fragrance
-02. Himba
-03. Mother Earth
-04. Heartlight(   Читать дальше...   )Жанр: Native American, Didgeridoo, TranceПродолжительность: 02:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A20123B4A8EF806953E85CC84CE81728825BCF7D
 ```
 
 

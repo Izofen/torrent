@@ -1,3 +1,30 @@
+###  Публикация: 1460197   (1022749) от 04.04.2021
+
+The Beatles - Sgt. Pepper's Lonely Hearts Club Band (SMRP Stereo from Mono Originals) (1967) Remaster, 2021 [MP3|320 Kbps] <Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Sgt. Pepper's Lonely Hearts Club Band (02:02)
+02-With A Little Help From My Friends (02:45)
+03-Lucy In The Sky With Diamonds (03:27)
+04-Getting Better (02:47)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:092C6E016B545DE556E932ED0B7F31A817236CFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460133   (1022771) от 04.04.2021
 
 VA - Top 100 DJs (2021) [MP3|320 Kbps] <EDM, Dance, Electro, Pop, Trance, House, Tech House>
@@ -668,33 +695,6 @@ VA - Beatport Deep House: Sound Pack #266 (2021) [MP3|320 Kbps] <Deep House, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20D2E66E0F08412A4AE54C461DB4B4514C5C6A31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458962   (1023522) от 31.03.2021
-
-VA - HGM: March Electro Dance Chart (2021) [MP3|320 Kbps] <EDM, Dance, House, Club, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои современных танцполов, покорители самых топовых чартов планеты, здесь и сейчас в новом релизе от HGM. Сборник представляет собой подборку клубно - танцевальной музыки в формате нон-стоп, которая так популярна в наше время среди молодёжи.001. Fred Summers - Are You Ready (Original Mix)
-002. Di Carlo - Bella Ciao
-003. Innervisions feat Maria Duque - No One Like You
-004. Bassregion - Ocean Drive (Club Mix)(   Читать дальше...   )Жанр: EDM, Dance, House, Club, Tech HouseПродолжительность: 11:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F1B0A65769530D144AD55CA422FFB60511B74A
 ```
 
 

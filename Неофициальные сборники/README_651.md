@@ -1,3 +1,36 @@
+###  Публикация: 597078   (1000491) от 02.01.2013
+
+VA - Best Of Lounge Music (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B Van E - I Need You (Cut N Glue Chillout & Lounge Mix)
+02. Sky And Sand - Sunset (Comfort Version)
+03. Cazintel - Aliens in Love (Air Play Version)
+04. Mister Paul - You Don't Know (Vocal Exclusive Mix)
+05. Wine & Dine - Why Are We Here (Original Mix)
+06. Miguel Lando - Sylt (Exclusive Remaster Version)
+07. Muner DJ - This Is My Dream (Original Performant Mix)
+08. Exit Mars - Gliding (Exclusive Mix)
+09. Collective Sound Members - Fast Features
+10. Maurice Scoville - Perfect Day (Comfort Version)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 04:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D8A8EDF27ED48FD3850C070CF53818643072687
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352580   (1000733) от 15.01.2020
 
 VA - Громкие новинки Января Vol 1 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +701,6 @@ VA - City Marathon: Music For Running (2021) [MP3|320 Kbps] <Hard Dance, Hardsty
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A45BCAA09B58FD134D457F432AC407741645125
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488680   (1001617) от 12.08.2021
-
-VA - 100 Greatest Heavy Metal Songs (2021) [MP3|320 Kbps] <Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Sabbath - Paranoid (2012 - Remaster)
-02. Metallica - Master of Puppets (Remastered)
-03. Iron Maiden - Hallowed Be Thy Name (1998 Remaster)
-04. Black Sabbath - Iron Man (2012 - Remaster)(   Читать дальше...   )Жанр: Metal, RockПродолжительность: 09:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E68EC110D8934C6B3C11EF0F8D39D59C4EB8E2B2
 ```
 
 

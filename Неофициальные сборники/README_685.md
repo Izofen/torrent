@@ -1,3 +1,30 @@
+###  Публикация: 1437168   (1042286) от 04.01.2021
+
+VA - December EDM Charts (2020) [MP3|320 Kbps] <Tech House, Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в мир отличной танцевальной музыки!!! Сегодня представляется гигантский сборник электронной музыки танцевального направления. Вас ожидают только лучшие треки, горячие новинки танцполов европы, самые лучшие хиты сезона и просто интересные треки. Слушаем и наслаждаемся!001. Dj Sign And Manuel Baccano - Good Time
+002. Martin Mix - You'll Be The One
+003. Lovona - Pink Sand
+004. Kneco - Mt. Takwari(   Читать дальше...   )Жанр: Tech House, Deep House, ElectroПродолжительность: 09:19:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:307D0B02304DB1C0F9866B6145AE741011CF5D0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437298   (1042292) от 04.01.2021
 
 VA - Beat Glam House (2021) [MP3|320 Kbps] <Club House, Electro>
@@ -668,33 +695,6 @@ VA - Музыка для машины Vol.5 (2023) [MP3|320 Kbps] <Pop, Dance, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A28079DDB36B1B2A2A316A4A480E69398B9BEC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609741   (1043140) от 04.02.2023
-
-VA - The Rock Meeting Vol.02 (2023) [MP3|320 Kbps] <Rock, Punk, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043140.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Black Keys - Lonely Boy
-002. Frank Turner - The Work
-003. The Relentless - Lost In Control
-004. Jeff Lynne's Elo - Losing You(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 11:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06A5A58AABE5123E7B231AA533E2498BD7DBA2C2
 ```
 
 

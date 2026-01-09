@@ -1,3 +1,30 @@
+###  Публикация: 1286623   (711183) от 03.03.2019
+
+Kenny Rogers - Ruby Don't Take Your Love To Town (Unknown) Compilation [FLAC|Lossless|image + .cue] <Pop, World, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711183.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Ruby Don't Take Your Love To Town
+2.	For The Good Times
+3.	A Stranger In My Place
+4.	Rueben James(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427446A97558438509E862F7F615CA0C50956269
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025062   (711961) от 11.06.2016
 
 Linda Jo Rizzo - Fly Me High (The Album) (2015) [FLAC|Lossless|tracks] <Italo-Disco, Euro-Disco>
@@ -670,33 +697,6 @@ The Boy Least Likely To - The Wrong End of a Rainbow (2020) A Collection of B Si
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B14394E18EBBB3A624569920D0841EA4ABE2F676
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129692   (720232) от 29.04.2017
-
-VA - BRAVO Hits 97 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katy Perry feat. Skip Marley - Chained To The Rhythm (3:57)
-02. Ed Sheeran - Castle On The Hill (4:21)
-03. Alma - Chasing Highs (3:15)
-04. Zedd & Alessia Cara - Stay (3:30)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, R&B, Disco, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 02:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3B1F1E0B4C9C23DB1CB3A498CB799790E225B4
 ```
 
 

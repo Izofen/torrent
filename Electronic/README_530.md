@@ -1,3 +1,165 @@
+###  Публикация: 1613462   (1039652) от 18.02.2023
+
+VA - The Sound of 2023 Mix 3: Tokyo (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Anton Trian -  Weightless (Intro)  (2:38)
+02.  Sound Fusion -  Signals  (5:01)
+03.  Axel Zambrano -  Xone  (4:41)
+04.  Ormus -  Vishnu  (5:43)(   Читать дальше...   )Жанр: Progressive House, Techno, TranceПродолжительность: 01:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C298DBD0440D8082BBD5D61ED1AB076E486A9DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437429   (1039745) от 13.01.2021
+
+Jean Michel Jarre - Welcome To The Other Side (2021) Concert From Virtual Notre-Dame [FLAC 2.0|48/24|tracks|WEB-DL] <Electronic Techno>
+
+>>Electronic
+>>Trance, House, Techno (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Opening (VR Live) [00:03:28]
+02. Oxygene 2 (JMJ Rework of Kosinski Remix) [00:04:32]
+03. The Architect (VR Live) [00:03:23]
+04. Oxygene 19 (VR Live) [00:03:45](   Читать дальше...   )Жанр: Electronic TechnoПродолжительность: 00:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF289397186F716B7B9A9EEC612B74303F06BD30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613079   (1039791) от 17.02.2023
+
+Skrillex - Quest For Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Dubstep, Trap, Dance, UK Bass>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leave Me Like This (feat. Bobby Raps)
+02. RATATA (feat. Missy Elliott & Mr. Oizo)
+03. Tears (feat. Joker & Sleepnet)
+04. Rumble (feat. Fred again.. & Flowdan)(   Читать дальше...   )Жанр: Dubstep, Trap, Dance, UK BassПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA989FE4D1A8C5FB01496B67F006C6D4EB359B87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613069   (1039806) от 17.02.2023
+
+Skrillex - Quest For Fire (2023) [MP3|320 Kbps] <Dubstep, Trap, Dance, UK Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leave Me Like This (feat. Bobby Raps)
+02. RATATA (feat. Missy Elliott & Mr. Oizo)
+03. Tears (feat. Joker & Sleepnet)
+04. Rumble (feat. Fred again.. & Flowdan)(   Читать дальше...   )Жанр: Dubstep, Trap, Dance, UK BassПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D939AC4BEFC7905942E182437DB307C4EE75751B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612653   (1039846) от 17.02.2023
+
+Movie Booth - 2 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Breakbeat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Players [00:03:44]
+02. In the Image and Likeness [00:04:29]
+03. Try To Take Me Down [00:02:41]
+04. Welcome to My World [00:02:37](   Читать дальше...   )Жанр: BreakbeatПродолжительность: 2 CD, 01:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C50B069CB2928636DE7A427C0ECF3955AA0C9D15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439407   (1039864) от 13.01.2021
+
+VA - Swingers Club Party Music 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy listening, New Age>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tantric Sexuality Masters - Sensuality (3:41)
+02. Party Topic Club - All Night Long (3:45)
+03. Sex Music Zone - Hypnotic Beats (3:47)
+04. DJ Infinity Night - Kiss of Paradise (3:41)(   Читать дальше...   )Жанр: Easy listening, New AgeПродолжительность: 01:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F4D7FF50BCA94AAEB74A6B6A7255A568E2EAE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439531   (1039865) от 13.01.2021
 
 VA - Spa Lounge Relax Sensation (2021) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -533,168 +695,6 @@ AzizRush - Under Pressure (2023) Debut [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50B43F585ABEC5BBA7462A7D280B9B715DBD9471
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612171   (1040560) от 14.02.2023
-
-Hoten - 29 Summers Album Remixes (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunrise (Kaiq Remix) (7:06)
- 02. Sunrise (LOSTIN Remix) (6:01)
- 03. Mana (Dilby Remix) (7:13)
- 04. Across The Ocean (DJ CHUS Remix) (8:02)(   Читать дальше...   )Жанр: Progressive House, Tech House, Deep HouseПродолжительность: 01:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:819ADFB00F024B7D4DBA3DA18B282FCB095AAD81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612114   (1040566) от 14.02.2023
-
-Monflame - Voyager (2023) [MP3|320 Kbps] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Dark
-02. Play
-03. Soma Dreams
-04. Last Summer(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1019337513F570F61CF9F8EF456796DDA52E2039
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611892   (1040567) от 14.02.2023
-
-Tyconic - Coastline Nights (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stealth Dancer [00:04:48]
-02. Skylight Funk [00:04:08]
-03. Rooftop Party [00:03:38]
-04. Retrograde Motion [00:05:13](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBB5D080BE7E1381ACBF322F461EB8A9976A3BC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611701   (1040602) от 14.02.2023
-
-VA - Sahara Universe 2022 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NuMar1 - Last Day We Met (Christian Desnoyers Remix) [06:18]
-02. Rodri Santos - The Orchid (Interstellar Remix) [05:47]
-03. Marc Hackenberg - Sol (Original Mix) [07:56]
-04. DJ Tony Magic - Spiritual Journey [05:52](   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69574296298B11779FAD5EDEA84914F1A65BEE32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438408   (1040818) от 09.01.2021
-
-VA - Vocal Trance 2021 (2020) [FLAC|Lossless|tracks] <Trance, Vocal Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic feat. Fenna Day - You'll Be Fine (Original Mix)
-02. 4 S'trings feat. Susanne Teutenberg - Ocean Wave (Original Mix)
-03. BiXX & Roxanne Emery - Sound Of The Alarm (Original Mix)
-04. Sue Mclaren feat. Philippe El Sisi - Haunted 2020 (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7660F9D7C3EAE1828DA7D97219AA3BBE96C5187D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438541   (1040897) от 09.01.2021
-
-VA - Cozy Weekend: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simply Chill; Maison Musiq - I Go Now (Chillout Mix)
-02. Marga Sol - Feelings for Free (Original Mix)
-03. Lounge Groove Avenue - Dont Be so Shy
-04. Schwarz & Funk - Fate of Destiny (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58329C12FF6A1EB988002148E1B20CCADB4CB620
 ```
 
 

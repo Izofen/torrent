@@ -1,3 +1,30 @@
+###  Публикация: 1357890   (971982) от 05.02.2020
+
+VA - Beatport Electro House: Pack #06 (2020) [MP3|320 Kbps] <Electro House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971982.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tommy Baynen - Effervescence
+002. Bean Bandit - Ride It
+003. Nick Da Cruz - Tonight
+004. Bernardo Silva - Chicago Time(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 12:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D34DE0794DE06BFBDA81DBF5C330BFD9EC989F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975732   (972033) от 15.01.2016
 
 VA - Beatport Best Of 2015 Top 100 (2016) [MP3|320 кб/с] <Tech House, Deep House, House, Indie Dance / Nu Disco, Electro, Progressive, Techno>
@@ -698,33 +725,6 @@ VA - Жаркая драйвовая туса (2016) [MP3|256 кб/с] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2BCAAD51AFFDE67F77D5FD8EB3EF92FC592C49E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974902   (974535) от 13.01.2016
-
-VA - Love Classics Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ash King - Neele Neele Ambar Par - The Unwind Mix
-02. Mohammad Irfan - Chhukar Mere Man Ko - The Unwind Mix
-03. Jonita Gandhi - Tu Tu Hai Wohi - The Unwind Mix
-04. Rahul Vaidya - Dilbar Mere - The Unwind Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165D1A8EEEA9E253111D0FB3677EA19231257F31
 ```
 
 

@@ -1,3 +1,246 @@
+###  Публикация: 1139266   (661099) от 01.06.2017
+
+VA - Summer Beach Party 3 (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever 80 - Carnaval De Paris (Club Mix) 05:21
+02. James Black Pitch - Pirate Life 06:15
+03. Olleo - Oblivium 06:12
+04. Forever 80 - Traces 05:19(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:696187696199B6DED897A30A433B1E90A1A8D853
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538792   (661274) от 22.03.2022
+
+VA - Easy Acoustic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nashville Cast - Ho Hey (2:05)
+02. Nelly Furtado - I'm Like A Bird (Acoustic Version) (3:56)
+03. Amos Lee - Sweet Pea (2:09)
+04. Longpigs - On & On (4:10)(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB104461A8653ADF03AC2C1BEFBA58AB25935F31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138977   (661292) от 01.06.2017
+
+Opus - Up And Down (1984) [FLAC|Lossless|tracks] <Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Up And Down
+02. Vivian
+03. There Is Need For
+04. She Loves You(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C923BDCD35B1B4039787E2419DBCD94F6FC892BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538184   (662196) от 21.03.2022
+
+Charli XCX - Crash (2022) Deluxe Edition [MP3|320 Kbps] <Hyperpop, Dance-pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Crash
+02 – New Shapes (feat. Christine and the Queens and Caroline Polachek)
+03 – Good Ones
+04 – Constant Repeat(   Читать дальше...   )Жанр: Hyperpop, Dance-pop, Synth-popПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE1A8A4E325E7C4DC90660E766850214D3A850B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538111   (662294) от 21.03.2022
+
+VA - Mastermix Pro Remix 2 (2022) [MP3|320 Kbps] <Soulful House, Indie Dance, Dubstep, Nu Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B. Live Feat. Becky Hill & Jme - Don't Know About You (Original Mix)
+02. Belters Only Feat. Jazzy - Make Me Feel Good (Extended Mix)
+03. Ben Nicky X Distorted Dreams - We Come 1 (Extended Mix)
+04. Chaney - Love Again (Extended Mix)(   Читать дальше...   )Жанр: Soulful House, Indie Dance, Dubstep, Nu DiscoПродолжительность: 01:04:16 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C83A9CEA3F0266B98A615CABD134BC95BD90BF86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538109   (662297) от 21.03.2022
+
+VA - Mastermix Pro Remix 1 (2022) [MP3|320 Kbps] <Soulful House, Indie Dance, Dubstep, Nu Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AmyElle - Push It (Extended Mix)
+02. Basement Jaxx - Romeo (Wh0 Extended Festival Remix)
+03. Bklava - Only For Tonight (Big Miz Remix - Extended)
+04. Danny Byrd & D Double E - Selecta (Extended)(   Читать дальше...   )Жанр: Soulful House, Indie Dance, Dubstep, Nu DiscoПродолжительность: 01:12:40 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA4DFC0D78EE7D6923DD642FC1113A811096A0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138836   (662314) от 31.05.2017
+
+VA - Superfresh Top Dance (2017) [MP3|320 Kbps] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nina S. – Calling (Luca Zeta Extended) 5:15
+02. Adam Easter – Keep Hands Up Alive! (Damn-R Remix Edit) 3:03
+03. Damn-R – Here I Go (DJ THT Remix Edit) 3:20
+04. Hypersonic – Six Days (Steve Twain Short Mix) 3:50(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 01:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4054C3FD1F9E860DBD98018D47BD1A3D9AAF70EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138733   (663163) от 30.05.2017
+
+Chromium - Star to Star (1979) LP [MP3|320 Kbps] <Electronic, Disco, Ballad, Space Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radar Angels (4:27)
+02. Forces of Light (3:08)
+03. Star To Star (4:25)
+04. Time Traveler (3:37)(   Читать дальше...   )Жанр: Electronic, Disco, Ballad, Space RockПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17D5F37B51EB64F4E77240F3DF25625378EC152E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138761   (663167) от 30.05.2017
+
+I Signori Della Galassia - Iceman (1979) Reissue LP, Medical Records LLC, 2013 [MP3|320 Kbps] <Electronic, Disco, Space Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Proxima Centauri (8:24)
+02. Puoi Sentirmi? (3:47)
+03. Fermate La Reazione (5:11)
+04. Oltre Il Cristallo (3:19)(   Читать дальше...   )Жанр: Electronic, Disco, Space RockПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6D0B6CFD3CFDDE9BEC5D6C710FC37FD950224B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538002   (663289) от 20.03.2022
 
 VA - Delicious Pop (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -455,249 +698,6 @@ The Tee Cee's - Disco Love Bite (1978) LP [MP3|320 Kbps] <Electronic,Funk-Soul, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13A2B96D839759E538C8CC30CDF01D8B7001ADF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537506   (667835) от 16.03.2022
-
-VA - Spring Hits 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tame Impala - Eventually (5:18)
-02. Glass Animals - Heat Waves (3:58)
-03. Sean Paul - No Lie (3:41)
-04. Elton John - Cold Heart (PNAU Remix) (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39F79A18FB470249B9E8355054A4C7213105700E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537192   (667844) от 16.03.2022
-
-VA - Mastermix Pro Disc 260 (2022) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alesso & Katy Perry - When I'm Gone
-02. Amaarae Ft. Moliy - Sad Girlz Luv Money (Clean)
-03. Anne-Marie - Beautiful
-04. Belters Only Ft. Jazzy - Make Me Feel Good(   Читать дальше...   )Жанр: House, Dance, Dubstep, DiscoПродолжительность: 01:15:47 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:631730BCA8F465460E3B43A43D625A312D681D45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137568   (667880) от 26.05.2017
-
-Вelindа Сarlislе - The Соlleсtiоn (2002) Japanese Edition [WV|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven Is A Place On Earth (4:07)
-02. I Get Weak (4:52)
-03. World Without You (4:42)
-04. Runaway Horses (4:42)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308B4EBF2ED4C5AC40DBDF82D4D8B451D0433D81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537184   (667891) от 16.03.2022
-
-VA - Mastermix Pro Disc 259 (2022) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adele - Oh My God
-02. Danny Byrd & D Double E - Selecta
-03. Joy Crookes - Trouble
-04. D.O.D feat. Carla Monroe - Still Sleepless(   Читать дальше...   )Жанр: House, Dance, Dubstep, DiscoПродолжительность: 01:10:54 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F95E15D0EB7FEB0C6D354E986B72F6B3F8FDEF07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224128   (668106) от 08.05.2018
-
-West End Players and Singers - Highlights from Grease (2000) [FLAC|Lossless|image + .cue] <Musical, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Grease
-02.	Summer Nights
-03.	Hopelessly Devoted To You
-04.	You're The One That I Want(   Читать дальше...   )Жанр: Musical, PopПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD52C0EEA786807C365E7A9FCC0D6A6ABE8F896
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224021   (668107) от 08.05.2018
-
-The Three Degrees - Greatest Hits (1998) [FLAC|Lossless|image + .cue] <Disco, Soul, Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Jump The Gun
-02.	Long Lost Lover
-03.	Red Light
-04.	Together(   Читать дальше...   )Жанр: Disco, Soul, FunkПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A44A42E2C91A06CFA0AB1B5EEF788BA501E79D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224069   (668188) от 08.05.2018
-
-VA - Voll Bock auf Ballermann (2018) 2CD [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ingo ohne Flamingo - Saufen morgens, mittags, abends
-02. Almklausi - Mama Laudaaa
-03. Tobee - Helikopter 117 (Mach'den Hub Hub Hub) (Mallorca Version)
-04. Willi Herren - Nachttischlampe(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9867506FDC56F59009F046F272CB3D7D9CEDD1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031288   (668431) от 03.07.2016
-
-Savage - Greatest Hits And More (1990) Unofficial Release [APE|Lossless|image + .cue] <Italo-Disco, Europop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ten Years Ago (Dub Intro)
-02. I'm Loosing You
-03. Goodbye
-04. Jane(   Читать дальше...   )Жанр: Italo-Disco, Europop, DiscoПродолжительность: 01:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC265094EB10B2A17BB46C3C7FDE88DCC7B18FC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031428   (668492) от 03.07.2016
-
-Nation In Blue - Nothing Less (2016) [FLAC|Lossless|tracks] <Euro-Disco, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have You Got What It Takes [7:27]
-02. Nothing Less [6:20]
-03. Your Saviour I Will Be [6:15]
-04. I Will Do Anything [6:07](   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, Synth-popПродолжительность: 01:17:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:408DFFB7AB5E3E086BA2F58CBBC28821D5EA98AF
 ```
 
 

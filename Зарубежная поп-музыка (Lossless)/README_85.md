@@ -1,3 +1,30 @@
+###  Публикация: 869177   (892594) от 14.02.2015
+
+VA - Radio 538: Hitzone 72 (2015) 2CD[FLAC|Lossless]<Pop, Dance, Top40>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мне приходилось уже выкладывать из этой серии диск из своей коллекции (помнится купленный по случаю за границей). И диск заезжен у меня до дыр. Именно поэтому слежу за появлением новых релизов из этой серии. И Вам рекомендую.CD1:
+01. Omi - Cheerleader (Felix Jaehn Remix)  (3:02)
+02. David Guetta ft. Sam Martin - Dangerous  (3:25)
+03. Anouk & Douwe Bob - Hold Me  (3:51)(   Читать дальше...   )Жанр: Pop, Dance, Top40Продолжительность: 02:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FCB6525501A7F04A7F2A3E5ABF38B635085974
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 869092   (892889) от 14.02.2015
 
 Demis Roussos - Live In Brazil (2009) 2CD [FLAC|Lossless]<Pop>
@@ -686,33 +713,6 @@ Ace Of Base - Singles Of The 90s (1999) [FLAC|Lossless|image + .cue] <Europop, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72626313AC56A72D34F836114A6DCB12363FB941
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990804   (906194) от 28.02.2016
-
-VA - Discoradio Collection Vol.3 (2004) 2CD Compilation [FLAC|Lossless|tracks + .cue] <Synthpop, Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Banderas - This Is Your Life (4:39)
-02. Tina Charles - I Love To Love (3:02)
-03. Londonbeat - I've Been Thinking About You (3:50)
-04. Greg Kihn - Jeopardy (3:49)(   Читать дальше...   )Жанр: Synthpop, Pop, Pop-RockПродолжительность: 02:32:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6E4B507FADE3769A951B7627F05A9965C25164
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1443500   (1035483) от 29.01.2021
+
+VA - Best Of Last State (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sina7 - Uranus (Extended Mix)
+02. Nikzad & Sina - The Seventh Sky (Extended Mix)
+03. FAWZY & W!SS - Horizont (Extended Mix)
+04. Last Soldier - To The Future (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26BAB4C089A487534E45ACE92E48E556146263E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617115   (1035526) от 05.03.2023
+
+Kim & Buran - Tramplin (2022) Limited Edition [MP3|320 Kbps] <Synthpop, Space disco, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Walk In The Stratosphere [00:04:56]
+02 - Phazerdelique [00:05:52]
+03 - I Will Meet You In Summer [00:05:32]
+04 - French Train [00:04:55](   Читать дальше...   )Жанр: Synthpop, Space disco, DowntempoПродолжительность: 01:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F2A35D7627500A1E382B03090A1D180D4D4599
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616588   (1035543) от 05.03.2023
+
+VA - By the Way...Sounds Good, Size One (2023) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nana K. - Old's Cool (Deep Tribe Extended Remix) (7:04)
+02. g3ms - Just Like That (Extended Mix) (4:24)
+03. Lost House Rhythms - Runnin' (Original Mix) (3:25)
+04. Sam Collins - Showing Off (Original Mix) (2:46)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:17:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:403BB3B5EE4D5E28D0C0E799DD3C656E32CC8A57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617040   (1035545) от 05.03.2023
+
+Kim & Buran - Tramplin (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Space disco, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk On The Stratosphere! [00:04:56]
+02. Phazerdelique [00:05:52]
+03. French Train [00:04:55]
+04. Cosmic Gate [00:03:40](   Читать дальше...   )Жанр: Synthpop, Space disco, DowntempoПродолжительность: 01:08:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F78ADCD2A0908DC32D5CFC7CBDE4D46957802B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616932   (1035570) от 05.03.2023
+
+VA - Deep House Summer Hits (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abee Sash - Ain't Nobody (04:52)
+02. A-mase & Sharliz - Sky (Deep Radio Edit) (04:31)
+03. Abriviatura IV & Kamensky - Tears Away (Gus One Remix) (04:35)
+04. Alberto Miliziano - Thinking (02:28)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:722D9436A51FE130E8BB7D2978E49B1E535D2513
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616767   (1035578) от 05.03.2023
+
+VA - The Sound of 2023 Mix 5: Dubai (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taufiq Azam - D'arce (Intro Mix) (07:17)
+02. Dain - Aurora (05:12)
+03. F4T4L3RR0R - Dragonfly (05:19)
+04. Robert B - Still See The Stars (05:07)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 03:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29670EDAB533F064A86383BA54FE75FB51E7F9D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616593   (1035583) от 05.03.2023
 
 VA - By the Way...Sounds Good, Size Two (2023) [MP3|320 Kbps] <Electro House>
@@ -531,162 +693,6 @@ Sundial Aeon - Discography 13 Albums (2006-2020) Flow Records, Impact Studio [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F47A6982C14385FC102D3E07E2F065290914DE49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093735   (1035900) от 27.01.2021
-
-Arovane - Discography 41 Releases (1998-2021) DIN, n5MD [FLAC|Lossless|tracks+.cue, tracks] <Ambient, IDM, Downtempo, Experimental, Dub Techno>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I.O. (06:15)
- 02. Parf (06:15)
- 03. Torn (06:58)
- 04. Andar (07:44)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Ambient, IDM, Downtempo, Experimental, Dub Techno •Продолжительность: 26:53:16 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C11BE2A4C820B6B2D1B97CF34668586692FCE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063944   (1035931) от 27.01.2021
-
-Pleq | Bartosz Dziadosz - Discography 43 Releases (2008-2020) [FLAC|Lossless|tracks+.cue, tracks] <Glitch, Abstract, IDM, Experimental, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirage (18:39)Тип издания: CD, WebЖанр: Glitch, Abstract, IDM, Downtempo, Experimental, Modern Classical, Drone •Продолжительность: 29:36:32 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB198A7E896E984BBCAE701A8763C1BC825709B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443112   (1036004) от 27.01.2021
-
-VA - I Love Didier Marouani & Space (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, Italo-Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angelo Taylor - With Love To Marouani (3:43)
-02. Angelo Taylor - Звездное дитя (3:49)
-03. Angelo Taylor - Одинокий ангел (4:25)
-04. DJ Pro - Стратосфера (3:31)(   Читать дальше...   )Жанр: Synthpop, Spacesynth, Italo-DiscoПродолжительность: 01:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96A38CD18A67D8542AFBA013BD4B57F3EAF9111
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443006   (1036015) от 27.01.2021
-
-VA - Roger Shah - Magic Island Best Of (2020) [MP3|320 Kbps] <Trance, Melodic House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roger Shah pres. Symphony In Deep Minor - Snowflakes On A New Year's Day (Extended Mix)
-02. Raul Pablo Sanchez - Morgentau (Original Mix)
-03. Noah Shah - Lotus (Extended Mix)
-04. Noah Shah - Sirius (Extended Mix)(   Читать дальше...   )Жанр: Trance, Melodic HouseПродолжительность: 02:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B2E87748DEA8C824D0888367A1154690D4C4683
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443082   (1036046) от 27.01.2021
-
-Degs & Grafix - Empty Bottles (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grafix, Degs - Empty Bottles (04:08)Жанр: Drum & BassПродолжительность: 00:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA71C30FE897AD1C3E0CF399AEAB4BB1282D8BE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198968   (1036094) от 03.03.2023
-
-Late Night Alumni - The B-Sides (2012) Compilation [FLAC|Lossless|tracks + .cue] <Deep House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golden (Acoustic) (2:49)
- 02. Hope (5:03)
- 03. A Whole New World (3:01)
- 04. You Can Be The One (Live) (3:10)(   Читать дальше...   )Жанр: Deep House, DowntempoПродолжительность: 00:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03AEDF2C5E080732770ECEA5BA962D8EEA03C6BF
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1611888   (1040558) от 14.02.2023
+
+Karel Gott/Карел Готт - Stori/Рассказы (1982) [FLAC 2.0|192/24|image+.cue] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040558.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Тарантелла • La Danza
+A2 Леди Карнавал • Lady Carneval
+A3 Конец Птичьих Арий • Konec Ptacich Arii (Z Filmu ''My, Ztraceny Holky'')
+A4 До Ре Ми Ля • Do Re Mi La(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A065670089BA3C270CD0C8D8545F0B707EC4AB60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438477   (1041029) от 08.01.2021
 
 Bachman-Turner Overdrive - The Best Of B.T.O. (1998?) [DTS 4.0 CD-DA|44.1/16|.wav+.cue|unofficial] <Rock>
@@ -659,33 +686,6 @@ A4 Street Crew - Tweedle Dee - Tweedle Dum(   Читать дальше...   )Ж
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDAE29039F315E65988930F0E8E29278EC37262D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840349   (1047282) от 04.12.2025
-
-VA - Believe In Music. 20 Original Hits 20 Original Stars (1972) Series: 20 Original Hits 20 Original Stars [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047282.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Faces - Stay With Me
-A2 O'Jays - Backstabbers
-A3 Free - All Right Now
-A4 Roxy Music– - Virginia Plain(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61527BFC57E760905C31509384B215484223971
 ```
 
 

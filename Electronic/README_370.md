@@ -1,3 +1,160 @@
+###  Публикация: 1283339   (739735) от 17.02.2019
+
+VA - Live @ Trancemission Heartbeat, Stadium Live Moscow, Russia 2019-02-15 [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Feel @ Trancemission Heartbeat, Stadium Live Moscow, Russia 2019-02-15:Жанр: Trance, Progressive HouseПродолжительность: 00:59:51
+N/A
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D6EA42C9A2B58516625EA3D249BC3CAFD9D830
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397631   (739773) от 21.07.2020
+
+VA - Exposure, Vol.1-4 (2015 - 2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739773.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Vertical Mode - Inside Your Head (Shadow Chronicles Remix) (7:29)
+2. Outsiders; Redrosid - Fields of Light (8:34)
+3. Divination - Humanoid (6:08)
+4. Enablerz; Capcom - Spells of Astaroth (8:31)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 07:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00847218B6A318BC726739A415A76CE7F780FF71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283464   (739792) от 17.02.2019
+
+Robert Henke - Discography 7 Releases (1994-2015) Imbalance Computer Music [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental, Drone, Minimal>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Floating Point (52:23)Тип издания: CD, WebЖанр: Ambient/Experimental/MinimalПродолжительность: 00:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A408A8A13FD186EF7D9FBCB9FF9BCA1434862977
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397600   (739871) от 21.07.2020
+
+VA - After Sunset Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Peter Pearson - Your Gentle Eyes (Original Mix)
+02 Michael E - Lovely as a Summer Day
+03 Michael E, Tim Gelo - All That We Are
+04 Tigerforest - Azure(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:23:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2111CE13EB6C7D23997F5DC5A76B12AAA3E9D0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217822   (740127) от 07.04.2018
+
+Blank & Jones - Milchbar // Seaside Season 10 (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blank & Jones – Flowing (Original Mix) (3:54)
+02. Blank & Jones – Sun Starts Smiling (Eclectic Mix) (4:16)
+03. Maricopa – Sun Scope (Original Mix) (5:11)
+04. James Gruntz – City Lights (Original Mix) (5:20)(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 01:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61281400B02E6B3C9F999DC89CC9152D0AE50349
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283197   (740204) от 16.02.2019
+
+VA - India Gets Physical Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House, Tech House, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulspace - Lotus Eater (5:44)
+02. Pawas ft. Arooj Aftab - Naja (9:03)
+03. Unnayanaa ft. Erika Lernot - Plus Loin (8:04)
+04. Small Town Guy ft. Adil Smaali - Oasis (7:34)(   Читать дальше...   )Жанр: Deep House, House, Tech House, ElectronicПродолжительность: 01:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B98C31AE6CBAD1516A484332A70365764E95D266
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217908   (740239) от 07.04.2018
 
 VA - DJ Robert Miles - In The Mix (1997) Mixed [MP3 (image + .cue)|320 Kbps] <Breakbeat, Goa Trance, Progressive Trance>
@@ -530,168 +687,6 @@ VA - Submission Recordings Presents Miami (Mixed by Atragun) (2018) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB237BA9ACB13177D21C0872D5D82B147C73DCFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217841   (741045) от 06.04.2018
-
-Majed Salih - Medievil-Music Trance Emperor Vol. 2 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Trance Symphony (Original Mix)
-02.Orange Idea (Original Mix)
-03.Psychlortron (Original Mix)
-04.Dolphin (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80613E461129FD222AF9964C08F3FA861FD6116A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283097   (741050) от 15.02.2019
-
-Monoplay - Octopus (2019) Nopassport Records [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Journey (Original Mix) (6:21)
- 02. See You (Original Mix) (7:03)
- 03. So Far (Honestly) (Original Mix) (5:32)
- 04. Octopus (Original Mix) (3:46)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C0AB59CE6042B4CC65583F808D382CF0CEBF985
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283172   (741064) от 15.02.2019
-
-VA - Workout 2019 Aerobic Hits. Music For Fitness & Workout 128 BPM/32 Count [MP3|320 Kbps] <Funky, Club House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Maximum - La Fuerza (Extended Mix) 3:39
-02. Luka J Master & Carlo M feat. Regina Saraiva - Vem (Sanny J Mix) 4:24
-03. Condor feat. Adina - Feel U (Extended Mix) 4:45
-04. Joe Berte' & Dago Hernandez - Dance In The Stars (Daniel Tek Remix) 4:53(   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 01:18:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4920A350032F612826BBAB6A6FB13463D6C9F5D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021465   (741068) от 29.05.2016
-
-VA - Intricate Rec 4 Year Anniversary (2016) [MP3|320 кб/с] <House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feu d'Or - Chasin Joe
-02. Vadim Soloviev - Monday Bounce
-03. Alexey Sonar - Guest List
-04. Roddy Reynaert - Melancholy(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 04:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:199D86D39CE6CC51C0D41D25C4D5C17425244855
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126798   (741114) от 20.04.2017
-
-VA - Deep Ibiza Opening Party (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sean Norvis - Over - Radio Edit 03:27
-02. Tony Vegas - Soul Mates - Maury J Remix Edit 03:34
-03. Franky D.P. - Magic Sax 04:33
-04. Spikaa - Never Be Afraid - Radio Edit 03:04(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:29:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFE70AD2FDEB68ECAA49C6EDA03283BA0B0524E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127107   (741117) от 20.04.2017
-
-Angelika Yutt - Beautiful Coloratura (Ambient & Chill) (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Surreal Dream (Ambient Mix)
-02. Fantasia Del Amor (Air Mix)
-03. Its Time To Go Home (Original Mix)
-04. Silence (In Your Eyes) (Air Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F32FF2B30AF897125C30F55B648AFB17FFD7144B
 ```
 
 

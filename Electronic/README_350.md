@@ -1,3 +1,165 @@
+###  Публикация: 1133636   (693425) от 13.05.2017
+
+Nite Jewel - Real High (2017) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Chillwave, Neo Soul>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Nite (2:47)
+02. Had to Let Me Go (4:27)
+03. 2 Good 2 Be True (3:43)
+04. Real High (4:06)(   Читать дальше...   )Жанр: Electropop, Chillwave, Neo Soul, SynthpopПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6101DD8840C0F245C2CFD19B116526D6015A5D84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133863   (693426) от 13.05.2017
+
+VA - Blue Lounge 2: Selected Lounge Tunes By The Ocean (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jean-Michel Vallet - Living In My Dreams (Main)  2:33
+02.  Giacomo Bondi - Days (Full Mix)  4:41
+03.  Oliver Fox - Deep Project (Main)  2:49
+04.  Jean-Michel Vallet - Day To Love (Main)  3:18(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75BA5131526804D8B777C0F1D463EE4A9BD13748
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133587   (693427) от 13.05.2017
+
+VA - EDM Hits Vol.2 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Russian Dolls & Nathia Kate - Always (Original Mix)  4:24
+02.  Audino & ELMY - Beat It (Extended Mix)  4:11
+03.  Feel - Firedrops (Original Mix)  3:25
+04.  Papulin - Paper Boats (feat. Maria Milewska) (Original Mix)  3:35(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:506E43231A1A3264FFEA187B1BBCB0C374302E41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133809   (693429) от 13.05.2017
+
+VA - Not That Simple Sound Vol.10: Premium Lounge & Downtempo Moods (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Buben - Symmetry  5:58
+02.  FieldFunk - Make Me  2:54
+03.  Don Gorda Project - Always On My Mind  6:08
+04.  Monodeluxe - Get Down With It  5:37(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B9B920554FE6EE0C986AACC906FD25A8412A0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133854   (693432) от 13.05.2017
+
+VA - Island Of Summer (Ibiza Smooth Summer Tunes) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Oscar Salguero - We Have To Go Back  3:26
+02.  Living Room - World Traveller  4:37
+03.  Roberto Sol - Momentos Azules (El Sur Mix)  5:24
+04.  Alex Naevecke - Summerlove  4:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29A296BE253E35EA80FD69E82068B1F51B5A17F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133861   (693434) от 13.05.2017
+
+VA - White Dinner Session Vol.1 (Relaxed & Sunny Dinner Tunes) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alex Field - Wake Me (Bryan Milton Remix)  5:32
+02.  Alexander S. Karlov - Melancholy Road  3:24
+03.  Alex Naevecke - Summerlove  4:11
+04.  Living Room - Ganja Tribe  4:05(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FEB9E91A27CAF462C67F6549FA7F29A8EEB1192
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232648   (693746) от 02.03.2022
 
 VA - Brother Moon Sister Sun / BMSS Records presents: Compilations Collection - 29 Releases (2009-2022) [MP3|320 Kbps] <Psy-Trance, Progressive Trance, Goa Trance>
@@ -530,167 +692,6 @@ VA - Meteor Trance Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55A0717DDA13DFB056D16C452C2E0DA5C9CED374
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133047   (695195) от 12.05.2017
-
-VA - Dubai Lounge Vol.1 (Compiled by Volcanuca) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Collective Sound Members - Just A Memory Away (Original Mix)  6:33
-02.  Vintage Bullet - Pompadur (Original Mix)  2:36
-03.  Sombra Modos - Botavara (Original Mix)  5:34
-04.  Sweetadelic - Aguas Claras (Original Mix)  5:37(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA8E787C2FB4B2BF08CDEC979BC03B32D0931470
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133345   (695198) от 12.05.2017
-
-VA - Breakfast On The Beach (25 Beautiful Electronic Anthems) Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jack Funk - Naples (Original Mix)  10:28
-02.  Oceanus - Arabamish (Original Mix)  5:34
-03.  Alexius Gabrikov - The Lone Seagull (Original Mix)  3:13
-04.  Zach Fernandez - Chiem (Original Mix)  3:39(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8634FA7CDEBC6896C529ABB69A3D4998AC6A247
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133350   (695200) от 12.05.2017
-
-VA - Poolside Grooves #3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Benatural - Sodur (Original Mix)  7:41
-02.  Van Young - Em Be Myo (Original Mix)  4:53
-03.  Miper - Alpha Swirl (Original Mix)  4:45
-04.  Dominik Pointvogl - Piano Sunset (Original Mix)  6:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:916F2E7B9B1AEF7889B768D0A2478A1D1495346E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133429   (695201) от 12.05.2017
-
-VA - Enhanced Ibiza (2017) [MP3|320 Kbps] <House, Future House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tritonal - Hey MaMaMa (Club Mix)  3:30
-02.  Felix Cartal - Get What You Give (Original Mix)  3:39
-03.  Ryos - Discover Love (Original Mix) (feat. Envy Monroe)  3:45
-04.  Cuebrick - Smoke & Fire (Original Mix) (feat. KARRA)  3:17(   Читать дальше...   )Жанр: House, Future House, Progressive HouseПродолжительность: 02:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF54CBE57B8EA2EF7E0609AEC42E47D2636E5BAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201044   (695555) от 17.08.2020
-
-Echo Grid (Aphelion) - Discography 16 Releases (2013-2020) CRL Studios, Stereoscenic [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Downtempo>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neon Nightmares (04:09)
- 02. Neon Nightmares (Instrumental) (04:07)Тип издания: WEBЖанр: Ambient, IDM, Downtempo •Продолжительность: 07:31:40 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF02B4C9EA793751D28C1F0144AC080ECA45410
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 896161   (695578) от 08.05.2015
-
-Amon Tobin - Dark Jovian (2015) [MP3|320 кб/с|Vinyl]<Abstract, Ambient>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Jovian (02:50)
-02. In Your Own Time (03:07)
-03. Adrastea Contact (04:25)
-04. Io (06:45)
-05. Encounter on Io (07:00)(   Читать дальше...   )Жанр: Abstract, AmbientПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1F611695D7B68C9C5255BAA229D1E51EB445818
 ```
 
 

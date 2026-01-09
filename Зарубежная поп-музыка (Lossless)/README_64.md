@@ -1,3 +1,30 @@
+###  Публикация: 895299   (701015) от 05.05.2015
+
+Lara Fabian - Essential (2015) [FLAC|Lossless]<Pop, Classical Crossover>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voce
+02. Tu t’en vas
+03. Tout
+04. Je t’aime(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5558150FCD5F39D76529CFE0FE42D5BB35A1D857
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287686   (701639) от 08.03.2019
 
 Cyndi Lauper - Time After Time (The Cyndi Lauper Collection) (2009) [FLAC|Lossless|tracks + .cue] <Pop Rock, Post-Punk, Folk>
@@ -665,33 +692,6 @@ The Seekers - The Very Best Of The Seekers (1997) [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12ECD5D82EABFA3ADC437E696AF707AFEC95CB7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286623   (711183) от 03.03.2019
-
-Kenny Rogers - Ruby Don't Take Your Love To Town (Unknown) Compilation [FLAC|Lossless|image + .cue] <Pop, World, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711183.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Ruby Don't Take Your Love To Town
-2.	For The Good Times
-3.	A Stranger In My Place
-4.	Rueben James(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 01:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:427446A97558438509E862F7F615CA0C50956269
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1001276   (853791) от 28.03.2016
+
+Francesco Cera - Trabaci: Music for Organ and Harpsichord (2014) 2CD [FLAC|Lossless|image + .cue] <Classical, Baroque, Keyboard>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Canzona franzesa settima cromatica  3:46
+02. Canto fermo secondo del secondo tono  3:36
+03. Consonanze stravaganti  2:22
+04. Toccata seconda ottavo tono  3:03(   Читать дальше...   )Жанр: Classical, Baroque, KeyboardПродолжительность: 01:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F56C57511DF84C1612465605996BC2EEC2ABAFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001244   (853795) от 28.03.2016
+
+Zuzana Ruzickova; - Harpsichord music from England, Spain and Portugal (2012) 2CD [FLAC|Lossless|image + .cue] <Classical, Baroque, Keyboard>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Dowland - Mellancoly Galliard, for lute, P 25    [0:03:00.50]
+02. John Dowland - The Shoemaker's Wife, a Toy, for lute, P 58    [0:01:10.28]
+03. John Dowland - Lady Hunsdon's Almain (Lady Hunsdon's Puffe), for lute, P 54    [0:01:00.70]
+04. Ferdinando Richardson - Pavana (Fitzwilliam Virginal Book)    [0:03:15.35](   Читать дальше...   )Жанр: Classical, Baroque, KeyboardПродолжительность: 01:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B89033A90870DD6DD08950D46F234421365168DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001501   (853798) от 28.03.2016
+
+Ton Koopman, Musica Antiqua Amsterdam - Haydn: Complete Harpsichord Concertos (1995) 2CD [FLAC|Lossless|tracks] <Classical, Baroque>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Concerto in F - I. Allegro  9:46
+02.  Concerto in F - II. Largo Cantabile  6:03
+03.  Concerto in F - 3: III. Presto  5:04
+04.  Concerto in G - I. Allegro Moderato  7:42(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 02:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43AB370F7B676719C03A0ED65CBB97F42186F315
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001277   (853850) от 28.03.2016
 
 Tatiana Sergeeva - Russian Harpsichord Music of the XIX century. (1997) [FLAC|Lossless|image + .cue] <Classical, Baroque, Keyboard>
@@ -614,87 +695,6 @@ Alexander Scriabin (1872-1915)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:875D1C738493E833655BB31D8B18CF5B7F635925
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999699   (858983) от 25.03.2016
-
-The London Orion Orchestra - Pink Floyd's Wish You Were Here Symphonic (2016) [FLAC|Lossless|tracks + .cue] <Classical, Crossover, Orchestral>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wish You Were Here (Vocal) (5:01)
-02. The Orchestra Tunes (0:31)
-03. Shine On You Crazy Diamond (Parts I-V) (13:19)
-04. Welcome To The Machine (7:07)(   Читать дальше...   )Жанр: Classical, Crossover, OrchestralПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F33F04B97FA43814C94FC87640B7D49F6BA43E51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000269   (859100) от 25.03.2016
-
-VA - Magical World Of Melodies. Orchestral Highlights. (1995), 3CD [FLAC|Lossless|tracks +.cue] <Classical, Orshestral>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. National Philharmonic Orchestra, Charles Gerhardt -  Offenbach: Orphee aux enfers, Overture (9:24)
-02. Capella Istropolitana, Barry Wordsworth -  Mozart: Cosм fan tutte, K588, Overture (4:52)
-03. National Philharmonic Orchestra, Charles Gerhardt -  Rossini: Guillaume Tell, Overture (11:43)
-04. Polish State Philharmonic Orchestra, Kenneth Jean -  Berlioz: Le Corsaire, (   Читать дальше...   )Жанр: Classical, OrshestralПродолжительность: 03:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C52F6EC65B856997335707CAD1057AA52BDA1EF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000394   (859191) от 25.03.2016
-
-Nikolaus Harnoncourt Chamber Orchestra of Europe - Dvorak - Slavonic Dances (2002) [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Slavonic Dances op. 46 - Nr. 1 Furiant: Presto (4:08)
-02.  Slavonic Dances op. 46 - Nr. 2 Dumka: Allegretto scherzando (5:00)
-03.  Slavonic Dances op. 46 - Nr. 3 Polka: Poco Allegro (5:22)
-04.  Slavonic Dances op. 46 - Nr. 4 Sousedska: Tempo di minuetto (7:15)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B32D738187A72EA6A5DAAF4B524CE6752D948C8B
 ```
 
 

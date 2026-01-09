@@ -1,3 +1,165 @@
+###  Публикация: 1097202   (916067) от 26.01.2017
+
+VA - River's Lounge: Stage Selection (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Enrico Donner - Sensual Education  5:57
+02.  Don Gorda Project - In Silencio  5:07
+03.  Cane Garden Quartet - Ageless  5:52
+04.  Baghira - Way Too Long  5:43(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:25:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEBEFA8C1A8608CA79E32523615047CFBB5C9724
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 757583   (916153) от 17.02.2014
+
+Conforce - Kinetic Image (2013) Delsin [FLAC|Lossless]<Techno, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Excess Mortality (06:19)
+ 02. Spatiotemporal (07:28)
+ 03. Temporary Reversals (07:09)
+ 04. Semantic Fields (05:03)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 01:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F5AE66EFC36171275BC1D5B4828A4DE70FEE17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 758102   (916191) от 17.02.2014
+
+Muhr - Depersonalization (2013) [FLAC|Lossless|WEB-DL|24Bit]<Ambient, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Are A Dead Television (4:19)
+ 02. Fragments A (Steady) (2:42)
+ 03. Fragments B (Adrift) (5:05)
+ 04. Sails (3:52)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D706B45499AA87E6B059E902E21713BCE4E724
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 759254   (916710) от 21.08.2021
+
+KiloWatts (Invisible Allies, Skeetaz, Super Galactic Expansive) - Discography 42 Releases (2002-2021) [FLAC|Lossless|tracks+.cue, tracks]<IDM, Breaks, Downtempo, Dub, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. India Ink (03:39)
+ 02. Metacognition (04:04)
+ 03. Barbed Wire Tightrope (07:46)
+ 04. Indra's Web (03:40)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM, Breaks, Downtempo, Dub, Glitch, Ambient •Продолжительность: 30:12:31 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87DC07B0A0B09E3A77810E2A40CF0BB7145EFD53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 68682   (916839) от 15.03.2020
+
+Scatman John - Scatman's World (1995) [FLAC|Lossless|image + .cue] <Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To Scatland (0:51)
+02. Scatman's World (3:42)
+03. Only You (3:44)
+04. Quiet Desperation (3:54)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB42BCBDEEB53DD33490F6C9DEF1D26BF6DDFB28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198712   (917100) от 15.03.2020
+
+The Pixel Door - Discography 13 Releases (2013-2020) [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Modern Classical, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Murk (02:09)
+ 02. Season (02:27)
+ 03. Belial (02:48)
+ 04. Dusk And Down (02:07)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Glitch, Modern Classical, Ambient •Продолжительность: 08:40:24 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6046B20A09045B836BFA8883A0DEC9A9059D630A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989296   (917144) от 22.02.2016
 
 VA - Uplifting Only - Orchestral Trance Year Mix 2015 (Mixed by Ori Uplift) (2016) [MP3|320 кб/с] <Uplifting Trance>
@@ -530,168 +692,6 @@ VA - Goa Trance Vol.42 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29EB2A566B8A3CAA4B6BABE6230EC7AD62FDD95D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988861   (919192) от 21.02.2016
-
-Daniel Masson - Jetlag 2015 Edition (2015) [MP3|320 кб/с] <Electronic, Chillout, World Fusion>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919192.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Впервые выпущенный в начале 2000-х годов, этот альбом - мое первое музыкальное путешествие по смешиванию традиционных инструментов и голосов с электронными стилями, такими как Ambient, Drum and Bass, Jungle, House, Trip Hop. Я использовал сэмплы из записей моих сессий на Dahka – Бангладеш, а также образцы, поступающих из Океании и тихоокеанских островов региона."(Daniel (   Читать дальше...   )01. Deia
-02. Utopia Airlines
-03. Moon Hotel
-04. Djoser(   Читать дальше...   )Жанр: Electronic, Chillout, World FusionПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8035C6294862DEA90167ABC4911632BA2EFA5706
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096652   (919209) от 24.01.2017
-
-VA - Business Lounge  Vol.1 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Vega Ray - Track in Rhythm  4:56
-02.  Scott Navarro - Tell Me Why  6:39
-03.  Jason Davis - Lio  2:40
-04.  Amos Martin - Squiggles  5:25(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56C034CCBE9047DF04529F7AC2970E05DE0CBE42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096737   (919249) от 24.01.2017
-
-VA - Good Music 2017-Top 10 Best Slow Music (2017) [MP3|320 Kbps] <Electronic, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamans - Reach Heavens (Chillout Mix) (4:33)
-02. Soulalive - After Sun (Chillout Mix) (6:24)
-03. Sad radio on Cassini - Clear Sky (Chillout Mix) (4:18)
-04. Suntise - Erotic Wav (Chillout Mix) (2:44)(   Читать дальше...   )Производство: SundesireЖанр: Electronic, Lounge, ChilloutПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58D1DDA24D9584B85F6BC89965EE0E04DADD16FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096478   (919308) от 24.01.2017
-
-VA - Deephouse Night Beats (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Performative Mode — First Mode (Original Mix) 05:48
-02. Mighty Real — Remote Viewing (Original Mix) 06:43
-03. Circuito Zeta — Step Down (Original Mix) 07:17
-04. Stube — Calling Dingo (Original Mix) 06:30(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B73650F921E9DD2A7E3AE39EBBE9DF0A021E171
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096574   (919322) от 24.01.2017
-
-VA - Bossa & Chill Vol.1 (Finest Latin Bar & Lounge Music) (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Florito - A La Playa  5:30
-02.  MacThomson - 4th Avenue (Radio Edit)  3:51
-03.  Svendaq - Rhythm Of Life  3:57
-04.  Ibiza Air - The Secret In Me (Original Instrumental Mix)  4:07(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E07D5DB6DC38500B4D8D05265B5DCC33F44396F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096397   (919395) от 24.01.2017
-
-VA - Redux Presents: The Finest Selection (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919395.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Para X - Extasia (original mix) (07:08)
-2. UDM - Omega (extended mix) (06:09)
-3. F.G. Noise & TrancEye - The Mist (original mix) (06:42)
-4. Kayan Code - False Reality (feat Juha V - Dreamy Banging vocal mix) (07:49)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4154ABE052B72972E4BAE3B95151D701F2D2D6CC
 ```
 
 

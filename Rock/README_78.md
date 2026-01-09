@@ -1,3 +1,63 @@
+###  Публикация: 199273   (782776) от 10.05.2010
+
+Shocking Blue - 2 Compilations & 1 Remastered (Japan Album) (1973-2008) [MP3|320 kbps]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год: 1973-2008Жанр: Classic RockПродолжительность: 01:17:34
+
+01 | Roll Engine Roll | 03:18
+02 | I Boll Weevil | 02:42
+03 | Pickin' Tomatoes | 03:22
+04 | Waterloo | 03:26
+05 | Harley Davidson | 02:40
+06 | Love Machine | 03:21
+07 | Fireball of Love | 03:02
+08 | Hot Sand | 02:40(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390440   (783107) от 15.06.2020
+
+Disheveled Cuss - Disheveled Cuss (2020) [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Generic Song About You (04:21)
+ 02. She Don't Want (02:26)
+ 03. Wanna Be My Friend (04:09)
+ 04. Nu Complication (02:51)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C87E85CCE5FFDF6CFDD9FD6A429A4601FFD98EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205862   (783172) от 11.02.2018
 
 Друга Ріка - Піраміда (2017) [MP3|320 Kbps] <Rock>
@@ -641,60 +701,6 @@ Rockopera - Tribute to Pink Floyd The Wall Live Orchestra (2013) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98CF60D5355C924752D2D278706750294991FE2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388652   (786556) от 07.06.2020
-
-Block Group - A Tribute to Pink Floyd (2012) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money
-02. Another Brick in the Wall
-03. If
-04. On the Turning Away(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3ED9279B1674AB7FDA7BBFE5CF578ADAF9289E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388704   (786558) от 07.06.2020
-
-The Tibbs - Tribute to Pink Floyd (12 Classic Hits) (2014) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money
-02. Another Brick in the Wall
-03. If
-04. On the Turning Away(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7676FF6A90889A571BEBFC230D8A923FCB41FC
 ```
 
 

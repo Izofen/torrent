@@ -1,3 +1,57 @@
+###  Публикация: 657794   (809754) от 18.05.2013
+
+VA - Rock Hearts Collection (2011) 4CD, Box Set [MP3|320 кб/с]<Rock ballads>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ten Years After - I'd love to change the world
+02. Deep Purple - Lalena
+03. Whitesnake - Is this love
+04. Jethro Tull - Bouree(   Читать дальше...   )Жанр: Rock ballads |Продолжительность: 01:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134CFF42AE6D92888E5A340CDBDFE1EBE7FF44A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009556   (809785) от 21.04.2016
+
+The 69 Eyes - Universal Monsters (2016) [MP3|320 кб/с] <Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dolce Vita
+02. Jet Fighter Plane
+03. Blackbird Pie
+04. Lady Darkness(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:823F2295BC1F11813D255CCBEB41D1B2D2477B23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504497   (812210) от 23.10.2021
 
 The Rolling Stones - Tattoo You (1981) 40th Anniversary, Super Deluxe Edition, Remastered, 2021, Promotone B.V. [MP3|320 Kbps] <Hard-Rock, Rock-n-Roll>
@@ -635,57 +689,6 @@ Renia - First Offenders (1973) Reissue, 2011, Flawed Gems [MP3|320 Kbps] <Classi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC8A8BF80F3F9C850020D0317A8033009AE5A4AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196632   (822551) от 03.01.2018
-
-Halestorm - Apocalyptic (2015) Single, Atlantic Recording Corporation, 548818-2 [MP3|320 Kbps] <Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Apocalyptic 3:17Жанр: Alternative Rock, Hard RockПродолжительность: 00:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B411255685F58FC36B59ED105599BCAEBEFB5F0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381904   (822774) от 09.05.2020
-
-Michael Parrett - Influence This (2020) [MP3|320 Kbps] <Garage Rock, Mod, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Television
-02. Fly
-03. Money Loving Hippie
-04. Tattoos & Whiskey(   Читать дальше...   )Жанр: Garage Rock, Mod, Psychedelic Rock, Glam, Psych-PopПродолжительность: 00:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB7C046A715332CD00B28E9AF0B59BC6B427735
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1230833   (612340) от 14.06.2018
+
+Yarn - Undiscovered Places (2018) [MP3|320 Kbps] <Ambient, Psychill, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mushroom Valley 10:02
+02.Dreamcatcher 04:28
+03.Cross the Swamp 05:40
+04.Shelter 06:39(   Читать дальше...   )Жанр: Ambient, Psychill, DowntempoПродолжительность: 01:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BFABFA1DD3C752D3A5481FFF2E934A7D68BB66E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230676   (612341) от 14.06.2018
+
+Martin Stig Andersen - Discography 4 Releases (2004-2011) Usagi [FLAC|Lossless|WEB-DL|tracks] <Experimental, Ambient, Drone, Abstract>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Menu (03:10)
+ 02. Boys' Fort (02:17)
+ 03. City (03:38)
+ 04. Rotating Room (03:03)(   Читать дальше...   )Тип издания: WebЖанр: Soundtrack/Musique Concrete/ExperimentalПродолжительность: 00:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8DA1DD159FCB0D9DFDFDD1F201892FBCE736CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912200   (612902) от 25.06.2015
+
+Dense - Splendensity, Vol. 1 (2015) [MP3|320 кб/с]<Ambient, PsyChill, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GMO & Dense - Shell And Seal (Dense Remix) 6:31
+02. The Great Unknown (Mystic Crock Remix) 6:40
+03. Mystic Crock - Awakening (Dense Remix) 9:17
+04. Return 7:37(   Читать дальше...   )Жанр: Ambient, PsyChill, DowntempoПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E495E1CAD4CFFBE6DA9A021242BED17F3222EA84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146796   (612965) от 30.06.2017
+
+VA - Sensual Mood Lounge Vol.8 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Charly McLion - Open Sky (Original Mix)  3:57
+02.  Euphonic Traveller - Moro Bay (Original Mix)  8:19
+03.  Florzinho - A La Luna (Original Mix)  4:49
+04.  Camiel - Sigueme (Original Mix)  3:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15D509B8211095971684F7658B5F4463FDD9B4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545354   (613021) от 20.04.2022
+
+WineSmoke - DreamPop (2021) [MP3|320 Kbps] <Synthpop, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прости нас, Юра
+02. Когда хочу, тогда и дура
+03. Разберись уже с этим
+04. Помолчи со мной о чём-нибудь(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 00:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59B3525C3490A7D6061CF22270F38EC762244D2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146946   (613071) от 30.06.2017
 
 VA - We Love Deep-House B*tches Vol.4 (2017) [MP3|320 Kbps] <Deep House>
@@ -566,147 +701,6 @@ Pitch Black - Filtered Senses (2016) [FLAC|Lossless|tracks + .cue] <Techno, Dub,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DEDC55F6EF70C9E10503BF39A6E44B4C9EA34A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545426   (614688) от 19.04.2022
-
-VA - Black Hole Trance Music 04-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. XiJaro & Pitch - Rescue Me (Extended Mix) [07:18]
-02. Cosmic Gate - Retrospection (Extended Mix) [06:51]
-03. Paul Ryan - Stars (Solarstone Extended Retouch) [06:55]
-04. Activa - Return to Life (Roman Messer Extended Remix) [06:06](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D07DC86E5BC295E0C22AFFAAC57EECA712BBC9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545313   (614690) от 19.04.2022
-
-Давид Тухманов, Электроклуб - Тёмная лошадка (2007) [FLAC|Lossless|tracks + .cue] <Synth-pop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нервы, нервы...
-02. Воздушные замки
-03. Чистые пруды
-04. Но всё-таки лето(   Читать дальше...   )Жанр: Synth-pop, New WaveПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3046DE19CDD31FBF46E66E529DA86D0C588900C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146022   (614768) от 29.06.2017
-
-Гектор Мукомол - Погружение (2002) [FLAC|Lossless|image + .cue] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Глубина (10:11)
-02. Долина Любви (13:13)
-03. Лабиринт (6:18)
-04. Колыбельная (9:21)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE04106EFA740B7F43EC9A2672503B25B4F8F1B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296149   (614932) от 15.04.2019
-
-Moby - Long Ambients Two (2019) Little Idiot [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LA12 (47:03)
- 02. LA13 (26:56)
- 03. LA14 (39:18)
- 04. LA15 (32:07)(   Читать дальше...   )Жанр: AmbientПродолжительность: 03:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43024BF7348AE9158E2D88717C4D6413B3B838CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524270   (615096) от 17.07.2012
-
-DJ JIM - Sirena Mix (2012) [MP3|320 кб/с] <Electro House, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daddy's Groove ft. Skin - Crazy (Wild World)(Cryogenix Remix)
-02. Offer Nissim - Happy People (Playmen Remix)
-03. Adrian Lux ft. Dante - Burning (Carli Remix)
-04. City Shakerz - Love Somebody (Marc Van Damme & Nick Otronic Remix)
-05. Cardiobeats - Funkin'Em Up (Original Mix)
-06. Chris Ride - Touch It Now (Original Mix)
-07. Jean Elan vs. William Naraine - I Don't Care (John Van Doe Remix)
-08. Damien N-Drix - Get Ready (Original Mix)
-09. Brodlek & Tamolotof - Outgoing (Original Mix)
-10. Pablo Kopanos & Nick Harvin - One Life (Panda Rock Mix)(   Читать дальше...   )Жанр: Electro House, HouseПродолжительность: 01:03:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F24E9400A9463EE9B5D3A2A2F1FF8ECCB85B6395
 ```
 
 

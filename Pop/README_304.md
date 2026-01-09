@@ -1,3 +1,246 @@
+###  Публикация: 1112557   (839883) от 10.03.2017
+
+Jim Reeves - The Real... Jim Reeves (2013) 3CD [FLAC|Lossless|tracks + .cue] <Country, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Mexican Joe
+2. Bimbo
+3. Then I'll Stop Loving You(   Читать дальше...   )Жанр: Country, PopПродолжительность: 02:26:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05669D11B6B51782C31265EFD951EDC600204EB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003897   (839986) от 05.04.2016
+
+VA - 12 Inch Dance: 80s Pop (2016) 3CD [MP3|320 кб/с] <Indie Pop, New Wave, Synth Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839986.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Spandau Ballet - Gold (12'' Mix) (7:15)
+02. Duran Duran - The Reflex (Dance Mix) (6:34)
+03. Soft Cell - Torch (Extended Version) (8:27)(   Читать дальше...   )Жанр: Indie Pop, New Wave, Synth PopПродолжительность: 03:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA70121ED1FD4AF52BEF5088AC858B6A66DC0E6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004262   (840001) от 05.04.2016
+
+Peter Griffin - 2 Albums, 4 Singles & EPs (1977-1981) [MP3|320 кб/с] <Electronic, Disco, Pop Rock>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1977. I Hate The Music
+1978. I'm In The Race
+1979. Spiderman (France)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 02:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD3C8529B469BDDC04BC108253FD8B9104EBB184
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004298   (840017) от 05.04.2016
+
+Hypnosis - Hypnosis (1991) Reissue, 2001, ZYX Music [MP3|320 кб/с] <Electronic, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Droid    05:47
+02. Inesi    01:14
+03. Windland    04:47
+04. Argonauts    04:44(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C785A0012E933DD04197356B819D0F621BA1577A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113007   (840018) от 10.03.2017
+
+Slick - Slick (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Bass (6:58)
+02. Feelin' Good (7:51)
+03. Sexy Cream (8:07)
+04. Put Your Pants On (3:47)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934F6D5DA2AB68009B80DAFDA5681222E546CE9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113066   (840098) от 10.03.2017
+
+Graham Gouldman - Animalympics (1980) LP [MP3|320 Kbps] <Electronic, Pop-Rock, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go For It (3:36)
+02. Underwater Fantasy (3:17)
+03. Away From It All (2:34)
+04. Born To Lose (4:09)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, Synth-pop, DiscoПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7742FCAAF5B425B3264A3FA169CC691C999354A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113019   (840123) от 10.03.2017
+
+Lunch Ladies - Down on Sunset Strip (2017) [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunshine (04:23)
+02. You're Not There (03:19)
+03. Love Is Overrated (03:40)
+04. Sad Jeans (03:31)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:24:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:716B333B690A15C5277D15052D6A4697B7E6A021
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379085   (840968) от 28.04.2020
+
+VA - Classic 80's Pop (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duran Duran - Hungry Like The Wolf 3:41
+02. New Order - The Perfect Kiss (7" Edit) 4:25
+03. Spandau Ballet - Highly Strung 4:11
+04. A-Ha - Cry Wolf 4:04(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4396B1B828799663B7900F3B984F3BBA3F5232E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379386   (841084) от 28.04.2020
+
+Илья Гусев - Ты помнишь май (2020) [MP3|320 Kbps] <Pop, Neo-Disco>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. До встречи с тобой (4:19)
+02. Кажется (4:25)
+03. Южные ночи (3:05)
+04. Пообещай (4:10)(   Читать дальше...   )Жанр: Pop, Neo-DiscoПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59FD0CB19FBFB2F9F64A49CBBF611CEA70613B38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379169   (841102) от 28.04.2020
 
 Hayley Williams - Petals for Armor (2020) Scene [FLAC|Lossless|tracks] <Indie Pop>
@@ -455,249 +698,6 @@ Noémie Wolfs (ex.Hooverphonic) - Hunt You (2016) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:566775920D2F08A680AF640C4D4A07280039EB0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003616   (843023) от 03.04.2016
-
-Ricchi e Poveri - My Star (2016) [MP3|320 кб/с] <Italo-Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sara Perche Ti Amo (Version 2012) (03:35)
-02. M'innamo Di Te (03:18)
-03. Come Vorrei (Version 2012) (03:34)
-04. Made In Italy (Version 2012) (02:59)(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:08:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7A9737FC8F642406ADFDF3225099029D331C28B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379066   (843034) от 27.04.2020
-
-Диана Гурцкая - Время (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843034.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Время
-2. Мечта
-3. Когда мы вместе
-4. В этом городе(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE2A3ED48FB4A1B8D571E170EB8AD6AE8077669C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378815   (843035) от 27.04.2020
-
-Noémie Wolfs (ex.Hooverphonic) - Lonely Boy’s Paradise (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Notorious [04:51]
-02. On The Run [02:55]
-03. Drive [03:56]
-04. Wake Me Up [04:13](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A531C8CE2D92BC7B211FA2B342963CE90C99F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378965   (843042) от 27.04.2020
-
-a-ha - Scoundrel Club (1987) EP, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cry Wolf (Extended Version) (8:14)
- 02. We're Looking For The Whales (Live) (3:51)
- 03. I've Been Losing You (Dub) (4:29)
- 04. Manhattan Skyline (Extended Remix) (6:50)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, SynthpopПродолжительность: 00:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44EE0EC5DA55EB6311D7F0CC72533D6F9AB4FB91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112474   (843306) от 08.03.2017
-
-Luigi Tenco - Tenco (1966) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lontano, Lontano
-02. Io Sono Uno
-03. Uno Di Questi Giorni Ti Sposerò
-04. Come Tanti Altri(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A0529F16A5BA4064E09D052941BDC7F7E88336C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112190   (844226) от 07.03.2017
-
-Demis Roussos - Complete 28 Original Albums (2016) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844226.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01 - On the Greek Side Of Mind (1971)
-CD02 - Forever And Ever (1973)
-CD03 - My Only Fascination (1974)
-CD04 - Auf Wiedersehen (1974)Жанр: PopПродолжительность: 27:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B3383117064A315938E15B1CCA22198568B95C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378728   (844634) от 26.04.2020
-
-Григорий Лепс - Честь имею! Разведка боем (Высоцкий) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я вам мозги не пудрю
-02. Штрафные батальоны
-03. Жил я с матерью и батей
-04. Их восемь, нас двое(   Читать дальше...   )Жанр: PopПродолжительность: 00:28:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D905D43090A89D8BD19441B8D2EE956F1A7D6665
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378582   (844802) от 26.04.2020
-
-Charles Aznavour - After love (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson francaise>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Tu te laisses aller
-02 Les deux guitares
-03 J’ai perdu la tete
-04 Après l’amour(   Читать дальше...   )Жанр: Pop, Chanson francaiseПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D447F9C107A7E4DFCE122E43C86E8BDFA9BD2DBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003026   (845193) от 02.04.2016
-
-Medina - We Survive (2016) [MP3|320 кб/с] <Europop, Dance, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Runnin Out Of Love (03:29)
-02. We Survive (03:44)
-03. Someone New (03:59)
-04. Jealousy (03:43)(   Читать дальше...   )Жанр: Europop, Dance, ElectronicПродолжительность: 00:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF89C14CC714ABC81DB5B7A19549E19ACE5F592
 ```
 
 

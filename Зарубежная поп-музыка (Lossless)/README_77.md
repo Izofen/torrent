@@ -1,3 +1,30 @@
+###  Публикация: 1117249   (818930) от 22.03.2017
+
+VA - Acoustic: The Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alanis Morissette - Ironic (Acoustic Version) (3:56)
+02. Coldplay - The Scientist (5:10)
+03. Bruno Mars - Grenade (Acoustic) (4:07)
+04. James Blunt - 1973 (Acoustic) (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 03:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D91BA5E68B9D9B9EF0703A4F8C1CAFA5D82ABAF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197016   (819051) от 05.01.2018
 
 Betsy - BETSY (2017) [FLAC|Lossless|tracks] <Pop>
@@ -664,33 +691,6 @@ Supermax - The Box (10 CD) (2009) [FLAC|lossless]<Soul, Reggae / Electronic, Fun
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380767   (831360) от 04.05.2020
-
-VA - NOW That's What I Call Music! 73 (2020) USA version[FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый выпуск нового десятилетия состоялся в январе 2020 г. Очередной сборник новинок из топов США (и немножко Великобритании) получился несколько более спокойным и "приглушенным" по сравнению с общим тоном предыдущих выпусков. Пожалуй, энергия на короткое время дает всплеск на 11 и 12 треках с дивами следующей волны Camila Cabello и Dua Lipa, но в остальном (   Читать дальше...   )01. Maroon 5 - Memories  (3:05)
-02. Taylor Swift feat. Shawn Mendes - Lover (Remix)  (3:39)
-03. Halsey - Graveyard  (3:01)
-04. Shaed & Zayn - Trampoline  (3:02)(   Читать дальше...   )Релиз состоялся: 24 января 2020Жанр: Pop, Rock, DanceПродолжительность: 01:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D15955FCB7FE75CBAD1724A5FEBF44FEE80D42
 ```
 
 

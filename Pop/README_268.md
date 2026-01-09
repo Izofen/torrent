@@ -1,3 +1,246 @@
+###  Публикация: 1281476   (751617) от 08.02.2019
+
+Lara Fabian - Papillon (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papillon
+02. Je Suis à Toi
+03. Changer Le Jeu
+04. Par Amour(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:629C6DFB84A0F72E1AE15D0451C558A4D7BD77CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281536   (751955) от 08.02.2019
+
+Curacao - 2 Albums (1988, 1989) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Австрийская поп-группа, основанная в 1987 году Лео Корном.01. You (3:24)
+02. Curacao (3:10)
+03. I Feel Good (3:28)
+04. Time Up For Love (4:11)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 01:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FEF3A6FDA1AC4BDEDD15CCB4FBE8256A858929E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018911   (752171) от 22.05.2016
+
+Shania Twain - Still The One: Live From Vegas (2015) [FLAC|Lossless|image + .cue] <Pop, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Gonna Getcha Good! (4:13)
+02. You Win My Love (4:33)
+03. Don't Be Stupid (You Know I Love You) (3:45)
+04. Up! (2:56)(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 01:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95FC3E985DA1898A065B9DD1B33C1B0A56CA0B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281228   (753362) от 07.02.2019
+
+VA - Discomax (Mixed by A & A Mixmasters) (2012) Partially Mixed, Limited Edition [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various (Mixed by Mr. Acetone) - Megamix Version [111-124 BPM] (14:18)
+1.1-Fable Time - Russia
+1.2-Tom Hooker - Feeling Okay
+1.3-Madonna & MC Miker ''G'' & Deejay Sven - Holiday Rap(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:10:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64DCFB536C95DD73824CBE88FDDE2CD78F9D81F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281202   (753482) от 07.02.2019
+
+The Beloved - Where It Is (1988) Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock, New Wave, 80s>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Hundred Words (3:43)
+ 02. Slow Drowning (4:29)
+ 03. In Trouble and Shame (7:07)
+ 04. This Means War (radio mix) (3:28)(   Читать дальше...   )Жанр: Pop Rock, New Wave, 80sПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3081A86161D24E0B7E325CC9B930992373D77AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018984   (753633) от 21.05.2016
+
+VA - The Yellow Collection (2016) [MP3|320 кб/с] <Disco, Nu-Disco>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atella feat. O Martin - Mechanical Sparrow (04:32)
+02. Nteibint feat. Rush Midnight - By Your Side (04:31)
+03. Du Tonc - We Can Hold On (Satin Jackets dub) (05:06)
+04. MiddleSkyBoom feat. Eliezer - Slow With The Run (05:52)(   Читать дальше...   )Производство: Eskimo BelgiumЖанр: Disco, Nu-DiscoПродолжительность: 01:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:348282993F6E988E1A705373F8E7FCB67C18E582
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395402   (753797) от 11.07.2020
+
+Jason Mraz - Look For The Good (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look For The Good (05:10)
+ 02. Make Love (05:36)
+ 03. My Kind (04:57)
+ 04. Good Old Daze (04:12)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3B409C049444FC594387FFFCFE9484FA289C2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215947   (754776) от 28.03.2018
+
+Soultans - 2 Albums (1997-1998) [MP3|320 Kbps] <Pop, Soul, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Ready (3:31)
+02. I'd Rather Go Blind (4:20)
+03. A Piece Of Heaven (4:21)
+04. If I Can't Have You (4:00)(   Читать дальше...   )Жанр: Pop, Soul,FunkПродолжительность: 01:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC3E2811CBA35BF498BE50FC57E97FACC4171E5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355991   (754815) от 09.01.2022
+
+Umberto Tozzi - 26 Albums (1976-2019) Collection [MP3|320 Kbps] <Pop, Pop Rock, Ballad, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умберто Антонио Тоцци (Umberto Antonio Tozzi) – популярный итальянский композитор, эстрадный поп-певец и актер. Имея отличные вокальные данные с раннего детства, он заработал славу композитора в 22 года. Сегодня признан самым востребованным итальянским исполнителем за пределами родины, со времени начала выпуска своих альбомов Тоцци продал около 45 млн. записей.Список альбомов:
+1976 - Donna Amante Mia
+1977 - Aria & Cielo
+1977 - E' Nell'Aria...Ti Amo(   Читать дальше...   )Жанр: Pop, Pop Rock, Ballad, VocalПродолжительность: 01:01:31:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:238544E8B4107B2C3F43CBA91E829A08D6CEDE61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 255332   (754840) от 06.02.2019
 
 Lara Fabian & Igor Krutoi - Mademoiselle Zhivago (2010) [FLAC|Lossless]<Pop>
@@ -448,252 +691,6 @@ CD 1Жанр: PopПродолжительность: 01:19:35
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D56202B7D04F4EB17655BF016E9DC5FB9B4AE0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280512   (758726) от 04.02.2019
-
-Татьяна Лихачёва - Кофе с перцем (2002) [FLAC|Lossless|image + .cue]<Рор>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Всё теперь не так...
-02. Любовь - холодная война
-03. Кофе с перцем
-04. Я хочу забыть тебя(   Читать дальше...   )Жанр: РорПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:054CA2665687AF277DA25D705ECAAEA4B7A3F27C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018015   (759271) от 18.05.2016
-
-Dave Edmunds - 2 Albums (1983, 1984) [MP3|320 кб/с] <New Wave, Pop Rock, Rock & Roll>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британский певец, гитарист и продюсер.
-Имел множество хитов в 1970-х и начале 1980-х годов.
-Наиболее известными стали эти два альбома, сделанных и спродюсированных совместно с лидером группы E.L.O. Джеффом Линном (Jeff Lynne), чей стиль
-исполнения невозможно не узнать!01. Slipping Away   (4:22)
-02. Don't You Double   (3:16)
-03. I Want You Bad   (2:36)
-04. Wait   (4:11)(   Читать дальше...   )Жанр: New Wave, Pop Rock, Rock & RollПродолжительность: 01:12:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2807C66814CFB4F74D988F358FB71967CD1378C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 780720   (759475) от 26.04.2014
-
-VA - Pure... 80s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Electronic, Soft Rock, Europop, Pop-Rock, Synth-pop, Hard Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сборник от Sony Music возвращает нас к лучшим хитам 80-х. И хотя на первый взгляд вам может показаться, что в сборнике нет ничего необычного, тем не менее обратите внимание на такие неординарные хиты тех лет как "Hungry Like the Wolf," "Our House," "Relax," "Sweet Dreams (Are Made of This)," "Video Killed the Radio (   Читать дальше...   )CD1:
-Продoлжитeльность: 01:14:49
- 01. Bill Medley & Jennifer Warnes - (I've Had) The Time Of My Life  (4:50)
-02. Starship - We Built This City  (4:54)(   Читать дальше...   )Жанр: Pop, Rock, Electronic, Soft Rock, Europop, Pop-Rock, Synth-pop, Hard RockПродолжительность: 04:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:375769D9CC04976F03BAE269B54FEA90F6D1D4D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215339   (759618) от 25.03.2018
-
-VA - Best Of The 70's (2002) [FLAC|Lossless|tracks + .cue] <Rock, Reggae, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759618.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Rubettes - Sugar Baby Love [03:21]
-2. Santa Esmeralda - Don't Let Me Be Misunderstood [03:25]
-3. Mud - The Cat Crept In [04:07]
-4. Dillinger - Cocaine In My Brain [05:09](   Читать дальше...   )Жанр: Rock, Reggae, PopПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76EDE5AC949840B748EC95E868B91E3CAACD5A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215205   (759833) от 25.03.2018
-
-VA - Deutsche Schlager Hits Deluxe 2018 (80 Discofox Hits) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Mike Bauhaus - Ich Geh Nicht Zu Boden (03:40)
-02 - Die Herzdiamanten - Am Besten Du Gehst (Fox Mix) (03:28)
-03 - Joel Gutje - Sensationell (Huma Dj Mix) (03:45)
-04 - Pat - Diese Geile Nacht (03:13)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 04:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501CD70323185BC21B8C60DD69DBDF257E474FA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522230   (760350) от 06.01.2022
-
-VA - Best Of Funk 2021 (2022) [MP3|320 Kbps] <Disco, Nu-Disco, Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Motta - Stay Together (Latouche Finale Remix) (feat. Dave Baron) (05:08)
-02. Eddy Sanchez - Back To Back (05:10)
-03. Jerem A - When The Sun Goes Down (DJ Hakuei Remix) (06:34)
-04. Infradisco - Il vizio (04:38)(   Читать дальше...   )Жанр: Disco, Nu-Disco, Funk, SoulПродолжительность: 01:30:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB19D0024C55061D536406EE36B2D826CB04E03E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280595   (760435) от 03.02.2019
-
-Marc De Ville - Don't Smile (1979) LP [MP3|320 Kbps] <Electronic, Power Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее имя - Rolf Köhler. Немецкий музыкант, композитор, продюсер и исполнитель из Гамбурга. Учавствовал во многих музыкальных проектах, наиболее известный из них - группа Systems In Blue.01. Don't Smile (4:00)
-02. Mistery Woman (3:47)
-03. Annie (I Don't Wanna Talk...) (3:38)
-04. You're The Worst Of All (4:11)(   Читать дальше...   )Жанр: Electronic, Power Pop, Pop RockПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB422895AB1F5AB56C453BB9CF83931AD8418A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017751   (760778) от 17.05.2016
-
-Jamala - Подих (2015) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760778.jpg" />
-</div>
-
-
-###  Подробнее
-
-На фоне возросшего интереса к этой самобытной певице с Украины, думаю будет не безинтересно познакомиться с последним её альбомом. Мне показалось, что на Евровидении всеж её голос звучал значительно профессиональнее и лучше. Но это чисто ИМХО. А каждый может сложить своё мнение. Особенно рекомендую послушать Обещание - настоящий хит на все времена!01. Подих  (4:31)
-02. Чому саме тебе (You've got me)  (3:25)
-03. Шлях додому  (4:29)
-04. Бiльше (feat Marphom)  (3:51)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71B0F6E1220A52E4ECE2DEDB38F78119B64DD5AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215070   (761376) от 24.03.2018
-
-Leila K. - Carousel (1993) [FLAC|Lossless|image + .cue] <Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carousel
-02. Open Sesame
-03. Ca Plane Pour Moi
-04. Slow Motion(   Читать дальше...   )Жанр: Euro-HouseПродолжительность: 00:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F47F3883FA1970BF42E7D31A1E19377667A5E133
 ```
 
 

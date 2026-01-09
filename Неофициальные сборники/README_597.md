@@ -1,3 +1,30 @@
+###  Публикация: 992568   (900701) от 02.03.2016
+
+VA - Collection Reggae (2016) [MP3|320 кб/с] <Reggae, Ska, Hip-hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bazzookas - Haha  02:28
+02. Manaky - Ain't Nobody  04:57
+03. Nas & Damian Marley - Africa Must Wake Up (f. K'naan)  06:40
+04. The Wailers Band - MY FRIEND  03:41(   Читать дальше...   )Жанр: Reggae, Ska, Hip-hopПродолжительность: 02:29:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:029D879445419C715FCA04E9C6FF3B9CF17DFA1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490076   (900717) от 31.08.2021
 
 John Lennon & Plastic Ono Band - The Ultimate Collection (2021) 8CD [MP3|320 Kbps] <Rock, Art-Rock, Pop-Rock>
@@ -671,33 +698,6 @@ VA - San Valentino Cocktail In Love (2017) [MP3|320 Kbps] <Lounge, Jazz, Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFF769499EE002BF40CADF0A6FE8BCE94B342BEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369551   (901951) от 24.03.2020
-
-VA - Warm Lounge Sounds (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901951.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Capa - Desert Me
-002. Gene Bautista - Playa Del Carmen
-003. Nova Casa - Soul
-004. Mazelo Nostra - Underworld(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, RelaxПродолжительность: 10:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B994913A15B0DEC5E7B878AAF708CF2EDDD8A6EB
 ```
 
 

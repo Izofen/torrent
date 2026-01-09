@@ -1,3 +1,30 @@
+###  Публикация: 1498597   (847466) от 02.10.2021
+
+VA - Masters Of Hardcore Chapter XLIII Magnum Opus (2CD) (2021) [MP3|320 Kbps] <Hardcore & Hardstyle, Speedcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847466.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Angerfist - What Happened
+02. Re-Style & Cammie Robinson - Kryptonite
+03. N-Vitral & Never Surrender - Wij Gaan Harder(   Читать дальше...   )Жанр: Hardcore & Hardstyle, SpeedcoreПродолжительность: 02:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD8871E133C5AA89F36C2E0A53B8B8FFBF4A97AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499646   (847598) от 02.10.2021
 
 VA - Music News vol.137 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -668,33 +695,6 @@ VA - Козырная песня на Шансоне. Версия № 2 (2017) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F48F6C435657D244EB4E52E19055383C8CDDB246
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002220   (848894) от 31.03.2016
-
-VA - Healing Meditation Zone (2016) [MP3|320 кб/с] <Relax, Meditation, Downtempo>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848894.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aandra - Songs of the Sea (Feat. Soul Sista Shakti)
-002. Rebirth Yoga Music Academy - Deep Meditation (Morning Birds, Waterfall)
-003. Florito - Neiva
-004. Calming Music Sanctuary - Yoga Infinity Journey(   Читать дальше...   )Жанр: Relax, Meditation, DowntempoПродолжительность: 07:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A6A28DB8488FBDE85A8F17C490FC2FC80CC772
 ```
 
 

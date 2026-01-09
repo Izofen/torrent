@@ -1,659 +1,679 @@
-###  Публикация: 1612439   (1040386) от 15.02.2023
+###  Публикация: 1445445   (1033756) от 05.02.2021
 
-Александровский дворец (2012) HDTV [H.264/1080i]
+Жизнь в большом городе. Мехико / The Life-Sized City. Mexico City (2018) HDTV [H.264/1080i] (Сезон 2, серия 2 из 6)
 
 >>Документалистика и Телепередачи
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040386.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Последняя резиденция русских царей - Александровский дворец. Любимый дом русской императорской семьи. Здесь родился Николай II, и именно отсюда его увезли в ссылку, где впоследствии расстреляли... Свое начало история парка берет от так называемого "зверинца", охотничьих угодий супруги Петра Великого Екатерины I, где для увеселения императрицы держали различных (   Читать дальше...   )Производство: Россия, RTG Production StudiosЖанр: документальный, познавательный, путешествияРежиссер: Александр ЕфимовЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:27:41
+Мехико - огромный город, пятый по размеру в мире. В нем живет 21 миллион человек. Это один из самых богатых городов на планете, но при этом 13% его населения живет в бедности. Как такое возможно? Урбанист Майкл Колвилл-Андерсен покажет жизнь в большом городе крупным планом.Производство: Канада, DBCom MediaЖанр: Документальный, история, путешествияРежиссер: Мириам Бертеле, Николя БушеПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4295D27F402C0F93AC92C7D020177FDBAE2B4E2
+magnet:?xt=urn:btih:A835CB1F30CB3B62A321E25C5A81EF52A82A8D72
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612385   (1040387) от 15.02.2023
+###  Публикация: 1445358   (1033757) от 05.02.2021
 
-Журнал | Загадки истории №07 (2023) [PDF]
+The 5th Galaxy Orchestra - Disko Exotika (2012) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Balearic, Disco, Chillout, Lounge>
 
->>Журналы
->>Другие журналы
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040387.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал «Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярное, История, ЖурналФормат: PDF
+01. Dreamland (4:50)
+02. Trinity Airport (3:58)
+03. The Death of Last DJ (4:11)
+04. Le Poeme Du Soleil (6:43)(   Читать дальше...   )Жанр: Electronic, Balearic, Disco, Chillout, LoungeПродолжительность: 01:01:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A52C92627D42E897400E6BE7E7535716FE4DD807
+magnet:?xt=urn:btih:B6519E637B69AFF44D210CC26E035C29C7CB39B1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612315   (1040388) от 15.02.2023
+###  Публикация: 1445337   (1033758) от 05.02.2021
 
-Барбара О'Нил | Когда мы верили в русалок (2021) [FB2]
+VA - Liquid Drum & Bass Sessions Vol 12 (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unknown Artist - Superstylin' DnB (05:56)
+02. Command Strange, Cnof - Rainy Day (04:33)
+03. Malaky - Serenity (04:48)
+04. Sevin - Feelin So (05:09)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C09288DB468235FFE0F475E14971A34E56468D18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445117   (1033759) от 05.02.2021
+
+The 5th Galaxy Orchestra - The Tropic Lounge Sessions (2020) [FLAC|Lossless|WEB-DL|tracks] <Dream House, Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oceania (5:20)
+02. Sunny Coastline (5:44)
+03. The Lonely Surfer (4:26)
+04. Venus Sundown (3:46)(   Читать дальше...   )Жанр: Dream House, Chillout, LoungeПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D6307EDEC87736246A2B880CBDAFFFC6A73328
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445253   (1033760) от 05.02.2021
+
+VA - Liquid Drum & Bass Sessions 2020 Vol 9 (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maduk, Veela - Ghost Assassin (Original Mix) (03:42)
+02. Tali, State of Mind - Love & Migration (ft. Malaky & Georgie Fisher) (State Of Mind Remix) (04:12)
+03. Melinki, Lenrod - Set You Free (05:17)
+04. Dreazz, Sili, Emery - The Lights (05:22)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA47CE3AB07E687A3D27356761BD8AF6FF506DB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445386   (1033761) от 05.02.2021
+
+Роско Арбакл. Случайное знакомство Фатти / Fatty's Chance Acquaintance (1915) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фатти знакомится с девушкой в парке, а она оказывается подружкой карманного вора...Производство: США, Keystone Film CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Роско АрбаклАктеры: Роско Арбакл, Билли Беннетт, Гарри МакКой, Минта Дарфи, Фрэнк Хэйес, Хелен Карлайл, Билли Уолш, Глен Кэвендер, Тед Эдвардс, Гроувер ЛигонПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420550A938BAF967D3990D9EEBB0915CB526A65E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445285   (1033762) от 05.02.2021
+
+Ploho - Фантомные чувства (2021) [MP3|320 Kbps] <Post Punk, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033762.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Между нами
+2. Прости
+3. Добрые люди
+4. Камни(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9FD652F3F513D68F254ACD63E7FA5FE413CE423
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445366   (1033763) от 05.02.2021
+
+The 5th Galaxy Orchestra - Eyeland Airlines (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Balearic, Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miami Airport (5:00)
+02. Love Flight (5:35)
+03. The Stars on a Full Sky (5:01)
+04. I Need Your Love (3:44)(   Читать дальше...   )Жанр: Electronic, Balearic, Chillout, LoungeПродолжительность: 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2CE60FBC8FFFADDF57F2E35E7445D51E00352D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445384   (1033764) от 05.02.2021
+
+AnyTrans for iOS 8.8.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033764.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyTrans предназначен для быстрой и удобной передачи файлов с компьютера на iPhone/iPad и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш iOS-девайс буквально в два счета и так же просто вытащить их оттуда.
+AnyTrans, не в пример iTunes, прост и интуитивен. Каждое устройство отображается на отдельной вкладке, где (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2021Разработчик: iMobie Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3071A8600FDEB7B0ED341BD2AE63A090FD36181
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445355   (1033765) от 05.02.2021
+
+The 5th Galaxy Orchestra - Music Through the Years (2008) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Balearic, Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2000 Feet Over Paris (5:32)
+02. Rockin Chair (4:49)
+03. Music Through the Years (4:40)
+04. A Russian Spy in Shanghai (4:21)(   Читать дальше...   )Жанр: Electronic, Balearic, Chillout, LoungeПродолжительность: 01:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C3AB3B80FAEBBDB849E7A960B4347FB57412B23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445356   (1033766) от 05.02.2021
+
+Лидия Сычёва | Мёд жизни (2019) [FB2]
 
 >>Художественная литература
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040388.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Воспоминания накатывают волнами, и у нее уже не хватает сил сопротивляться прошлому, которое не позволяет жить настоящим.
-В тот день, когда погибла ее сестра Джози, Кит тоже будто покинула этот мир. Навязчивые призраки памяти, от которых она не способна убежать, преследуют ее до сих пор. Но несколько кадров теленовостей переворачивают всё…
-В женщине, случайно попавшей (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Ирина НовоселецкаяФормат: FB2
+«Мёд жизни» – новая книга Лидии Сычёвой, чья проза отмечена Большой литературной премией Союза писателей России, Международной премией «Югра», Международной премией им. А. Дельвига и другими наградами. Читателя ждёт встреча с ярким, образным языком, а также самобытными героями и сюжетами, рождёнными временем и судьбой. «Мёд жизни» – книга, которую вы будете перечитывать.Жанр: Современная русская прозаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A40AB5E42CE170EA5D413D5A098ED8D2D6CC6ECD
+magnet:?xt=urn:btih:C59C4441C3ECDBB411329060BEDB64DC65EC90F5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612464   (1040389) от 15.02.2023
+###  Публикация: 1445309   (1033767) от 05.02.2021
 
-Велопрогулка по Петербургу белой ночью (2013) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040389.jpg" />
-</div>
-
-
-###  Подробнее
-
-В июне и июле в Санкт-Петербурге наступает романтический период "белых ночей". Это природное явление, характерное для северных территорий России, при котором на улице почти не наблюдается разницы между днем и ночью. Собственно "белая ночь" - это короткие сумерки. На улице всегда тепло и практически не бывает осадков. В Петербурге "белые ночи", (   Читать дальше...   )Производство: Россия, RTG Production StudiosЖанр: документальный, познавательный, путешествияРежиссер: Марина СмелковаЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE97D9F18FFED134496732F82723106FA233D5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611743   (1040390) от 15.02.2023
-
-Протоиерей Валентин Мордасов | Азбука духовной жизни (2013) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга протоиерея Валентина Мордасова «Азбука духовной жизни» рассказывает об основных понятиях и сторонах православного вероучения и нравственности на основе свидетельств Священного Писания и святых отцов Церкви.
-
-Книга адресована широкой православной читательской аудитории.Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:366AB05E52907F0C9F8BF41B7F6D4C0199495869
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612504   (1040391) от 15.02.2023
-
-Калевала - Пляска святого Вита (2023) [MP3|320 Kbps] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040391.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Гори по полной!
-2. Пляска святого Вита
-3. Ловец змей
-4. Проснись во мне Зверь(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BB9F5B39B765AEBBA2EC24BF24B904D59B04E95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612542   (1040392) от 15.02.2023
-
-Природа Северного Кавказа (2010) TVRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Северный Кавказ - горный массив, расположенный между Черным морем и Прикаспийской низменностью. Это изумительный край глубоких ущелий, зеленых махровых долин и великолепных, ни на что не похожих гор. Здесь есть горные гряды, образованные выветриванием, больше похожие на странной формы изваяния с пещерами и гротами. Есть и горы-лакколиты - в народе их называют неудавшимися (   Читать дальше...   )Производство: Россия, RTG Production StudiosЖанр: документальный, познавательный, путешествияРежиссер: Сергей ДудкинЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:23:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3400CD65FAB74F68389654544ACE8768E23DF62F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612293   (1040393) от 15.02.2023
-
-Genghis Khan - Who Art In Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Father Who Art in Hell 04:33
-02. The Messiah 04:48
-03. Dracula 09:13
-04. Physical Contact 04:54(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D085583202C37217B42BBFDE3736F00D6CA4F1BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612251   (1040394) от 15.02.2023
-
-Анджела Маас | Женское сердце (2021) [MP3, Нона Трояновская]
-
->>Обучающие аудиоматериалы
->>Здоровье и Медицина (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный подход к лечению заболеваний сердца, учитывающий пол пациента, от всемирно признанного эксперта в области женской кардиологии. В начале этого века сердечно-сосудистые заболевания стали одной из основных причин смертности у женщин во всем мире. При этом врачи практически не уделяют внимание различиям мужского и женского организмов, и все подходы к терапии (   Читать дальше...   )Жанр: ЗдоровоеПродолжительность: 05:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D15E7AC94700719E1A7EF13AC0C58A0DBA10E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612469   (1040395) от 15.02.2023
-
-Privacy Eraser Free 5.34.0 Build 4444 + Portable [Multi/Ru]
+Sketch 70.4 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040395.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
-Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Sketch от Bohemian Coding — один из лучших векторных редакторов под macOS!
+Разработка современных приложений немыслима без работы дизайнера, а дизайнеру для работы необходимо соответствующее программное обеспечение. В основном для разработки дизайна используются Adobe Illustrator, Photoshop и другие профессиональные графические редакторы, но есть и специализированные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.02.2021Разработчик: Bohemian CodingПоддерживаемая ОС: 10.14.4 or laterЯзык интерфейса: Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB4258C5C7D0369B75C9D8F909196D9A3776911B
+magnet:?xt=urn:btih:F33EBBD243DF86BF00F798EB2DC2C05714F4832A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612278   (1040396) от 15.02.2023
+###  Публикация: 1445330   (1033768) от 05.02.2021
 
-Bob French - Marsalis Music Honors Series (2007) Marsalis Music [FLAC|Lossless|tracks + .cue] <New Orleans Jazz, Swing>
+VA - Liquid Drum & Bass Sessions Vol 11 (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minos, Messiah - Down The Drain (05:44)
+02. Edlan, Djah, Smote - Heathen (Give Me More) (03:33)
+03. Melinki, Sam Harris - The Conquest (05:40)
+04. Dreazz, ZaR, Emery - Keep Going (05:12)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7463E15321B221AF8ADCDA8CC8C427AE673064BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445204   (1033769) от 05.02.2021
+
+Мотоспорт. Чемпионат США по мотокроссу. Сезон 2021. Индианаполис 2 / AMA Supercross Championship. Indianapolis 2 WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033769.jpg" />
+</div>
+
+
+###  Подробнее
+
+AMA Supercross Championship — американская гоночная серия. Гонки AMA Supercross Championship, основанные Американской ассоциацией мотоциклистов в 1974 году, проводятся с января по начало мая.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6BB2C0AA5A9D0114ADF51CB88AAD8BFADDF08A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445362   (1033770) от 05.02.2021
+
+The 5th Galaxy Orchestra - Adventures in Sci-Fi (2013) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Balearic, Cillwave, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3000 Feet Over Paris (5:11)
+02. Cindy Praying for the Sky (7:47)
+03. Forgotten Island (3:07)
+04. Crystal Teardrops (4:21)(   Читать дальше...   )Жанр: Electronic, Balearic, Cillwave, LoungeПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05F818F07A8DA31786904FC6FF7D3FB740DD680E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445265   (1033771) от 05.02.2021
+
+Affinity Photo 1.9.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Affinity Photo переопределяет границы профессионального программного обеспечения для редактирования фотографий на Mac. С тщательной ориентацией на рабочий процесс он предлагает сложные инструменты для улучшения, редактирования и ретуширования ваших изображений в невероятно интуитивно понятном интерфейсе со всеми требуемыми мощностями и производительностью.Тип издания: macOS SoftwareРелиз состоялся: 04.02.2021Разработчик: Serif (Europe) LtdПоддерживаемая ОС: OS X 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547695156F4885192335466FAB9B3EEB7F0469DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445220   (1033772) от 05.02.2021
+
+VA - Unexpected Paradox: Deep House Electro Compilation (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ночь это особая атмосфера, исчезает негатив и лишняя суета,  дышать становится как- то легче. Причем ночной город одинаково прекрасен со всех сторон, неважно, гуляешь по нему или наблюдаешь за ним с балкона. И особый антураж этой атмосфере придаёт соответствующая музыка.001. 5th Avenue - Alright
+002. Fd Project - Timing
+003. Raspberry Area - Storm On The Asia
+004. Tony Bentley - Euphosonic(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 07:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC57419D0346820F59816693BAF08E8A443B0410
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445248   (1033773) от 05.02.2021
+
+VA - Liquid Drum & Bass Sessions 2020 Vol 8 (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maduk, Nymfo - Motions (Original Mix) (04:59)
+02. Physics, Dreazz, Emery - Good Groove (05:41)
+03. Phaction - Fantasy (SpectraSoul Remix) (04:54)
+04. Unknown Artist - Re-Thinkable (06:01)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:793F4377866B69B8FA96F9B3D38C777715045110
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445239   (1033774) от 05.02.2021
+
+John Coltrane - Impressions (1963) 1987, Impulse! [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Modal Music>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040396.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033774.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bourbon Street Parade [8:21]
-02. Basin Street Blues [5:59]
-03. Way Down Yonder in New Orleans [5:58]
-04. Milenburg Joys [8:28](   Читать дальше...   )Жанр: New Orleans Jazz, SwingПродолжительность: 01:16:23
+01. India (Coltrane) - 14:11
+02. Up 'Gainst the Wall (Coltrane) - 3:15
+03. Impressions (Coltrane) - 14:56
+04. After the Rain (Coltrane) - 4:13(   Читать дальше...   )Жанр: Avant-Garde Jazz, Modal MusicПродолжительность: 00:47:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C7B554FDB6DDFE42F0BF9A706D49027151B20C3
+magnet:?xt=urn:btih:5E30C2023C5F69DB232B13511BAF5CE466BCF633
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612181   (1040397) от 15.02.2023
+###  Публикация: 1445246   (1033775) от 05.02.2021
 
-bill 4ik - 3 Albums (2020-2023) [MP3|320 Kbps] <Alternative Rock>
+VA - Liquid Drum & Bass Sessions 2020 Vol 7 (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040397.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033775.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-2020 - Избранное
-2021 - Песни разных лет
-2023 - Будни временныхЖанр: Alternative RockПродолжительность: 3 CD, 03:49:21
+01. Command Strange - Rock Steady (Lenzman Remix) (05:17)
+02. The Vanguard Project, Pat Fulgoni - Still Together (05:36)
+03. Maduk - Approaching Me (Original Mix) (04:55)
+04. Melinki, Macca, Maverick Soul - It's Over (05:37)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:04:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CEAAD2F69F03DF97D638E2A1681DAB4FCD060989
+magnet:?xt=urn:btih:D21DCFFE7668414CF4C4991EA267DB5C65391B39
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612368   (1040398) от 15.02.2023
+###  Публикация: 1445375   (1033776) от 05.02.2021
 
-Pigs Pigs Pigs Pigs Pigs Pigs Pigs - Land Of Sleeper (2023) [MP3|320 Kbps] <Doom, Stoner Metal>
+Koherent - Ripple Effect (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040398.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033776.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Ultimate Hammer
-02 Terror's Pillow
-03 Big Rig
-04 The Weatherman(   Читать дальше...   )Жанр: Doom, Stoner MetalПродолжительность: 00:40:47
+01. Koherent - Endless Haze (04:55)
+02. Koherent - Rave Chatter (04:08)
+03. Koherent, Riya - Talk to Me (04:53)
+04. Koherent, Monrroe - Need U (04:35)Жанр: Drum & BassПродолжительность: 00:18:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:755627ECDD704C5C79BF17C89BAA792C7B820079
+magnet:?xt=urn:btih:0BBDDCA806A5F7454C40BA312150F8EE7D1D7DB3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612205   (1040399) от 15.02.2023
+###  Публикация: 1445262   (1033777) от 05.02.2021
 
-Cryptic Witch - Summoning (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Doom>
+Affinity Designer 1.9.0 [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040399.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033777.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Summoning [00:05:10]
-02. Spacewalker [00:06:28]
-03. Cryptic Witch [00:05:15]
-04. Domina Mortis [00:04:53](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, DoomПродолжительность: 00:37:09
+Профессиональное приложение для графического дизайна для Mac.
+Affinity Designer — самое быстрое, удобное и точное программное обеспечение для векторного графического дизайна на современном рынке. Работаете ли вы с графикой для создания рекламных материалов, веб-сайтов, значков, дизайна пользовательского интерфейса или же просто любите создавать крутые концептуальные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.02.2021Разработчик: Serif (Europe) LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:273BD21A3763812A52C99432C8708803F044A0B3
+magnet:?xt=urn:btih:7752366C3611E8E02388212B30F352822C29BD42
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612217   (1040400) от 15.02.2023
+###  Публикация: 1445234   (1033778) от 05.02.2021
 
-Tower (PL) - Hope (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Melodic Death Metal>
+VA - Liquid Drum & Bass Sessions 2019 Vol 5 (2019) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040400.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033778.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hope [00:08:16]
-02. Warriors Call [00:05:38]
-03. Temple [00:04:17]
-04. Disappear [00:04:28](   Читать дальше...   )Жанр: Gothic Metal, Melodic Death MetalПродолжительность: 00:58:59
+01. Tali, Macca, Vector - Situations (05:45)
+02. Anthony Kasper - Departure (Technimatic Remix) (05:03)
+03. Dreazz, Mackadena, Emery - Too Fly (05:57)
+04. Need for mirrors - Speedy Boarding (05:13)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:59:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:139BDF7E59E55C8E42B431909FF85CB75EF44D80
+magnet:?xt=urn:btih:E123931C616B6FF22F1232A2CBEF8207485AA2CF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612272   (1040401) от 15.02.2023
+###  Публикация: 1445227   (1033779) от 05.02.2021
 
-Alvin Batiste - Late (1993) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
+VA - Liquid Drum & Bass Sessions 2019 Vol 4 (2019) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040401.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033779.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Late [5:38]
-02. Imp and Perry [6:28]
-03. Bat's Blues [9:26]
-04. Body and Soul [9:07](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 01:05:08
+01. The Vanguard Project - Flying Away (Digital Bonus) (05:30)
+02. Villem, McLeod, Leo Wood - Gifted Lover (06:02)
+03. Redeyes - Separated (04:50)
+04. Dreazz, Emery - Starlove (06:21)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:56:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74DEF226C69F3A91308A03CF9333B2DDD7BE217B
+magnet:?xt=urn:btih:E4BD26FD7ADC76160A60A5FCE47751CBDE2544BD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612297   (1040402) от 15.02.2023
+###  Публикация: 1445238   (1033780) от 05.02.2021
 
-An Empty City - To Whom or Whither Should My Darkness Flee (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Nu Metalcore>
+VA - Liquid Drum & Bass Sessions 2019 Vol 6 (2019) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040402.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033780.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Is It Really Drill [00:01:48]
-02. OCD [00:04:11]
-03. Snake in Disguise [00:03:55]
-04. In Bleakness, I've Taken Breath [00:02:35](   Читать дальше...   )Жанр: Progressive Metalcore, Nu MetalcoreПродолжительность: 00:31:47
+01. Seba - Shades Of Me & You (Original Mix) (06:15)
+02. Kubiks, Lomax - Find A Way (Blu Mar Ten Remix) (06:05)
+03. Tali, RoyGreen & Protone, DRS - Paper Wasp (Lenzman Remix) (04:57)
+04. Komatic - Seasons Sleep (05:39)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:59:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB1FBFAB2A0CAE07E5D87FF2B9B885758BA1224B
+magnet:?xt=urn:btih:4864602D77F56A9903C7B69202F8B395E4802173
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439030   (1040403) от 11.01.2021
+###  Публикация: 1445444   (1033781) от 05.02.2021
 
-VA - The Unquiet Grave 2020 (2020) [MP3|320 Kbps] <Darkwave, Gothic Rock, Coldwave>
+Ras Kass - I'm Not Clearing Shxt (2020) Limited Edition [FLAC|Lossless|tracks + .cue] <Hip-Hop, Boom Bap, Hardcore Hip-Hop>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040403.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033781.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Shadow Assembly - Languish [00:04:46]
-02 - A Cloud Of Ravens - The Tempest [00:03:27]
-03 - Ships In The Night - Lost Times [00:04:25]
-04 - I Ya Toyah - Glass Eyes (The Joy Thieves Remix) [00:05:08](   Читать дальше...   )Жанр: Darkwave, Gothic Rock, ColdwaveПродолжительность: 02:22:34
+01. Chuck Berry (2:49)
+02. Mando (feat. Pimptight, Piranha & Wais) (4:16)
+03. Parkour (feat. Casual & Cortez) (4:05)
+04. Say No (4:23)(   Читать дальше...   )Производство: Blackhouse Records – BH999130Жанр: Hip-Hop, Boom Bap, Conscious, Hardcore Hip-HopПродолжительность: 00:39:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60BAFA7E68A8F85D102713AD08EFD46B2E1A4175
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417136   (1040404) от 10.01.2021
-
-Звёздный путь: Дискавери / Star Trek: Discovery (2020) WEB-DLRip [H.264/1080p-LQ] (сезон 3, серии 1-13 из 13) LostFilm
-
->>След.
->>Звездный путь / Star Trek; Орвилл / The Orville
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040404.jpg" />
-</div>
-
-
-###  Подробнее
-
-За десять лет до начала первой миссии капитана Кирка исследовать новые миры и формы жизни отправляется экипаж корабля «Шэньчжоу». На борту находятся капитан Филиппа Георгиу, ее первая помощница Майкл Бернэм, а также несколько представителей нечеловеческих видов. Вместе они движутся навстречу мечте о мире, в котором любые существа смогут найти общий язык. Но оказывается, (   Читать дальше...   )Производство: США / CBS Television Studios, Living Dead Guy Productions, Roddenberry EntertainmentЖанр: фантастика, боевик, драма, приключенияРежиссер: Олатунде Осунсанми, Джонатан Фрейкс, Дуглас Арниокоски, ...Актеры: Сонекуа Мартин-Грин, Даг Джонс, Энтони Рэпп, Мэри Вайсман, Эмили Куттс, Оин Оладехо, Патрик Квок-Чун, Ронни Роу, Джулианна Гроссман, Сара МитичПеревод: Многоголосый профессиональный (LostFilm)Субтитры: английские (SDH)Продолжительность: ~00:52:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EA7141A89F279EBE383FA9A9519C2FF6E5F941D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 626317   (1040405) от 10.01.2021
-
-Tomb Raider (2013) [Ru/Multi] (1.1.748.0/26DLC) Repack z10yded [Game of the Year Edition]
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tomb Raider – один из ярчайших проектов весны 2013 года, знаменующий возрождение широко известного цикла видеоигр о приключениях охотницы за сокровищами Лары Крофт, который ведет свою историю с 1996 года.
-Игра повествует о пути становления знаменитой героини, раскрывая ее характер и позволяя проследить эволюцию ее личности. Это по-настоящему взрослая, проникнутая (   Читать дальше...   )Тип издания: RepackРазработчик: Crystal DynamicsЖанр: Action / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Португальский, Голландский, Польский, Чешский,  Арабский, Корейский, КитайскийЯзык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Португальский, Голландский, Польский, Чешский,  Арабский, Корейский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:818DD91BE2EB3324688964215FBD62D3E7CD509C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209229   (1040406) от 10.01.2021
-
-Экстрасенсы ведут расследование (Битва сильнейших) (2018-2019) WEB-DL [H.264/720p-LQ] (выпуски 129-151) (обновляемая)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный триллер-детектив с участием самых загадочных экстрасенсов России! Это не шоу, а демонстрация реальной мощи ясновидения. Участники и победители нескольких сезонов «Битвы экстрасенсов» приводят документальные доказательства того, как паранормальные способности способны помочь людям. В этом цикле экстрасенсы находят пропавших родственников и угнанные (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоуПродолжительность: ~ 01:12:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:465E2993DE455DA8CDBD640D4754EA8A2CE87CAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438982   (1040407) от 10.01.2021
-
-CorelDRAW Graphics Suite 2020 22.2.0.532 RePack by PooShock [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040407.jpg" />
-</div>
-
-
-###  Подробнее
-
-CorelDRAW® Graphics Suite 2020 - Полный набор профессиональных инструментов для редактирования фотографий, разработки векторной графики, макетирования страниц и работы с текстом — словом, все необходимое для создания и реализации дизайн-проектов практически на любом устройстве.
-CorelDRAW Graphics Suite 2020 поможет вам преодолеть любые барьеры на пути к функциональной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F63E5CE2C9C5820B8CFF68571E64AA3542876994
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416091   (1040408) от 10.01.2021
-
-Аванпост / The Outpost (2020) WEB-DL [H.264/1080p] (сезон 3, серии 1-13 из 13) LostFilm, Jaskier
-
->>След.
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040408.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета оказывается представительница расы Чернокровок - Тэлон. Она ищет убийц своей семьи, следы которых ведут в крепость, находящуюся на границе обитаемых земель. Во время путешествия девушка обнаруживает у себя сверхъестественные способности, которыми ей придется овладеть, чтобы спасти себя и защитить мир от фанатичного религиозного диктатора.Производство: США / Arrowstorm Entertainment, Balkanic Media, Electric EntertainmentЖанр: Фэнтези, боевикРежиссер: Милан Тодорович, Курт Найт, Марк РоскинАктеры: Джессика Грин, Джейк Стормоен, Имоджен Уотерхаус, Ананд Десаи-Барочиа, Робин Малкольм, Адам Джонсон, Аарон Фонтейн, Эндрю Ховард, Филип Броди, Амита Суман и др.Перевод: Многоголосый профессиональный (LostFilm, Jaskier)Субтитры: АнглийскиеПродолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BE4D28EC0D6085C37F6BA6D64B1ADD930C29981
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438834   (1040409) от 10.01.2021
-
-Zver Windows 10.0.17763.1637 Enterprise LTSC Version 1809 x64 [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zver Windows 10.0.17763.1637 Enterprise LTSC Version 1809 x64, на базе оригинального дистрибутива MSDN, с обновлениями по декабрь 2020 года включительно. В сборке присутствует ZverWPI v.6.5 с минимальным набором наиболее необходимых программ.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5884E85DA8000260C845212DF1983936FCC4BF99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310436   (1040410) от 10.01.2021
-
-Книжная серия | Иностранный детектив (Шедевры детектива №1) [85 книг] (2013 - 2021) [FB2] [Обновляемая]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шедевры детектива № 1» - серия зарубежных остросюжетных книг, в жанре детектива и триллера, а так же мистического триллера. Представлены романы, как широко известных авторов, так и начинающих. Второе название серии - «Иностранный детектив».Жанр: Детектив, ТриллерФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5786E03AF05878003CA652BEE81066882F13C241
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438864   (1040411) от 10.01.2021
-
-Ночной конвой / Police (2020) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Парижские полицейские Виржини, Эрик и Аристид вынуждены принять необычное задание — вернуть мигранта на границу. По дороге в аэропорт Виржини понимает, что по возвращении на родину их подопечному грозит смерть. Столкнувшись с этим испытанием совести, она пытается убедить коллег позволить ему сбежать.Производство: Франция, Бельгия, Китай / F Comme Film, Ciné@, StudioCanalЖанр: Драма, криминалРежиссер: Анн ФонтенАктеры: Омар Си, Виржини Эфира, Грегори Гадебуа, Пейман Моаади, Элиза Ласовски, Эмманюэль Барруйе, Анн-Паскаль Клермбур, Анна-Гаэль Журден, Сесиль Реббоа, Седрик ВиейраПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90663A5C9648B07FC6548274A03F34BEF7DB7135
+magnet:?xt=urn:btih:80721887996D2CB64B7A6F5AB18D9B06B409CFED
 ```
 
 

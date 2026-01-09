@@ -1,3 +1,30 @@
+###  Публикация: 1015285   (775079) от 10.05.2016
+
+VA - Deep Night: Deep House Selection (2016) [MP3|320 кб/с] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milton Diaz - Liverpool Dimention - Sunset Avenue Mix
+02. Sonny Fasser - Case and Shot - Danny Florence's Limousine Mix
+03. Porn Btz - A New Reason - Congalonga's House Mix
+04. Ralf Harris - I Get It - Deep & Jazzy Style Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4467AAD9299F61DC5BF96745F249BFFF4D61F663
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015495   (775080) от 10.05.2016
 
 VA - Luxury Chill House (2016) [MP3|320 кб/с] <Chillout, Downtempo, Chillhouse>
@@ -663,33 +690,6 @@ VA - Sexy Deep Chilling (2016) [MP3|320 кб/с] <Deep House, Chill House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9B494D332C8D03EEBDA6549549493CA6ED5221A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212344   (776005) от 11.03.2018
-
-VA - Instrumental Piano: Neo Classical Collection (2018) [MP3|320 Kbps] <Instrumental, Neoclassical, Piano>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776005.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Music Lab Collective  -  7 Years (Lukas Graham)  2:44
-002.  Phil Collins  -  Another Day In Paradise (Piano Cover)  5:08
-003.  Gregory Aigersson  -  De-Stress  3:15
-004.  Rick Wakeman  -  Life On Mars (David Bowie)  3:23(   Читать дальше...   )Жанр: Instrumental, Neoclassical, PianoПродолжительность: 07:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE080B5E00C2A550C493B37F147C777F14101AD
 ```
 
 

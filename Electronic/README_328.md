@@ -1,3 +1,165 @@
+###  Публикация: 1540984   (648645) от 01.04.2022
+
+VA - Trance Music For You Trip (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7ROSES & Camille - Trying Not To Cry (Radio Mix) (3:22)
+02. Craig B - Hold The Light (Radio Mix) (3:41)
+03. Moonmelo - Imagination (Radio Mix) (2:40)
+04. A.L.Y.S. - Weekend (Radio Mix) (3:00)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B851BE2491B30B0757034CC0CFD57F61B4538D83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 678864   (648663) от 14.07.2013
+
+Lorenzo Dada - The Pianist (2013) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Almost Made It (05:11)
+02. I Need Love (07:05)
+03. Infinity (06:44)
+04. Lye To Me (06:26)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F2A3D2028E74F4750A629B9FDCBDF64F42BA03B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141865   (648692) от 11.06.2017
+
+VA - Blue Marlin Ibiza-Bruce Hill & Valentin Huedo (unmixed tracks) (2017) [FLAC|Lossless|tracks + .cue] <Deep House, Techno, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thodoris Triantafillou & CJ Jeff - Not Only U [06:53]
+02. B.I.G. - A Promise [09:13]
+03. Beatamines - Groove Symphony [06:53]
+04. Milton Jackson - M.L.A. (Shur-i-kan remix) [07:12](   Читать дальше...   )Жанр: Deep House, Techno, ElectronicПродолжительность: 05:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA1FBFF39DF6740FE00EE92CEE09072A1335EFF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141673   (648706) от 11.06.2017
+
+A Cerulean State - Singles 2015 (2014) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Piano>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/20. Olēka (3:00)
+ 02/20. Perhaps things had finally begun to move (4:14)
+ 03/20. Why can't you see me (3:01)
+ 04/20. And it all came to a halt (3:09)(   Читать дальше...   )Жанр: Ambient, Modern Classical, PianoПродолжительность: 01:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF77482F13A14B12CD95EDB19F4DC0F2ECA58F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141654   (648707) от 11.06.2017
+
+VA - Mystic Cinematic: Darkness Electronic Chill out Lounge (2017) [MP3|320 Kbps] <Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romatic Warrior - The Round Table - Downbeat Lounge Mix
+02. Gothica Electronica - Counting the Cost - Dark Cinematic Chill Cut
+03. Children of the Cosmos - Tears in Blue Rain - Lounge Electronica Mix
+04. Moon Pub - Cold Ocean Memories - Tomorrow Switcode Mix(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 01:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5753E125A91CB301E32CFD753D1008E72AE94539
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291960   (648738) от 28.03.2019
+
+VA - Colorful Downbeats Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Progressive Chill, Downtempo, Downbeat>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Koan - Ruins of Amber Kingdom 06:30
+02. Ghost Rider - You Sun 08:17
+03. Darish - Marrakesch Nights 05:16
+04. Koan - Dolphin & Eos (Suduaya Remix) 06:16(   Читать дальше...   )Жанр: Psychill, Progressive Chill, Downtempo, DownbeatПродолжительность: 01:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5243A5DA9BB4B33B4B369F5344DC7842A92DFF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292185   (648739) от 28.03.2019
 
 Koan - Briar Rose Side B (2019) [MP3|320 Kbps] <Electronic, Downtempo, Ambient>
@@ -534,165 +696,6 @@ Marga Sol - Colours (2016) [MP3|320 Kbps] <Lounge, Chill Out, Easy Listening>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7414D4AAF712F8DFE240E15EE87A8109B1C8BDCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031829   (649684) от 05.07.2016
-
-VA - Earotic Vol 1 (Chill Out For Your Ears) (2016) [MP3|320 Kbps] <Deep House, Breaks, Сhill>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Castlebed - Cold Moves (3:49)
-02. Dormidontov - Home (6:37)
-03. Anthony Chocco - You Are (Beach & Martini Mix) (4:03)
-04. Don Major - At Sunset (3:34)(   Читать дальше...   )Производство: KarmagrooveЖанр: Deep House, Breaks, СhillПродолжительность: 02:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66AB362F2E6A56062520243FB7109B36F1528160
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516349   (649708) от 30.06.2012
-
-Session Victim - The Haunted House Of House (2012) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Deep HouseПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C0D13C056D33C20C734C58DBF32B2896F23213
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031745   (649817) от 05.07.2016
-
-VA - Ibiza Vocal Trance (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LTN feat. Christina Novelli - Hold On To Your Heart (Daniel Kandi Radio Edit) (4:28)
-02. Liuck & Neev Kennedy - Let This Go (Radio Edit) (3:29)
-03. Rodrigo Deem & Las Salinas feat. Emily Harder - Anything (Radio Edit) (3:11)
-04. LTN feat. Arielle Maren - Let Me Go (Johan Vilborg Radio Edit) (3:07)(   Читать дальше...   )Производство: SupercompsЖанр: Trance, Vocal TranceПродолжительность: 01:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F8728A38E882DF77A48D66B3A03A48B0A6C1674
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031778   (649821) от 05.07.2016
-
-VA - Sensation Angels and Demons (2016) [MP3|320 Kbps] <House, Electro-House, Progressive-House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649821.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Afrojack & Laidback Luke — Move To The Sound
-2. Nicky Romero — Novell
-3. Oliver Heldens & Chocolate Puma — Space Sheep
-4. Eelke Kleijn & Olivier Weiter & Arjuna Schiks & Miss Melera — BEFORE.NOW.AFTER(   Читать дальше...   )Жанр: House, Electro-House, Progressive-HouseПродолжительность: 02:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B851C31B9BCF55E97EC8A9C29CE4B94A238DB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031919   (649830) от 05.07.2016
-
-VA - Dezza Pres. Best of Progressive House, Vol. 07 (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dezza - Silk Selections 07 (Continuous DJ Mix) [57:54]
-02. Vintage & Morelli - Daydream (Original Mix) [08:51]
-03. Sound Quelle - Allarg (Original Mix) [06:34]
-04. LTN & Roni Joni - In Between (eleven.five Remix) [06:57](   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E08BB2904EEF7A0BF6BD0D4163A7BDCC42AD0BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031907   (649832) от 05.07.2016
-
-VA - Ibiza Goes Deeper: A Unique Selection Of Deep House Tunes (2016) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Sandemann - Do It Yourself
- 02. Ron John - The Last Photo - Frank Fox Mix
- 03. Modell & Mercier - Black Coral - Lovin' Fashion Mix
- 04. Greg Vasarely - Notting Hill(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:910E51EF39EF71CE04BA1756E38EA3A0E6B3548F
 ```
 
 

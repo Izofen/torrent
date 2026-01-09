@@ -1,3 +1,36 @@
+###  Публикация: 601847   (997961) от 11.01.2013
+
+VA - Экспресс Хиты От Европа Плюс (2013) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997961.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Aligator feat. Airbase - Resurrection
+002. Bastian Basic Feat. Nijana - Fly With Me 2.0 (Vistexx Project Radio Edit)
+003. Mr.Credo - Russian Techno Disco Happy New End Mixx 2013
+004. Rihanna - Diamonds
+005. Pandora - Trust me
+006. Fio & Blumenkraft - The Night (Crystal Rock Remix Edit)
+007. Money-G Vs Shaun Baker - Piano Age (Mg Traxx Edit)
+008. Rock Mafia feat. Miley Cyrus - Morning Sun
+009. Armin Van Buuren Feat Ana Criado - I'll Listen (Disfunktion Radio Edit)
+010. Bodybangers Feat. Victoria Kern - Tonight (Radio Mix)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:366E52F85672E7336789B902696FB886282E9F37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601619   (998020) от 11.01.2013
 
 VA - Зимние Хиты На Love Radio (2013) [MP3|256 кб/с]<Рор>
@@ -808,39 +841,6 @@ VA - Новогодний Хит За Хитом 2 (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D44BB6D24F0213D3EB538AE4C768B5B60783EF01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597078   (1000491) от 02.01.2013
-
-VA - Best Of Lounge Music (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B Van E - I Need You (Cut N Glue Chillout & Lounge Mix)
-02. Sky And Sand - Sunset (Comfort Version)
-03. Cazintel - Aliens in Love (Air Play Version)
-04. Mister Paul - You Don't Know (Vocal Exclusive Mix)
-05. Wine & Dine - Why Are We Here (Original Mix)
-06. Miguel Lando - Sylt (Exclusive Remaster Version)
-07. Muner DJ - This Is My Dream (Original Performant Mix)
-08. Exit Mars - Gliding (Exclusive Mix)
-09. Collective Sound Members - Fast Features
-10. Maurice Scoville - Perfect Day (Comfort Version)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 04:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8A8EDF27ED48FD3850C070CF53818643072687
 ```
 
 

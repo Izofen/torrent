@@ -1,3 +1,30 @@
+###  Публикация: 1388220   (786856) от 05.06.2020
+
+Thomas Anders & Florian Silbereisen - Das Album (2020) [FLAC|Lossless|WEB-DL|tracks] <Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786856.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+2. Sie hat es wieder getan (feat. Florian Silbereisen)
+3. Sie ist wieder da
+4. Versuch's nochmal mit mir(   Читать дальше...   )Жанр: EuropopПродолжительность: 01:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C11F2247338F77AF18195100D7F6B695B2D076
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277091   (787002) от 19.01.2019
 
 Sarah Brightman - Hymn (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Classical Crossover, Pop>
@@ -669,33 +696,6 @@ CD - 1 - Voyage:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E71C310776BD6FEDD2D51BACEE3836AD1FB70C39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509298   (791929) от 15.11.2021
-
-ABBA - Voyage (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791929.jpg" />
-</div>
-
-
-###  Подробнее
-
-ABBA ушла тихо, без официальных объявлений о распаде, в 1982 году. За несколько десятилетий в Швеции появилось немало звезд мирового уровня, но едва ли кто-то из них смог бы потягаться с легендарной группой в популярности. В сентябре 2021 года коллектив объявил о скором выходе нового, девятого альбома, получившего название Voyage - с десятью ранее неиздававшимися (   Читать дальше...   )01. I Still Have Faith in You (5:09)
-02. When You Danced With Me (2:50)
-03. Little Things (3:08)
-04. Don’t Shut Me Down (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2005842F8DAD83FF6713A7CFCDCC8265F2F499
 ```
 
 

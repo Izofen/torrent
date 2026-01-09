@@ -1,3 +1,165 @@
+###  Публикация: 1144226   (629656) от 21.06.2017
+
+VA - Stylish Sofa Vol.11: Chill Out Masters (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  LastEDEN - Cold Fingers (Original Mix)  4:13
+02.  Billy Esteban - Rain Girl (Original Mix)  5:00
+03.  Stargazer - Because (Original Mix)  4:13
+04.  Mazelo Nostra - Born To Be Easy (Original Mix)  3:54(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A97AB439353B055DDBCF8499F2CF13E45FA3B22B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144245   (629657) от 21.06.2017
+
+VA - Summer Swagging Vol.3 (Ibiza Electronic Tunes) (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  After Sunrise - Deep Breath (Extended Mix)  8:41
+02.  Wanderboy - Life (Original Mix)  2:47
+03.  Dainpeace - Work Me (Original Mix)  2:53
+04.  Miguel Alcobia - Nobody Else (Original Mix)  9:20(   Читать дальше...   )Жанр: HouseПродолжительность: 02:22:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA530688944DBA2750AA59A2CCB155EACA119697
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908745   (629759) от 16.06.2015
+
+Spectrasoul - The Mistress (2015) [MP3|320 кб/с]<Electronic, Drum & Bass, Hip-Hop>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghost Lane (2:44)
+02. Shelter (feat. Lily McKenzie) (3:55)
+03. Always (5:02)
+04. Blindside (5:01)(   Читать дальше...   )Жанр: Electronic, Drum & Bass, Hip-HopПродолжительность: 01:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ABBAD6DF24F40453B28E6AF16CB63FE00E571A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294451   (629978) от 07.04.2019
+
+VHS Dreams - Lost World (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Song I Once Heard (5:47)
+02. Holon (The 4th Dimension) (7:38)
+03. A Midday Summer's Dream (6:06)
+04. Journey (5:01)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F00CF472855A5A79D721513E84C230425D101FBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294339   (629984) от 07.04.2019
+
+Shwamp - Inner Landscape (2019) Mindspring Music [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Dub, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We're Lost (07:40)
+02. Dragonfruit (05:42)
+03. Who Are You (05:08)
+04. Floating Sunrise (06:43)(   Читать дальше...   )Жанр: Psychill, Downtempo, Dub, AmbientПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88298577E29410762E78ED4C753421FF2F341B30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294375   (629985) от 07.04.2019
+
+Jayda G - Significant Changes (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629985.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Unifying The Center (Abstract) (03:13)
+2. Renewal (Hyla Mix) (04:58)
+3. Stanley’s Get Down (No Parking On The DF) (05:22)
+4. Leave Room 2 Breathe (Feat. Alexa Dash) (07:00)(   Читать дальше...   )Жанр: Electronic, Deep HouseПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E93CD1FB8B545EA37E1A740F7DBAF716F05459E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294230   (629994) от 07.04.2019
 
 VA - Solee - 10 Years Parquet Recordings (2016) Parquet Recordings [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive House>
@@ -532,167 +694,6 @@ Moby - Music From Porcelain (2016) [MP3|320 Kbps] <Techno, Acid House, Ambient, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F455DC4155D731E28ACCE4E17CEB9C0C88916F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228968   (632192) от 03.06.2018
-
-DJ Rostej - Loneliness (2018) Contemporary Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, IDM, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Callin (06:50)
- 02. Hidden Path (04:27)
- 03. Ethereal (06:35)
- 04. Chilly Autumn (Pt. Two) (07:17)(   Читать дальше...   )Жанр: Downtempo, IDM, AmbientПродолжительность: 01:11:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4FB9EFA4D9D0EE22B2DC05DC656B3B22A7EC3AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908112   (632232) от 15.06.2015
-
-DAB (Digital Analog Band) - 3 альбома (2003-2011) [MP3|192-239 кб/с]<Lounge, Downtempo, Ambient, Dub>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632232.jpg" />
-</div>
-
-
-###  Подробнее
-
-2003 - Best, Vol. 1
-2005 - Best, Vol. 2
-2011 - Best, Vol. 3Жанр: Lounge, Downtempo, Ambient, DubПродолжительность: 02:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48ADBB0CBCDA2686EC20655EBD4D3F9251CCCA6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034970   (632263) от 14.07.2016
-
-Physical Dreams - Cosmos (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Defcon 5 (9:06)
-02. Calima (8:27)
-03. Nothing Is Forever (8:00)
-04. Solar Stone (8:55)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72A7CBB97ADCF54B7C10FE76EC2296DDCD04A4A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034931   (632358) от 14.07.2016
-
-Moby - Music From Porcelain (2016) [FLAC|Lossless|tracks+.cue] <Techno, Trance, Acid House, Ambient, D&B, etc.>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raze – Break 4 Luv (05:24)
-02. 808 State – Pacific State (05:46)
-03. A Tribe Called Quest – Scenario (04:10)
-04. Precious – Definition Of A Track (05:21)(   Читать дальше...   )Тип издания: CD, Compilation •Жанр: Techno, Trance, Acid House, Ambient, D&B, etc. •Продолжительность: 01:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BADFCE240C7DD88F3755632FCCCA7632930D519
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034956   (632368) от 14.07.2016
-
-Benny Benassi - Danceaholic (2016) [MP3|320 Kbps] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Benny Benassi & Chris Brown – Paradise
- 02. Benny Bennasi – Danceaholic
- 03. Benny Benassi feat. Richard Judge – Out Of Control
- 04. Benny Benassi feat. BullySongs – Universe(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF9E45A0805AEA791B45EC3F05C7D80465C5887
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034962   (632425) от 14.07.2016
-
-VA - Techno Club Vol. 50 (Mixed by Talla 2XLC & Kai Tracid) (2016) [FLAC|Lossless|tracks + .cue] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johan Gielen & Talla 2XLC - El Nino (Intro) (1:05)
-02. James Dymond feat. Neve White - With & Without You (5:47)
-03. Talla 2XLC & Andre Visior - Oblivion (Mike Sanders Remix) (4:34)
-04. Jordan Suckley & Sam Jones - Hijacker (A.R.D.I. Remix) (4:06)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD5EE5A679343205894C4C1D0232458468FE6CDF
 ```
 
 

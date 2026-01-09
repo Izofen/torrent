@@ -1,3 +1,165 @@
+###  Публикация: 1099605   (903678) от 02.02.2017
+
+VA - Smoking Lounge: Luxury Chill-Out & Lounge Tunes Vol.7 (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alberto Traversi - Blue Moon  4:43
+02.  Rainer Schnelle - Beyond The Blue (Underscore Version)  2:16
+03.  VST - Awakeing  4:47
+04.  David Starck - Early Morning  1:34(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE2852394BDB89544380CBEB0DC8FB9BF26A95F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099583   (903681) от 02.02.2017
+
+VA - Midnight Lounge Vol.25 Allure (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gysnoize - Million Miles Away  4:38
+02.  Riccardo Ascani - Chiringuito (No Theme)  3:17
+03.  Dreamw41ker - A Long Walk  5:01
+04.  Valefim Planet - Space Clock  5:18(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D326575ACA37731A6C868CF93F47542665A4CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369348   (903815) от 23.03.2020
+
+Krewella - zer0 (2020) [FLAC|Lossless|WEB-DL|tracks] <Dance, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. zer0 (3:48)
+ 02. Mana (Extended Mix) (2:57)
+ 03. Good on You (2:39)
+ 04. Anxiety (3:57)(   Читать дальше...   )Жанр: Dance, ElectronicПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33DC624602526E103624A83770F60491903B6FCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492350   (903965) от 29.08.2021
+
+Heogen - Odd Radio Circle (2021) Touched Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doorisajar (See Within) (02:34)
+ 02. Shall We Go There (10:09)
+ 03. Lost In Longing To Understand (05:54)
+ 04. Everything Was Beautiful And Nothing Hurt (07:57)(   Читать дальше...   )Жанр: IDM, Downtempo, AmbientПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DC076ED13EAA9B777735D8A39EEEF4052DD6C82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991994   (904089) от 29.02.2016
+
+Astrix - He.Art (2016) [MP3|320 кб/с] <Psy-Trance, Full On>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astrix - Shamanic Tales (Original Mix) (13:01)
+02. Astrix - Deep Jungle Walk (Original Mix) (9:15)
+03. Astrix - Alien Turned Human (Original Mix) (8:08)
+04. Ace Ventura & Astrix - Valley of Stevie (Original Mix) (8:41)(   Читать дальше...   )Жанр: Psy-Trance, Full OnПродолжительность: 02:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:334A9F0980CFA27AEEC62378E28B2A3B27A31731
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991831   (904228) от 29.02.2016
+
+VA - Klubb House 2006 (2006) [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I.N.G. - Pussy Pussy (Dj E-Maxx remix) (4:16)
+02. Master Guys - Rocking (Original Club Mix) (6:46)
+03. Gambus & Alvard - Don't Fade (Club Cut) (3:54)
+04. Puncher - Dance Mf Club Extended (6:56)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72871E309313454A596EC5CA6E56A15924FA0028
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099301   (904891) от 01.02.2017
 
 VA - Cafe Chillout Lounge del Mar (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -521,159 +683,6 @@ VA - Resonance Vol.2 (Mixed By DJ Arseniy) (2005) [MP3|320 Kbps] <House, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D4D36305F8CB516BCE0316ABD8B3C2F12A302C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369193   (905705) от 22.03.2020
-
-Kirill Doomsky - Housemission II - Only One In The World (2004) [MP3|320 Kbps] <House, Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DB Boulevard - Frequency (Megahertz Remix) (5:03)
-02. Sergio Del Rio - Parazaar (Gambafreaks vs. Fedo Remix) (4:46)
-03. Roland Clark	- Resist (Jason Jinx Remix) (5:14)
-04. Torso - Latin Fusion (4:44)(   Читать дальше...   )Жанр: House, DiscoПродолжительность: 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86DA8A124A1A50822CBA8CF4A56AAF06D57A3A4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369138   (905706) от 22.03.2020
-
-Dj Бинокль - Tribalhouse 2 (2004) [MP3|256 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905706.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dj Бинокль - Untitled (01:09:21)Жанр: HouseПродолжительность: 01:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C792959B0860B29CE051A9E780C11B1E8EE441E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369183   (905707) от 22.03.2020
-
-VA - Mixed by Dj K.Doomski (2005) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905707.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. VA - Mixed by Dj K.Doomski - Untitled (01:12:04)Жанр: HouseПродолжительность: 01:12:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:363FD26C44E75B594DCBB86ED6E9484908CEAB88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369125   (905708) от 22.03.2020
-
-Dj Бинокль - Ночное Видение (2006) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905708.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dj Бинокль - Untitled (01:05:45)Жанр: HouseПродолжительность: 01:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08C98D457D2CDA9D642A98FC9DFA9F9FB368B737
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368981   (905710) от 22.03.2020
-
-VA - Dub Backups Collection (1997-2000) Elektrolux [FLAC|Lossless|tracks+.cue] <Dub, Downtempo, House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905710.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
- 01. Tricky Cris - Watch The Mix (05:08)
- 02. G² - Con-Fused (06:04)
- 03. Benjamin Wild - Außenliegend 24 (06:17)(   Читать дальше...   )Тип издания: CDЖанр: Dub/House/DowntempoПродолжительность: 05:31:12 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:347981DFA1F24FA612B6A78CE190AF5C23E86A1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991388   (905841) от 28.02.2016
-
-Moby - Long Ambients 1: Calm. Sleep. (2016) [MP3|~245 кб/с (V0)] <Ambient, Drone>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LA1 (20:53)
- 02. LA2 (19:00)
- 03. LA3 (22:52)
- 04. LA4 (17:32)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 04:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7897F47E6666E3A0D14579DA697E2C5B0ED11A54
 ```
 
 

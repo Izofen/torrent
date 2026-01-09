@@ -1,3 +1,30 @@
+###  Публикация: 1121292   (800547) от 02.04.2017
+
+VA - Deep House Collection Vol.115 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800547.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A - Mase - Spring Love, Mad Love (Radio Mix) 3:08
+002. Acidbro - Moon Day (Vip Tech Mix) 6:57
+003. Andrey Exx - Need to Feel Loved (Original Mix) 6:53
+004. Anton Suchorukov - Tagtraum (Original Mix) 4:45(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:26:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D69690693499768D102FB65283CDA8834941A20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120971   (800555) от 02.04.2017
 
 VA - Музыкальный подарок от Европы Плюс. Сборник № 3 (2017) [MP3|256 Kbps] <Pop>
@@ -665,33 +692,6 @@ VA - Vocal Jazz (2018) [MP3|320 Kbps] <Jazz, Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:578E27A74351204CE5DE2EF71DB9BCB97B47D62D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506086   (801651) от 29.10.2021
-
-VA - Electro Lemon: Fresh House Session (2021) [MP3|320 Kbps] <Electro, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801651.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Frankie Lluc - Recreation Ego
-002. Small Tok - Play Me
-003. Pretty Pink - Let You Go
-004. Chappier - Resurge(   Читать дальше...   )Жанр: Electro, Future HouseПродолжительность: 09:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D914FE84387E9F57F9BD7CD65F9787D3678FE5B4
 ```
 
 

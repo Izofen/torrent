@@ -1,3 +1,63 @@
+###  Публикация: 519543   (633731) от 08.07.2012
+
+The Teens - Past And Present '76-'96 (1996) [MP3|320 кб/с]<Pop Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gimmie Gimmie You Love '96
+02. Here I Stand '96
+03. On The Radio
+04. Walking On Sunshine
+05. Tutti Frutti
+06. Gimmie Gimmie Gimmie Gimmie Gimmie Your Love
+07. We Are The Teens
+08. W'll Have A Party Tonite 'Nite
+09. Here I Stand
+10. It's Good To Have A Friend(   Читать дальше...   )Жанр: Pop Rock, Glam RockПродолжительность: 01:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA351EA0240B33D67E15D008DF86C6FE6B4960D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908221   (633983) от 14.06.2015
+
+Christie - Christie (2005) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yellow River
+02. Gotta Be Free
+03. I've Got A Feeling
+04. New York City(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8404FCBD538984ED9F1973DC409AEBFD6C0297
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143569   (634852) от 18.06.2017
 
 Slade - Rockers A Collection of Their Hardest - Hitting Tracks 1969-87 (2007) 2CD [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
@@ -655,60 +715,6 @@ Fall of Envy - Poetic Rage (2012) Special Edition [MP3|320 Kbps] <Rock, Alt Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D60D0C12F152BAF75EB525CF1E448DB5DD5613C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033328   (640280) от 10.07.2016
-
-La BIG Rabia - La BIG Rabia (2016) [MP3|192 Kbps] <Acoustic Rock, Blues, Latino>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dime
-02. Blues Malo
-03. Quiero Paz
-04. La Perdida(   Читать дальше...   )Жанр: Acoustic Rock, Blues, LatinoПродолжительность: 00:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D42FAB50125E6808851897BD402BD338D4C7C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905924   (641691) от 10.06.2015
-
-The Modern Lovers - The Modern Lovers (1976), Remastered /2003, Castle Music/ [MP3|320 кб/с]<Rock, Garage Rock, Rock&Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roadrunner (04:07)
-02. Astral Plane (03:01)
-03. Old World (04:01)
-04. Pablo Picasso (04:22)(   Читать дальше...   )Жанр: Rock, Garage Rock, Rock & RollПродолжительность: 01:02:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E087B896558F5621A88A3C19540D7B1450F85386
 ```
 
 

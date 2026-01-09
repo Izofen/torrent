@@ -1,3 +1,164 @@
+###  Публикация: 1372817   (732837) от 01.08.2020
+
+VA - The Sound Of Psy-Trance, Vol.1-4 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732837.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Jarvith Bhaut Perz - Baby (6:29)
+2. Magnetic Resonance - Fraction Of A Point (Radio Edit) (5:03)
+3. Atype - Sleeping Illusion (6:35)
+4. Stepper - Open To Mistikan (7:37)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 03:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47920A6C185B44CC8F4DE92334C9E2AFE792492E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399652   (732875) от 01.08.2020
+
+Goasia - Landed On Wrong Planet LP (2020) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outer Space Formant (06:09)
+02. Alien's Ultimatum (08:09)
+03. Back To Space (07:00)
+04. Hybrids (07:09)(   Читать дальше...   )Жанр: Goa TranceПродолжительность: 01:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC8B9E84D3DC761D30ADF4FC0685813101BF468
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399655   (732899) от 01.08.2020
+
+E-Mantra - 15 Years Of Music Special Release Vol 1 (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liquid Frequency 2003 (08:02)
+ 02. Neural Vertex 2005 (09:37)
+ 03. Poltergeist Activity 2002 (09:57)
+ 04. Radiant Vision 2003 (12:28)(   Читать дальше...   )Жанр: Goa TranceПродолжительность: 01:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:574BFFCCB4AB2DE08B677DC6EBD7891CAA24BAA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399559   (732902) от 01.08.2020
+
+VA - Above & Beyond - Anjunabeats Volume 15 (2020) 2CD, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House, Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ALPHA 9 – Time Traveller (03:39)
+02. Above & Beyond – I Saw Good (03:44)
+03. Above & Beyond – Reverie (feat. Zoë Johnston)Жанр: Electronic, Progressive House, Progressive TranceПродолжительность: 02:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:868B4C263F30DED8C1A30A1CFC9348D5E9D8CD4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399594   (732943) от 01.08.2020
+
+VA - Pure Body Workout Hits 2020 [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732943.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Housecream - I Don't Wanna Live Forever (Fitness Version 128 Bpm) (4:52)
+2. Patty Dart - Lover (Fitness Version 128 Bpm) (6:06)
+3. D'Mixmasters - In My Feelings (Fitness Version 128 Bpm) (3:52)
+4. One Nation - Rescue Me (Fitness Version 128 Bpm) (5:21)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DCB2D884F73A59BF0A9DD4B34D1DCD47B4545F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529095   (733120) от 05.02.2022
+
+VA - Vocal Trance Hits (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_733120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Doppler Effect feat. Carol Lee - Beauty Hides In The Deep (John O'Callaghan Edit) (3:46)
+02. Talla 2XLC & Naama Hillman - No Inbetween (John O'Callaghan Edit) (3:45)
+03. Ronski Speed & Sir Adrian - The Space We Are (John O'Callaghan Edit) (3:40)
+04. Jared Knapp & Patrick De Vere with Neev Kennedy - Night Moves (Daniel Kandi's Emotional Edit) (3:11)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E04DA4FC8CEBF4FD4A2D3DA824793FA062305273
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399522   (733416) от 31.07.2020
 
 VA - Vocal Trance Top 50 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -533,166 +694,6 @@ InnerSync - Free Spirit (2022) [FLAC|Lossless|WEB|tracks] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7F2CFCC1EEB93C6CC525DCC363FA3B4AAAF9F56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528196   (735391) от 31.01.2022
-
-Marc Benjamin - Nicky Romero & Friends Presents NYE (2021-12-31) [MP3|320 Kbps] <Electro Pop, Big Room, Future House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billie Eilish - Your Power (Marc Benjamin Remix)
-02. Tiësto, KAROL G - Don’t Be Shy
-03. Dua Lipa vs. SAINt JHN & Imanbek vs. Marc Benjamin & Malarkey - Hallucinate vs. Roses vs. I Got 5 On It (Marc Benjamin Mashup)
-04. Marc Benjamin feat. NEVRMIND - Waiting For You (Future Disco Remix)(   Читать дальше...   )Жанр: Electro Pop, Big Room, Future HouseПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F85EC1EC6B28F9823B92152135526609A040434F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527961   (735392) от 31.01.2022
-
-KAAZE - Best Of 2021 Mashups (2021-12-27) [MP3|320 Kbps] <Electro House, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.KAAZE vs. Miley Cyrus – Midnight Runners (KAAZE Mashup)
-02.KAAZE – Eye Of The Legends (KAAZE Mashup)
-03.KAAZE vs. Robert Miles & Ariana Grande – Humming Last Childer (KAAZE Mashup)
-04.KAAZE vs Meduza & Shouse – Dark Loose Tonight (KAAZE Mashup)(   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 00:29:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF60379D0D03601E4B1E090A86C2F305558C1D40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398409   (735630) от 26.07.2020
-
-VA - Goa Festival Sounds, Vol.4 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735630.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Phaxe; Querox - Bloom (Original Mix) (5:31)
-2. Neelix; Caroline Harrison - Makeup (Blazy Remix) (7:46)
-3. Shock Therapy - Imagination (Original Mix) (7:25)
-4. The Commercial Hippies - Future Intelligence (Original Mix) (8:27)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881EB0E5EDE2BE7E90F2BAB797A74DD1042E2F7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397928   (735737) от 26.07.2020
-
-MRUKS - REMIXES 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Funky, Retrowave, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735737.jpg" />
-</div>
-
-
-###  Подробнее
-
-1) SKURM - 80X (MRUKS Remix)
-2) SKURM - Wasted (MRUKS Remix)Жанр: Funky, Retrowave, SynthwaveПродолжительность: 00:05:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32A8633C58680802BAA0BC723D41B950AE354517
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527801   (735866) от 30.01.2022
-
-Cosmic Gate - Live @ Sunset Set, Puerto Vallarta, Mexico (2022-01-19) [MP3|320 Kbps] <Progressive House, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tinlicker feat. Nathan Nicholson - Be Here And Now
-02.Solee - Carant
-03.Anden & Yotto - Grouplove
-04.Estiva - Kaleido(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57C979115FECECEF04BC5EB1CB9E21983073B2D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527806   (735868) от 30.01.2022
-
-Kryder - Axtone House Party(Live @ Ministry Of Sound London 2021-11-19) (2022-01-07) [MP3|320 Kbps] <Progressive House, Electro House, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ACRAZE & Cherish vs. 23 - Do It To It vs. Pink Soldiers (Squid Game OST) (Zedd Edit)
-02. MOGUAI - ACIIID (Kryder & Benny Benassi Remix)
-03. Toby Green - Motorkraft
-04. Julian Jordan & Martin Garrix ft. Tinie Tempah - Diamonds(   Читать дальше...   )Жанр: Progressive House, Electro House, Big RoomПродолжительность: 01:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D10CDD9E3F95106BD990319BDAA738848FA7A94
 ```
 
 

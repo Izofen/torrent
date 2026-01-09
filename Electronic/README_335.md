@@ -1,3 +1,165 @@
+###  Публикация: 1225650   (659581) от 16.05.2018
+
+VA - Coastal Remixes 02 (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Smyk - Crossroads (Myni8hte 80's Re-Interpretation Mix)
+02.Michael Rehulka - Addicted To Music (Anlaya Project Remix)
+03.Sixthsense - Yal-Ku (Nuestro Remix)
+04.Clarks - Liquid Blue (Eric De La Vega Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F95C8DEAEE647A9FB850DDA943475B35F2FA0C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225511   (659653) от 16.05.2018
+
+Skee Mask - Compro (2018) Ilian Tape [FLAC 2.0|48/24|tracks|WEB-DL] <Techno, Ambient, IDM, Breakbeat>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cerroverb (05:33)
+ 02. Session Add (06:20)
+ 03. Rev8617 (03:44)
+ 04. 50 Euro To Break Boost (05:07)(   Читать дальше...   )Жанр: Techno, Ambient, IDM, BreakbeatПродолжительность: 01:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FFB679D0A49492783E98E4E7D5DDA10DAB6A54D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902741   (659727) от 29.05.2015
+
+Martin L. Gore (Depeche Mode) - MG (2015) [FLAC|Lossless]<Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pinking
+02. Swanning
+03. Exalt
+04. Elk(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4711E20A1E04C165C51B9688ABA2BF290EEDE4E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225475   (659756) от 16.05.2018
+
+VA - Aly & Fila - Future Sound of Egypt 547 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Kamilo Sanclemente - Secret Garden (Original Mix)
+02.Lucas Rossi - Singularity (Original Mix)
+03.Ezequiel Arias - Passenger (Original Mix)
+04.Boss Axis - Fango (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B327D71E933D8567B7D02B562F03F1C14EF3838
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225467   (659759) от 16.05.2018
+
+VA - Aly & Fila - Future Sound of Egypt 546 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sasha feat. Polica - Out Of Time (Original Mix)
+02. Dezza - Law of Attraction (Original Mix)
+03. Stan Kolev - Oblivion (Extended Mix)
+04. Matan Caspi & Ziger - Templar (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2D1C07F2F865BD7EFCC9AC5806ED66A6D4183C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902963   (659835) от 29.05.2015
+
+Alesso - Forever (2015) Deluxe Edition [FLAC|Lossless|WEB-DL]<Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alesso - Profondo
+02. Alesso - PAYDAY
+03. Alesso Feat. Tove Lo - Heroes (We Could Be)
+04. Alesso - Tear The Roof Up(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8757430E4EE93AB3448F350D40657B9C4668B7F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225514   (659843) от 16.05.2018
 
 Simian Mobile Disco - Murmurations (2018) Wichita [FLAC|Lossless|tracks+.cue] <Tech House, Ambient, Deep House>
@@ -539,168 +701,6 @@ VA - Vocal Trance: London (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1B5A62210C4274A574AB25F09D0EA0CCFF3E251
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225301   (661891) от 14.05.2018
-
-VA - Dark Uplifting Vol.4 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyril Ryaz - Dark Side (Sunset and Steve Dekay Extended Remix)
-02. Make One - Lost Kingdom (Extended Mix)
-03. Mike Sanders - Kajo (Extended Mix)
-04. Tycoos - 717 (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE2B54A64AA09329CEAC019A6F9BA2F7F1FEE81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538436   (662200) от 21.03.2022
-
-Culture Shock - Sequel (2022) RAM Records [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Prologue (00:01:06)
-02 - Panorama (00:04:13)
-03 - Rise (00:03:16)
-04 - Recombine (00:04:09)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31F4ED47CDAE6DF5E013CCE3C017CD42DC888496
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138858   (662412) от 31.05.2017
-
-Aly & Fila - Future Sound Of Egypt 498 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aneesh Gera - Starchaser (Original Mix)
-02. Jerome Isma-Ae & Alastor - Wilde (Extended Mix)
-03. Sunlight Project - Deep Valley ( Original Mix )
-04. Jettan - Sunset (Sicarios Remix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 00:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A27EF419C7A6BD2FDBCB0126F6486D32E76DE58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225035   (662921) от 13.05.2018
-
-VA - Total Trance Selections Vol. 11 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duncan Newell - Gibbo (Radio Edit)
-02. Josa - Nebula (Original Mix)
-03. Gelvetta - Princess Asia (Original Mix)
-04. Axel Walters - New Line (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5990E302E12BA5D01EE6137CBCAD5474A611FFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138580   (663156) от 30.05.2017
-
-VA - Monte Carlo Vip Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Monolounge Roudette - La Fleur De La Musique (Loca People Mix) 5:25
-02.  Lounge Foyer - Perfect Day (Booty Swing Mix) 4:47
-03.  Deechiller - City Lights (Soul 2 Sax Mix) 5:10
-04.  Swing Chill Transfer - Somewhere Between (Chill Lounge Manhattan Mix) 4:46(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B69CB9056456321B9DF3D99DAF8E0C1E1657C35B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138286   (663158) от 30.05.2017
-
-Spacekraft - То падая, то взлетая (Сон) (2016) [FLAC|Lossless|WEB-DL|image] <Chillout, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleepy Town Manufacture - Posledniy Son Starogo Robota
-02. Robert Babicz - Duba (Guy J Remix)
-03. Synkro - Recognition
-04. Thrupence - Voyages(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DAEC1D738FDF9AB05F8FB0C9DA2E8851161B6E2
 ```
 
 

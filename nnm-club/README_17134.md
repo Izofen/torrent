@@ -1,144 +1,48 @@
-###  Публикация: 1403563   (690692) от 20.08.2020
+###  Публикация: 1029997   (678469) от 28.06.2016
 
-Андрей Жвалевский, Евгения Пастернак | Москвест. Роман-сказка (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современные подростки Миша и Маша случайно встречаются в Александровском саду. Оба отстали от своих классов, пришедших на экскурсию в Кремль. Впрочем, школьники не сильно об этом жалеют, потому что, как заявил во всеуслышание Миша: «История – это отстой». И вот их отбрасывает во времени аж на десять веков назад. Оказались они вроде на том же месте, только ни сада, (   Читать дальше...   )Жанр: Детская литература/Фантастика/Приключения/СказкаПродолжительность: 08:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FA2FD7111B92C0BE5317F58B787E5D39146A77D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403578   (690693) от 20.08.2020
-
-Андрей Жвалевский, Евгения Пастернак | Типа смотри короче (2018) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все смешалось в седьмом «А»: война и любовь, взрывы и катастрофы, сражения и… опять любовь. Такой уж это возраст — прыжок из детства в юность. Поход в кино с девочкой равносилен добыче Золотого Руна. Драка на пустыре по бессмысленности не уступает любой из мировых войн, а розы на пороге могут полностью изменить мир, пусть всего на несколько минут. Но окружающие взрослые (   Читать дальше...   )Жанр: Детская литература/Приключения/ПрозаПродолжительность: 04:14:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9A267524F64B7C590BC3F9928FF4ABCCF7E7F01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403576   (690694) от 20.08.2020
-
-Capsule Network - Discography 2 Releases (2018-2020) WéMè Records [FLAC|Lossless|WEB-DL|tracks] <IDM, Techno, Electro, Breaks, Ambient>
+VA - Outburst presents Prism Volume 1 (Mixed by Mark Sherry & Alex Di Stefano) (2016) [MP3|320 Kbps] <Trance, Progressive House, Techno>
 
 >>Electronic
->>IDM (Lossless)
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690694.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Karhu (03:37)
- 02. Station Bravo (04:34)
- 03. Taajuus (04:10)
- 04. Satellite Frequency (03:32)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Techno, Electro, Breaks, Ambient •Продолжительность: 00:46:16 •
+01. Mauro Picotto - Eterea (Mark Sherry Remix)
+02. Mark Sherry & Dark Fusion Feat Jan Johnston - Deja Vu (Outburst Vocal Mix)
+03. Solarstone - Lost Hearts (Mark Sherry Remix)
+04. Mallorca Lee & Stephen Kirkwood - 2029 (Radio Edit)(   Читать дальше...   )Жанр: Trance, Progressive House, TechnoПродолжительность: 06:19:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:099ADD2ED85FF427C5084AFCDE80019B32889FDB
+magnet:?xt=urn:btih:B22E3EB39667DEA21B430BE0C1E2C5872B2ACD37
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403552   (690695) от 20.08.2020
+###  Публикация: 1029415   (678470) от 28.06.2016
 
-Ihsahn - Telemark (2020) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stridig (05:31)
-02. Nord (05:08)
-03. Telemark (07:43)
-04. Rock and Roll is Dead (03:26)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6DB74B993182715129DA8B19EB003A32225975
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403561   (690696) от 20.08.2020
-
-Андрей Жвалевский, Евгения Пастернак | Смерть мертвым душам! (2017) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Городская библиотека, где работает Елена Степановна, дама в возрасте, давно стала чем-то вроде клуба для тех, кому за шестьдесят. Приходили сюда в основном пенсионеры. Книги брали, но не с меньшей охотой попивали чаёк и делились сплетнями. Из молодёжи здесь постоянно бывала только Валя, внучка библиотекарши. Но все изменилось с приходом молодой практикантки Киры: (   Читать дальше...   )Жанр: Детская литература/Приключения/ПрозаПродолжительность: 05:22:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DD3F96FF56AA71223AC6A5DCC8E42EC25DFA21B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403529   (690697) от 20.08.2020
-
-Анна Никольская | Папатека (2018) [MP3]
+Chicago - Take Me Back To Chicago (1989) Unofficial Release [APE|Lossless|image + .cue] <Jazz-Rock, Pop Rock, Funk, Classic Rock>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_690697.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_678470.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Однажды один обычный мальчик вдруг заявил своему папе, что больше его не любит. И ушел из дома. Так началась эта история, из которой вы узнаете, куда могут привести неосторожно сказанные слова и какие монстры таятся за мрачными мыслями.Жанр: Детская литература/СказкаПродолжительность: 03:03:14
+01. Baby, What a Big Surprise
+02. Happy Man
+03. Take Me Back to Chicago
+04. If You Leave Me Now(   Читать дальше...   )Жанр: Jazz-Rock, Pop Rock, Funk, Classic RockПродолжительность: 00:39:27
 
 ## Скачать торент
 ```bash
@@ -148,510 +52,642 @@ magnet:?xt=urn:btih:3DD3F96FF56AA71223AC6A5DCC8E42EC25DFA21B
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403440   (690698) от 20.08.2020
+###  Публикация: 1029689   (678471) от 28.06.2016
 
-Unmerciful - Wrath Encompassed (2020) [FLAC|Lossless|tracks + .cue] <Brutal Death Metal>
+VA - Club Dance Ambience vol.75 (2016) [MP3|320 Kbps] <House, Electro House, Club>
 
->>
->>
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_690698.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Incineration (05:03)
-02. Blazing Hatred (03:34)
-03. Predator To Prey (04:33)
-04. Wrath Encompassed (03:54)(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:38:32
+001. Daniel Moss & Gandalf Bosch Feat. Francy -  Mi Alma (Instrumental Edit) 3:17
+002. KSHMR & Felix Snow feat. Madi -  Touch (Runway Remix) 4:56
+003. Hardwell feat. W&W -  Jumper (Madd Dave Bootleg) 4:53
+004. Robin Schulz feat. Akon -  Heatwave (Muzzaik Remix) 4:17(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 07:43:48
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:511301DAC97601D4003016B1BE0F9AA95330C9A5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403550   (690699) от 20.08.2020
+###  Публикация: 1029872   (678472) от 28.06.2016
 
-Анна Никольская | Чемодановна (2018) [MP3]
+Семейная группа Родня - Маленькое семейное чудо (1991) [MP3|320 Kbps] <Pop>
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690699.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678472.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У брата и сестры Бори и Оли Прикольских замечательные родители, но не слишком замечательная жизнь. А все потому, что родители доверили воспитание детей гувернантке по фамилии Кикиморова. Оля и Боря сразу понимают, что гувернантка ненавидит детей, но папа с мамой ничего плохого и слышать о ней не желают. Ведь она работает у них задаром!
+01. Вступление (01:36)
+02. Дискобар (03:20)
+03. Оксана (03:43)
+04. Дождик (02:51)(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F4D8FFA5BDDFAD48E04C9D41393253A92D95815
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029453   (678473) от 28.06.2016
+
+VA - The Dome Summer  [2CD] (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678473.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Пpодолжительность: 01:12:11
 
-И кто знает, чем бы закончилось (   Читать дальше...   )Жанр: Детская литература/СказкаПродолжительность: 03:00:30
+01. Justin Timberlake - Can't Stop The Feeling!(   Читать дальше...   )Жанр: PopПродолжительность: 2:28:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4859F6828937682A32BA3F8073ECE6C3B6B587DE
+magnet:?xt=urn:btih:942A4B20BE93B50E55D5E90AE9B3961D32C75D1F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534865   (690713) от 04.03.2022
+###  Публикация: 1029602   (678474) от 28.06.2016
 
-Slash feat. Myles Kennedy and The Conspirators - 4 (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
+Elephant Plaza - Momentum (2016) [FLAC|Lossless|tracks] <Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690713.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The River Is Rising (03:42)
-02. Whatever Gets You By (03:40)
-03. C'est la vie (04:38)
-04. The Path Less Followed (03:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:40
+01. Naked
+02. Southwest
+03. Paralyzed
+04. All The Way(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:02:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E2D87AD3CC68EE7CD878360C1FED1538AF40F90
+magnet:?xt=urn:btih:A36B35E7E23860087810709945B7DBB4E3167022
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534869   (690714) от 04.03.2022
+###  Публикация: 1290591   (678475) от 20.03.2019
 
-Павильон саламандры / Pavillion sanshouo / Pavillion Salamandre (2006) WEB-DL [H.264/1080p] [AVO]
+Журнал | Story [Россия] №4 (122) (апрель 2019) [PDF]
 
->>
->>
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_690714.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Семья Ниномия забоится о знаменитой саламандре Кинджиро которой уже 140 лет. Правительство Японии выделяет из бюджета деньги на то, что б заботить о национальном символе, но якудза решает, что неплохо бы получить свою часть денег. Дочь того кто заботится о животном прилагает все усилия, что бы не дать им заполучить деньги.Производство: Япония, Tokyo Theatres K.K.Жанр: КомедияРежиссер: Масанори ТоминагаАктеры: Дзё Одагири, Ю Касии, Дзюндзи Такада, Юми Асо, Кэн Мицуиси, Кики, Китаки Маю, Ёитиро Сайто, Хикохико Сугияма, Кандзи ЦудаПеревод: Авторский (Сергей Кузнецов)Субтитры: АнглийскиеПродолжительность: 01:38:10
+"STORY" не исторический журнал, а журнал историй, которые позволяют увидеть и понять многообразность человеческих судеб.
+Наши герои - исторические и современные, персоны знаковые, определившие лицо своего времени и поколения, сумевшие изменить ход истории, будь то история кинематографа, живописи, литературы, музыки, науки . или же истории в широком понимании (   Читать дальше...   )Жанр: ПублицистикаФормат: PDF
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:4A1E7BC69DDF18CC028F4B3060BDD127C68AA5E2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535012   (690715) от 04.03.2022
+###  Публикация: 1290406   (678476) от 20.03.2019
 
-Martinic - AX73 1.0.5 VSTi (x86/x64) [En]
+Х. Чойбалсан | Краткий очерк истории монгольской народной революции (1952) [DJVU]
 
->>
->>
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_690715.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678476.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В 1986 году поле синтезаторов было усеяно цифровыми технологиями. Вот почему оригинальный AX73 с его полностью аналоговым сигнальным трактом остался в гордом одиночестве незамеченным. Martinic взяли все, что было ценно в оригинальном AX73, и превратили его в мощный, гибкий программный инструмент, который отлично вписывается в модельный ряд современных синтезаторов.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534811   (690716) от 04.03.2022
-
-Immolation - Acts Of God (2022) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abandoned (1:08)
-02. An Act of God (4:04)
-03. The Age of No Light (3:39)
-04. Noose of Thorns (5:12)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D4902474ADE3FDF1314B9BCE00473DA76FFF924
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534933   (690717) от 04.03.2022
-
-Batteries 2.2.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отслеживайте заряд батарей всех ваших устройств с вашего Mac. Получайте уведомления, когда им нужна подзарядка. Поддерживает iPhone, iPad, AirPods и устройства Bluetooth.Тип издания: macOS SoftwareРелиз состоялся: 04.03.2022Разработчик: © 2022 Rony FadelПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7DCA65848221FC9C86E73F05C1A5020F5E8634F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534834   (690718) от 04.03.2022
-
-Колибри - Манера Поведения (1991) Remastered, 2022, Колибри [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690718.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро (Remastered 2022)
-2. Тропическая птица (Remastered 2022)
-3. Американская жена (Remastered 2022)
-4. Фудзи (Remastered 2022)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B039E660E334CDC54441E48C21356A33C6AD6C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535013   (690719) от 04.03.2022
-
-Comic Life 3 v3.5.19 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Comic Life - великолепное приложение, с помощью которого можно создавать комиксы и сюжеты, используя личные фотографии или рисунки.
-Взгляните по-новому на свои фотографии из различных путешествий - приложение Comic Life поможет вам создать и красиво оформить собственную историю с эффектами из комиксов. Удивите своих друзей нестандартным оформлением. Стоит отметить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2022Разработчик: © 2005-2022 plasq LLCПоддерживаемая ОС: macOS 10.10.3+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F62CF145BE8226A82A58B1ABB8B97BD8E2C47316
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534966   (690720) от 04.03.2022
-
-Ирина Фельдман | Академия драконьих всадников (2022) [MP3, Екатерина Попова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебют Ирины Фельдман с книгой «Академия драконьих всадников» – событие в серии «Академия магии». Увлекательное приключение, в котором тесно сплелись уроки в академии, драконы и оборотничество, не оставит читателя равнодушным.
+Настоящая работа маршала Чойбалсана представляет собой краткий очерк истории монгольской народной революции, в результате которой монгольский народ под руководством народно-революционной партии сбросил власть феодалов и иноземных колонизаторов и встал на путь строительства народно-демократического государства.
 
-Попасть в Королевскую академию драконьих всадников – большая удача. Но ведь не в качестве дракона! Теперь я питомец-компаньон нерадивого студента, (   Читать дальше...   )Жанр: Магические академии, Фэнтези про драконовПродолжительность: 10:11:31
+Борясь за свободу и независимость монгольского народа, (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AE93881039053C328EE841029420799877BF811
+magnet:?xt=urn:btih:FA090C34F744AEC83CAADAB09B6528AA1A4BF2A7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534864   (690721) от 04.03.2022
+###  Публикация: 1290575   (678477) от 20.03.2019
 
-Permute 3 v3.8.8 [Multi/Ru]
+Third Party - Together (2019) [MP3|320 Kbps] <Progressive House>
 
->>Архив торрентов
->>Архив 4Apple
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690721.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678477.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 03.03.2022Разработчик: © 2022 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+01. Higher
+02. Free
+03. Remember
+04. Together(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:38:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B6D1C9C6AA2AC08976FE8D98FD74654345E6977
+magnet:?xt=urn:btih:C093CDBA6D55F4D79988B57D250F8E76D6AE588A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534871   (690722) от 04.03.2022
+###  Публикация: 1290576   (678478) от 20.03.2019
 
-SFTP Commander 2.3 [Multi]
+Журнал | AD / Architectural Digest [France] №3-4 (март-апрель 2019) [PDF] [Fr]
 
->>
->>
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_690722.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678478.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SFTP Commander — это приложение для передачи файлов с легким, но очень функциональным пользовательским интерфейсом, вдохновленным веб-браузерами. Поэтому у него есть адресная строка, кнопки «назад» и «вперед», а также управление закладками и историей просмотров. Все, что вам нужно для использования FTP/SFTP в macOS. Приложение хорошо интегрировано с операционной (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.03.2022Разработчик: © 2019-2022 Marcin LabenskiПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Английский и др.
+Ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов. За долгие годы завоевал репутацию законодателя интерьерной моды, сформировал вкусы нескольких поколений, источник вдохновения в искусстве создания идеального жизненного пространства.Жанр: Дизайн, архитектураФормат: PDF
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:4FA6E877540C758CEBDF7CFA0CF7FF19B60E7187
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534825   (690723) от 04.03.2022
+###  Публикация: 1290480   (678479) от 20.03.2019
 
-Serious Black - Vengeance Is Mine (2022) [FLAC|Lossless|image + .cue] <Power Metal>
+Last In Line - II (2019) Japanese Edition [FLAC|lossless|image + .cue] <Heavy Metal, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690723.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678479.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rock With Us Tonight
-02. Out Of The Ashes
-03. Fallen Hero
-04. Senso Della Vita(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:52:44
+01. Intro (01:03)
+02. Black Out The Sun (03:55)
+03. Landslide (04:57)
+04. Gods And Tyrants (04:57)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:56:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F171BBEAD1AB579C6C749B0587128F9FD7D0C875
+magnet:?xt=urn:btih:01BA3F827230198190278882C38D17D91C8CF5E1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534964   (690725) от 04.03.2022
+###  Публикация: 1290287   (678480) от 20.03.2019
 
-uDock 3.0 [En]
+VA - YR Best Chillout vol.42 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 
->>Архив торрентов
->>Архив 4Apple
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690725.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-μDock - это легкое системное расширение для вашего Mac.Тип издания: macOS SoftwareРелиз состоялся: 28.02.2022Разработчик: © 2022 by Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+001. Adler District - The Demons Of My Soul (Original Mix)
+002. AK & SubLab - Isolated (Original Mix)
+003. Alan Walker - Faded (Anton Melody remix)
+004. Alex Spite - Atmosfera (Original Mix)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 06:53:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FDD6B0AD3F4E2A7E627C6215DE09FC3B7B3B8CF0
+magnet:?xt=urn:btih:BEC3AE9788ABA7AF25765933D66797A6B36951A3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535002   (690727) от 04.03.2022
+###  Публикация: 1290434   (678481) от 20.03.2019
 
-Color UI 2.2.2 [Multi]
+Lakker - Época (Epoca) (2019) R & S Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
 
->>Архив торрентов
->>Архив 4Apple
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690727.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678481.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Color UI — это приложение для изучения ярких цветов и преобразования их в различные форматы. Специально для нужд дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 03.03.2022Разработчик: © 2016–2022 IXEAUПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Испанский и др.
+01. Shoulder to the Bat (04:21)
+02. 100 Bar (03:02)
+03. Nest (03:19)
+04. A Juggling of Numbers (05:07)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:37:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27C8552288311E59787EACE10C9FAB570EEF9644
+magnet:?xt=urn:btih:DA08AF10B354781549A4A0C0F147B19DEB42908C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534965   (690729) от 04.03.2022
+###  Публикация: 1290368   (678482) от 20.03.2019
 
-Aspect Ratio X 2.1.3 [Multi/Ru]
+American Football - American Football (LP3) (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 
->>
->>
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_690729.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678482.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Aspect Ratio X - калькулятор для расчёта соотношения сторон, разрешения экрана, прост в использовании с дружественным интерфейсом.Тип издания: macOS SoftwareРелиз состоялся: 03.03.2022Разработчик: © 2016–2022 IXEAUПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и др.
+01. Silhouettes (07:22)
+02. Every Wave to Ever Rise (feat. Elizabeth Powell) (05:54)
+03. Uncomfortably Numb (feat. Hayley Williams) (04:10)
+04. Heir Apparent (05:53)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:47:16
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:29ADC4C4847F8CE4B780E93859286BCCA1211EA6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534859   (690731) от 04.03.2022
+###  Публикация: 1290292   (678483) от 20.03.2019
 
-MaxCommander 2.4.1 [Multi]
+Susie Arioli Band - Live At The Montreal International Jazz Festival (2006) Justin Time [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690731.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678483.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MaxCommander - это все, что вам нужно для управления файлами на локальных дисках и удаленных файловых серверах. Приложение поддерживает следующие операции:
-• Просмотр папок
-• Предварительный просмотр файлов с помощью QuickLook
-• Редактирование файлов(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.03.2022Разработчик: © 2010-2022 Marcin LabenskiПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Английский, Немецкий и Польский
+01. Pennies from Heaven [4:16]
+02. If Dreams Come True [2:49]
+03. Honeysuckle Rose [4:19]
+04. He's Funny That Way [3:33](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:326265C6A713A82CB5A4B153D39797A3D46B48F2
+magnet:?xt=urn:btih:D9CABA8928CBCA560C540CF76F68F2A66DD25727
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534627   (690733) от 04.03.2022
+###  Публикация: 1290420   (678484) от 20.03.2019
 
-VA - Spiritual Spa, Vol. 4 (2022) [AAC|~299 Kbps] <Downtempo, Balearic, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jens Buchert - Sphere Wizard (Original Mix) (4:05)
-02. Lemongrass - Dream Zone (Original Mix) (4:12)
-03. Focusal - Ancient Times (1:31)
-04. Lemongrass - Wormhole (Original Mix) (1:54)(   Читать дальше...   )Жанр: Downtempo, Balearic, Chill OutПродолжительность: 01:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86C6433298454BDE581BA44B41BDC2F8D4E91689
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534867   (690735) от 04.03.2022
-
-Nightrage - Abyss Rising (2022) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+Pallbearer - Heartless (2017) [FLAC|Lossless|tracks + .cue] <Doom Metal, Progressive Metal, Epic Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690735.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678484.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Abyss Rising
-02. Swallow Me
-03. Nauseating Oblivion
-04. Dance Of Cerberus(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:59
+01. Saw the End (6:22)
+02. Thorns (5:25)
+03. Lie of Survival (8:26)
+04. Dancing in Madness (11:47)(   Читать дальше...   )Производство: Profound Lore / Nuclear Blast - 27361 39460Жанр: Doom Metal, Progressive Metal, Epic Doom MetalПродолжительность: 01:00:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E775B5B1CBF91C2DAA3EB8CED0EDA3FEE710FE94
+magnet:?xt=urn:btih:75495FFCFCCAA1A8E62796C6C65D700ACC391DB9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534980   (690737) от 04.03.2022
+###  Публикация: 1290501   (678485) от 20.03.2019
 
-Бенедикт Сарнов | Юра Красиков творит чудеса (2022) [MP3, Александр Воробьев]
+Dizzy Gillespie All-Star Groups & Big Band - Four Classic Albums (1954 - 1957) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690737.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678485.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Академик Красиков разработал удивительное вещество, которое может наделить человека сверхспособностями. И по недосмотру оставил экспериментальный образец дома. Конечно же, сын учёного не смог устоять перед соблазном — Юра одним глотком осушил колбу и тут же принялся удивлять окружающих чудесами. Но такое увлекательное занятие может, оказывается, натворить много бед… (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 02:45:11
+CD1:
+01. Be Bop [12:51]
+02. Wee [8:30]
+03. Dark Eyes [12:10](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 02:38:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70E9649B8B11218570131186310E270485D17C6A
+magnet:?xt=urn:btih:0E823ABCD930B691CCBCBC5216DF0A03AA63875E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290414   (678486) от 20.03.2019
+
+Dale Cooper Quartet & The Dictaphones - Metamanoir (2011) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Ambient, Dub>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Une Petit Cellier
+02. Eux Exquis Acrostole
+03. Ma Insaisissable Abri
+04. Sa Prodigieux Hermitage(   Читать дальше...   )Производство: Denovali Records – den110Жанр: Dark Jazz, Ambient, Dub, Doom JazzПродолжительность: 01:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94EF895807B6B5AF2008553B09EA0DF83F35340
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290533   (678487) от 20.03.2019
+
+Jonathan Coulton - Some Guys (2019) [FLAC|Lossless|tracks + .cue] <Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sister Golden Hair
+02. On and On
+03. Alone Again (Naturally)
+04. The Things We Do for Love(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 00:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90050BAB5073424765FC031DA9D0B9AAB352F32B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290289   (678488) от 20.03.2019
+
+Susie Arioli - Spring (2015) Spectra Musique [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loverboy [3:56]
+02. Mean to Me [4:22]
+03. Dearest Darling [3:54]
+04. Can't Say No [3:25](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171DE8FA54477F8180ECF3AADCC9961CB1A445C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290180   (678489) от 20.03.2019
+
+Владимир Файнберг | Завтрашний ветер (1970) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теперь, когда всё кончилось и я снова живу в посёлке вместе со своей мамкой, я решил рассказать про всё, что случилось.
+Моя лодка всё так же стоит на реке под кручей. Я опять ловлю рыбу и продаю её на базаре. Но делать всё это мне теперь совсем тошно.
+
+Как только я забираюсь в лодку и отчаливаю от берега, я сразу вспоминаю, как на корме рядом со мной сидел тот человек (   Читать дальше...   )Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFCBFE0AE09C9FA9BDE9DFE9E4CCC3722A65D456
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290319   (678490) от 20.03.2019
+
+Maps & Atlases - Lightlessness Is Nothing New (2018) [FLAC|Lossless|tracks + .cue] <Rock, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fear (00:03:13)
+02. Fall Apart (00:03:53)
+03. Ringing Bell (00:03:50)
+04. Violet Threaded (00:03:39)(   Читать дальше...   )Жанр: Rock, IndieПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B7B2416FFD8EEA183C6239B14E893E515FA856
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290179   (678491) от 20.03.2019
+
+Халина Снопкевич | 2x2=мечта (1969) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть современной польской писательницы Халины Снопкевич рассказывает о жизни варшавских старшеклассников — об их дружбе, трудностях и заблуждениях, мечтах о будущем, первых самостоятельных шагах.
+
+С большой наблюдательностью и знанием жизни современной школы рисует автор своих героев: девятиклассницу Людку Бальвик, живую и искреннюю, мечтающую стать знаменитым (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E25E620FB7FB5494A03ACBF330C1B46EA2E696F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290315   (678492) от 20.03.2019
+
+Martha - Love Keeps Kicking (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart is Healing (03:08)
+02. Sight for Sore Eyes (03:45)
+03. Into This (03:11)
+04. Wrestlemania VIII (01:48)(   Читать дальше...   )Жанр: Indie Rock, PunkПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8768ED44116BF6361A8813A72B69D4750E619979
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290288   (678493) от 20.03.2019
+
+Susie Arioli - Christmas Dreaming (2010) Spectra Musique [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have Yourself a Merry Little Christmas [4:10]
+02. Winter Wonderland [2:54]
+03. Blue Christmas [3:17]
+04. Call Collect on Christmas [3:37](   Читать дальше...   )Жанр: Vocal Jazz, ChristmasПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAAD99AE648F5A52D5765B9B03F8E40B8D3E3E33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290389   (678494) от 20.03.2019
+
+Phronesis - We Are All (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678494.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. One for Us (09:02)
+2. Matrix for D.A. (07:05)
+3. The Edge (05:57)
+4. Emerald Horseshoe (05:30)(   Читать дальше...   )Жанр: Jazz, Contemporary JazzПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2958B3CEB5CFB1BED0D410CDD18915FBFB8232D5
 ```
 
 

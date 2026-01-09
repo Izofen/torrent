@@ -1,3 +1,307 @@
+###  Публикация: 992428   (900906) от 02.03.2016
+
+Ryuichi Sakamoto, Alva Noto & Bryce Dessner - The Revenant / Выживший (2015) [MP3|128-256 кб/с] <ost, score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alva Noto & Bryce Dessner - Hawk Punished (02:15)
+02. Bryce Dessner - Imagining Buffalo (02:41)
+03. Bryce Dessner - Looking for Glass (02:52)
+04. Ryuichi Sakamoto - Arriving at Fort Kiowa (01:23)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9487F1838B0112A77ED2C62D6129BFD6B77162C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 866293   (900979) от 09.02.2015
+
+Michael Giacchino - Восхождение Юпитер / Jupiter Ascending (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Digging Up The Flirt (02:24)
+02. A Wedding Darker (06:08)
+03. Regenex Is People! (03:23)
+04. The Lies Have It (02:23)
+05. It's A Hellava Chase (08:14)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 01:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22F384DEFB83D7EA7AC7EB5D3550C805ADBAD99F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 867779   (901039) от 09.02.2015
+
+John Carpenter - Lost Themes (Deluxe) (2015) [FLAC|Lossless|WEB-DL]<Soundtrack, Ambient>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vortex (4:44)
+02. Obsidian (8:24)
+03. Fallen (4:44)
+04. Domain (6:33)(   Читать дальше...   )Жанр: Soundtrack, AmbientПродолжительность: 01:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE02309A8ABC3A2F912C629728775DAE6445D89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099996   (901314) от 03.02.2017
+
+Vicente Amigo - Apasionadas Cuerdas del Alma (2015) [FLAC|Lossless|image + .cue] <Flamenco, Acoustic, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bolero A Los Padres (4:23)
+02 - Campos De San Gregorio (4:23)
+03 - Bolero a Marcos (5:40)
+04 - Rio De La Seda (9:43)(   Читать дальше...   )Жанр: Flamenco, Acoustic, GuitarПродолжительность: 01:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C881B6FD91BF013D89073CC49B0F9C24407DA2A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 867186   (901369) от 09.02.2015
+
+VA - Ешь богатых / Eat the Rich (1987) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Motorhead - Eat The Rich
+02. Simon Brint - Terrorists
+03. Motorhead - Built For Speed
+04. Danny Eccleston - Nosher In The Bar(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D04A1F19936D29B538B65D58510C7BADA9230B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100007   (901397) от 03.02.2017
+
+Wychazel - In Search of Lemuria (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Hidden World [00:11:48]
+02. Sands of Time [00:10:56]
+03. The Crystal Path [00:08:52]
+04. Lemuria [00:10:40](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE8171BB1499E16E71F98C9893DCF7533EAF63CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100093   (901482) от 03.02.2017
+
+VA - Acoustic R&B Chill Playlist. Eighteen Smooth and Chilled Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Cry Me a River
+02. Olivia Keast - Every Breath You Take
+03. Ginnie - I Can't Make You Love Me - Acoustic Version
+04. Hannah Dorman - Hurts(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:09:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2CB32F32045DE2043605D9A013341CB3F47CBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099985   (901581) от 03.02.2017
+
+Jamie McMenamy - Oceanlands (2017) [MP3|320 Kbps] <Ambient, Downtempo, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rising Oceans 06:20
+02. Aquata 07:31
+03. Song of Frogs 05:12
+04. Call from the Forest 06:05(   Читать дальше...   )Жанр: Ambient, Downtempo, RelaxationПродолжительность: 00:54:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC559B99538010E53478CBF9F7B3DC3C8DB4AB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369447   (901708) от 24.03.2020
+
+VA - Ethnic Music...indians, Dreams, Visions (2012) 2CD [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nazca - Mother Earth
+02. Nazca; Wayra Rodriguez - Vision
+03. Nazca; Wayra Rodriguez - Circle of Friendship
+04. Indians - Sunrise(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 03:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33643B10116402B9943898F98A22BDED8702A3E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 182214   (902017) от 12.03.2010
+
+Начало Века - 2 albums (2004/2007) [FLAC|Lossless]<Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Этнограмма Vol.1 (0:30)
+02 Заря (3:44)
+03 Улетаю (2:42)
+04 Река (4:09)
+05 Надя (4:01)
+06 Офицерики (3:49)
+07 Плывет Челн (3:18)
+08 Этнограмма Vol.2 (0:29)
+09 Встреча (4:59)
+10 Жинка (3:45)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:55:03
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991929   (902336) от 01.03.2016
+
+VA - Romantic Collection - Aria & Mystique (2000) 2CD [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902336.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aria Arianna (05:04)
+2. Anitime Anywere (03:17)
+3. Ave Maria (03:51)
+4. L' Amour Est Un Oiseau Rebelle ''Carmen'' (02:51)(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C45682BA02C4D3D020419C516CD5DE726D0EE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992168   (902692) от 01.03.2016
 
 VA - Impressions Of Native America (2001) [MP3|320 кб/с] <Native american, Ethnic, Folk, New Age>
@@ -409,315 +713,6 @@ Jean Michel Jarre - Zoolook (1984) [FLAC|Lossless|tracks + .cue] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEA1AB138C2085D6C486AAA039662D97A8C71698
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 293096   (904826) от 08.02.2011
-
-VA - Музыка французского кино. Избранное / La Musique Du Cinema Francais (2005) [MP3|320 kbps]<OST / Instrumental>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: OST / InstrumentalПродолжительность: 01:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F61D5211363BA958AA4C34E606E532238D8817B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 181255   (904858) от 10.03.2010
-
-Sigur Ros - Дискография (18 альбомов) (1997-2009) [FLAC|Lossless]<Post-rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - Hoppipolla
-02 - Inni Mer Syngur Vitleysingur
-03 - Saeglopur
-04 - Gobbledigook
-05 - I Gaer
-06 - Fljotavik
-07 - Hafsol
-08 - Heysatan
-09 - Ti KiЖанр: Post-rock
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099102   (904879) от 01.02.2017
-
-David Arnold & Michael Price - Sherlock  - The Final Problem (2017) OST Sherlock season 4 [FLAC|Lossless|tracks] <OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Stranger [02:39]
-02. 59 Missed Calls [01:53]
-03. Murder This Time [04:01]
-04. Absolute Trust [04:44](   Читать дальше...   )Жанр: OSTПродолжительность: 00:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5D2D0FDCF673D82A6E31FDB6140D86AFF29405B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 865218   (904890) от 07.02.2015
-
-Sub Pub Music - Submersive (2014) [MP3|320 кб/с]<Trailer Music>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Han Dure The Sailor [01:16]
-02. Submersive [01:30]
-03. Follow Your Path [01:28]
-04. Solitude [01:28]
-05. In Too Deep [02:04](   Читать дальше...   )Жанр: Trailer MusicПродолжительность: 00:26:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D91F893CF66189287AF3ECEA734A0F406BA38A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 181911   (904966) от 10.03.2010
-
-VA - The Best Of Cafe Del Mar - Compiled By Lahud (2009) [MP3|320 kbps]<Easy Listening/Lounge/Jazz/Lo-Fi>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Easy Listening/Lounge/Jazz/Lo-Fi
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368584   (905075) от 22.03.2020
-
-Various - Dali Stereo Demonstration CD (2002) [FLAC|Lossless|image + .cue] <Jazz, Pop, Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Henry Mancini - Pink Panther
-02. Nils Lofgren - Keith Don't Go
-03. Hugh Masekela - Stimela
-04. Ben Webster - Gentle Ben(   Читать дальше...   )Жанр: Jazz, Pop, RockПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DABF018BC7AAA75901473E7649435791627E589
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369055   (905095) от 22.03.2020
-
-VA - Kontor Top Of The Clubs: Electric 80s Vol.2 (2020) [MP3|320 Kbps] <Pop, Electronic, Dance>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alphaville - Sounds Like A Melody 4:46
-02. Tears For Fears - Shout (U.S. Single Version) 4:54
-03. Howard Jones - What Is Love 3:38
-04. Bananarama - Cruel Summer 3:35(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 07:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A390B13CE43E82BBA18B8994AE8A5228B847FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368373   (905251) от 22.03.2020
-
-Apache Dream & Enrique Camac - Native American Music (2012) [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axtu Leman Sumix
-02. Yhea Noha
-03. Love Mountain
-04. Dawa (the Cradlesong)(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07E2BD21E250C30700DC6DF4634D1A01F16368D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 292786   (905267) от 08.02.2011
-
-Planetary Heart - Journey To The Cosmos (2005) [MP3|320 kbps]<New age, Relax, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(7:46) 01. A Higher Calling
-(7:55) 02. Arcturian Stargate
-(4:11) 03. Dance of the Sprites
-(6:32) 04. Communion
-(5:53) 05. Mystical River of Thought
-(5:24) 06. Inner Radiance
-(3:08) 07. Awakening to the New
-(4:47) 08. Heart Dance
-(6:39) 09. Fifth Density
-(6:39) 10. Moving to the Light(   Читать дальше...   )Жанр: New age, Relax, InstrumentalПродолжительность: 01:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079B05CE80C22C7CD5CF399766F82CF8F1CCB13E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 759977   (905296) от 23.02.2014
-
-Carol Tornquist - Christmas Angels (1995) [FLAC|Lossless]<New Age, Christmas>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Angels From the Realms of Glory / Angels We Have Heard on High (5:38)
-02. While Shepherds Watched Their Flocks (2:13)
-03. O Come All Ye Faithful (3:56)
-04. Thou Didst Leave Thy Throne (2:56)
-05. Of the Father's Love Begotten / Infant Holy, Infant Lowly (3:34)
-06. O Holy Night (4:24)
-07. What Child is This (3:32)
-08. The First Noel (3:42)
-09. It Came Upon the Midnight Clear / Still, Still, Still (3:45)
-10. Hark, The Herald Angels Sing (3:15)(   Читать дальше...   )Жанр: New Age, ChristmasПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:450EE156FA9D9271F09E3C9F4B534AFF0AAFE419
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369060   (905386) от 22.03.2020
-
-Leonard Cohen - The Future (1992) [FLAC|Lossless]<Contemporary folk, Soft rock, Singer/Songwriter>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.   The Future   (6:43)
-02.   Waiting for the Miracle   (7:43)
-03.   Be for Real   (4:32)
-04.   Closing Time   (6:01)(   Читать дальше...   )Жанр: Contemporary folk, Soft rock, Singer/SongwriterПродолжительность: 00:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6281AA7D7C7CC9C8FE2BDE851CEB999416D0E43D
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1213802   (767361) от 18.03.2018
+
+VA - Empire Records - First Disco (2018) [MP3|320 Kbps] <Disco, Chillout>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ely Bruna - Found Love
+02. Seven24 & Soty - Style Night (Original Mix)
+03. Childish Gambino - Terrified (Zikomo Remix)
+04. John Milk - Treat Me Right(   Читать дальше...   )Жанр: Disco, ChilloutПродолжительность: 01:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9D7EA74F2CCB67FD6B70CC8B2ECF22A19AF0FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213677   (767363) от 18.03.2018
 
 VA - The Official UK Top 40 Singles Chart 16.03.2018 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -664,33 +691,6 @@ VA - DJ Feel: TOP 30 Of March (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:871B3A9F5A73E1834596A314E3F69BD2C320F6CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125585   (768096) от 15.04.2017
-
-VA - Visual Image: Extended Trance Mix (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768096.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Above & Beyond - A.I. (Original Mix) 06:29
-002. Manuel Rocca - Against The Wind (Braulio Stefield Remix) 07:36
-003. Lignum - Our Destination (Radio Edit) 03:12
-004. Above & Beyond, Justine Suissa - Little Something (Super8 & Tab Remix) 06:11(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 09:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1FEA5762FE3BFA061E561D00BB9B67A5797B50C
 ```
 
 

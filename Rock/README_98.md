@@ -1,3 +1,57 @@
+###  Публикация: 1446726   (1032566) от 10.02.2021
+
+Artnat - The Mirror Effect (2021) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riding The Edge Of Darkness (05:15)
+ 02. Eternal Dance Of Love (05:54)
+ 03. Return to OM (14:01)
+ 04. From Chaos To Beauty (03:51)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 001:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37058EDEF9B50509B6B8FCB4123F6847AB4D8163
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446621   (1032588) от 10.02.2021
+
+WinaSchnitzel - In The Light (2020) [MP3|320 Kbps] <Prog Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Void (00:58)
+ 02. Run (03:03)
+ 03. Out of Order (03:39)
+ 04. Waiting (Intro) (01:19)(   Читать дальше...   )Жанр: Prog Folk RockПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D39A81CAB2B27DD3A7E12F0315E09C4525ADDED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446486   (1032752) от 09.02.2021
 
 Fernando Perdomo - Trgtr: The Music of Todd Rundgren (2021) [MP3|320 Kbps] <Crossover Prog. Rock>
@@ -641,60 +695,6 @@ Fee Waybill - Fee Waybill Rides Again (2020) [MP3|320 Kbps] <Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA71699BB5D95ADECF7E72FCCD11FB6FCCBB1097
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614282   (1038595) от 22.02.2023
-
-Rick Miller - Altered States (2023) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038595.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Altered States (10:00)
-2. New Moon Prelude (2:45)
-3. Wolf Moon (9:42)
-4. Borrowed Time (8:51)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEBE7C39E928BF2092080DB8B04475A3820CDE02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614280   (1038784) от 21.02.2023
-
-VA - Romantic Collection '2000. Metal Ballads (2000) [OGG Vorbis|480 Kbps] <Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Royal Hunt–	Follow Me
-02.	UDO–	Azazel
-03.	Rage–	All This Time
-04.	Iced Earth–	Conserequences(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 01:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F88D5D9663305B9EA0DB60465E4281AED88E99EF
 ```
 
 

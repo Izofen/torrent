@@ -1,3 +1,30 @@
+###  Публикация: 1291913   (648843) от 28.03.2019
+
+B. Fleischmann - Stop Making Fans (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Comes The A Train
+02. You're The Spring
+03. We've Heard The Talking Heads Talking
+04. There Is A Head(   Читать дальше...   )Жанр: Electronic, Pop, Indie PopПродолжительность: 01:07:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7A99464265331D8BFBED0B99E0BD1B9AF7BC6C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291971   (650605) от 27.03.2019
 
 VA - Die Grobe 4 Cd Party Box (1999) Box Set, 4CD, Compilation [FLAC|Lossless|image + .cue] <Rock, Funk, Soul, Pop>
@@ -667,33 +694,6 @@ Shakira - El Dorado (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4308CC023328717E4B6658763845EF47E862E24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537506   (667835) от 16.03.2022
-
-VA - Spring Hits 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tame Impala - Eventually (5:18)
-02. Glass Animals - Heat Waves (3:58)
-03. Sean Paul - No Lie (3:41)
-04. Elton John - Cold Heart (PNAU Remix) (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39F79A18FB470249B9E8355054A4C7213105700E
 ```
 
 

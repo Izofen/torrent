@@ -1,3 +1,164 @@
+###  Публикация: 1358808   (967433) от 09.02.2020
+
+VA - Live @ Transcend 7th Birthday, Club Reina London, United Kingdom 2020-02-01 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daniel Skyver:
+01. Alex Di Stefano - Escape From The Past (Skyver intro edit)
+02. Cirez D - In The Reds
+03. Ruben de Ronde & PROFF feat Deirdre McLaughlin - Fade Away With Me (Key 4050 remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D292BBF66BDBEC29EA940EBD7AF6B47C6D17AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358653   (967500) от 09.02.2020
+
+Rupesh Cartel - Death With Soft Names (2005) [FLAC|Lossless|image + .cue] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967500.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Death With Soft Names (Extended) 7:28
+2 Yours To Command (Extended) 6:21
+3 Nowhere Fast (Extended) 6:40Жанр: Synth-popПродолжительность: 00:20:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7695FB48D706625BBDB0D92FDB37481F37A75AF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 863215   (967662) от 19.01.2016
+
+DJ S.I.D.R. - Keep It Ob'ecore Podcast # 1-20 (2013-2015) [MP3|320 кб/с]<Happy Hardcore, Hardcore, Rave>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Prospect - I Just Wanna Feel (UK Hardcore Edit)
+02. Re-Con & Demand ft. Mandy Edge - I'm Sorry (Original Mix)
+03. Eufeion & Patch - Crash
+04. UniqForm - Oooo Fuck(   Читать дальше...   )Жанр: Happy Hardcore, Hardcore, RaveПродолжительность: 23:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCED436A21C0C87E465DBBB4ED5454FCE4B3CF6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985564   (968505) от 08.02.2020
+
+Iszoloscope - Discography 18 Releases (2001-2019) Ant-Zen [FLAC|Lossless|tracks+.cue, tracks] <Industrial, Rhythmic Noise, Dark Ambient, Breakcore, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something Wicked This Way Comes (06:11)
+ 02. The Apocryphal Market (Merchants Of Babel Remix By Manufactura) (06:42)
+ 03. Unearth Me (Iszoloscope Remix) (04:42)
+ 04. -28°C And Falling (Pummeled Sweating Testies Mix By Caustic) (04:07)(   Читать дальше...   )Тип издания: CD, Vinyl, WebЖанр: Rhythmic Noise/Industrial/Breakcore/AmbientПродолжительность: 15:26:47 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D66E861079F7DE8D16C8611716E6B4008093B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040547   (968566) от 08.02.2020
+
+VA - Ambient Diary (One, Two, Three) (1997-2000) Elektrolux [FLAC|Lossless|tracks+.cue] <Ambient, IDM, Downtempo, Techno Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soehngenetic - Schwimmschleifer (04:53)
+ 02. Dron - Pheon (11:15)
+ 03. Ruxpin - Flying (06:06)
+ 04. Quantum Leap - Scope (05:07)(   Читать дальше...   )Тип издания: CD, CompilationЖанр: Ambient, IDM, Downtempo, Techno Ambient •Продолжительность: 06:52:38 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BC857B10AE655CC410616EEF4D46F952BC21833
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358115   (968628) от 08.02.2020
+
+Soulware - All That Binds Us - Rua (2018) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Down beat, Dub, Dubstep>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let the Moment speak (06:21)
+02. Boundaries (07:34)
+03. The Light at the end of the Tunnel (06:28)
+04. The White Rabbit (02:10)(   Читать дальше...   )Жанр: Down beat, Dub, DubstepПродолжительность: 00:31:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365F6AD6F725492FBCFC8784CC8DA304FF78E6EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222943   (968696) от 08.02.2020
 
 Tell - Discography 6 Releases (2014-2018) [FLAC|Lossless|tracks] <Deep House, House, Downtempo, Tech House>
@@ -552,174 +713,6 @@ VA - Deep House Hits 2020 [FLAC|Lossless|WEB-DL|tracks] <House, DeepHouse, Progr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47D848946AB39ECC6BFB7684F1312A29A0A1061F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975882   (970660) от 16.01.2016
-
-VA - Spanish Hits For Germany - CD1: House Side (1997) [APE|image+.cue] <House, Hard Trance, Happy Hardcore, Makina>
-
->>Electronic
->>Hardstyle, Jumpstyle, Hardcore (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970660.jpg" />
-</div>
-
-
-###  Подробнее
-
-House Side (CD1)
-1-01	–Object One	Ping Pong (Happy House Mix)
-1-02	–A.D. Control	Mind Control (Original Mix)
-1-03	–Polaris (2)	Polaris (Remix)(   Читать дальше...   )Жанр: House, Hard Trance, Happy Hardcore, MakinaПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE32E80A2034A9F9ACD0E20894E8F360FD8C8AE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358168   (970739) от 06.02.2020
-
-Turboslash - Speed (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Darksynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far Away (3:42)
-02. MEGADRIVE Overdose (3:35)
-03. RoadRage (3:31)
-04. GodMode Domination (3:47)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DarksynthПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A09F40157286F8D24920C7A7895F82141EDC46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976037   (970865) от 16.01.2016
-
-Madonna - Bitch I’m Madonna (2015) [FLAC|Lossless|tracks] <Electronic, House, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970865.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. - Bitch I'm Madonna (Fedde Le Grand Remix) (03:56)
- 2. - Bitch I'm Madonna (Rosabel’s Bitch Move Mix) (07:06)
- 3. - Bitch I'm Madonna (Sander Kleinenberg Remix) (04:59)
- 4. - Bitch I'm Madonna (Junior Sanchez Remix) (05:11)(   Читать дальше...   )Жанр: Electronic, House, Electro HouseПродолжительность: 00:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7FE2C82397CD7ED531457D42B5DB16EF68A09CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615604   (970893) от 13.02.2013
-
-Mflex - Kidnap My Soul (2013) [MP3|320 кб/с]<Nu italo disco, Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Brain Attack
-02 - Broken Vision
-03 - Chinese Forces Return
-04 - Critical Condition 2nd Act
-05 - Brand-new Horizon
-06 - Drenched (Mflex remix) (feat. Wanting)
-07 - Mysterious Space (remake)
-08 - Fear Of Outer Space
-09 - Temple Of Dreams
-10 - Sparkling Desire(   Читать дальше...   )Жанр: Nu italo disco, Synthpop, New WaveПродолжительность: 02:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2245A6E2C2EDA42C91760F1293FDD5A454811A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357630   (971918) от 05.02.2020
-
-Davey Suicide - Discography 9 Releases (2012-2020) [MP3|320 Kbps] <Industrial Metal, Industrial Rock>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971918.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012 - Generation Fuck Star (Single)
-2012 - Put Our Trust In Suicide (EP)
-2013 - Davey Suicide
-2014 - World Wide Suicide(   Читать дальше...   )Жанр: Industrial Metal, Industrial Rock, Shock RockПродолжительность: 03:21:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0367002795E9B204B6BD66C6BFF718B9D4AE028
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975569   (972030) от 15.01.2016
-
-Bob Sinclar, Dimitri From Paris - Knights Of The Playboy Mansion (2011) 2CD, Mixed [FLAC|Lossless|tracks + .cue] <House, Disco, Glam, Garage House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bob Sinclar - F*** The Disco (6:18)
-02. Carrie Lucas - I Gotta Keep Dancin' (Keep Smilling) (12' Mix) (5:59)
-03. Azoto - San Salvador (Original 12' Version) (3:50)
-04. John Davis & The Monster Orchestra - Love Magic (6:47)(   Читать дальше...   )Жанр: House, Disco, Glam, Garage HouseПродолжительность: 02:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D18832EADAB35B830E38A7D198C4A75A5FA2A5
 ```
 
 

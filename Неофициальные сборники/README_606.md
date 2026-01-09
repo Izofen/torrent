@@ -1,3 +1,30 @@
+###  Публикация: 990378   (912336) от 25.02.2016
+
+VA - Pure Wellness 1 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Relaxea - The Secret [09:13]
+02. The Tonal - Planet Is Alive [04:04]
+03. Q Logic - Thoughts [07:04]
+04. Heavenly Light - Guardian Angel [05:27](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1CB5188E591949D06841B822405EB79CA6ED3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097755   (912393) от 28.01.2017
 
 VA - Songbird Voices Of Romance (2017) [MP3|320 Kbps] <Jazz, Vocal, Easy Listening>
@@ -688,33 +715,6 @@ VA - Deep Uplifting Vibes (2020) [MP3|320 Kbps] <Uplifting, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D05F49767A8478817ABF09A194C21093E8680EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367698   (914017) от 17.03.2020
-
-VA - Robins Elegant Set (2020) [MP3|320 Kbps] <EDM, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914017.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Electrobongo - Sweet Brown (Original Mix)
-002. Belmar - Whispers (Original Mix)
-003. Dezibel - Let's Move (Club Mix)
-004. Revealed Recordings - Raise(   Читать дальше...   )Жанр: EDM, Dance, HouseПродолжительность: 12:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D1D0EC3BA509C3C5ECF78B6E1F90732D0914F0
 ```
 
 

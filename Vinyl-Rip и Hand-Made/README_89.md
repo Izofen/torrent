@@ -1,3 +1,30 @@
+###  Публикация: 1016861   (763023) от 16.05.2016
+
+Deodato (Деодато) - Best Of Deodato (Лучшие произведения Деодато) (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763023.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Так Говорил Заратустра (Also Sprach Zarathustra)
+A2 Прелюдия к Послеполуденному Отдыху Фавна (Prelude To Afternoon Of A Faun)
+A3 Ночи в Белом Атласе (Nights In White Satin)
+B1 Голубая Распсодия (Rhapsody In Blue)(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D32EB551C11BCBD0C36EF22552F589383F76074B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017139   (763133) от 16.05.2016
 
 Marsyas - Pieces Of Favour (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Folk Rock, Acoustic>
@@ -661,33 +688,6 @@ Teruo Yoda and Moody Kings - The Season Of Love (1968) [FLAC 2.0|192/24|image +.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8BB63C9B9B6E6158E22B89E710F00C29593D927
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205785   (783180) от 11.02.2018
-
-10cc - How Dare You! (1975) [FLAC 2.0|192/24|tracks +.cue|Vinyl-Rip]  <Art-Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Dare You (4:14)
-02. Lazy Ways (4:21)
-03. I Wanna Rule the World (3:58)
-04. I'm Mandy, Fly Me (5:22)(   Читать дальше...   )Жанр: Art-Rock, Pop RockПродолжительность: 00:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84750145A44EC22BAD4D6BA8D7787118BAA22D92
 ```
 
 

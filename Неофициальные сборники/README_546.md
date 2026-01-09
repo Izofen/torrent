@@ -1,3 +1,30 @@
+###  Публикация: 1007520   (821710) от 15.04.2016
+
+VA - Ministers Of Progressive (2016) [MP3|320 кб/с] <Trance, Psy Trance, Psychedelic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Physis - Through the Looking Glass 06:30
+02. Galactic Cowboy - Windows of Soul 07:28
+03. Physis - Rising Citizens 03:27
+04. Monu - The Moonlight 06:32(   Читать дальше...   )Жанр: Trance, Psy Trance, PsychedelicПродолжительность: 02:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC617B1EB446F843753569980BF50A6A8955A6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116583   (821956) от 20.03.2017
 
 Oscar Benton - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
@@ -668,33 +695,6 @@ VA - Ты придумала счастье. Шансон для души (2016)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8E543CFDD1CBB47D65BC7D418FECBF83C864F5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007310   (823388) от 14.04.2016
-
-VA - Spring Blues (2016) 2CD[MP3|128-320 кб/с] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mable John - Your Good Thing (Is About to End)
-02. The Blues Project - Caress Me Baby
-03. Fleetwood Mac - Long Grey Mare
-04. Janis Joplin - Little Girl Blue(   Читать дальше...   )Жанр: BluesПродолжительность: 05:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:909ED560F3C9DC9E3979058EEA3031FCC3DF2733
 ```
 
 

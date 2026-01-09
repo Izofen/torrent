@@ -1,3 +1,177 @@
+###  Публикация: 912045   (614401) от 24.06.2015
+
+VA - Buddha Meditation (2015) [MP3|320 кб/с]<Lounge, ChillOut, New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Northen Extreme - More Than Words
+02. Vanity in Mind - Go Get Alice - The Walz Remix
+03. Electronivrty - A Bit of Jarre
+04. The Chakras - Inside Look(   Читать дальше...   )Жанр: Lounge, ChillOut, New AgeПродолжительность: 03:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60410EF1253501C6E779AB25B6F059E087D75654
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911692   (616058) от 23.06.2015
+
+Opii - Secrets (2015) [FLAC|Lossless|WEB-DL]<New Age, Enigmatic, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stars (05:39)
+02. Mystery Of The Seas (05:10)
+03. Remember The Stars (06:09)
+04. Calling Ghosts (Edit) (03:44)(   Читать дальше...   )Жанр: New Age, Enigmatic, ChilloutПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D5CD88D6C1EF7D554BC93347469F9AF5D5878A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146018   (616336) от 28.06.2017
+
+VA - Chill Out Music 2017: 16 Ambient Downtempo And Mellow Tracks For Chilling And Relaxation (2017) [MP3|320 Kbps] <Chillout, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Josef Babula - Pavane (Ethereal Moments Remix)  3:07
+02.  Custom 7 - Worlds Apart (Original Mix)  3:50
+03.  Bella Element - Blue Sky (Original Mix)  3:09
+04.  Nils Hahn - Opening (Ethereal Moments Mix)  3:26(   Читать дальше...   )Жанр: Chillout, Ambient, New AgeПродолжительность: 01:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC753BDBC06FD60ADB3EF79843C2D5372BA1EDB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523623   (616644) от 16.07.2012
+
+Amadeus - Discography 6CD(2002-2009) [MP3|128-192 кб/с]<Instrumental, Classical Crossover>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.El Nino
+ 02.China Boy
+ 03.Tomi's Dream
+ 04.Casablanca
+ 05.Primavera
+ 06.King of the Fairies
+ 07.Amor Perdido
+ 08.Alger
+ 09.Evolution
+ 10.BaladaЖанр: Instrumental, Classical CrossoverПродолжительность: 00:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8183C9CADAC47DCFC9140B3B4B46086E8E544929
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522968   (616990) от 16.07.2012
+
+VA - Best Of Indian's songs - The sound of indians spirit,nature and dreams (2006) [MP3|192 кб/с]<Native American Ethno, New Age, Ambient, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buffalo White - 5.20
+02. Rain Dance - 4.47
+03. Mohicans - 4.34
+04. Ly-o-lay ale loya - 5.52
+05. Five Spirits - 6.19
+06. Ananau - 5.16
+07. Sunguyman - 6.15
+08. Tatanka - 5.11
+09. Love Mountain - 5.49
+10. Dreamcatcher - 5.24Жанр: Native American Ethno, New Age, Ambient, FolkПродолжительность: 00:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7043836E30F147019EB8534E9FBA2DC57233FF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295803   (617005) от 14.04.2019
+
+Kevin Kern - More Than Words: The Best of Kevin Kern (2014) Real Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above the Clouds (5:25)
+ 02. Sundial Dreams (4:46)
+ 03. Out of the Darkness Into the Light (4:16)
+ 04. In My Life (3:29)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01809288F8C93D2A88F45E6A2D0C682A0D175D3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523557   (617109) от 16.07.2012
 
 VA - Ethnic Voices - Navahos Dreams (2005) [MP3|320 кб/с]<Native American, Ethnic, New Age>
@@ -545,174 +719,6 @@ VA - The True Nature of Happiness: 50 Calm Relaxing Music (2017) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDECC97C74805F3FD5881AA6E2AC74206CCF6E56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145076   (619829) от 26.06.2017
-
-VA - Zen Tracks Deep Inner Peace (2017) [MP3|320 Kbps] <Chillout, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mindfulness Meditation Music Spa Maestro - Zen Tracks
-02. Meditation Mantras Guru - Positive Affirmations
-03. Rebirth Yoga Music Academy - Reiki (Healing Music)
-04. Mantra Yoga Music Oasis - Healing Your Soul(   Читать дальше...   )Жанр: Chillout, Ambient, New AgeПродолжительность: 01:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C7148E40972F67867C1F3A80895102262D9F6E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295450   (620621) от 12.04.2019
-
-David Arkenstone - Pure Sleep (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620621.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Be Still  7:11
-2 The Here and Now  7:48
-3 Mindful Breathing  8:48
-4 Relax and Release  8:30(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B86C72DA9D16F03D629465B42FB1E7A84E2B65EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229996   (620889) от 09.06.2018
-
-Сергей Гримальский - Inner Space (1998) [MP3|320 Kbps] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Полёт в будущее (5:43)
-02. Молитва (2:13)
-03. Venus (6:24)
-04. Inner Space (4:23)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ABE305F41EF2474349A7248818E09CC51708052
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229871   (620962) от 09.06.2018
-
-Сергей Гримальский - West (2003) [FLAC|Lossless|image + .cue] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ветер времени (3:52)
-02. Колыбельная (3:35)
-03. Цветные сны (5:53)
-04. Золотой ангел (5:11)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:624B2755B382427AC41842620435D9C37230ADA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508866   (620973) от 14.07.2012
-
-The Guggenheim Grotto - 3 альбома [MP3|128-320 кб/с]<Folk-pop>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trust Me I'm A thief (3:56)
-02. Map of the Human Heart (3:54)
-03. Wings and Feathers (3:53)
-04. Never Before (2:54)
-05. Concentrate (5:09)
-06. Wisdom (3:35)
-07. Ruby Heart (3:33)
-08. The Spiegel Song (3:25)
-09. The Universe Is Laughing (3:07)
-10. Diamond (3:00)Жанр: Folk-popПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441CFD7A61DF7E4EBB90C446384FE0AED9D057F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036320   (621005) от 20.07.2016
-
-VA Hit Country - Hit Country (2014) [MP3|320 Kbps] <Country, Alt Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621005.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Florida Georgia Line - Get Your Shine On
-2. Kenny Chesney - Pirate Flag
-3. Carrie Underwood - Two Black Cadillacs
-4. Jasmine Rae - If I Want To(   Читать дальше...   )Жанр: Country, Alt CountryПродолжительность: 1:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:249D5DBC8C1981E711DABE1119D45E0C3AE492F5
 ```
 
 

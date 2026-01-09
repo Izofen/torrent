@@ -1,3 +1,300 @@
+###  Публикация: 1025614   (708203) от 13.06.2016
+
+Jonn Serrie - Flightpath (1989) Reissue, 1995, Miramar, BMG [MP3|320 кб/с] <Ambient, New Age, Space>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flightpath (4:35)
+02. Sky Safari (10:28)
+03. Muroc (6:46)
+04. Outreach (4:30)(   Читать дальше...   )Жанр: Ambient, New Age, SpaceПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C73CE757D09D2F8CCAF605AEBDA548B76027877C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131361   (708561) от 05.05.2017
+
+Jed Kurzel - Alien: Covenant / Чужой: Завет (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jed Kurzel - Incubation (01:07)
+02. Jed Kurzel - The Covenant (03:25)
+03. Jed Kurzel - Neutrino Burst (02:57)
+04. Jed Kurzel - A Cabin on the Lake (01:56)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0413B49AC1FE70E8B02298BACE17326B1D05F8C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131300   (708908) от 05.05.2017
+
+VA - 50 Vinyasa Chill Yoga: Healing & Relaxing Yoga Exercises (2017) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Yoga Healing Sounds Unit - Vinyasa Chill Yoga  3:57
+02.  Kundalini Yoga Group - Emotional Healing  4:01
+03.  Yoga Music Masters - Relaxing Yoga  4:02
+04.  Chakra Healing Music Academy - Basic Yoga  3:36(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 03:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4514D4B8632D8C5E2801D8D0ECC9A672196837BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131372   (708917) от 05.05.2017
+
+Jim Beckwith and Hans Christian - Be Love (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Open Me (feat. Hans Christian) 9:53
+02. Om Namah Shivaya (feat. Hans Christian) 6:14
+03. Jai Ma (feat. Hans Christian) 5:59
+04. Be Love (feat. Hans Christian) 6:56(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90824202E9EDD076ACCBA249B2464D5064726E4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894230   (708949) от 01.05.2015
+
+VA - Die Hit-Giganten: Best Of One Hit Wonder (2013) [FLAC|Lossless]<Pop, Dance, Rock, Pop-Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжаем начатую здесь серию. На очереди - Исполнители одного хита. Да уж бывает так, что всего один хит у исполнителя, но зато какой! И все его помнят. Вот и получается, что все три диска - это 100% хиты.CD1:
+01. Crazy Town - Butterfly  (3:36)
+02. Dante Thomas - Miss California  (4:09)
+03. Toploader - Dancing in the Moonlight  (3:48)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Pop-RockПродолжительность: 03:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8D26B15CDAB9E81FC2F288BFE248B56241FB0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286397   (708971) от 04.03.2019
+
+Sam Taylor - Ketteiban Sam Taylor Natsumero Best (2016) 2CD [MP3|320 Kbps] <Instrumental, Sax>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708971.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Kage Wo Shitai Te
+02. Sendou Kouta
+03. Sake Ha Namida Ka Tameiki Ka(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4060A685E62962053581E2A39A4F21A76A049D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286402   (709083) от 04.03.2019
+
+Jim Brickman - Soothe, Vol. 4: Subzero - Sounds That Spark the Senses (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starbeam (4:30)
+ 02. Cool Vibes (3:54)
+ 03. Poolside Chill (3:49)
+ 04. Drive North (3:33)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27825A2BF16276605F24D51FF5D2AD0CC908646
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286288   (711138) от 03.03.2019
+
+Бурановские бабушки - Внучка (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Иван-чай
+03. Внучка-сучка
+04. Мне снова 18(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A826178750883806A742D16CFA7CCAA7A491A8F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286729   (711188) от 03.03.2019
+
+Toby Keith - How Do You Like Me Now?! (1999) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711188.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	How Do You Like Me Now?! 	3:27
+2 	When Love Fades 	3:04
+3 	Blue Bedroom 	3:28
+4 	New Orleans 	4:11(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C609A47F216293D0BFB79E46304B942B6A66BD9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286738   (711206) от 03.03.2019
+
+Toby Keith - Greatest Hits 2 (2004) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711206.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	How Do You Like Me Now?! 	3:27
+2 	Country Comes To Town 	3:38
+3 	You Shouldn't Kiss Me Like This 	3:42
+4 	I'm Just Talkin' About Tonight 	2:45(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:963D425B830B635F8A6840EE38BF9A0B2FF328EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286736   (711283) от 03.03.2019
+
+Toby Keith - Greatest Hits Volume One (1998) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711283.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	Getcha Some 	3:16
+2 	If A Man Answers 	3:36
+3 	Should've Been A Cowboy 	3:30
+4 	Dream Walkin' 	3:56(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AD87F7878A3A3264DDD51D65BDCBD45E2D09E83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286727   (711297) от 03.03.2019
 
 Toby Keith - Pull My Chain (2001) [FLAC|Lossless|tracks + .cue] <Folk, Country>
@@ -397,303 +694,6 @@ Liquid Mind - Relaxing Rain & Ocean Mixes (2014) [FLAC|Lossless|tracks] <New Age
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F24B6113120D1E789A55D65E4D428423AE2D454B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024936   (714134) от 10.06.2016
-
-Liquid Mind - Relaxing Rain & Ocean Mixes (2014) [MP3|320 кб/с] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Joy of Quiet Rain Mix
-02. Soft Focus Ocean Mix
-03. Velvet Morning Rain Mix
-04. In Fields of Peace Ocean Mix(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B50D5D512837B0C2FFE67D04A0860F69449DE52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024867   (714139) от 10.06.2016
-
-Alex Hart - On This Day (2014) [MP3|320 кб/с] <Country, Alt Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run (4:35)
-02. Bonita (3:16)
-03. Bad Boy Bill (3:27)
-04. Keep Britain Tidy (3:42)(   Читать дальше...   )Жанр: Country, Alt CountryПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A908D7FBDFCD8DDEA46C2F3EAEBFC2E84B8C85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024869   (714143) от 10.06.2016
-
-Shannon Rae - Shannon Rae (2016) [FLAC|Lossless|tracks] <Country, Alt Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blame It on the Radio (3:48)
-02. Gotta Let Go (3:23)
-03. Beer Trucks & Girls (3:40)
-04. Gasoline (2:53)(   Читать дальше...   )Жанр: Country, Alt CountryПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E0D7B740E118A3756D9272583081AA0EDC266E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285605   (714718) от 01.03.2019
-
-Two Steps From Hell - Dragon (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unbreakable (4:17)
-02. First Contact (4:09)
-03. Bravestone (3:18)
-04. Dragon (3:44)(   Читать дальше...   )Жанр: Modern Classical, New AgeПродолжительность: 01:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD423EC8D1FC8371161FA4BDB05DDFC4E060ECC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285613   (714825) от 01.03.2019
-
-Lee Scratch Perry - The Black Album (2018) [FLAC|Lossless|tracks + .cue] <Dub, Roots Reggae>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Brown in Town (04:28)
-02. Mr. Brown Dub (04:11)
-03. Trendsetter (04:18)
-04. Trendsetting Dub (04:17)(   Читать дальше...   )Жанр: Dub, Roots ReggaeПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B1E758CF8FAE5E5A3A493688965088F17847B58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285689   (714910) от 01.03.2019
-
-Meditation Music Zone & Ensemble de Musique Zen Relaxante - Bouddha 2019: Bar, lounge, méditation [FLAC|Lossless|WEB-DL|tracks] <Meditation, Relax, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ensemble de Musique Zen Relaxante - Bouddha 2019
-02. Meditation Music Zone - La visualisation
-03. Ensemble de Musique Zen Relaxante - Séances de relaxation
-04. Meditation Music Zone - La vie est belle(   Читать дальше...   )Жанр: Meditation, Relax, New AgeПродолжительность: 01:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE0A94FB8D29FD6FF7434520DB9EDE5CF3F159F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285977   (714911) от 01.03.2019
-
-Jim Brickman - Relax to the Hits of Jim Brickman (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Destiny
-02 – My Love Is Here
-03 – Angel Eyes
-04 – The Gift(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2988B4CC1B20F623A8F85BB71460A010B389AB99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285604   (715076) от 01.03.2019
-
-The Innocence Mission - Sun On The Square (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Records From Your Room (02:46)
-02. Green Bus (04:28)
-03. Look Out From Your Window (03:21)
-04. Shadow Of The Pines (04:00)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844D849D0581634D1CB5128AB673FC45F3F078FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024413   (715453) от 09.06.2016
-
-Toby Fox - Undertale Soundtrack (2015) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Chiptune, Midi, Orchestral>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Upon a Time (1:29)
-02. Start Menu (0:32)
-03. Your Best Friend (0:23)
-04. Fallen Down (0:58)(   Читать дальше...   )Жанр: Soundtrack, Chiptune, Midi, OrchestralПродолжительность: 02:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF64E51716FB6E9D11C4FCEC47ADDC99D7CA529
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219324   (715500) от 13.04.2018
-
-Danheim - Fridr (2018) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fridr 4:24
-02. Ginnung 4:55
-03. Fegurð 4:45
-04. Yggdrasil 4:32(   Читать дальше...   )Жанр: Dark Folk, Dark AmbientПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F682CB24D57E632E687F6FE75AC4C42B8E4C87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219318   (715508) от 13.04.2018
-
-Danheim - Munarvagr (2017) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 0:44
-02. Vindöld 3:28
-03. Tyrfing 3:27
-04. Tyr 3:40(   Читать дальше...   )Жанр: Dark Folk, Dark AmbientПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62E35A0A3BE856A95EA7689A391C46B19AD6E93
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1198410   (804513) от 13.01.2018
+
+VA - Chillout Raising (Lounge Drama) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Micheal Artur Koner  -  Season (Original Mix)  3:12
+02.  Chillploy  -  Framework (Original Mix)  3:17
+03.  Blue Side  -  Swords (Original Mix)  3:30
+04.  Keyright  -  Punch (Original Mix)  2:50(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65ECF7D78E3F9CA7955C8B1781E4B0F302FE2A2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119797   (805618) от 29.03.2017
+
+VA - OTB-EDM Records Miami (WMC) (2017) [MP3|320 Kbps] <House, Progressive, Funky>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Antonio Miccoli - Close Your Eyes  5:08
+02.  Dave Noise & Andeejay - Fire  5:31
+03.  i52DJ - Dream  5:09
+04.  Tosch - Windjammer  4:19(   Читать дальше...   )Жанр: House, Progressive, FunkyПродолжительность: 03:20:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9D8C8CAAF7245B658E296746ADC2CC1CA916743
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120071   (805744) от 29.03.2017
+
+VA - Buddha World Bar 2017   [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Glitter Twins - Blue Paradise
+02. Roger Bailey - Can't Leave Play - Full Intention Remix
+03. Mr. Dexter 4U - Back to Back
+04. Fuzzy Martini - Blur Walk(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83EDDD50130727C61DC60BFB95798616A33602A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356454   (805861) от 26.10.2021
+
+Thomas Lemmer - Discography 69 Releases (2009-2021) [MP3|320 Kbps] <Chillout, Ambient, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805861.jpg" />
+</div>
+
+
+###  Подробнее
+
+2009 - Chillout Lounge
+2011 - Relieve (Reissue '13)
+2013 - Relieve • Remix Edition
+2013 - Still(   Читать дальше...   )Жанр: Chillout, Ambient, Lounge, Downtempo, Deep House, ElectronicПродолжительность: 64:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98450766903741E536D634AF45F25DCD240D86C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333681   (806038) от 18.05.2020
+
+5F_55 | 5F-X - Discography 5 Releases (2000-2010) Hands Productions [FLAC|Lossless|tracks+.cue] <Rhythmic Noise, IDM, Breakbeat, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audioautical-file.001 (05:57)
+ 02. Audioautical-file.002 (05:42)
+ 03. Audioautical-file.003 (06:16)
+ 04. Audioautical-file.004 _Sountox Remix (06:07)(   Читать дальше...   )Тип издания: CDЖанр: Rhythmic Noise/IndustrialПродолжительность: 05:15:58 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B0FE8E5364048F98D33BB6772917526F5163857
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009860   (806110) от 23.04.2016
+
+VA - Cafe Luna (Chillout and Lounge Edition) (2016) [MP3|320 кб/с] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. W. Dekay - Charming Night (03:49)
+02. Simone Mencarelli - Heartfire (05:02)
+03. Avatar - Happened in Paris (03:41)
+04. AB Music - Sunday Morning (04:03)(   Читать дальше...   )Производство: AB MusicЖанр: Downtempo, Lounge, ChilloutПродолжительность: 01:04:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E438BB0A71C76C7AD27252250AC28865BEC23DA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384154   (806161) от 18.05.2020
 
 Dom & Roland - Parasite / Homicide / Paradrenasite (2020) Hive Remaster [FLAC 2.0|44.1/24|tracks|WEB-DL] <Drum n Bass>
@@ -525,168 +687,6 @@ Triplex - Катапульта (2003) [FLAC|Lossless|tracks + .cue] <House, Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B34209664F5546223530F09C777703C5E132EA75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009671   (807984) от 22.04.2016
-
-Roger Shah - Music For Meditation, Yoga & Other Wellbeing Moments (2016) [MP3|320 кб/с] <Ambient, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Close Your Eyes (7:17)
-02. Inner Peace (7:06)
-03. Island of Calm (8:02)
-04. Quiet Your Mind (7:00)(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 01:17:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DAD877FB2FDAFAABEE6F129490B42575D007CB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383854   (808001) от 17.05.2020
-
-VA - Outliers​:​1 (2020) Samurai Music [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, Experimental>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ancestral Voices - Primal Plane (08:24)
- 02. ASC - Fall Into Place (07:01)
- 03. ENA - Dipteran (Sam KDC Remix) (05:50)
- 04. The Untouchables - Bushi Ronin VIP (05:20)(   Читать дальше...   )Жанр: Drum n Bass, ExperimentalПродолжительность: 02:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB183C569404FA393FE75C33C554D38D6D207F87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009871   (808116) от 22.04.2016
-
-VA - Global Underground: Afterhours (2016) [MP3|320 кб/с] <House, Deep House, Downtempo, Chillout>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Superpitcher - Moon Fever (Lawrence Ambient Mix)
-02. Gidge - Dusk
-03. Ambassadeurs - Looking At You (feat. C Duncan)
-04. Rival Consoles - Recovery (Vessels Remix)(   Читать дальше...   )Жанр: House, Deep House, Downtempo, ChilloutПродолжительность: 06:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25DC125039AC8F51BDE401E68869B599304482E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009664   (808123) от 22.04.2016
-
-VA - Milchbar - Seaside Season 8 (Compiled By Blank & Jones) (2016) [MP3|320 кб/с] <Downtempo, Ambient, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Borneland - Eyes (Extended Version) (5:40)
-02. Afterlife - Ten Thousand Things (5:17)
-03. Blank & Jones - April (Milchbar Mix) (4:31)
-04. Nick & Samantha - Sambala (4:22)(   Читать дальше...   )Жанр: Downtempo, Ambient, ChilloutПродолжительность: 01:27:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9691F04009F40961856F745C0843B5CF2D0C68E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383743   (808137) от 17.05.2020
-
-VA - Progressive House Trance 2020 Top 40 Chart Hits, Vol. 2 DJ Mix 3Hr (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808137.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Goa Doc - Progressive House Trance 2020 Vol 2 (3Hr DJ mix) (3:00:00)
-2. Shivaratri;Astro-D - Psyhorn (Progressive House Trance 2020, Vol. 2 DJ Remixed) (6:34)
-3. Te Tuna - Crop Circles (Progressive House Trance 2020, Vol. 2 DJ Mixed) (5:57)
-4. Psynosis - Waldhutte (Progressive House Trance 2020, Vol. 2 DJ Mixed) (6:39)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 06:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EFBE45DAD379D31F711C079F5310D9B6310D5B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383857   (808141) от 17.05.2020
-
-Pessimist - Pessimist Discography 2011 - 2016 (2019) Pessimist Productions [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abstract (06:46)
- 02. Short Sighted (06:11)
- 03. Hypnosis Ft. Understate (05:56)
- 04. Girl Wants A Biscuit (06:21)(   Читать дальше...   )Жанр: Drum n BassПродолжительность: 01:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312C172BAB92080C8577659275C130586212BC67
 ```
 
 

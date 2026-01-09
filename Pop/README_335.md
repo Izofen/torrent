@@ -1,3 +1,252 @@
+###  Публикация: 975992   (970760) от 16.01.2016
+
+VA - Disco Fever (2001) [FLAC|Lossless|tracks + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KC & The Sunshine Band - That's The Way I Like It (3:05)
+02. Donna Summer - I Feel Love (Full Length Version) (5:52)
+03. Fatback Band, The - (Are You Ready) Do The Bus Stop (3:16)
+04. Detroit Emeralds - Feel The Need In Me (3:41)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D5BE0C29198F391EE54D2C1007019BE863E55C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975967   (970804) от 16.01.2016
+
+VA - Top Latino 2000 (2000) [FLAC|Lossless|tracks + .cue] <Latin, Merengue, Afro-Cuban>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gloria Estefan - No me dejes de querer (3:27)
+02. Chayanne - Boom boom (4:25)
+03. Ricky Martin - La diosa del carnaval (Spanish Eyes) (4:04)
+04. Azucar Moreno - Mamma mía (4:16)(   Читать дальше...   )Жанр: Latin, Merengue, Afro-Cuban, Europop, Salsa, BalladПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D238F66DABF2A9D6A156E174DE0AAA8B46550AB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975970   (970818) от 16.01.2016
+
+Alessandra Amoroso - Vivere a colori (2016) [FLAC|Lossless|tracks] <Pop, Vocal
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Stupendo fino a qui (03:49)
+ 02. - La vita in un anno (03:28)
+ 03. - Avro cura di tutto (03:40)
+ 04. - Vivere a colori (04:20)(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B016579EED58892A5A8A26C982C6693085B367E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615349   (971660) от 12.02.2013
+
+ВИА Веселые ребята - Антология 1969-1988 (6CD) (2010) [MP3|320 кб/с]<поп, ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диск 11. Пришла пора (В.Добрынин - Л.Дербенёв)
+2. Треугольник (В.Добрынин - Л.Рубальская)
+3. Чашка чая (В.Добрынин - М.Рябинин)
+4. Солёное море (И.Словесник - И.Шаферан)
+5. Розовые розы (П.Слободкин - Н.Просторова)
+6. Девушка с обложки (П.Слободкин - Н.Просторова)
+7. На Канарских островах (Т.Ефимов - Д.Усманов)
+8. Пустыня (В.Добрынин - М.Рябинин)
+9. Прогноз погоды (В.Матецкий - И.Кохановский)
+10. Звездочёт (П.Слободкин - Н.Пляцковская)(   Читать дальше...   )Жанр: поп, ретроПродолжительность: 01:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:824FA7BAE7561546BC1C854B71CDD2BC898C9E67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617710   (971737) от 12.02.2013
+
+C.C. Catch - 25th Anniversary Box 5CD (1986-1990) /2011, Klub80 Records Remastered/ [FLAC|Lossless]<Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Disco, Euro-DiscoПродолжительность: 00:53:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975667   (971923) от 15.01.2016
+
+VA - Great Spanish Hits (1996) [FLAC|Lossless|tracks + .cue] <Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juanito - Amor de mis amores (3:11)
+02. Juanito - Bamboleo (2:43)
+03. Olivia Valere - Cantinero de Cuba (4:15)
+04. Chico Fuente - La Paloma (3:00)(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EE91A54A61FCDF9A957ECB290A871E75EEF74A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975605   (971932) от 15.01.2016
+
+Dimitri From Paris - Night Dubbin' (2009) 3CD Compilation [FLAC|Lossless|tracks + .cue] <Dub, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Winans - Let My People Go (dub version) (6:38)
+02. Third World - One More Time (dub) (6:24)
+03. Wuf Ticket - The Key (dub) (8:34)
+04. Lenny White - My Turn to Love You (dub) (6:38)(   Читать дальше...   )Жанр: Dub, DiscoПродолжительность: 03:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD5FA72CE6ECC28F08CD5D5B629FC7CAEE8BB548
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975495   (971936) от 15.01.2016
+
+Mariah Carey - Forever Gold (1999) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность:01:12:34
+1.When You Believe (4:36)
+2.Sweetheart (4:22)
+3.I Still Believe (3:56)(   Читать дальше...   )Жанр: Pop, BluesПродолжительность: 01:09:28
+1.Fantasy (4:04)
+2.My all (3:52)
+3.Open arms (3:32)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B5C28923527AB5672012F13010B5F4C73FFD40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975622   (971938) от 15.01.2016
+
+Vanessa Paradis - Variations sur le meme t aime (1990) Remastered, 1998, Polydor [FLAC|Lossless|tracks + .cue] <Pop, Rock, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'Amour A Deux [04:55]
+ 02. Dis Lui Toi Que Je T'Aime [03:58]
+ 03. L'Amour En Soi [05:07]
+ 04. La Vague A Lames [03:21](   Читать дальше...   )Жанр: Pop, Rock, ChansonПродолжительность: 00:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27B0598E6942A0E1936675271842D666F3AF501
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 439576   (971974) от 21.01.2012
 
 Masterboy - Коллекция (7 Альбомов, 27 Синглов) (1990-2006) [FLAC|Lossless]<Euro-House>
@@ -458,285 +707,6 @@ Reverend and The Makers - ThirtyTwo (2014) [FLAC|Lossless|WEB-DL|tracks] <Britpo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1D77365F7ADC74A69F980E51E2C05A846AE3217
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616827   (973418) от 11.02.2013
-
-Gipsy Kings - Greatest Hits (2CD) (2012) [MP3|320 кб/с]<Pop, Rumba, Flamenco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973418.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:01. Escucha Me
-02. Passion
-03. Bem, Bem, Maria
-04. Volare
-05. Canastero
-06. Oh Eh Oh Eh
-07. Ternuras
-08. Come Siento Yo
-09. Petite Noya
-10. Trista Pena(   Читать дальше...   )Жанр: Pop, Rumba, FlamencoПродолжительность: 01:16:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A1BE509804BEF7340766068776E1855FC43AA83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616430   (973633) от 11.02.2013
-
-Talking System - In My Backstreet Heaven (2008) / 2009 [WavPack|Lossless]<Pop, Synth-pop, Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (In My) Backstreet Heaven [03:08]
-02. My Bed Is Too Big [03:24]
-03. Sexy Sexy Lover [03:39]
-04. Doctor Mabuse [04:52]
-05. Ready For The Victory [03:37]
-06. Lucifer [03:30]
-07. You Are Not Alone [03:43]
-08. Sorry Little Sarah [03:13]
-09. China In Her Eyes [03:46]
-10. Deja Vu [03:32]Жанр: Pop, Synth-pop, EurodanceПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357388   (974266) от 03.02.2020
-
-Mike Mareen - Let's Start Now (Deluxe Edition) (2017) [FLAC|Lossless|image + .cue] <Euro-Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974266.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Don't Talk To The Snake 8:02
-2 Let's Start Now 7:32
-3 Africa 5:37
-4 Agent Of Liberty 4:22(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:568360224F016BADFC091115FDFEB831AC6ED644
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357381   (974328) от 03.02.2020
-
-Okay - Bang! (2011) [FLAC|Lossless|image + .cue] <Synth-pop, New Beat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974328.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 The Wild, Wild Western
-2 I Won't Forget
-3 Champagne For The Boy
-4 E.d.u.c.a.t.i.o.n(   Читать дальше...   )Жанр: Synth-pop, New BeatПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4903FBD2F70F5A5C2C2D0DC0958161FADDC63844
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357393   (974331) от 03.02.2020
-
-Silver Pozzoli - Around My Dream (2011) [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974331.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Around My Dream (Extended Version) 5:39
-2 Step By Step 3:42
-3 Love Is Alive 3:49
-4 Pretty Baby 3:54(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B01F360828C7FD0801AE810D2E47FC7E24BC614
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616146   (974564) от 10.02.2013
-
-VA - Легенды советской эстрады 50-60гг. Коллекция от Ридерз Дайджест (5CD) (2011) [MP3|320 кб/с]<поп, ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974564.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 162. Течёт Волга (Л.Ошанин, М.Фрадкин) Л.Зыкина, академический хор русской песни
-63. Пора в путь - дорогу (С.Фогельсон, В.Соловьев-Седой) С.Яковенко, мужская группа хора Всесоюзного радио и телевидения
-64. Я люблю тебя, жизнь жизнь (К.Ваншенкин, Э.Колмановский] М.Бернес
-65. Подмосковные вечера (М.Матусовский, В.Соловьев-Седой) В.Трошин, женская группа Ансамбля песни Всесоюзного радио
-66. Когда весна придёт (А.Фатьянов, Б.Мокроусов) Н.Рыбников
-67. Весёлый марш высотников (В.Котов, Р.Щедрин) Н.Рыбников
-68. Когда поёт далёкий друг друг (Я.Хелемский, Б.Мокроусов) М.Бернес
-69. Вернулся на Родину (М.Матусовский, М.Фрадкин) Л.Кострица
-70. Огонёк (М.Исаковский) В.Нечаев
-71. Сядь со мною рядом (А.Коваленков, Д.Толмачев, С.Кац) В.Доронин(   Читать дальше...   )Жанр: поп, ретроПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D786866CB4F469D61B38B06787E82484C5CC86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616583   (974738) от 10.02.2013
-
-Mylene Farmer - Monkey Me (2012) [APE|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elle a dit (3:52)
-02. À l'ombre (4:51)
-03. Monkey Me (4:14)
-04. Tu ne le dis pas (4:22)
-05. Love Dance (4:06)
-06. Quand (4:08)
-07. J'Ai Essayé De Vivre... (4:40)
-08. Ici-bas (4:33)
-09. A-t-on jamais (3:47)
-10. Nuit d'hiver (5:24)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615840   (974804) от 10.02.2013
-
-Татьяна Буланова - Я не вернусь (2010) [MP3|320 кб/с]<pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974804.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я не вернусь
-2. Любовь бывает разной
-3. Цветок (дуэт с Сергеем Любавиным)
-4. Он уехал
-5. Отцвели хризантемы
-6. По диким степям Забайкалья
-7. Только раз
-8. Скажите, почему
-9. Белой акации гроздья душистые
-10. Если можешь, прости(   Читать дальше...   )Жанр: popПродолжительность: 01:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0726C34DE5C2A56F46819E813295CB92CB2328A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616734   (974916) от 10.02.2013
-
-Crazy Loop (Dan Balan) - The Power of Shower (2007) [FLAC|Lossless]<Pop, Dance, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy Loop (Mm-Ma-Ma) (3:35)
-02. Johanna (Shut Up!) (3:40)
-03. Love Is A Simple Thing (3:09)
-04. Uh-Ahh-Yeah (3:26)
-05. Famikon (2:34)
-06. Tango (3:28)
-07. Take Me Higher (3:38)
-08. Despre Tine Cant (Partea 2) (4:05)
-09. The 24th Letter (4:43)
-10. Crazy Loop (Mm-Ma-Ma) (DJ Ross Radio Club Edit) (3:54)(   Читать дальше...   )Жанр: Pop, Dance, BalladПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-нет
 ```
 
 

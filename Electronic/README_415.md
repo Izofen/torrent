@@ -1,3 +1,166 @@
+###  Публикация: 1509498   (793640) от 13.11.2021
+
+Pet Shop Boys - Collection 25 Releases (1986-2020) 43 CD [FLAC|Lossless|tracks + .cue] <Synthpop, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pet Shop Boys — британский Synth-pop дуэт, состоящий из Нила Теннанта (Neil Tennant) и Криса Лоу (Chris Lowe), образованный в 1981 году в Лондоне.
+Один из самых плодотворных и коммерчески успешных коллективов Великобритании, записывающих танцевальную музыку.1986	Please
+1987	Actually
+1988	Introspective
+1990	Behaviour(   Читать дальше...   )Жанр: Synthpop, ElectronicПродолжительность: 44:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A4ED15F3249526E296C709AC237604AE0401B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121615   (793712) от 06.04.2017
+
+VA - wave 001 (2016) [MP3|192-320 Kbps] <Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Øfdream - Indicate
+02. haven - If You Leave
+03. Trash Lord - Hexagram
+04. Foxwedding - Hell Of A Thing(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FA98218DDBEAD6E46DC7B95AEBB4C4296750E62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122964   (793714) от 06.04.2017
+
+VA - Coastal Selections 003 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Markus Hakala - Anguilla (Original Mix)  6:33
+02.  Entis - Lily (Original Mix)  6:35
+03.  Lumidelic - Secrets Of Nature (Original Mix)  7:58
+04.  Joshua Ollerton - Laura (Original Mix)  6:57(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:609428C88F841A8C5A917F52A6A2537845A352C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012622   (793721) от 01.05.2016
+
+VA - Deep House Edition #001 (2016) [MP3|320 кб/с] <Deep House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaques Le Noir - Perezil (05:17)
+02. Lucas Reyes - Feel for You (07:39)
+03. Vanished - Past Life (06:19)
+04. Steven Whirpool - Dance (06:58)(   Читать дальше...   )Производство: Jango ReplayЖанр: Deep House, Club HouseПродолжительность: 01:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1357CFBC8578BADC75F8E8BAED20B06613ED785
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509399   (793915) от 13.11.2021
+
+VA - A State Of Trance 1000 - Celebration Mix (Mixed by Armin van Buuren) (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793915.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Intro - The Boy On His Bike (2:06)
+002. Andain - Beautiful Things (Gabriel & Dresden Extended Unplugged Mix) (10:54)
+003. Gareth Emery & STANDERWICK feat. HALIENE - Saving Light (Extended Mix) (6:38)
+004. Yuri Kane - Right Back (Extended Mix) (5:57)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 15:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF0280580E851A113AAAFF7D4461867C9315B8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201087   (793949) от 23.01.2018
+
+VA - Ace Ventura - Christmas Selection Vol. 4 (2017) [MP3|320 Kbps] <Psytrance  Progressive Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christmas Selection – Intro
+02. Shpongle & Astrix – Strange Planet
+03. Astrix & Freedom Fighters – Burning Stones
+04. Gaudium – Let Us All Unite(   Читать дальше...   )Жанр: Psytrance  Progressive TranceПродолжительность: 01:23:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4305327CEAF8216E13A8FBD146E48276B6D0E784
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028672   (793961) от 23.01.2018
 
 RaLax - Discography 10 Releases (2012-2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, Abstract, Ambient, Downtempo, Experimental>
@@ -531,165 +694,6 @@ Aether - Nexus (2017) [FLAC|Lossless|WEB-DL|tracks] <Future Garage, Downtempo, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE8499A89A1904979F45A3B7D3FBDB8EAF6E7937
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012227   (794809) от 30.04.2016
-
-VA - Melodic Trance Vol. 1 (2016) [MP3|320 кб/с] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer -  Lights (Matt Bukovski Remix) (feat. Emma Lock)  6:19
-02. NoMosk -  From Sunrise To Sunset (Original Mix)  6:37
-03. Ark Planet -  Midnight Way (Original Mix)  8:09
-04. Feel -  If You Feel Love (Feel Up Mix)  7:53(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A2B3E1692419F2B0DFE84B5CC8DD1F7032F8DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968165   (794905) от 22.01.2018
-
-Mu Cephei - Sidera Et Sonos (2012) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, IDM, Trip Hop, Tribal>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cygni (04:53)
-02. Inner Mira A (03:43)
-03. Beyond Canis M (06:08)
-04. Perseus (06:05)(   Читать дальше...   )Жанр: Downtempo, IDM, Trip Hop, TribalПродолжительность: 00:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A93884F6C354F1FBF31BA393969F0B907446816
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156137   (794930) от 05.01.2019
-
-Radius - Discography 7 Releases (2017-2018) echospace [detroit] [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interpolation Tapes 0.1Тип издания: CD, Web, VinylЖанр: Ambient/Dub TechnoПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D100A0BAE17E0FF76A580ACB2EAD81B736E73308
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274092   (794933) от 05.01.2019
-
-Infected Mushroom - Head of NASA and the 2 Amish Boys (2018) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Dubstep, Electro>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bliss On Mushrooms (feat. Miyavi)
-02. Guitarmass
-03. Head Of NASA
-04. Chenchen Barvaz(   Читать дальше...   )Жанр: Psy-Trance, Dubstep, ElectroПродолжительность: 00:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E94E40CA1182647A9C749FCFE8F6E2D12BF6BE03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509370   (794941) от 12.11.2021
-
-Activa - Origins (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Activa - For Emily (Album Mix) (03:38)
-02. Activa & Lo - Leave A Light On (Album Mix) (06:25)
-03. Activa & Rolo Green feat. Julie Harrington - Reach Out (Album Mix) (06:03)
-04. Activa - Z21 (Activa's 'Origins' Album Mix) (05:05)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D857AE90DEEC366DBA4FB8C0938BD12F50907A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200891   (794966) от 22.01.2018
-
-Jens Buchert - Best Of (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Downbeat, Chillout, Trip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Euphorbia (5:08)
- 02. Habitatmodul (4:38)
- 03. Aerosol (5:18)
- 04. Reflections (6:10)(   Читать дальше...   )Жанр: Electronic, Ambient, Downbeat, Chillout, Trip HopПродолжительность: 03:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A293F917DE07F78B67BD852A47F04289DA47E9C2
 ```
 
 

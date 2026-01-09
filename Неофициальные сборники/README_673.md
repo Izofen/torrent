@@ -1,3 +1,30 @@
+###  Публикация: 1453290   (1026920) от 11.03.2021
+
+VA - Sexy Vocal Deep House (2021) [MP3|320 Kbps] <House, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elephante, Nevve, Anden - Have It All (Anden Remix) (4:37)
+02. Hayden James, NAATIONS, Dom Dolla - Nowhere To Go - Dom Dolla Remix (4:35)
+03. jackLNDN - The Feels (4:31)
+04. Tara Louise, Masoud - My Dreams - Radio Edit (4:12)(   Читать дальше...   )Жанр: House, PopПродолжительность: 03:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB5E1BF4CC0130298280A5CB0EBD0B367B055D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453384   (1026927) от 11.03.2021
 
 VA - Super Mashup Mix (2020) [MP3|320 Kbps] <Rock, Mashup>
@@ -665,33 +692,6 @@ Disc one:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7A0C60E629CD9844963BD1767777304A3BE7EF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451751   (1028201) от 03.03.2021
-
-VA - Dance vol.1 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028201.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dimitri Vegas & Like Mike, DVBBS, Roy Woods - Too Much (2:05)
-002. Mowe, Miles Hi - Untz (2:15)
-003. Martin Garrix, Tove Lo - Pressure (2:24)
-004. R3HAB, Alida - One More Dance (2:25)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B52560A1EDE8E30541D70494BD81BF5410A17D5
 ```
 
 

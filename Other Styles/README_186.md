@@ -1,3 +1,324 @@
+###  Публикация: 1355420   (983440) от 26.01.2020
+
+Jim Brickman - Interstellar (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interstellar
+02. Starship
+03. Starbright (Interstellar Mix)
+04. Time Continuum(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:27:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78D6947401DC6314606BDA7371A23DBD642FE422
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 741525   (983612) от 03.01.2014
+
+Cornbread Red - Bluegrass Tribute To Linkin Park (2005) [MP3|320 кб/с]<Country, Bluegrass>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(4:20) 01. Breaking The Habit
+(3:37) 02. Points Of Authority
+(3:59) 03. Somewhere I Belong
+(3:19) 04. One Step Closer
+(3:56) 05. Easier To Run
+(3:38) 06. Runaway
+(3:51) 07. Don't Stay
+(3:43) 08. Pushing Me Away
+(4:21) 09. Numb
+(3:39) 10. Crawling(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876F52B0F4FCED3522F1394D38B213321FEBEAD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 163905   (983913) от 09.01.2010
+
+Сборник - Украинская 100-ка колядок и щедривок(2) (2008) [MP3|192 kbps]<Фольк>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ФолькПродолжительность: 07:09:05
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 164754   (983949) от 09.01.2010
+
+Сборник - Украинская 100-ка колядок и щедровок - 1 (2007) [MP3|256 kbps]<Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: FolkПродолжительность: 06:58:51
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 164566   (983952) от 09.01.2010
+
+Хор им.Пятницкого - Русские народные песни (2006) [MP3|320 kbps]<Folk / Русское народное>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+CD1 1:06:55
+[02:26] 01. Матушка Россия
+[03:02] 02. Возле речки, возле моста
+[03:09] 03. Я горжусь тобой, страна
+[05:59] 04. Частушки под диликанье
+[02:00] 05. Как по горкам по горам
+[02:32] 06. Вдоль по улице
+[02:21] 07. Кабы знал я, утопился
+[01:50] 08. В камышах лебёдушка
+[04:16] 09. Коробейники(   Дальше...)Жанр: Folk / Русское народное
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 164661   (983983) от 09.01.2010
+
+B'eirth (In Gowan Ring and Birch Book) - Discography (16 albums) (1994-2009) [MP3|160-320 kbps]<Psychedelic Folk, Neofolk, Acoustic, Experimental>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983983.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Birch leaves (2:08)
+2. Feet of clay (3:30)
+3. Empty corner of the page (5:42)
+4. Left hand (3:36)
+5. Patchwork woman (5:16)
+6. Stray summer song (6:28)
+7. Hatched in stone (6:57)
+8. Sad song (3:39)
+9. Nothing more (3:23)
+10. White angel (4:52)(   Читать дальше...   )Жанр: Psychedelic Folk, Neofolk, Acoustic, ExperimentalПродолжительность: 01:00:41
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 165101   (983989) от 09.01.2010
+
+Enigma - Revival from Disuse (feat. Fato Deejays) 2009 (2009) [MP3|320 kbps]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless Quest 2009 (Fato Deejays Mix)
+02. Carly's Loneliness (Fato Deejays Remix)
+03. Downtown Silence 2009 (Fato Deejays After The Contest Mix)
+04. Downlown Silence (Fato Deejays Remix)
+05. I Love You, I'll Kill You (Fato Deejays Call It Love Mix)
+06. A Part Of Experience (Mix - Feel Me Heaven, Eppur Si Muove)
+07. The Future Megamix (By Fato Deejays)
+08. Sadeness (Fato Deejays Club Mix)
+09. We Will Rock You (Enigma, Queen, Fato deejays, Shane 54 Mix)
+10. Dancing With Mephisto (Dance In Club Mix)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 50475   (984403) от 02.01.2014
+
+Иван Купала - Лучшие песни 96-03 (2003) [MP3|320 кб/с]<Electronic/House/Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Самум
+02. Кострома
+03. В Роще
+04. Молодось
+05. Пчёлы-2
+06. Галя
+07. Куйня
+08. Ящер
+09. Велик День
+10. Коляда(   Читать дальше...   )Жанр: Electronic/House/FolkПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971873   (984472) от 04.01.2016
+
+Mashrou' Leila - Ibn El Leil (2015) [MP3|320 кб/с] <Ethnic, Indie, Pop Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aoede
+02. 3 Minutes
+03. Djin
+04. Icarus(   Читать дальше...   )Жанр: Ethnic, Indie, Pop RockПродолжительность: 00:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B58C3A76D1F8541C9AC83A5A20E5B62482E2924
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355154   (984868) от 25.01.2020
+
+VA - Restart 2020 Chillout (2020) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oscar Salguero - Cbmo (Original Mix) 4:31
+02. Sunyata Project - Words Of Vishnu (Original Mix) 7:15
+03. Minka - Rainy Day (Original Mix) 5:33
+04. Rex Kramer - 2800M Above (Original Mix) 5:38(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, ElectronicaПродолжительность: 02:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C829429786327B1223A78A6E0E457E61972F37AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355261   (984976) от 25.01.2020
+
+Bonny Light Horseman - Bonny Light Horseman (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bonny Light Horseman (04:30)
+02. Deep In Love (05:09)
+03. The Roving (04:20)
+04. Jane Jane (03:06)(   Читать дальше...   )Жанр: Indie, FolkПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6994E26268B53FFF58E3491A29F2740537C84C56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 434033   (985257) от 11.01.2012
 
 Cat Power - The Greatest (2006) [FLAC|Lossless]<Country Rock, Indie Rock>
@@ -450,342 +771,6 @@ VA - Русские народные песни. Плясовые (2000) [MP3|32
 [01:53] 08. М. Михайлов, А. Мохова - Ванька
 [02:42] 09. Б. Белинников - Ах Ты, Зимушка-Зима
 [02:43] 10. Г. Зайцев - Камаринская(   Дальше...)Жанр: Folk/ Retro/ Русское народное
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163621   (988284) от 05.01.2010
-
-Enya - дискография (7CD) (1988-2005) [WavPack (image+.cue)|Lossless] <New Age, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New Age, CelticПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163192   (988338) от 05.01.2010
-
-Hans Zimmer - Шерлок Холмс / Sherlock Holmes (Original Motion Picture Soundtrack) (2009) [MP3|320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Discombobulate (02:25)
-02. Is It Poison, Nanny? (02:53)
-03. I Never Woke Up In Handcuffs Before (01:44)
-04. My Mind Rebels At Stagnation (04:31)
-05. Data, Data, Data (02:15)
-06. He's Killed The Dog Again (03:15)
-07. Marital Sabotage (03:44)
-08. Not In Blood, But In Bond (02:13)
-09. Ah, Putrefaction (01:50)
-10. Panic, Shear Bloody Panic (02:38)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:52:26
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163009   (988343) от 05.01.2010
-
-VA - Танго большого города (2003) [FLAC|Lossless]<Tango>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - Trio Hugo Diaz / Verano porteno 		(03:31)
-02 - Nighthawks At The Dinner / Fools tango 	(03:49)
-03 - Nosturna 				(02:32)
-04 - E. Donato / Ella es asi 			(02:29)
-05 - Trio Hugo Diaz / Milonga de mis amores 	(02:45)
-06 - L'etudiant passe 			(02:37)
-07 - Pugliesse Piazzolla / Desde el alma 	(03:31)
-08 - Grace Jones / I've seen that face before 	(04:32)
-09 - Lhasa / Los pesos 			(03:53)
-10 - Sexteto Cayenge / Taxi 			(04:17)(   Читать дальше...   )Жанр: TangoПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163380   (988417) от 05.01.2010
-
-VA - Тango Mania (2003) [FLAC|Lossless]<Tango>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. In-Grid / In-Tango 		(03:30)
-02. Objection (Tango) 		(03:41)
-03. Master Blaster / Hypnotic Tango 	(02:55)
-04. Milva / Oh! Mama 		(04:26)
-05. Tierra feat. Cecilia Gayle / El Talisman (03:30)
-06. Jose' La Palma / La Comparsita 	(02:41)
-07. Jorge Garzon / A Media Luz 	(02:45)
-08. Cecilia Cruz / Pensami 		(03:41)
-09. Benedicto Sormani / El Choclo 	(03:09)
-10. Al Rangone / Caminito 		(03:53)(   Читать дальше...   )Жанр: TangoПродолжительность: 01:05:55
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163090   (988426) от 05.01.2010
-
-Primal Instinct - Heart of The Rainforest (1997) [MP3|320 kbps]<New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Spirit Within
-2. Silent Warrior
-3. Mystic River
-4. Heart of the Rainforest
-5. Medicine Man
-6. Morning Drum
-7. Shaman
-8. Prayer for Rain
-9. Song for the Ruins
-10. Rowando(   Дальше...)Жанр: New age, World music
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970616   (988576) от 01.01.2016
-
-David Nevue - Whisperings: The Best of David Nevue 1985-2000 (2001) [FLAC|Lossless|tracks + .cue] <New Age, Piano Solo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. While the Trees Sleep (5:43)
-02. Home (3:40)
-03. Ascending with Angels (3:04)
-04. Light (4:40)(   Читать дальше...   )Жанр: New Age, Piano SoloПродолжительность: 01:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAABA327964EFDEC96CF65AE875874624031605E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970640   (988580) от 01.01.2016
-
-David Nevue - Awakenings: The Best of David Nevue 2001-2010 (2012) [FLAC|Lossless|tracks + .cue] <New Age, Piano Solo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overcome (3:31)
-02. Eden Again (4:22)
-03. Big Snow in Salzburg (3:42)
-04. Winter Walk (4:47)(   Читать дальше...   )Жанр: New Age, Piano SoloПродолжительность: 01:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5B4B70AD4610F2335E4E67564344FBEE250E169
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 433287   (988957) от 08.01.2012
-
-Network Music Ensemble - Spa Relaxation (2011) [MP3|320 kbps]<Chill Out, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. First Breath
-02. Nature Walk
-03. Sparkling Sunrise
-04. Refresh Your Soul
-05. Aromatic Candles
-06. In Heaven
-07. Aquatic Life
-08. Feel The Warmth
-09. Goddess Of Dawn
-10. Flying East(   Читать дальше...   )Жанр: Chill Out, RelaxПродолжительность: 01:05:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B14DBABFFB0C2827328C095171CCF605DCF5C70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354340   (989001) от 21.01.2020
-
-Akira Kosemura - Buddhists (2016) 1631 Recordings [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989001.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Introduction 02:42
-2. Quiet 01:24
-3. Follow 01:24
-4. Living in the present 03:41(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0FC40799EA14285704FBBE93ED62C95B50FE10F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611149   (989089) от 30.01.2013
-
-Andrea Bocelli - Passione (2013) [FLAC (tracks+.cue)|Lossless]<Vocal, Ballad>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfidia
-02. Roma Nun Fa' La Stupida Stasera
-03. Champagne
-04. Anema E Core
-05. Quizas, Quizas, Quizas (duet with Jennifer Lopez)
-06. Era Gia Tutto Previsto
-07. Tristeza
-08. La Vie En Rose (contains exerpts performed by Edith Piaf)
-09. Corcovado (duet with Nelly Furtado)
-10. Sara Settembre (September Morn)(   Читать дальше...   )Жанр: Vocal, BalladПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163002   (989361) от 04.01.2010
-
-VA - Tangos de Amor (2002) [FLAC|Lossless]<Tango>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Que me van a hablar de Amor - H.Exposito, H.Stamponi (2:34)
-02. Malena - H.Manzi, L.Demare (3:12)
-03. Esta noche me emborracho - E.Santos Discepolo (2:35)
-04. Ninguna - H.Manzi, R.Fernandez Siro (3:41)
-05. Pequena - H.Exposito, O.Maderna (3:42)
-06. Pasional - J.Caldara, M.Soto (3:32)
-07. La Mariposa - P.Maffia, E.Caledonio Flores (4:01)
-08. El corazon al sur - E.Blazquez (3:24)
-09. Che Bandoneon - H.Manzi, A.Trollo (3:55)
-10. Cafe la Humedad - C.Castana (3:27)(   Читать дальше...   )Жанр: TangoПродолжительность: 00:40:17
 
 ## Скачать торент
 ```bash

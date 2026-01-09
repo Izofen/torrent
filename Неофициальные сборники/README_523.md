@@ -1,3 +1,30 @@
+###  Публикация: 1012220   (794723) от 30.04.2016
+
+VA - Соль души Блатной суперсборник (2016) [MP3|256-320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794723.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Игорь Филиппенков - А Жизнь Как Клавиши
+002. Александр Казанцев - Цыган
+003. Сергей Гвоздика - Далеко До Галилея
+004. Лесоповал - Звезда(   Читать дальше...   )Жанр: ШансонПродолжительность: 05:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49DDA44C5C102C451F94BF7A2E36F1B3F9D33F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012233   (794728) от 30.04.2016
 
 VA - Beatport Top 100 April (2016) [MP3|320 кб/с] <House, Electro, Tech, Nu-Disco, Progressive, Tribal, Future House, Indie Dance>
@@ -668,33 +695,6 @@ VA - Alternative Spring by Evaluator Pt.1 (2016) [MP3|192-320 кб/с] <Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B1E262817EA7BBB920997B85EEBD54D8B0B3B20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012067   (795568) от 29.04.2016
-
-VA - Acoustic Sunrise (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erato - Thrill of Making Out
-02. Lena Swanberg - Dream On
-03. Titiyo - Come Along
-04. Isak - The One(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:14:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B81BCA50D33CCC6E6476D521944B07B727EE486
 ```
 
 

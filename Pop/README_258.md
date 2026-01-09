@@ -1,3 +1,246 @@
+###  Публикация: 1129756   (720802) от 29.04.2017
+
+Didi Robinson - Du Warst Mein Schoenster Traum (1992) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720802.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Du hast noch nie das Meer gesehn
+2. Jenny's Traume
+3. Wenn die Erde bebt
+4. Das verlorene Lacheln(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA2380051F2D8DB196554BD8C2846B1A1896D905
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285371   (720945) от 26.02.2019
+
+Modern Boots - The Best Of Modern Boots (2019) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synth-pop, Downtempo>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears of a Broken Heart (New Simple Vocal Remix) (07:35)
+02. In a World of Jealousy (Galaxy Extended Vocal Remix) (06:52)
+03. Boulevard of My Dreams (Extended Vocal Remix) (07:57)
+04. Love Is a Game (Extended Summer Vocal Remix) (07:54)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, DowntempoПродолжительность: 02:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17B1EC5010A12F54B085522772094863C1324DFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285366   (720954) от 26.02.2019
+
+Modern Boots - The Best Of Modern Boots (2019) [MP3|320 Kbps] <Italo-Disco, Synth-pop, Downtempo>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears of a Broken Heart (New Simple Vocal Remix) (07:35)
+02. In a World of Jealousy (Galaxy Extended Vocal Remix) (06:52)
+03. Boulevard of My Dreams (Extended Vocal Remix) (07:57)
+04. Love Is a Game (Extended Summer Vocal Remix) (07:54)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, DowntempoПродолжительность: 02:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D42419B08523EA3747D5C0EE6598B9A4A79EA700
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285226   (721075) от 26.02.2019
+
+Big Wild - Superdream (2019) [FLAC|Lossless|tracks + .cue] <Dance-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City of Sound (03:52)
+02. Joypunks (03:15)
+03. 6's To 9's (feat. Rationale) (03:26)
+04. No Words (03:35)(   Читать дальше...   )Жанр: Dance-popПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024A8785C9C042447D1F2A2416AA4C8F8A39F145
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285585   (721076) от 26.02.2019
+
+Robyn - Honey (2018) [FLAC|Lossless|tracks + .cue] <Synth-pop, Dance-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Missing U (04:57)
+02. Human Being (feat. Zhala) (03:46)
+03. Because It's in the Music (04:34)
+04. Baby Forgive Me (04:16)(   Читать дальше...   )Жанр: Synth-pop, Dance-popПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F266BD3B6AEF76DCC93361D74565BE7121A070A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285316   (721079) от 26.02.2019
+
+Miquel Brown - Symphony Of Love (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symphony Of Love (6:01)
+02. Dancin' With The Lights Down Low (7:55)
+03. This Is Somenthing New To Me (5:41)
+04. The Day That They Got Disco In Brazil (7:18)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F4C31C7FB3E1EE625F9B3E79DA5B5F4928FBC04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400402   (721188) от 04.08.2020
+
+Herbie Mann - 2 Albums (1976, 1978) [MP3|320 Kbps] <Funk Soul, Jazz, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герберт Джей Соломон (англ. Herbert Jay Solomon), более известен как Херби Мэнн (англ. Herbie Mann) (1930-2003) - американский джазовый музыкант, флейтист, композитор, бэнд-лидер. Один из первых джазовых музыкантов, специализировавшихся на флейте. Особенно известен своими экспериментами в области соединения этнической (бразильской, афрокубинской и т.п.) музыки и (   Читать дальше...   )01. Bird In A Silver Cage (12:45)
+02. Aria (4:50)
+03. Fly, Robin, Fly (1:09)
+04. Birdwalk (7:31)(   Читать дальше...   )Жанр: Funk Soul, Jazz, Pop, DiscoПродолжительность: 01:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC0545C190EC899FA12E9CCA474EAC79F42B31A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218622   (721272) от 10.04.2018
+
+VA - 100 Hits - The Best Love Album (2017) [MP3|320 Kbps] <Pop, R&B, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721272.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Eric Carmen - All By Myself 4:30
+02. The Bangles - Eternal Flame 3:56
+03. Harry Nilsson - Without You 3:17(   Читать дальше...   )Жанр: Pop, R&B, OtherПродолжительность: 06:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:928DD55CD5D335EEE9D75505CB0D47B375BA0E6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399947   (721286) от 04.08.2020
+
+VA - Summer Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dua Lipa - Don't Start Now (3:03)
+02. Lizzo - Juice (3:15)
+03. Bruno Mars - 24K Magic (3:45)
+04. Iyaz - Replay (3:02)(   Читать дальше...   )Жанр: PopПродолжительность: 02:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A904D9D836F7E81E1FDE0FADDAB7E07C9A708B99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399985   (721291) от 04.08.2020
 
 VA - The Sound of NYLO 4 (2020) [MP3|320 Kbps] <Disco, Nu-Disco>
@@ -445,250 +688,6 @@ Fun Fun - 2 Albums (1984, 1987) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3795E5F28A7FAD6C7E19047AC121A90B1192515
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023558   (724399) от 05.06.2016
-
-Orax - 2 Albums (2012, 2016) [MP3|320 кб/с] <Electronic, Synthwave, Italo-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итальянский музыкант и продюсер. С 1995 года по 2003 год  был гитаристом и композитором итальянской электрогруппы Xilema.
-В 2010 году Orax начал работу над своим сольным проектом.01. Betray ( 1:32)
-02. Rockers ( 3:58)
-03. Stars ( 3:06)
-04. D.A.D.O.E.S. ( 5:10)(   Читать дальше...   )Жанр: Electronic, Synthwave, Italo-DiscoПродолжительность: 01:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2259F7F26A958B8DFFFFD54EC7747D45F05B946E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023421   (724403) от 05.06.2016
-
-Bottle Of Moonshine - Believe The Numbers (2015) [FLAC|Lossless|tracks] <60's-70's Retro Pop, Female Vocal Jazz>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stand Your Ground
-02. Centerfold
-03. Happiness In Boxes
-04. To The Lighthouse(   Читать дальше...   )Жанр: 60's-70's Retro Pop, Female Vocal JazzПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B02C40B6F7B4D978788F5DFD9C3DFA3E17652F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023559   (724414) от 05.06.2016
-
-The Golden Filter - Voluspa (2010) [FLAC|Lossless|tracks + .cue] <Nu-Disco, Indietronica, Synth Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance Around The Fire
-02. Hide Me
-03. Look Me In The Eye
-04. Moonlight Fantasy(   Читать дальше...   )Жанр: Nu-Disco, Indietronica, Synth PopПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6CB7FF4D889BC57A4148DA5A392B66CB374EB2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284992   (724477) от 24.02.2019
-
-Blue System - The UltraTraxx Remixe 1-2 (2009) [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. History (UltraTraxx 12 Inch Version) (6:26)
-02. Laila (UltraTraxx 12 Inch Version) (6:39)
-03. That's Love (UltraTraxx 12 Inch Version) (7:31)
-04. Only With You (UltraTraxx 12 Inch Version) (7:43)(   Читать дальше...   )Жанр: DiscoПродолжительность: 02:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A80A8F01563CCA2F717E2D2EDE1D3ABBF72BF5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129106   (724500) от 27.04.2017
-
-Shannon - Let The Music Play (1984) LP [MP3|320 Kbps] <Electronic, Freestyle, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let The Music Play (3:36)
-02. Sweet Somebody (4:45)
-03. Someone Waiting Home (4:37)
-04. Give Me Tonight (6:10)(   Читать дальше...   )Жанр: Electronic, Freestyle, DiscoПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:872E881E89D739233DD7427AF69C44FA63802D2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023531   (724538) от 05.06.2016
-
-Superbus - Sixtape (2016) [MP3|320 кб/с] <French Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (00:20)
-02. Strong & Beautiful (04:05)
-03. Soul Sister (03:45)
-04. On The River (03:47)(   Читать дальше...   )Жанр: French PopПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A934043CD568EB9D2DF47D386F8ED98BD985D887
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129146   (724666) от 27.04.2017
-
-Babette - Gypsy (1979) LP [MP3|320 Kbps] <Electronic, Pop, Chanson, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gypsy (4:17)
-02. Super Deal (3:56)
-03. Reves Vos Belles Histoires (3:58)
-04. Le Silence (4:25)(   Читать дальше...   )Жанр: Electronic, Pop, Chanson, DiscoПродолжительность: 00:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F42E489671894D11DC429699D316169B34F8F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284899   (724783) от 24.02.2019
-
-Vera Lynn - Something To Remember - Wartime Memories (1995) Mono [FLAC|Lossless|image + .cue] <Jazz, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Something To Remember You By
-02 Yours
-03 Wish Me Luck As You Wave Me Goodbye
-04 I'll Pray For You(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 01:11:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA55B983594AC6245942BF59FC8CA98DACB6C8EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284995   (724789) от 24.02.2019
-
-Bodies Without Organs - Prototype (2005) [FLAC|Lossless|image + .cue] <Europop, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sixteen Tons Of Hardware (3:28)
-02. Conquering America (3:20)
-03. Son Of A Gun (3:25)
-04. Open Door (Ballad Version) (3:29)(   Читать дальше...   )Жанр: Europop, Synth-pop, DiscoПродолжительность: 00:57:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84761A5DA64E33581E95CBE082136D319FB6F951
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1287174   (705521) от 06.03.2019
+
+VA - Red Sea Gruves (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705521.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rеd Sеа Grооvеs - Thе Futurе Is Unwrittеn
+002. Gt 55 - Rеd Cоlоr
+003. Sоul Brоthеrs - Summеr In Thе Citу
+004. Piеr 17 - Dосk (Originаl Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 08 :00 :11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0D6B1EC51E938CBF79673C29BB0E7C9517726F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401986   (705608) от 12.08.2020
 
 Rave The Reqviem - Darkly, powerfully (best) (2014-2018) Compilation Album [MP3|320 Kbps] <Industrial, Drum n Bass, Dubstep>
@@ -679,33 +706,6 @@ VA - Partybreaks and Remixes - All In One November 001 (2019) [MP3|320 Kbps] <Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB6E71039288104E47D0977DBBE81D17BAACF9DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286976   (707120) от 05.03.2019
-
-VA - Mastodon (2019) [MP3|320 Kbps] <Hard Rock, Metall>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707120.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Old Red Skin - Three Plagues
-002. Warmarshal - Armageddon Awaits
-003. Serpents Kiss - Dragon Lord
-004. Kobra And The Lotus - Losing My Humanity(   Читать дальше...   )Жанр: Hard Rock, MetallПродолжительность: 11:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E8B75F8C0C1686C75FC8EA7753B5B4ADBD7244
 ```
 
 

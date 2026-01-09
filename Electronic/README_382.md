@@ -1,3 +1,165 @@
+###  Публикация: 1279749   (764591) от 31.01.2019
+
+Manet - Devour (2017) [FLAC|Lossless|tracks + .cue] <Dark Ambient, Dark Jazz, Post Rock>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norwegian Horror Saga
+02. Delirious And Devoured
+03. Doctor Schnabel Von Rom
+04. Vendredi Noir(   Читать дальше...   )Производство: Dark Jazz Records – DJR 001Жанр: Ambient, Dark Ambient, Dark Jazz, Doom Jazz, Post RockПродолжительность: 00:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:732A90F7251BBAA669A66830586A54A5BC08DC37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279959   (764592) от 31.01.2019
+
+VA - Nicholson - Glorious (The Album) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicholson - Toward The Light (Feat. Jennie Osborn) (Original Mix)
+02. Nicholson - Society (Original Mix)
+03. Nicholson & Emoiryah - In The Need (Original Mix)
+04. Nicholson - Shut Them Down (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D497DFE00126DDEF837B82F6F3A814C74B54D72E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279933   (764595) от 31.01.2019
+
+VA - JOOF 20 Years (Mixed by Gary Delaney & Facade & Daniel Lesden) (2018) [MP3|320 Kbps] <Progressive House,Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary Delaney – JOOF 20 Years - Mixed by Gary Delaney (Continuous DJ Mix)
+02. Facade – JOOF 20 Years - Mixed by Facade (Continuous DJ Mix)
+03. Daniel Lesden – JOOF 20 Years - Mixed by Daniel Lesden (Continuous DJ Mix)
+04. Monojoke – Hollow Child (Original Mix)(   Читать дальше...   )Жанр: Progressive House,TranceПродолжительность: 11:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E901980BCDA19C1F6477172BBFF7C6B55F0099
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279882   (764596) от 31.01.2019
+
+VA - Nothing But...Tech House Essentials, Vol.07 (2019) [MP3|320 Kbps] <Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GAWP - Blocker (Original Mix)
+02. Hott Like Detroit - Groovers (Dub Mix)
+03. Fachini - Keep Holding (Original Mix)
+04. Black V Neck - Listen To My Flute(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 02:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46BF280374615AD4D11B20A4D270D74800B4687C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279950   (764597) от 31.01.2019
+
+VA - Festival Anthems Vol.4 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer - New Era (Suanda 150 Anthem) (Extended Mix)
+02. Frainbreeze - #Dvrk5ide (Extended Mix)
+03. Ruslan Radriges - Revival (Extended Mix)
+04. Adip Kiyoi - Start With A Dream (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA4D9B6C5DE90A8FD3BAF3E954D85CF11E87891
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214415   (764822) от 21.03.2018
+
+Onuka - Mozaika (2018) [MP3|320 Kbps] <Electronic, Folk>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vsesvit
+02. Golos
+03. Animal
+04. Strum(   Читать дальше...   )Жанр: Electronic, FolkПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD4FE642BF1929AFA90CAD91AC50DCB2CAE76307
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214479   (764898) от 21.03.2018
 
 VA - Anjunabeats in Miami (2018) [FLAC|Lossless|image + .cue] <Trance>
@@ -530,168 +692,6 @@ VA - Suanda Spring Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3354D83F5CD73B375AC48B508F4A71DDB4FB1859
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126562   (765552) от 18.04.2017
-
-Wolfgang Gsell - Memories & Photographs (2016) [MP3|320 Kbps] <Ambient, Chillout, New age>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intermezzo
-02. Memories & Photographs
-03. Christmas Snowfall
-04. A-Changing Fashions(   Читать дальше...   )Жанр: Ambient, Chillout, New ageПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:195B82B42EA17191FF1A5A314F9179CC1E509DCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214170   (765776) от 20.03.2018
-
-VA - Pure State Chillout (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Beatgridded  -  Namaste (Original Mix)  5:41
-02.  Saba Rock & Popy Zeddil  -  Drifting (Original Mix)  5:16
-03.  Mephia  -  Ananda (Original Mix)  6:49
-04.  Mephia  -  Sweet Seduction (Original Mix)  4:36(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA9D858DD3CEC15E106D15839FDB3A0830B6005
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214172   (765804) от 20.03.2018
-
-VA - Sun Moon Stars (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Stephen J. Kroos  -  Ornithine (Original Mix)  5:01
-02.  Ingo Herrmann  -  Planet Earth (Original Mix)  2:18
-03.  Peter Pearson  -  Sweet Heart (Original Mix)  4:48
-04.  Marga Sol  -  Birds & Butterflies (Original Mix)  2:05(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:307D5E946A2698EBC98BD08504403AADF451B922
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214116   (765810) от 20.03.2018
-
-Kohl - Learned Ethics / Imposed Ethics (2018) Umor-Rex [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Possibility Of The Infinite (04:16)
- 02. Moral Supposition (08:54)
- 03. Moral Autonomy (05:41)
- 04. The Inquisition (05:45)(   Читать дальше...   )Жанр: Dub Techno, Ambient, ExperimentalПродолжительность: 00:30:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:203943D9D03E05C2EDB493C945B158A8EAB6556B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521141   (766025) от 01.01.2022
-
-VA - Vocal Trance Classics (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaimo K - The Treasure Of Your Heart (Radio Edit) (3:21)
-02. Nitrous Oxide - Neverending Dawn Of You (Cold Rush Edit) (4:15)
-03. Sneijder - Letting Me Go (Stargazers Remix) (3:21)
-04. Ferrin & Morris - Horizon (Alan Morris Remix) (3:11)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D58C23CC955E96E6A17FD73783ED3E2BE6935E1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279463   (766043) от 29.01.2019
-
-Weber & Weber - Music Box (2019) Lemongrassmusic [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Nu Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Peace I Cannot Find (5:27)
- 02. Close Your Eyes (5:42)
- 03. Deep Diving (5:31)
- 04. The Perfect Life (4:51)(   Читать дальше...   )Жанр: Chillout, Lounge, Nu JazzПродолжительность: 01:15:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D6B9C898CA125DDCAEFAABCFFDA4447303D4E37
 ```
 
 

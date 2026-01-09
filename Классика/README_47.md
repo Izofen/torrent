@@ -1,3 +1,85 @@
+###  Публикация: 992403   (900289) от 02.03.2016
+
+VA - Great Pianists of the 20th Century: The Complete Edition (1998 - 1999) Box Set, 202 CD [FLAC|Lossless|tracks + .cue] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900289.jpg" />
+</div>
+
+
+###  Подробнее
+
+На нашем трекере катастрофически не хватало релизов такого наиболее популярного инструмента классической музыки, каким является пианино. Гений фирмы Philips сегодня восполнит этот пробел.
+Действительно Великие пианисты собраны в этом поистине великолепном издании "Великие Пианисты 20-го века". Поверите - двести дисков? А вы наверняка думали, что такое издание (   Читать дальше...   )Box 000 - Sampler
+Box 001 - Geza Anda
+Box 002 - Martha Argerich I
+Box 003 - Martha Argerich II(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 244:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2147736657A2FDC0765D9DB52506CDF4F1983A6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992521   (900512) от 02.03.2016
+
+London Philharmonic Orchestra - The Symphonic Music of Pink Floyd (1995) [FLAC|Lossless|image + .cue] <Modern, Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time (8:13)
+02. Brain Damage (5:14)
+03. Another Brick In The Wall (Part II) (8:28)
+04. Comfortable Numb (5:27)(   Читать дальше...   )Жанр: Modern, ClassicalПродолжительность: 01:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E05A98E5C24A18B346CB911C0DA0E846BCE131C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992625   (900518) от 02.03.2016
+
+Amira Willighagen - Merry Christmas (2015) [MP3|192 кб/с] <Classical, Opera>
+
+>>Классика
+>>Вокал
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Ave Verum Corpus, K. 618                  2:57
+02.	Bist du bei mir	                                4:12
+03.	Nulla in Mundo Pax Sincera, RV 630	2:21
+04.	Ave Maria	                                        3:57(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C82A4C749C918622B805B1CCD016B0A4DF36F24B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992522   (900571) от 02.03.2016
 
 Прокофьев, Hindemith - Quintet, Overture on Hebrew Themes; Octet (Berlin Soloists, Bashkirova) (2002) [MP3|320 кб/с] <Классическая музыка, Modern, Chamber>
@@ -615,87 +697,6 @@ Grieg - Piano Concerto in A minor, op. 16
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD112E95373548B2D4EF8A0351C3E79A029AA665
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992342   (902391) от 01.03.2016
-
-VA - Палитра Классики (2003) S&V #12/2003 [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ф.Шуберт - Ave Maria (5:50)
-02. Ф.Куперен - 'Любимая' (чакона) (5:34)
-03. Т.Альбиони - Адажио (2:48)
-04. Ф.Шопен - Фантазия-экспромт (4:33)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8706293DCDBBEE1BCFD57332CA3095DFB0617886
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992254   (902416) от 01.03.2016
-
-Прокофьев - Piano Concerto no. 3, piano pieces (Прокофьев, Coppola - London Symphony Orchestra) (2001) [FLAC|Lossless|tracks] <Classical, Concerto, Классическая музыка>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Concerto no. 3 in C major, op. 26
-01 (1) Andante - Allegro
-02 (2) Tema con variazioni (Andantino)
-03 (3) Allegro ma non troppo(   Читать дальше...   )Жанр: Classical, Concerto, Классическая музыкаПродолжительность: 00:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7499CA0D5D3F96DAFE9A21D3BEFF97E513F1DE36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992288   (902418) от 01.03.2016
-
-VA - Classical 2008 (2007) compilation, CDx2 [FLAC|Lossless|image + .cue] <Classic>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902418.jpg" />
-</div>
-
-
-###  Подробнее
-
-СD1: 
-01. Sarah Brightman -  Time To Say Goodbye (Quarantotto) (4:07)
-02. Il Divo -  You Raise Me Up (Lovland) (4:02)
-03. Nigel Kennedy -  Czardas ((Monti) (5:24)(   Читать дальше...   )Жанр: ClassicalПродолжительность: СD1: 01:14:49; CD2: 01:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD12FD85EFC495BE19EAD94D7812A598C91CD72
 ```
 
 

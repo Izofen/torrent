@@ -1,3 +1,300 @@
+###  Публикация: 327066   (1030362) от 19.02.2021
+
+Stefan Nicolai - 2 альбома (1993, 2006) [FLAC|Lossless|tracks] <Instrumental, Pan Flute>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030362.jpg" />
+</div>
+
+
+###  Подробнее
+
+1993 - Golden Sound of Panflute
+01. Chanson Anonyme 	    (04:08)
+02. Vaya Con Dios 	    (03:21)
+03. Goodbye my Love Goodbye (03:06)(   Читать дальше...   )Жанр: Instrumental, Pan FluteПродолжительность: 02:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90BA9D34BBA453B00722C11533ED7C55E227CCED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 327760   (1030366) от 19.02.2021
+
+The Royal Philharmonic Orchestra - Hits Of Elton John - The Ballads (1991) [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nikita 			(05:55)
+02. Your Song 			(04:15)
+03. Goodbye Yellow Brick Road 	(03:19)
+04. Easier To Walk Away 	(04:28)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06BAA109E874022C82A51964305086C05A1FDB20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 301914   (1030368) от 19.02.2021
+
+VA – Ball Room Dance Collection - Tango (2001) Compilation [FLAC|Lossless|image + .cue] <Ballroom Dance, Easy Listening>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nat King Cole - El Choclo (2:13)
+02. Fun Boy Three - The Tunned Of Love (3:09)
+03. Mary & Gordy - Vom Festen Grundsatz Zum Lockeren Madchen (2:38)
+04. Vicky Leandros - Tango D'amor (3:35)(   Читать дальше...   )Жанр: Ballroom Dance, Easy ListeningПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D03F42018507C377B2D1EA259E6A359DB151BE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 293707   (1030379) от 19.02.2021
+
+VA – Exotic Guitars From The Clovis Vaults - Including "World Wide Hits" (2010) Compilation, Limited Edition [FLAC|Lossless|image + .cue] <Guitar Insrumental, Easy Listening, Oldies>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030379.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 редких и неизданных инструментальных композиций от знаменитой студии Norman Petty's Clovis, в исполнении The Fireballs и The String-A-Longs.01. The Fireballs - Torquette  		 (02:24)
+02. The Fireballs - Poquito  		 (01:32)
+03. The Fireballs - Motivation		 (02:01)
+04. The Fireballs - Stormy 		 (03:24)(   Читать дальше...   )Жанр: Guitar Insrumental, Easy Listening, OldiesПродолжительность: 01:14:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6351903D25D6852D2FCBEDD867E19BC8C1E08117
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 368390   (1030401) от 19.02.2021
+
+Liliana Barrios - Troileana (2007) [FLAC|Lossless|image + .cue] <Tango>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La ultima curda (5:49)
+02. Ese muchacho Troilo (1:51)
+03. Che, bandoneon (3:51)
+04. Desencuentro (3:28)(   Читать дальше...   )Жанр: TangoПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D080D82731C070D472E4A6CB3BD676561BB59FCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357836   (1030410) от 19.02.2021
+
+Markus Klepper - Akkordeon Classics (2000) [FLAC|Lossless|image + .cue] <Classical, Akkordeon>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chopinianas, for accordion, Mazurka in A flat minor	(03:11)
+02. Chopinianas, for accordion, Mazurka in A major	(02:41)
+03. Chopinianas, for accordion, Mazurka in E major	(02:34)
+04. Chopinianas, for accordion, Mazurka in G major	(03:20)(   Читать дальше...   )Жанр: Classical, AkkordeonПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA72A07A8599DA516A80B7C8C4F5E34185B67158
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621122   (1030497) от 27.03.2023
+
+VA - The Best Of Mystera (2001) 2 CD [OGG Vorbis|480 Kbps] <New Age, Synth-pop, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Era - Ameno
+02. Enigma - Sadness Part 1
+03. Highland - Veni, Vedi, Vici
+04. Vangelis - Conquest Of Paradise(   Читать дальше...   )Жанр: New Age, Synth-pop, AmbientПродолжительность: 02:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD6924DC8D258F964F36CCA3EBCBEFC307301106
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622038   (1030508) от 27.03.2023
+
+VA - Mystera V (2000) [OGG Vorbis|480 Kbps] <Electronic, New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enigma - Gravity Of Love
+02. Highland - Bella Stella (Non Rap Radio Mix)
+03. Clannad - Ri Na Cruinne
+04. Michael Flatley's Lord Of The Dance - The Lord Of The Dance(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 01:20:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE7221D496B8DB0B1DE0BBE26D7454D9BED1E6E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621134   (1030509) от 27.03.2023
+
+VA - Mystera IX (2002) [OGG Vorbis|480 Kbps] <Downtempo, Synth-pop, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Era - Divano
+02. Vangelis - Light And Shadow
+03. Highland - Quo Vadis
+04. Oliver Shanti & Friends - Journey To Shambala(   Читать дальше...   )Жанр: Downtempo, Synth-pop, AmbientПродолжительность: 01:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B02B8AC6D07218B7F039AB4FD84BFC1F036D4D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288278   (1030576) от 18.02.2021
+
+Harry Holland ‎– Superhits '85 Im Magic Accordion-Sound (1985) [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Magdalena 		   (04:15)
+02. You can win if you want 	   (03:25)
+03. Die Glocken von Rom 	    	   (03:12)
+04. Spanish Eddie 		   (03:42)(   Читать дальше...   )Жанр: Instrumental, AccordionПродолжительность: 00:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964F111ABE7009748ACAB5B7FA0B70D7572C480A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 214614   (1030578) от 18.02.2021
+
+VA - Cosmic Chill Lounge Vol.1-4 (2007-2010) [FLAC|Lossless|image + .cue] <Chillout>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Man Behind C. feat. Miriam - See You Again 	(06:08)
+02. Magica Fe - Words					(06:47)
+03. Soulcraft feat. Jill Noom - Rain In My Hair		(05:34)
+04. Sine - Always					(05:03)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 04:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9092AF1C9FFEC87046D39C28CAAFAEBFD474F521
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 375546   (1030579) от 18.02.2021
 
 VA - Erotica (1977) [FLAC|Lossless] <Instrumental>
@@ -396,303 +693,6 @@ Yulia Monastyrenko - Reflection (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F91A2D57C562EFC719E0041C8EF02CB34F861365
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343469   (1033234) от 07.02.2021
-
-Amure (Alexey Khatsko) - Дискография (2010-2020) [FLAC|Lossless|WEB|tracks] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алексей Хацко (Alexey Khatsko), известный в музыкальной сфере как Amure и DJ.Amure, родился 2 октября 1976 года в городе Обнинск. В числе первых работ Алексея были ремиксы к детским песням (Учат в школе, Дважды два четыре, Крылатые качели и др.), которые неплохо ротировались на радио Kidsmusic (Kids-hits). В 2007 году Алексей записывает свой дебютный альбом "Исповедь", (   Читать дальше...   )01. Фантазия №1 (5:52)
-02. Фантазия №2 (Аллилуя) (5:52)
-03. Фантазия №3 (Rock'n'Roll Mega Drive) (6:39)
-04. Фантазия №4 (6:47)(   Читать дальше...   )Жанр: New Age, Enigmatic |Продолжительность: 18:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FB8D57218B437DC372F2FB3DA0225FA8E10A73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441781   (1033248) от 07.02.2021
-
-Wardruna - Kvitravn (2021) [FLAC 2.0|24/48|tracks + .cue|WEB-DL] <Nordic, Ambient, Neofolk>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synkverv [00:04:50]
-02. Kvitravn [00:06:17]
-03. Skugge [00:06:38]
-04. Grá [00:03:32](   Читать дальше...   )Жанр: Nordic, Ambient, NeofolkПродолжительность: 01:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:356F4653DFC6E6CB6CC77757BFF69952971679F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444627   (1033267) от 07.02.2021
-
-Deguess - Chillstep Piano Renditions Vol. 1 (2014) [FLAC 2.0|24/44.1|tracks|WEB-DL] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blackmill - The Drift (02:15)
-02. Blackmill - Fortune Soul (03:15)
-03. Blackmill - Journey's End (03:29)
-04. Blackmill - Love At Heart (04:28)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:15:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:775EA1E9FE80AEB7D4AF887875894F24A43F9D99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445941   (1033276) от 07.02.2021
-
-VA - Romantic Piano - the Rose (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ronnie Aldrich Piano with Romantic Strings - Love Theme from Romeo and Juliet (3:29)
-02. Ronnie Aldrich, Piano - Wally Stott Orchestra - Theme from Love Story (3:35)
-03. Ronnie Price Piano and Orchestra - A Man and a Woman (1:58 )
-04. Marian McPartland, Piano - I've Got a Crush on You (3:14)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D14894BC8594F370B0522AB54E71897F0CDA2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618785   (1033392) от 14.03.2023
-
-Таверна - Не о средневековье (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кем мы стали? [00:03:20]
-02. Нео-средневековье [00:04:00]
-03. Новое время (feat. Тэм Булатов) [00:04:13]
-04. Синяя птица [00:04:13](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C2BF50A551003FB4D54FF99480C7C5B4D42CBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618812   (1033396) от 14.03.2023
-
-Baran Yildiz - Interbeing (2019) [FLAC|Lossless|WEB-DL|tracks] <Handpan, World, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tranquillity, Pt. 1
-02. Tranquillity, Pt. 2
-03. Interbeing
-04. Hope(   Читать дальше...   )Жанр: Handpan, World, InstrumentalПродолжительность: 00:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1997EABB8C0AF2B4B2603D028D6EDC18C172EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445333   (1033495) от 06.02.2021
-
-Yakuro - My Space (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (2:16)
-02. Fragment of Sun (6:12)
-03. Signal from the Nebula (8:02)
-04. Hymn to the Wind (6:50)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 02:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3FDF4D90C4AA22F2A3BE51FC3347DA697EB32BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445334   (1033506) от 06.02.2021
-
-Flaer Smin - Karma (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Namaste (3:56)
-02. The Highway (5:21)
-03. Can You Hear Me (6:07)
-04. aXe (5:21)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57018010E627245FBB55975C4C1FD2DD8C5DBB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445331   (1033513) от 06.02.2021
-
-Flaer Smin - The Best (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wish U Were Here (Re-Edition 18 Mix) (7:41)
-02. Alone In The Dark (6:59)
-03. Adagio For Love (7:41)
-04. Catharsis (7:08)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB3258AA985A1AD47FA4C79D8C4993410D718734
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444936   (1033969) от 04.02.2021
-
-Yakuro - The Best (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (2:47)
-02. Blue...The Color of Dreams (11:28)
-03. Voices of Infinity (8:27)
-04. Pink...The Color of Love (9:56)(   Читать дальше...   )Жанр: New Age, DowntempoПродолжительность: 02:27:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F7DD9CA78DCCA5EE8BB4AE3DAF871515EB6CAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618145   (1034352) от 10.03.2023
-
-Blackmore's Night - Shadow of the Moon (1997) 25th Anniversary Edition, 2023, Minstral Hall Music [MP3|320 Kbps] <Folk, Medieval>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034352.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shadow of the Moon (25th Anniversary New Mix)
-2. The Clock Ticks On (25th Anniversary New Mix)
-3. Be Mine Tonight (25th Anniversary New Mix) 
-4. Play Minstrel Play (25th Anniversary New Mix)(   Читать дальше...   )Жанр: Folk, MedievalПродолжительность: 01:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:862D72FEDAC63EF45FB986D0EF5DB8B8023CE2D2
 ```
 
 

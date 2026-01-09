@@ -1,3 +1,165 @@
+###  Публикация: 1478634   (1010200) от 20.06.2021
+
+Lane 8 - Summer 2021 Mixtape (2021-06-15) [MP3|320 Kbps] <Deep House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010200.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ID - ID
+2. ID - ID
+3. Peer Kusiv feat. Johanson - Bring You Back
+4. Massane - Genova(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 04:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDD7D87BBB2A2E19AFFD17632554B2907ABD9D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478698   (1010203) от 20.06.2021
+
+Inkipak - Inkipak (2021) Mighty Force [FLAC|Lossless|WEB-DL|tracks] <IDM, Breaks, Electro, Acid>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eight Thirty Seven (08:34)
+ 02. Fragment (06:48)
+ 03. Unobtainable (06:00)
+ 04. Live In Hope (05:39)(   Читать дальше...   )Жанр: IDM, Breaks, Electro, AcidПродолжительность: 01:16:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0017B37C5EB9D1ADCCFC1EA07F2D3576DD811D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478616   (1010213) от 20.06.2021
+
+Hologram - The Great Divide (2001-2007) (2020) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Great Divide (01:58)
+ 02. Elements (06:15)
+ 03. Sephiroth (07:22)
+ 04. Ion (03:30)(   Читать дальше...   )Жанр: IDM, Ambient, ExperimentalПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56999B551F32B56E3C45F0034F9698372CBE0D59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478485   (1010319) от 19.06.2021
+
+Odderon - Hydroelectric EP (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Acid, Ambient>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Homecoming (04:11)
+ 02. Late Spring (04:12)
+ 03. Hydroelectric (04:22)
+ 04. Floodplain (04:33)(   Читать дальше...   )Жанр: IDM, Acid, AmbientПродолжительность: 00:20:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDEB9689562A3DF3FFC5FA659C3EACB412D0E256
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478492   (1010341) от 19.06.2021
+
+VA - Ambiental Dreams: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Calma (5:28)
+02. Ann Grace - Vega - Original Mix (7:11)
+03. Michael E - Infinite Beauty - Original Mix (4:54)
+04. Beamy - Gawain (4:00)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DAF45D9E90384D40344259A361CC4D1D9E11629
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478453   (1010359) от 19.06.2021
+
+Vintage Culture - Live @ Defected Livestream, Brazil (2021-06-11) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage Culture & Fancy Inc ft. Roland Clark - ID
+02. Meca - Chains
+03. Sofi Tukker - Drinkee (Vintage Culture & John Summit Remix)
+04. Vintage Culture & Ferreck Dawn - ID(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5E6D34D674BA407DB3BB7CB10B92CDB00EE9992
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026276   (1010411) от 18.06.2021
 
 MikTek - Discography 24 Releases (2009-2021) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Ambient, Psybient>
@@ -527,168 +689,6 @@ Calibre - Feeling Normal (2021) Signature Records [FLAC|Lossless|tracks+.cue] <U
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1524D5527643D85E6E8B58D67340FFC3E2031651
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477142   (1011320) от 13.06.2021
-
-Shingo Nakamura - Glow (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shingo Nakamura - Commence
-02. Shingo Nakamura - Phenomena
-03. Shingo Nakamura; Brandon Mignacca - Darling Midnight
-04. Shingo Nakamura - Before You Go(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:31:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F7820C2A6AA2BD2C1EFB6E5F2633945AF34A24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477139   (1011344) от 13.06.2021
-
-VA - Moodswings 3 (2021) [FLAC|Lossless|Web-DL|tracks] <Drum & Bass, Liquid Funk>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Villem, McLeod, Leo Wood - Siren (5:14)
-02. Riya - Ripples (4:54)
-03. Technimatic - Mirror Image (Phaction Remix) (5:20)
-04. Terror, Imogen Storey - Into You (Cyantific Remix) (4:14)(   Читать дальше...   )Производство: Spearhead Records - SPEAR130Жанр: Drum & Bass, Liquid FunkПродолжительность: 01:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BDB169E924F6AEC02B2B62FF7862682E663405A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477031   (1011349) от 13.06.2021
-
-Doctrina Natura - The Fire Of The Beginning Of Time (2021) Alexandar [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children Of The Same Goddess (06:00)
- 02. Of Sand Is Made The Flesh (08:03)
- 03. Those Who Have Left (05:03)
- 04. Ancestral Blood (06:34)(   Читать дальше...   )Жанр: Techno, Acid, AmbientПродолжительность: 00:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E0E714FD1B297680D87ABC250CF80A777BFFA54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477014   (1011353) от 13.06.2021
-
-Adam Kroll - Mutants (2021) Subtempo [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Dub, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Phoenix (03:50)
- 02. Nicodemus Pulse (05:28)
- 03. Good Bye Garbha-Hsien (05:00)
- 04. Neo (04:18)(   Читать дальше...   )Жанр: Dub Techno, Ambient, Dub, ExperimentalПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B015E2C2227D4A95394FB4900D62E0F763BCD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477150   (1011355) от 13.06.2021
-
-VA - Jungle Ballad EP (2014) [FLAC|Lossless|Web-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bcee – Breath In (4:52)
-02. Roygreen & Protone – Raindrop (5:12)
-03. Rowpieces – Jungle Ballad (5:54)
-04. Roygreen & Protone – Renaissance (5:41)Производство: Fokuz Recordings – FOKUZ069Жанр: Drum & BassПродолжительность: 00:21:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E436B3433B05DF68202BE5267CAD1C9043B2FC61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215670   (1011474) от 12.06.2021
-
-The Gnome | Gnome & Spybey - Discography 16 Releases (2010-2021) Crime League, Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cancel Your Tomorrow (03:50)
- 02. To Be The Sun In Flight (05:46)
- 03. Long And Short (14:03)
- 04. Born To Fly (06:00)(   Читать дальше...   )Тип издания: WebЖанр: Ambient, Experimental, Drone •Продолжительность: 12:05:38 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E7A53679C629E76DC5DE3A56089DC981FFAF479
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1225901   (657755) от 18.05.2018
+
+VA - 150 Sport Dance Music (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657755.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Walker - Faded
+002. Calvin Harris feat. Pharrell Williams, Katy Perry & Big Sean - Feels
+003. Shawn Mendes - Stitches
+004. The Chainsmokers feat. Daya - Don't Let Me Down(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96E317303FF51EBC793E9BDAD71B153CE67A2AE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139955   (657813) от 04.06.2017
 
 VA - Tropical Serenity: 100 Relaxing Sounds (2017) [MP3|320 Kbps] <Downtempo, Chillout, Ambient, Relax>
@@ -710,33 +737,6 @@ VA - Morning Chill & Relax (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DACD352D49C01BEDA15D8CC93FF4EA581108820
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903341   (659057) от 30.05.2015
-
-VA - USA Hot Top 40 Singles Chart 6 June (2015) [MP3|~245 кб/с (V0)]<Dancehall, Trap, Alternative, Electro-R&B, Electropop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taylor Swift Feat. Kendrick Lamar - Bad Blood
-02. Wiz Khalifa Feat. Charlie Puth - See You Again
-03. Fetty Wap - Trap Queen
-04. Walk The Moon - Shut Up + Dance(   Читать дальше...   )Жанр: Dancehall, Trap, Alternative, Electro-R&B, ElectropopПродолжительность: 02:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE0A70F8C3D204DB5E9311E9379AB0C441061254
 ```
 
 

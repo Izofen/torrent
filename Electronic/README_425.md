@@ -1,3 +1,165 @@
+###  Публикация: 1198897   (802945) от 14.01.2018
+
+VA - Future Electronic Chillout - Top Downbeat Lounge Grooves (2018) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Moon Pub  -  Across The Horizon (Spheric Dance Mix)  4:52
+02.  Kling One  -  Going Up (Mystical Electronic Downtempo Mix)  5:04
+03.  Kevin Engelstein  -  Until We See The Ocean (Balearic Downtempo Mix)  4:45
+04.  Ryan Pearce  -  Use Your Words (Melancholic Downbeat Mix)  4:39(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BC6CE9B38B485504C6064747E0D51AA118F5CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198848   (802947) от 14.01.2018
+
+York - Peace (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Farewell To The Moon  6:33
+02.  Angels Will Help You  5:32
+03.  The Awakening  5:05
+04.  Inmortal  6:21(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 01:16:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:874CA8A0DD372516F8D7A8BB1E099653731BA7B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198745   (802949) от 14.01.2018
+
+VA - Black Hole Trance Music 01-18 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jam & Spoon  -  Odyssey To Anyoona (Markus Schulz vs. Jam El Mar Remix)  4:16
+02.  Alex Karweit  -  Choosing His Angels (Extended Club Mix)  7:33
+03.  Ferry Corsten  -  Wherever You Are (feat. HALIENE) (Solis & Sean Truby Extended Remix)  6:49
+04.  Dirkie Coetzee  -  Nymeria (Extended Mix)  5:34(   Читать дальше...   )Жанр: TranceПродолжительность: 02:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7EF61E892EE5A96184BAD86229C6201E78918C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198644   (802951) от 14.01.2018
+
+VA - Lemongrass Garden Vol.8 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Marc Hartman  -  Love Can Save The Day (To Roberto Concina)  5:36
+02.  Eskadet  -  Stars In Your Eyes  5:54
+03.  Malkou  -  Chateau De Vincennes  3:49
+04.  Roberto Bronco  -  Rollin  5:02(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F59583FA9EB9F291BBF9BB8E9CCF210325628B43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198842   (802955) от 14.01.2018
+
+VA - Best Of LW House II (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Audiowhores  -  Sometimes (Sean Finn Recall)  5:56
+02.  JB & Charlie Hedges  -  Best Night Oml (Pt. 2) (Lindo Martinez Remix)  7:01
+03.  Damon Hess & Emilie Cunliffe  -  Dancefloor (Original Mix)  5:21
+04.  Afrojack  -  Chords (George F, Eran Hersh & Darmon 'Blow Your Mind' Remix)  9:03(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800C76E3BAF0631BB5173F4E52346DFE863715DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198593   (802957) от 14.01.2018
+
+VA - Chilling Me Softly (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Active Waves - Cafe Montmatre  03:23
+02. LPA City - Maspalomas Sunset  05:02
+03. Makia Blue - Nauthiz  03:23
+04. Dark and Light - To See You Again  03:37(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B731BB1047E41C2DD07FEDE2125970CBD6465045
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198837   (802959) от 14.01.2018
 
 VA - Best Of LW Tech House II (2018) [MP3|320 Kbps] <Tech House>
@@ -533,168 +695,6 @@ VA - Coffee Lounge Tunes Vol.1 (Lean Back & Relax With Wonderful Electronic Loun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE1B14AFB2D944456BB4EF8814914C5CED1F62BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198410   (804513) от 13.01.2018
-
-VA - Chillout Raising (Lounge Drama) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Micheal Artur Koner  -  Season (Original Mix)  3:12
-02.  Chillploy  -  Framework (Original Mix)  3:17
-03.  Blue Side  -  Swords (Original Mix)  3:30
-04.  Keyright  -  Punch (Original Mix)  2:50(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:23:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65ECF7D78E3F9CA7955C8B1781E4B0F302FE2A2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119797   (805618) от 29.03.2017
-
-VA - OTB-EDM Records Miami (WMC) (2017) [MP3|320 Kbps] <House, Progressive, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Antonio Miccoli - Close Your Eyes  5:08
-02.  Dave Noise & Andeejay - Fire  5:31
-03.  i52DJ - Dream  5:09
-04.  Tosch - Windjammer  4:19(   Читать дальше...   )Жанр: House, Progressive, FunkyПродолжительность: 03:20:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D8C8CAAF7245B658E296746ADC2CC1CA916743
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120071   (805744) от 29.03.2017
-
-VA - Buddha World Bar 2017   [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Glitter Twins - Blue Paradise
-02. Roger Bailey - Can't Leave Play - Full Intention Remix
-03. Mr. Dexter 4U - Back to Back
-04. Fuzzy Martini - Blur Walk(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83EDDD50130727C61DC60BFB95798616A33602A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356454   (805861) от 26.10.2021
-
-Thomas Lemmer - Discography 69 Releases (2009-2021) [MP3|320 Kbps] <Chillout, Ambient, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805861.jpg" />
-</div>
-
-
-###  Подробнее
-
-2009 - Chillout Lounge
-2011 - Relieve (Reissue '13)
-2013 - Relieve • Remix Edition
-2013 - Still(   Читать дальше...   )Жанр: Chillout, Ambient, Lounge, Downtempo, Deep House, ElectronicПродолжительность: 64:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98450766903741E536D634AF45F25DCD240D86C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333681   (806038) от 18.05.2020
-
-5F_55 | 5F-X - Discography 5 Releases (2000-2010) Hands Productions [FLAC|Lossless|tracks+.cue] <Rhythmic Noise, IDM, Breakbeat, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audioautical-file.001 (05:57)
- 02. Audioautical-file.002 (05:42)
- 03. Audioautical-file.003 (06:16)
- 04. Audioautical-file.004 _Sountox Remix (06:07)(   Читать дальше...   )Тип издания: CDЖанр: Rhythmic Noise/IndustrialПродолжительность: 05:15:58 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B0FE8E5364048F98D33BB6772917526F5163857
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009860   (806110) от 23.04.2016
-
-VA - Cafe Luna (Chillout and Lounge Edition) (2016) [MP3|320 кб/с] <Downtempo, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. W. Dekay - Charming Night (03:49)
-02. Simone Mencarelli - Heartfire (05:02)
-03. Avatar - Happened in Paris (03:41)
-04. AB Music - Sunday Morning (04:03)(   Читать дальше...   )Производство: AB MusicЖанр: Downtempo, Lounge, ChilloutПродолжительность: 01:04:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E438BB0A71C76C7AD27252250AC28865BEC23DA0
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1035580   (626505) от 17.07.2016
+
+Arabesque - Greatest Hits Volume 1 (1993) Unofficial Release [APE|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Mr. Monkey
+02. Fly High Little Butterfly
+03. Buggy Boy
+04. Friday Night(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F2E5E8C05BC74F307B5E666A10DDE023DB8FCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035236   (626710) от 17.07.2016
 
 Dicte - Perfume (2016) [FLAC|Lossless|tracks + .cue] <Pop, Soul>
@@ -671,33 +698,6 @@ Bananarama - Discomania (2005) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8D29A9980B7B693111C8ACF831AE3F7D77CBF1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228082   (640932) от 29.05.2018
-
-Charles Aznavour - Mélodies inoubliables (2018) [FLAC|Lossless|WEB-DL|tracks] <French Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Je m'voyais deja
-02. Jezebel
-03. Heureux avec des riens
-04. Il faut savoir(   Читать дальше...   )Жанр: French PopПродолжительность: 00:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB5F16B730FA2C862D873A7CF408072206F31E95
 ```
 
 

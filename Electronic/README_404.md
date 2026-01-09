@@ -1,3 +1,165 @@
+###  Публикация: 1124565   (785831) от 11.04.2017
+
+VA - Lone Scapes: Chillout and Relaxation (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrico Donner - Golfinhos
+02. Don Gorda Project - Greenwood
+03. Cane Garden Quartet - Erotisme
+04. Cane Garden Quartet - Into the Green(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B61D183DEB1544385F43487E9F2DE753EE856EBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124429   (785835) от 11.04.2017
+
+VA - Just Slow Music: 10 Exclusive Selected Electronic Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armanda Carlay - Paris - Dakar - Slow Beat Mix
+02. St. Robert - Inner Light
+03. Ann Carola - Feel the Presents
+04. Maya Girl - Rain Forrest(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C93853DA05C9D34DAA1ECF352343FB31C918AF7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124308   (785836) от 11.04.2017
+
+VA - Lounge Expression. Chillout Selection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rawback - Web Dream - Bunny Mix
+02. Inside Soul - Grassland - Rose Extended
+03. Roben Bucks - Falling Apart - Mirror Version
+04. Vintage Bullet - Dance Hole - Soul Cut(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B8CA35134DBA3BE64130ABA154D534CA9B0C760
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124296   (785837) от 11.04.2017
+
+VA - Lounge Sensations Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Deeper Sublime - La Musica Sei Tu  5:58
+02.  Fade - Aguhja  7:06
+03.  Mark One - Out Of Touch  4:05
+04.  Marc Hartman - People Of Beijing  4:36(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB403258BC4DD24C84D0894CD9BD5F79B82A49D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123517   (785919) от 10.04.2017
+
+Holly Wilson - Pink Floyd En Bossa Nova (2006) [MP3|320 Kbps] <Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Brick In The Wall (Part 2)
+02. Time
+03. Money
+04. Us And Them(   Читать дальше...   )Жанр: Easy Listening, OtherПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:384D6BED77FA182694D69162B5CF06236FEDFE49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123672   (785932) от 10.04.2017
+
+Kroy - Scavenger (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hull  (03:45) 
+02. Bones  (04:13) 
+03. Learn  (03:35) 
+04. Monstrosity  (03:14) (   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BA20E97CDE8A5AB9F7851AF446771FB86437A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123797   (785948) от 10.04.2017
 
 VA - Deep House Hits 2017 - Armada Music  [MP3|320 Kbps] <Progressive House>
@@ -533,168 +695,6 @@ VA - Health Regeneration 10th Potion (2017) [MP3|320 Kbps] <Downtempo, Chillout,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFDFCFA5646D73E39A8DEC691420974EC4703274
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124245   (785984) от 10.04.2017
-
-VA - Quintessence 1st Elixir (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maximo Gladius – Summer Love  05:57
- 02. Durga Amata – Misunderstanding  05:27
- 03. David James Bianchi – Aqueduct  05:22
- 04. Cassius Mc Fawner – Bright Cave  04:44(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF1ED448FAA9B935C7E4711F03FCA8D32442D94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123732   (785986) от 10.04.2017
-
-VA - Future Core Vol.1 (2017) [MP3|320 Kbps] <House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jetty Racher & James Bell - Ready For The Bass (Radio Edit)  2:39
-02.  Mark Edward Hilder - Fall In Love Again (Radio Edit)  3:35
-03.  Copamore - Where's Your Love (Radio Edit)  3:42
-04.  The STW Project - Us (Radio Edit)  3:50(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 02:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43F2D094BAD380B6B5FB8C8B9F85C4E777152D2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123678   (786106) от 09.04.2017
-
-Blank & Jones - Milchbar: Seaside Season 9 (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blank & Jones - My Island
-02. Blank & Jones with Zoe Dee - Adios Ayer
-03. Cantoma - Sea of Blue
-04. Zee Erf feat. Francesca Mondi - Southern Freeez (Mudd's Mix for Emma)(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 01:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CAACE20C30B8C80AB108A2993CAB80A801D3613
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123948   (786208) от 09.04.2017
-
-VA - Ori Uplift - Uplifting Only 217 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786208.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Avenger - Orca (New World Intro Mix Remaster)
-2. Syntouch & Blue Moon - Fields of Florette (Phil Dinner Remix)
-3. PRE-RELEASE PICK: Night Sky & Rebecca Louise Burch - Till I Break Free (Madwave Remix)
-4. The Enturance & Exouler - Inspiration(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A86CBC122C313D3F56967C5ACB20B66492E09874
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123468   (786220) от 09.04.2017
-
-VA - Infrasonic Spring Selection (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Max Denoise - Principessa (Ronski Speed Remix)  6:33
-02.  Empirian - Waves (Original Mix)  5:49
-03.  Artra & Holland - Freyja (Extended Mix)  6:38
-04.  Sam Laxton - Bliss (Extended Mix)  6:09(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 01:19:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BB8CD703158A7A26AFFC4D921EF89B920DA7712
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123483   (786389) от 08.04.2017
-
-Martin Buttrich - Collaborator Vol.1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Tech, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Buttrich & DJ Tennis - Perpetual (Original Mix) [12:49]
-02. Martin Buttrich & Ramon Tapia - Evita (Original Mix) [08:36]
-03. Martin Buttrich, Timo Maas - Nach Acht [03:29]
-04. Martin Buttrich, Loco Dice - Damn U Made It [03:26](   Читать дальше...   )Жанр: Tech House, Deep Tech, MinimalПродолжительность: 02:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990E5DD6E1E06314BF652CEB288A662F02217962
 ```
 
 

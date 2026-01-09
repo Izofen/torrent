@@ -1,3 +1,30 @@
+###  Публикация: 1218965   (717527) от 12.04.2018
+
+VA - For Your Disco Pleasure (2018) [MP3|320 Kbps] <Italo Disco, Pop, New Generation>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717527.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Atlanta - Romantic Break
+002. Brooklyn Guy - Cold Stuff (Original Mix)
+003. Eucariontes - Tell Me More (Original Mix)
+004. The Fans - M.A.F.I.A.(   Читать дальше...   )Жанр: Italo Disco, Pop, New GenerationПродолжительность: 10:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1590A0DE51C8D9CF71D46DF83164E0CBCC292A1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218980   (717657) от 12.04.2018
 
 VA - Экспресс русских хитов на Hit FM (2018) [MP3|256 Kbps] <Поп>
@@ -668,33 +695,6 @@ VA - The Rock Organ (2022) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4026176BA57AD15B46996780C3BEF91166FC0310
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285751   (718586) от 27.02.2019
-
-VA - Hit Music (весна 2019) от Мяу [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718586.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. LMFAO - I'm Sexy and i know it (ART PRYDE Remix)
-002. Tim Schou - Acapella
-003. ДеЛайла - Парадайз
-004. Kaaze feat. Nino Lucarelli - I Should Have Walked Away(   Читать дальше...   )Жанр: PopПродолжительность: 11:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA7DFECDB99FC39E207C5F4AD8B56D8FAD66E178
 ```
 
 

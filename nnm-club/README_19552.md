@@ -1,678 +1,671 @@
-###  Публикация: 1203029   (789059) от 31.01.2018
+###  Публикация: 1390669   (782256) от 17.06.2020
 
-Алимханов А. & Friends - Collection (2018) [MP3|320 Kbps] <Pop, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARKADiAS & DJ Kriss Latvia - Ссора (3:37)
-02. Hammers - Верь в любовь (Modern Talking Cover) (4:56)
-03. Алимханов А. - Лето прошло (3:52)
-04. Hammers & Evelina Ryazanceva - Дай мне шанс (Modern Talking Cover) (5:01)(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 04:20:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C6D8F3459BB65F52B65955DC4ADB9B4A9DF6CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202782   (789060) от 31.01.2018
-
-Moonbooter - Cosmosonic (2018) [FLAC|Lossless|WEB-DL|tracks] <Berlin-School, Trance, Downtempo>
+AMA Supercross Championship: Salt Lake City (11.06.2020) WEB-DL [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789060.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_782256.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. L I F O (5:07)
- 02. Caught by Melancholy (7:16)
- 03. I remembered Tomorrow (6:17)
- 04. Within Time Machine (6:55)(   Читать дальше...   )Жанр: Berlin-School, Trance, DowntempoПродолжительность: 01:14:33
+AMA Supercross Championship — американская гоночная серия. Гонки AMA Supercross Championship, основанные Американской ассоциацией мотоциклистов в 1974 году, проводятся с января по начало мая.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Вячеслав Брыкин)Продолжительность: 03:01:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D22AC1C3943268589B0ED663543FDA9A6DDCE475
+magnet:?xt=urn:btih:E6B4CED2E26E59FF9486DAD09B79A7466CB3E5F3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203030   (789061) от 31.01.2018
+###  Публикация: 1390859   (782257) от 17.06.2020
 
-А.В. Арциховский и др. | Новгородские грамоты на бересте [Из раскопок 1951-2000 гг.] [11 томов и доп. материалы] (1951-2004) [PDF]
+Nick Drake - Five Leaves Left (1969) [FLAC|Lossless|tracks + .cue] <Rock, Folk Rock>
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789061.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В серии "Новгородские грамоты на бересте" публикуются берестяные грамоты, найденные в ходе раскопок в Новгороде - их тексты и прориси (в первых томах также фотографии), а также исследования берестяных грамот.Жанр: Филология, палеография, славистикаФормат: PDF
+01. 'Cello Song (4:48)
+02. Day Is Done (2:29)
+03. Fruit Tree (4:49)
+04. Man in a Shed (3:55)(   Читать дальше...   )Жанр: Rock, Folk RockПродолжительность: 00:41:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C40C04190A85DA188D2FD34A7F92329105977BB9
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202871   (789062) от 31.01.2018
+###  Публикация: 1390755   (782258) от 17.06.2020
 
-Patrick O'Hearn - So Flows the Current (2001) Paras Recordings [FLAC|Lossless|tracks+.cue] <Ambient>
+VA - EDM Pool Party: Night Session (2020) [MP3|320 Kbps] <Club, Dance, House, Edm>
 
->>Архив торрентов
->>Архив Музыки
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789062.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782258.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Lovely Place To Be (08:49)
- 02. So Flows The Current (06:10)
- 03. The Cold Sea's Embrace (03:50)
- 04. Panning The Sands (07:26)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:52:03
+001. Matoma - The Bender
+002. Headlinerz - Heat Of The Night
+003. Reepr - Drugs, Dance & Tekno
+004. Miami Shakers - City Lights(   Читать дальше...   )Жанр: Club, Dance, House, EdmПродолжительность: 09:36:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53AAD4D0D913C5AD6C0D87D025EE26240FB0E93E
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203018   (789063) от 31.01.2018
+###  Публикация: 1390923   (782259) от 17.06.2020
 
-VA - 150 Dance Extra Mixes (2018) [MP3|320 Kbps] <House, Dance>
+VA - Quadrophobia V.1 (1998) Pendragon Records [FLAC|Lossless|tracks+.cue] <IDM, Electro, Industrial>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Electronic
+>>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789063.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782259.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001.  Basement Jaxx  -  Do Your Thing (Robbie Rivera Acid Remix)  3:33
-002.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30
-003.  50 Cent  -  Candy Shop (DJ Vini Remix)  5:06
-004.  Alan Walker  -  The Spectre  3:14(   Читать дальше...   )Жанр: House, DanceПродолжительность: 09:49:44
+01. Gridlock - Enzyme (04:30)
+ 02. Gridlock - Headache (04:12)
+ 03. Gridlock - Sickness (Second Disease) (04:14)
+ 04. Gridlock - Retina (Reconstructed By Individual Totem) (05:41)(   Читать дальше...   )Жанр: IDM, Electro, IndustrialПродолжительность: 01:12:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:062FC9521CD5266EE43D5EDEAF25174A8209C1BA
+magnet:?xt=urn:btih:4194BD44A9239A6B66413A3C696DE6205454A073
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203016   (789064) от 31.01.2018
+###  Публикация: 1390920   (782260) от 17.06.2020
 
-Svårmod Records (Svarmod Records) - Label 2 Releases (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Dark Ambient>
+James Grant - The Anjunadeep Edition 300 (2020) 2CD, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789064.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aeterno (06:33)
- 02. Generator Insaniam (05:46)
- 03. Alternatively Insanire (05:30)
- 04. Sator Abstentia (06:32)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient/Techno/Dark AmbientПродолжительность: 00:36:34
+01. Nikola Melnikov & Max Sorokin - Sun Wakes Up Earlier Than All (Mixed) (04:59)
+02. Nordfold - Trondheim (Mixed) (04:22)
+03. Nikola Melnikov & Max Sorokin - Pandawa (Mixed) (03:49)
+04. Rezident - Pure (Mixed) (04:04)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 03:06:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57C21A34FD6CB9282F2CE8984B3DFA51DBCAFA5E
+magnet:?xt=urn:btih:297937A22264F215BBA54AA124A65F01D7B1A8C1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202977   (789065) от 31.01.2018
+###  Публикация: 1390802   (782261) от 17.06.2020
 
-Vivaldi 1.14.1077.41 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:991EAFB413218CCAE364C228F3CD52F33450C7E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202802   (789066) от 31.01.2018
-
-Журнал | Salon-interior №2 (234) (февраль 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторитетный российский журнал по архитектуре и дизайну представляет на своих страницах все новое, уникальное, эксклюзивное, что создается в стране и мире, помогая читателям всегда быть в курсе современных тенденций архитектуры и дизайна. События, мировые выставки, обзоры аксессуаров, исторические здания, интервью с мировыми звездами, ландшафтные и флористические (   Читать дальше...   )Жанр: Архитектура, дизайн, строительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5968C87B7E6DC78859816DF1FD72CBCB0A12DBF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203071   (789067) от 31.01.2018
-
-VA - Soulvent Records: 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monika - Bahn (05:49)
- 02. In:Most - Over The Shoulder (05:03)
- 03. Pola & Bryson - DevilЖанр: Drum & BassПродолжительность: 01:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66D8685AD39D02999DE84DAD84B83289A11ED94C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202991   (789068) от 31.01.2018
-
-CoolUtils Total PDF Converter 6.1.0.142 RePack by Manshet [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTML, Text, CSV или изображения (TIFF, JPEG, BMP, GIF, WMF, EMF, PNG).Преимущество этой утилиты в том, что Total PDF Сonverter преобразовывает как отдельный файл, так и множество PDF файлов одновременно. Вам больше не нужен дорогой Adobe Acrobat, наш конвертер сэкономит Ваши деньги. Зарегистрированные пользователи (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5AD2171C48A816D8A68CE0FC8FF5118D53CC5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202941   (789069) от 31.01.2018
-
-Clozee - Harmony Remixes (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CloZee & Tor – Secret Place (Tor remix) 04:43
-02. CloZee & Axel Thesleff – Harmony (Axel Thesleff remix) 05:11
-03. CloZee & Giyo – Lonely Island (Giyo remix) 04:02
-04. CloZee & PATH – Black Panther (PATH remix) 03:34(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:481AF35EB1AFDA67C04CA34E19DA9CF926375A6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202955   (789070) от 31.01.2018
-
-Vivaldi 1.14.1077.41 Stable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB6127101E549EC8B777B0A38625DA43BFB21543
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202865   (789071) от 31.01.2018
-
-Алимханов А. - Instrumental Collection (2018) [MP3|320 Kbps] <Electronic, Spacesynth, Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AlimkhanOV A. - Spire Synthesizer By Reveal Sound (3:09)
-02. AlimkhanOV A. - CyberForum (9:16)
-03. AlimkhanOV A. - Disco Dancer (3:37)
-04. AlimkhanOV A. - Space Odyssey (4:25)(   Читать дальше...   )Жанр: Electronic, Spacesynth, DiscoПродолжительность: 01:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2336BB6514BB9F1DAAAA65BE04FCF2FB2832B6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275997   (789072) от 14.01.2019
-
-VA - The Sacrifice: Techno Folk Party (2019) [MP3|320 Kbps] <Techno, Minimal, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789072.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sirch And William Kiss - Delhi
-002. Dimor - Dark Story (Original Mix)
-003. Headhunterz - The Sacrifice (Max Enforcer Remix)
-004. Jnxd - Fuck Shit Up (Extended Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 10:29:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B2333B176CEB516F11DF1FF65939258C718EA64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275965   (789073) от 14.01.2019
-
-К. Биро | Социал-демократическая партия и контрреволюция в Венгрии (1925) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все мы знаем о предательской роли II Интернационала и социал-демократических партий всех стран. Каждый номер „Правды" и всякой другой газеты приносит достаточно фактов в подтверждение этого предательства. Однако, надо вспомнить, что даже в стране совершившейся пролетарской революции, в СССР, еще 8 лет тому назад, в 1917 году, в период от февраля до октября, (   Читать дальше...   )Жанр: История, политология, экономика, документалистика, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3294CB8DFD75EFCEB514873E7DDA47271E777B01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276046   (789074) от 14.01.2019
-
-VA - Restricted Dance Reloaded (2019) [MP3|320 Kbps] <Uplifting Trance>
+VA - Workout Music 2020 [MP3|320 Kbps] <Electro House>
 
 >>Electronic
->>Trance
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789074.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782261.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bomb N Amato - Can't Stop Raving (Single Mix)
-02. Rave Vegas - Hardcore Vibes (Calvo Edit)
-03. Stereo Palma feat. Myra - Because The Night (Roberto Rios x Dan Sparks Remix Edit)
-04. Freischwimmer feat. Jason Anousheh - Get it on Tonite(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:05:12
+01. Tyranix And Firman JP - Megapolis (Original Mix)
+02. Roman Hayez - Take Over (Original Mix)
+03. Mike Zaloxx - Voltage (Original Mix)
+04. Mat1ne - High Bounce (Original Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:19:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8065530E86DD75B7E79559B0C17C99E92AF60176
+magnet:?xt=urn:btih:0CB028B8423BB710AD6D7E21A58788999B81EB0E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276009   (789075) от 14.01.2019
+###  Публикация: 1390805   (782262) от 17.06.2020
 
-С. Н. Смидович | Работница и крестьянка в Октябрьской революции (1927) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безвременно погибшим от вражеских пуль, от тифа, от голода, от непосильного труда, — светлой памяти всех безвестных тружениц, павших на полях великих битв с классовым врагом, посвящаются скромные странички этой книжки, а также работницам, крестьянкам, женам рабочих, труженицам Востока, подвиг которых живет в каждом завоевании великой Октябрьской революции.Жанр: История, политология, экономика, документалистика, публицистика, социологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BF71702B2E1274472471125B961134AC81656F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275973   (789076) от 14.01.2019
-
-Electronic Dreams - Freedom - Live at Budapest Jazz Klub (2011) [FLAC|Lossless|tracks + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. India
-02. All the Way from Egypt
-03. Lunar Dance
-04. Intro to Freedom(   Читать дальше...   )Жанр: FusionПродолжительность: 01:10:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:950B9FE1D35294516A8E913858CEDD659B36ADE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276101   (789077) от 14.01.2019
-
-Terence Blanchard - A Tale Of God's Will: A Requiem for Katrina (2007) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost of Congo Square [3:05]
-02. Levees [8:11]
-03. Wading Through [6:29]
-04. Ashe [8:19](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20B72623BD068C782EEACBEC7F22E01213275A5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276109   (789078) от 14.01.2019
-
-Ambulance LTD - Ambulance LTD (2004) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yoga Means Union (4:54)
- 02. Primitive (The Way I Treat You) (3:59)
- 03. Anecdote (3:17)
- 04. Heavy Lifting (3:33)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5AF9B90509C7FCCDE27A3ECA6AF7829D4E2468D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276116   (789079) от 14.01.2019
-
-Cease of Breeding - Sounds of Disembowelment (2010) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death to All and All to Death (2:13)
- 02. Proud to Be a Mass Murderer (2:43)
- 03. Nailed (4:36)
- 04. 5.2 Litres of Blood (2:30)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F3C95F583A04A6E8B6F09EF4B3DE72DC45F8D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276111   (789080) от 14.01.2019
-
-Brodequin - Festival of Death (2001) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mazzatello (2:31)
- 02. Judas Cradle (2:12)
- 03. Trial by Ordeal (2:47)
- 04. Torches of Nero (1:55)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72962AE86AB15128ADF362645B33E66DDF971BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276114   (789081) от 14.01.2019
-
-Brodequin - Methods of Execution (2004) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slaves to the Pyre (2:23)
- 02. The Gridiron (2:40)
- 03. The Red Theatre (2:38)
- 04. Pressing to Plead (2:29)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C2D382843393CA848007EDC53466841B4648CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276120   (789082) от 14.01.2019
-
-Jamaaladeen Tacuma - Jukebox (1988) [FLAC|Lossless|tracks + .cue] <Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Time A Place (4:21)
- 02. Meta-Morphosis (6:29)
- 03. Rhythm of Your Mind (1:40)
- 04. Jam-All (3:24)(   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1268B1EDDCF7E8924C612B78FB5C610E86AB4333
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203061   (789083) от 31.01.2018
-
-Rameses B - Spacewalk (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Drum & Bass, Ambient>
+VA - The Best Workout Love Boy (2020) [MP3|320 Kbps] <Electro House>
 
 >>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789083.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nycto (03:22)
- 02. Orbit (03:56)
- 03. Lunar (04:44)
- 04. Heal Again (feat. Ghost Wars) (03:28)(   Читать дальше...   )Жанр: Chillout, Drum & Bass, AmbientПродолжительность: 00:42:34
+01. Fabloo - Make Me Complete (Original Mix)
+02. Amos Dj - Popcorn (Remix)
+03. Dj Marco Marzo - Open for Lunch
+04. Gipsybeat - Muzika Tambuza (Gipsy Extended Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:47:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C334B94DA728C1E1AADB47FEAEA63B582EC038B6
+magnet:?xt=urn:btih:DC5149FD5AAA418E0A83B50958748CCB1496CAE8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202990   (789084) от 31.01.2018
+###  Публикация: 1390761   (782263) от 17.06.2020
 
-Shakin' Stevens And The Sunsets - Rockin' And Shakin' (1972) Fontana, 6426 040, Scandinavia [MP3|320 Kbps] <Classic Rock, Blues, Rock&Roll>
+The Soft Machine - The Soft Machine (1968) Limited Edition, Reissue, 2013, ABC Records [FLAC|Lossless|tracks + .cue] <Jazz-Rock, Psychedelic Rock>
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789084.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782263.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шейкин Стивенс (настоящее имя - Майкл Барратт), родившийся 4 марта 1948 года в 11-детной уэльской семье, держит в своей квартире две шкатулки, красную и черную. Складывает в них рецензии музыкальных изданий: в черную, естественно, отрицательные. Те издания, вырезки из которой оказались в черной шкатулке, вряд ли могут рассчитывать на интервью у певца: во всяком случае, (   Читать дальше...   )01. Roll Over Beethoven 3:02
-02. White Lightning 3:32
-03. One Night With You 2:32
-04. Hi Heel Sneekers 3:38(   Читать дальше...   )Жанр: Classic Rock, Blues, Rock&RollПродолжительность: 00:32:54
+01. Hope For Happiness (4:22)
+02. Joy Of A Toy (2:50)
+03. Hope For Happiness (Reprise) (1:40)
+04. Why Am I So Short? (1:38)(   Читать дальше...   )Жанр: Jazz-Rock, Psychedelic RockПродолжительность: 00:46:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D5D60CE960C6C27F0522F2F7CE00A09B1B41A64
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390896   (782264) от 17.06.2020
+
+Литл Бэйби Бам - Давайте потанцуем! (2020) [MP3|320 Kbps]<Детские песни>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Наряжаемся в костюмы (принцессы, пираты и самолёты)
+02. Малыш акула (Акулья семья)
+03. Песенка о звуках разных животных
+04. Семья поросят(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390867   (782265) от 17.06.2020
+
+Quicksilver Messenger Service - Happy Trails (1969) Remastered, 1992, BGO Records [FLAC|Lossless|tracks + .cue] <Rock, Psychedelic Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Do You Love Suite, Who Do You Love (Part 1) (3:33)
+02. When You Love (5:15)
+03. Where You Love (6:07)
+04. How You Love (2:46)(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Classic RockПродолжительность: 00:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA0EF7BE8440966E68E307C7DC22B3331700121
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390886   (782266) от 17.06.2020
+
+PDFpen Pro 12 v12.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782266.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDFpen Pro - приложение для создания и редактирования PDF-документов. С помощью PDFpen Pro вы сможете добавлять тексты, картинки, подписи, заполнять формы, делать исправления, добавлять, удалять и изменять порядок страниц. Помимо этого вы можете создавать собственные формы и таблицы контента. В дополнение PDFpen Pro может сконвертировать PDF-файл в Word-документ, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.06.2020Разработчик: SmileOnMyMac, LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2CF2D55FBDDB810AB3B9C518B65FF84D6BA33C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390889   (782267) от 17.06.2020
+
+BetterZip 5 v5.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если на жестком диске есть данные, которые используются редко, в целях экономии дискового пространства имеет смысл упаковать такие файлы и папки в архивы. Для этой цели необходимо воспользоваться программой-архиватором, например, утилитой BetterZip.
+
+Приложение позволяет сжимать данные, используя разные алгоритмы упаковки, уменьшая при этом исходный размер файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.06.2020Разработчик: MacItBetterПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8ADF2AE6A5FE0F435EDD4B2A86BBBC8FA5A64C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390678   (782268) от 17.06.2020
+
+Lori Lewis - Carmina Romanus (2020) [MP3|320 Kbps] <Symphonic Metal>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sol Invictus (03:55)
+ 02. Mercury (04:12)
+ 03. Venus (03:20)
+ 04. Tellus (03:40)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:39:47
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390752   (782269) от 17.06.2020
+
+Timer Utility 5 v1.01 [En]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Timer Utility 5 - это универсальный инструмент синхронизации, с помощью него вы можете отдельно устанавливать будильник, таймер или секундомер на ваш Mac.Тип издания: macOS SoftwareРелиз состоялся: 16.06.2020Разработчик: Lumenbyte, LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390853   (782270) от 17.06.2020
+
+Mitti 1.5.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mitti - это современное, многофункциональное, но простое в использовании профессиональное программное обеспечение для видеовоспроизведения в театральных, аудиовизуальных шоу, выступлениях и выставках.
+
+Mitti имеет понятный, интуитивно понятный пользовательский интерфейс с легким в освоении и использовании рабочим процессом, современным 64-битным аудио с низкой задержкой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.05.2020Разработчик: ImimotПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246E754F4E2421BA0ECC972FE773B00A50959A27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390869   (782271) от 17.06.2020
+
+J. Albert - Measuring Things Up (2020) EXTRO jp [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Deep House, Dub>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Radio (08:22)
+ 02. Inward (05:20)
+ 03. Peripheral (08:22)
+ 04. Woo (06:09)(   Читать дальше...   )Жанр: Techno, Tech House, Deep House, DubПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76C73F5ADBD79DF5446A5D5D4DD358508BBF5BB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390900   (782272) от 17.06.2020
+
+Литл Бэйби Бам - Детские стишки для веселых детишек (2020) [MP3|192 Kbps]<Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Письмо
+02. Колёса у автобуса (Части автобуса)
+03. У Мэри была овечка (Куда ушла Мэри)
+04. Лис(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43368EDB45C3D891F62EA58099C43B2CEF2ACB4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390832   (782273) от 17.06.2020
+
+Protest The Hero - Palimpsest (2020) [MP3|320 Kbps] <Metalcore>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Migrant Mother (03:50)
+ 02. The Canary (04:28)
+ 03. From The Sky (06:15)
+ 04. Harborside (01:01)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 199664   (782277) от 11.05.2010
+
+Парад Победы 2010 г. Красная Площадь (2010) IPTVRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Парад на Красной площади в честь Дня Победы. Военный парад в честь 65-летия Победы в Великой Отечественной войне станет рекордным за последние годы.
+В параде 9 мая 2010 года принимают участие 161 единица военной техники, а в небе над Москвой пролетят 127 самолетов и вертолетов. Торжественным маршем по Красной площади пройдет около 10,5 тысяч российских военнослужащих (   Читать дальше...   )Телекомпания: Первый КаналЖанр: Телепередача, ДокументальныйПродолжительность: 01:14:20
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 200149   (782281) от 11.05.2010
+
+Железный человек 2 / Iron Man 2 (2010) TS
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: фантастика, боевик, приключенияРежиссер: Джон ФавроВ ролях: Роберт Дауни мл., Гвинет Пэлтроу, Дон Чидл, Скарлетт Йоханссон, Сэм Рокуэлл, Микки Рурк, Сэмюэл Л. Джексон, Кларк Грегг, Джон Слэттери, Гарри ШендлингФормат: AVI (XviD)
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 198526   (782284) от 11.05.2010
+
+Claymore / Клеймор [2007, TV,  26 серий] BDrip 1080p raw
+
+>>След.
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Claymore / Клеймор Год выпуска: 2007
+Жанр: приключения, фэнтези, драма
+Тип: TV-сериал(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 199929   (782287) от 11.05.2010
+
+Затойчи / Zatoichi (2003) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Япония, XIX век. Затоичи - слепой странник, который зарабатывает на жизнь игрой в кости и массажем. Но за этим скромным фасадом скрывается боец, искусно владеющий мечом, обладающий молниеносной реакцией и наносящий удары с потрясающей точностью.
+Затоичи приходит в расположенный высоко в горах городок, находящийся во власти шайки Гиндзо. Безжалостный Гиндзо уничтожает (   Читать дальше...   )Производство: Япония, Office Kitano, Bandai Visual Co. Ltd., Dentsu Inc.Жанр: Боевик, Драма, КомедияРежиссер: Такеши КитаноАктеры: Такеши Китано, Таданобу Асано, Юко Дайке, Акира Эмото, Така Гатаруканару, Сабуро Ишикура, Иттоку Кисибе, Юи Натсукава, Мичиё Огусу, Дайгоро ТачибанаСубтитры: РусскиеПродолжительность: 01:55:43
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 200161   (782292) от 11.05.2010
+
+Тульский Токарев (2010) DVDRip (сезон 1, серии 1-12 из 12)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782292.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Тульский — Токарев» — так звучит полное название пистолета ТТ, ставшего культовым с конца восьмидесятых и в течение почти всех девяностых, излюбленного оружия в годы Великой Криминальной Войны. Эта история началась, когда Петербург еще назывался Ленинградом. Был другой век и совсем другая музыка жизни…
+Но Город все равно был Питером, и Васильевский остров так же (   Читать дальше...   )Производство: Россия, НТВ-КиноЖанр: Детектив, КриминалРежиссер: Алексей МурадовАктеры: Максим Матвеев, Алексей Комашко, Дмитрий Волкострелов, Алексей Гуськов, Юрий Ершов, Мария Звонарева, Александр Иванов, Виталий Коваленко, Андрей Пынзару, Андрей Смоляков и др.Субтитры: отсутствуютПродолжительность: 12 x ~00:47:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 199967   (782294) от 11.05.2010
+
+Funkadelic - Discography (1970..2008) [MP3|192, 320 kbps, VBR]<Funk, Soul, Psychedelic Soul, Psychedelic Rock, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782294.jpg" />
+</div>
+
+
+###  Подробнее
+
+George Clinton - афро-американский композитор, вокалист и гитарист. Наряду сЖанр: Funk, Soul, Psychedelic Soul, Psychedelic Rock, BluesПродолжительность: 18:08:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 200189   (782297) от 11.05.2010
+
+Отставник 2 / Своих не бросаем (2010) SATRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время операции в одной из «горячих точек» капитан Зимин спасает жизнь своему приемному отцу полковнику Дедову. Дедова забирают спасатели, а самого Зимина по трагической случайности оставляют, посчитав погибшим. Дедов не верит в смерть Зимина и пытается найти его или хотя бы его тело. Но ему везде отказывают в помощи. Сам же Зимин попал в плен, сбежал и вернулся (   Читать дальше...   )Производство: РоссияЖанр: ДетективРежиссер: Андрей ЩербининАктеры: Борис Галкин, Игорь Петренко, Валерий Доронин, Елена Радевич, Юлия Рудина, Александр Рязанцев, Сергей УмановПеревод: ОригинальныйПродолжительность: 01:29:35
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 200143   (782298) от 11.05.2010
+
+CorelDRAW Graphics Suite X5 RETAIL DVD Rip 15.0.0.486 [Dutch, English, French, German, Italian, Portuguese (Brazilian), Spanish]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782298.jpg" />
+</div>
+
+
+###  Подробнее
+
+CorelDRAW Graphics Suite X5 - новый графический пакет, позволяющий уверенно продвигать вперед любой графический проект. Точные инструменты, лучшая на рынке совместимость файлов и обновленное содержимое помогут воплотить творческие идеи в профессиональные результаты, начиная от красочных логотипов и вывесок до необыкновенных маркетинговых материалов и привлекательной интернет-графики. В его состав входят редактор векторной графики CorelDRAW X5, редактор растровой графики PHOTO-PAINT X5, программа для преобразования растровых изображений в векторные Corel PowerTRACE X5, программа для создания скриншотов Corel CAPTURE X5, а также электронная книга по работе с пакетом CorelDRAW Handbook. Этот пакет сочетает в себе полный набор великолепных возможностей дизайна, скорость и простоту в использовании.
+Пакет предоставляет полный набор инструментов для создания иллюстраций, логотипов, брошюр, бюллетеней, рекламных объявлений, буклетов и рекламных щитов и является оптимальным графическим решением. Данный программный пакет (   Читать дальше...   )Язык интерфейса: Dutch, English, French, German, Italian, Portuguese (Brazilian), Spanish
+
+## Скачать торент
+```bash
+нет
 ```
 
 

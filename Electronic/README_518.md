@@ -1,3 +1,165 @@
+###  Публикация: 1621885   (1030263) от 28.03.2023
+
+Owl City - Coco Moon (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electronic, Powerpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam, Check Please [00:05:38]
+02. Under the Circus Lights [00:05:04]
+03. Kelly Time [00:05:29]
+04. Field Notes [00:05:38](   Читать дальше...   )Жанр: Synthpop, Electronic, PowerpopПродолжительность: 00:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B6B2FC96DC86E3E697378281041FD74B0E954A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622402   (1030268) от 28.03.2023
+
+VA - Lounge & Coffee, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo, Balearic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulavenue,Tamy - Cidade Sol (3:40)
+02. Can Blue - Katja's Dream (4:11)
+03. Karen Gibson Roc - Beautiful Flower (4:34)
+04. Jane Maximova,Dmirty Raschepkin - Morning Bird (5:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, BalearicПродолжительность: 02:16:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6631048DA2F769F553A4152A203CDABE6FF0D7C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622301   (1030269) от 28.03.2023
+
+VA - Raz Nitzan - 30 Vocal Trance Hits (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raz Nitzan & Maria Nayler - Nothing Breaks Like A Heart (Radio Edit) [4:20]
+02. Raz Nitzan & Fenna Day - Room For Doubt (Original Mix) [3:34]
+03. Susana & Raz Nitzan - Fall Into Trust (Original Mix) [3:48]
+04. Raz Nitzan & Denise Rivera - The Last To Know (Original Mix) [2:52](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 05:10:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677CDDACD82347EA97526C9FCF85C8CEB4A037EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621929   (1030275) от 28.03.2023
+
+Beborn Beton - Darkness Falls Again (2023) Deluxe Edition [MP3|320 Kbps] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Monstrosity [00:06:16]
+02. Dancer In The Dark [00:05:23]
+03. Last Chance [00:04:29]
+04. Trockenfallen Lassen [00:05:30](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BE90A226DF9DEB61B68D69DAD19A9C737495A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622379   (1030279) от 28.03.2023
+
+Fever Ray - Radical Romantics (2023) [FLAC|Lossless|tracks + .cue] <Synth Pop, Experimental, Downtempo>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - What They Call Us
+02 - Shiver
+03 - New Utensils
+04 - Kandy(   Читать дальше...   )Жанр: Synth Pop, Experimental, DowntempoПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7205251B366FF01E6C1BFBBF21503E89FE6B0DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316884   (1030417) от 19.02.2021
+
+Special Request - Discography 24 Releases (2013-2021) Houndstooth [FLAC|Lossless|tracks+.cue, tracks] <Techno, House, Hardcore, Breaks, Drum & Bass, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 01 Aleksi Perälä-UK74R1619170 (00:56)
+ 02. Special Request - Telepathic Dog (02:36)
+ 03. Caustic Window - Cordialatron (03:30)
+ 04. DJ Stingray - Solitude (02:59)(   Читать дальше...   )Тип издания: CD, WebЖанр: Techno, House, Hardcore, Breaks, Drum & Bass, Electro •Продолжительность: 13:42:15 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4982A6F4D24CC96BF335AEF3DC04D4673405C53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 660025   (1030438) от 19.02.2021
 
 VA - Dream Cafe (Chill Out Classics) (2004) Sony Music Media [FLAC|Lossless|tracks+.cue]<Downtempo, Ambient>
@@ -530,168 +692,6 @@ VA - The Unknown Collection Vol 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55ED3A526E9D5E1C6D6A35CC90F0A775E354E9C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620883   (1031193) от 24.03.2023
-
-Технология - Мне Не Нужна Информация (1992) Reissue, Remastered, 2003, JAM Group International [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песни ни о чем   (House Mix)
-02. Шутник   (House Mix)
-03. Информация
-04. Холодный след   (16' Mix)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E684453E5E5664E494F76D31DA73D32E6CBC1C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620997   (1031220) от 24.03.2023
-
-Laibach - Sketches Of The Red Districts (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Neo-Classical, Experimental, Ambient, Spoken-Word>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - 01. 06. 1924 [00:04:09]
-02 - Glück Auf! [00:06:33]
-03 - Moralna Zaslomba [00:05:09]
-04 - Smrt In Pogin [00:06:08](   Читать дальше...   )Жанр: Industrial, Neo-Classical, Experimental, Ambient, Spoken-WordПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC10EBBF5FAB8C51AE1D6E42911A934A855DF978
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620882   (1031227) от 24.03.2023
-
-VA - Techno Club Vol. 68 (Mixed by Talla 2XLC x Metta & Glyde) (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tillmann Uhrmacher - On The Run (Talla 2XLC Extended Remix) [6:21]
-02. Vimana - Dreamtime (Johan Gielen Extended Remix) [7:24]
-03. Talla 2XLC - Ragnaroek (Extended Mix) [6:46]
-04. Allen Watts - Mainframe (Extended Mix) [6:14](   Читать дальше...   )Жанр: TranceПродолжительность: 06:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C7A247713E8EBA1777BEC5AEC1C25EAE6B7B6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447807   (1031348) от 15.02.2021
-
-VA - Mitote: The Dream Of Reality (Compiled by Agz) (2021) [FLAC|Lossless|tracks + .cue] <Psytrance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endeavour - Supra (6:36)
-02. OxyFlux & Shenanigan - Sensient Hill (7:41)
-03. Act One & Mowgli - Competitive Bricklaying (7:10)
-04. Juanmad - Be Animal (6:40)(   Читать дальше...   )Производство: Protoned MusicЖанр: PsytranceПродолжительность: 01:12:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847F66F70D5DFCE9E24F682F889A3A0C36366421
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447895   (1031375) от 15.02.2021
-
-VA - Coffee in Bed Lounge: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Peter Pearson - Hitching a Ride to Paradise (Original Mix)
-02 Michael E - Infinite Beauty (Original Mix)
-03 Weathertunes - Wait for Me
-04 Roberto Sol & Nera - Sensuality (Ballad mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03F527E56F177EB2C9F74B9F9EADC3E6505202BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447595   (1031627) от 14.02.2021
-
-VA - Luxury Chillout Lounge (2021) [MP3|320 Kbps] <Lounge, Vocal, Chillwave>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 351 Lake Shore Drive, Genius Jane – Forever 4:58
-02. Inventors Of The Sun – Opium Lovers 5:24
-03. Lounge Deluxe, Jeela – Beautiful Man (Beatless) 6:07
-04. S.W. – I Am The Walrus 4:34(   Читать дальше...   )Жанр: Lounge, Vocal, Chillwave, Soulful, Downtempo, Nu-Jazz, Light-MusicПродолжительность: 01:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F80AB503A6550621E4511079273B5D29BE476442
 ```
 
 

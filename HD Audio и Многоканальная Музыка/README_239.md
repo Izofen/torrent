@@ -1,3 +1,30 @@
+###  Публикация: 1546483   (606113) от 24.04.2022
+
+VA - Старинные вальсы (1983) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хор Московских Студентов - Амурские Волны
+(слова народные)
+Худ. рук. В. Соколов
+02. Хор Московского Городского Управление Трудовых Резервов - Березка(   Читать дальше...   )Жанр: FolkПродолжительность: 00:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C240B8BDB80E89D342FB1C3A1C4F73B7104DCF9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038473   (606196) от 28.07.2016
 
 Bryan Adams - Reckless (1984) 2014, A&M [DTS-HD MA, LPCM, Dolby TrueHD 2.0, 5.1|96/24|Blu-ray] <Rock, Pop Rock, Soft Rock>
@@ -665,33 +692,6 @@ A4	Если Это Любовь • If It's Love(   Читать дальше...
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:144B902D35787771A20BED814A6FD8C06452B448
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994866   (612888) от 20.04.2022
-
-Ricky Martin & Christina Aguilera - Nobody Wants To Be Lonely (2001) [FLAC 2.0|44,1/16|image+cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nobody Wants To Be Lonely - Ricky Martin & Christina Aguilera
-02. El Amor De Mi Vida - Ricky Martin
-03. El Beso Del Final - Christina Aguilera
-04. Fuego Contra Fuego - Ricky Martin(   Читать дальше...   )Жанр: PopПродолжительность: 01:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7CC2854478CFE1F4CA45DFFB2832C3DBA08BF60
 ```
 
 

@@ -1,36 +1,9 @@
-###  Публикация: 617094   (974201) от 11.02.2013
+###  Публикация: 438732   (972918) от 21.01.2012
 
-Журнал | Norna № 1 [2001] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андеграудный музыкальный журнал из Комсомольска-на-Амуре, посвящён doom/black/death металу.
-В номере - интервью с исполнителями (есть интервью с Алексом Кантемировым, владельцем лейбла more hate), рецензии на альбомы, аналитические статьи.
-
-В номере 32 страницы, собственный скан.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C639E3B2C9D10FC21F59CE4564FFC42D8510B9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743502   (974228) от 09.01.2014
-
-SoftMaker Office Professional 2012 rev 682 RePack (& portable) by KpoJIuK [Ru/En]
+VA - TMP: Clear Sky 051 (21.09.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -39,70 +12,565 @@ SoftMaker Office Professional 2012 rev 682 RePack (& portable) by KpoJIuK [Ru/En
 
 ###  Подробнее
 
-Softmaker Office 2012 - пакет офисных программ, который может стать неплохой заменой для Microsoft Office. Пакет офисных программ - очень важная и неотъемлемая часть ПО любой организации и личного компьютера. Основной и самой главной разработкой компании Softmaker GmbH, является офисный пакет SoftMaker Office, который поможет вам автоматизировать работу, чтобы уменьшить издержки документирования, учета и контроля. Сделав правильный выбор офисного ПО, вы увидите,что работа стала более продуктивной. Выберите приложение SoftMaker Office и вы почувствуете, что работать с документами стало намного удобнее. Если вам необходимо обмениваться документами Word, листами Excel, презентациями PowerPoint с коллегами и деловыми партнерами, вы больше не зависите от высокой цены на Microsoft Office. Интерфейс данного пакета многоязычный и поддерживает русский язык.
-
-(   Читать дальше...   )Язык интерфейса: Русский / Английский
+001. DJ Feel & Matisse & Sadko - A Day To Remember (Maarten De Jong Rework)
+002. Ralphie B - Bullfrog (Original Mix)
+003. Fadios & Raneem - Chromium
+004. Tin5ha - Clear Blue Sky (OCOT Remix)
+005. Undertech & Solar Paradise - Light Day (Time2Rest Remix)
+006. Blake Jarrell - Maldives (Genix Remix)
+007. Andain - Promises (Gabriel & Dresden Remix)
+008. Sied Van Riel feat. Nicola McKenna - Stealing Time (Simmons & Blanc Remix)
+009. Aly & Fila feat. Sue McLaren - Still (Jan Martin Remix)
+010. Jaco - Uncertainty (Stonevalley Remix)21.09.2011Жанр: Vocal Trance, Uplifting Trance, Dream Trance, Trance
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:404D561FA2B96AD101E019C39D688C040A8C9A4B
+magnet:?xt=urn:btih:FCD6072A09E740F40D754AE7A5D52AF801F64905
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 742851   (974229) от 09.01.2014
+###  Публикация: 440073   (972919) от 21.01.2012
 
-Гравитация / Gravity (2013) WEB-DLRip [Line]
+Улетное видео по-русски. Новый сезон  (2012.01.21) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Проект представляет собой русскую версию уже идущей в эфире ДТВ программы «Улетное видео». В ней собраны эксклюзивные, случайно снятые материалы со всей России. Сюжеты, которые вошли в программу, сделаны мобильными телефонами, уличными камерами наблюдениями, случайными очевидцами или любым другим техническим средствам, у которого есть функция REC. А главное, в отличие от зарубежной версии, каждый сможет почувствовать себя в центре событий. Ведь теперь велика вероятность, что тот или иной случай произошел именно в вашем городе, на вашей улице, около вашего дома.Жанр: Приколы, ЮморПродолжительность: ~ 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64203960ED3AFA62BF4F5664C3AB8F1C1564BC4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 439627   (972920) от 21.01.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (21.01.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87DBEA6EDBF46552C8B13FF52BCB965184CE91B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 438960   (972921) от 21.01.2012
+
+VA - TMP: Clear Sky 057 (26.10.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Kyau & Albert - 7Skies (Ellez Marinni Tech Mix)
+002. Fast Distance - Abalone (Original Mix)
+003. Garetta - Blinded By The Sunset (Costa Remix)
+004. Derek Ryan - Catharsis (Danny Chen Remix)
+005. John Dopping - Cognition (Original Mix)
+006. DJ Shog - Comeback (Alternative Mix)
+007. Eco feat. Jeza - Over Paper Skies (Summer Mix)
+008. Dark Matters feat. Ana Criado - The Quest Of A Dream (Dabruck & Klein Remix)
+009. W&W - Three O'Clock (Original Mix)
+010. Setrise feat. Yana Kay - Weapon (DJ Feel Remix)26.10.2011Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D16E4263D6D97605E4F905D87BB710CA329A58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 438719   (972922) от 21.01.2012
+
+VA - TMP: Clear Sky 054 (06.10.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. DNS Project feat. Madelin Zero - Another Day (Original Mix)
+002. Alex O'Rion - Craters Of The Moon (Alex O'Rion Bigger Room Mix)
+003. Majai - Motion Flash (Elevation Big Room Remix)
+004. Broning - Never Give Up (Original Mix)
+005. Menno De Jong feat. Ellie Lawson - Place In The Sun (Ronski Speed Remix)
+006. Iio feat. Nadia Ali - Rapture (Armin Van Buuren Remix Remastered)
+007. Xam - Steroids (Reworked Version)
+008. MaRLo feat. Jano - The Island
+009. Anhken - Tomorrow Again (Eximinds Remix)
+010. 4 Strings - Twilight Mode (Original Mix)06.10.2011Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B332B0E717A46BA2FE7A3D0977BD1C06C107064D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 438689   (972923) от 21.01.2012
+
+VA - TMP: Clear Sky 049 (13.09.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Syna vs. Ayleon - Change
+002. Ronald De Foe - Gunslinger (Original Mix)
+003. Tritonal feat. Jeza - I Can Breathe (Tritonal Club Mix)
+004. Soulforge - It Was Destiny (Original Mix)
+005. Philippe El Sisi feat. Josie - Over You (Original Mix)
+006. Nadia Ali feat. Starkillers & Alex Kenji - Pressure (Calvin West Extended Remix)
+007. Timur Shafiev feat. Dasha - Reunion (Original Mix)
+008. Sunny Lax - Singaya
+009. Rory Gallagher & Mike Lane - Skyline Cafe
+010. M.I.K.E. feat. Ben Nicky - Spring Break (Original Mix)13.09.2011Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FC817D55F7778ABD9ACA66755A2DFD44EB5CE66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 438724   (972924) от 21.01.2012
+
+VA - TMP: Clear Sky 056 (20.10.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Ultimate - Departure (Original Mix)
+002. Russo - I.P.
+003. Vitodito & Soulforge - Magnetics (Original Mix)
+004. Xam - Mnemonic (Original Mix)
+005. Tom Colontonio - Never Give Up (Original Mix)
+006. Suncatcher & Mihai M Pres Starshifters - Phobia (Sundriver Remix)
+007. Protoculture feat. Shannon Hurley - Sun Gone Down (Alex M.O.R.P.H. & Chriss Ortega Remix)
+008. W&W feat. Ana Criado - Three O'Clock (Camera Remix)
+009. Marco V - Unprepared (Recharged Original Mix)
+010. Peet B - Untouched Beauty (Original Mix)20.10.2011Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E032E6372D7C945A67CD46B15B18F442763D7515
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 438701   (972925) от 21.01.2012
+
+VA - TMP: Clear Sky 052 (22.09.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Brett Wood - Direct Drive (Original Mix)
+002. Tritonal feat. Jeza - I Can Breathe (Original Extended Mix)
+003. Mark Otten - Libertine
+004. Armin van Buuren & Ferry Corsten - Minack (Mark Sixma Remix)
+005. Timmy & Tommy feat. Leila - Perfect Motion (Original Mix)
+006. Cramp - RU116 (PROFF Remix)
+007. Store N Forward - Salt (Original Mix)
+008. SHOGUN - Skyfire (Alex M.O.R.P.H. Remix)
+009. Garry Heaney - The Viper (Original Mix)
+010. Kyau & Albert - Velvet Morning (Super8 & Tab Remix)22.09.2011Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98188246D8EA6C8A8B55FF5B0AD19DAF1CC13AB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 438956   (972926) от 21.01.2012
+
+VA - TMP: Clear Sky 058 (08.11.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Southern Fraiz feat. Irena Love - Afterclouds (Simon OShine Vocal Mix)
+002. Vasili B - Destination Blue (Inge Lemon Touch Mix)
+003. Richard Durand feat. Kash - Explode (George Acosta Remix)
+004. Sebastian Brandt - Fabricator
+005. Nektarios Mees Kirsty Hawkshaw & Jan Johnston - Invisible Walls (Accuface Back 2 The Roots Remix)
+006. Blake Jarrell - Maldives (Original Mix)
+007. Russo - Rufus
+008. Trey Ennce - Vanila (Original Mix)
+009. Ultimate - Wonderland (Colonial One Remix)
+010. Alex Kunnari feat. Emma Lock - You & Me (Khomha & Julius Beat Remix)08.11.2011Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA0A842D531982E393CC30DEDB7471F91B538D98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 438681   (972927) от 21.01.2012
+
+VA - TMP: Clear Sky 046 (19.06.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Rapha - Andromeda (Original Mix)
+002. Sophie Sugar & Tom Colontonio - Arlanda (Masoud Remix)
+003. Tritonal feat. Meredith Call - Broken Down (Ronski Speed Remix)
+004. Vokanoya - Cardinal (Original Mix)
+005. Matt Darey feat. Ridgewalkers - Chasing The Sun (D-Mad Remix)
+006. Swartz & Schulner - Fata Morgana (Original Mix)
+007. First Effect feat. Olivia - Humanity Highway (Original Mix)
+008. Vincent De Jager - In Boundless Light (Original Vocal Mix)
+009. Solarstone feat. Bill McGruddy - Is There Anyone Out There (Nude Mix)
+010. Peter Sawland - Rush Hour (Original Mix)19.06.2011Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:155AB9C008F0FB019ECEFF65B8BD0530610C1E3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 438721   (972928) от 21.01.2012
+
+VA - TMP: Clear Sky 055 (12.10.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Fadios & Raneem - Chromium (Max Graham Remix)
+002. Cressida - Kibo (Mike Shiver Catching Sun Mix)
+003. Aly & Fila feat. Denise Rivera - My Mind Is With You (Dj Feel Remix)
+004. Estiva - Next Level (Original Mix)
+005. Khoa & Martin Pres Khoma feat. Alisha Nauth - Over Soon (Train) (Bryant Baker Remix)
+006. Nadia Ali feat. Starkillers & Alex Kenji - Pressure (Alesso Remix)
+007. Igor Dyachkov - Still One (Original Mix)
+008. Johnny Yono - Suspended Dimension (Original Mix)
+009. LTN - The Art Of Freedom (Original Mix)
+010. George Acosta feat. Fisher - True Love (Original Mix)12.10.2011Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D2BCD41AA2014F0CFF072BE7F2EB7D521C2530
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 438963   (972929) от 21.01.2012
+
+VA - TMP: Clear Sky 059 (12.11.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Aggressor & Lucas Hache - 1000 Miles Deeper (Original Mix)
+002. Answer42 - Dew Point (Martin Roth's Morning Dew Remix)
+003. Project Purity - Eternus (Original Mix)
+004. Juventa - Gone With The Wind (Sequentia Remix)
+005. Ashley Wallbridge - JYNX (Original Mix)
+006. Markus Schulz pres. Dakota - Sleepwalkers (Don't Stop) (Extended Vocal Mix)
+007. Tritonal feat. Jenry R - Something New (Club Mix)
+008. FKN feat. Jahala - Still Time (Kaimo K Remix)
+009. Kaan Demirel - Sunrise (Original Mix)
+010. Sylvia Tosun & Bellatrax - World Keeps Turning (Alex M.O.R.P.H. & Chriss Ortega Club Mix)12.11.2011Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E03124C00C97D393F120E6BCB1773ADEFF7184E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357663   (972939) от 04.02.2020
+
+O&O ShutUp10 1.7.1406 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972939.jpg" />
+</div>
+
+
+###  Подробнее
+
+O&O ShutUp10 позволяет получить полный контроль над теми функциями Windows 10, которые Вы хотите использовать и убедиться, что ваши данные не будут отправлены третьим лицам. При помощи простого и интуитивного интерфейса пользователь может самостоятельно решить, какие нежелательные функции должны быть отключены для улучшения условий конфиденциальности данных.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4183B7FD637A15AFCD372E93CE3CDABD70EDC8D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357618   (972941) от 04.02.2020
+
+LDPlayer 4.0.11 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972941.jpg" />
+</div>
+
+
+###  Подробнее
+
+LDPlayer - Android-эмулятор для запуска мобильных игр на ПК. Имеется поддержка запуска нескольких копий, есть возможность управления с клавиатуры, присутствует запись видео, скриншоты и запись скриптов, а также полноценная поддержка Google Play Market и всех приложений внутри него.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:481544C8FA08D22671B0ECF6A7578954BE99295D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357678   (972942) от 04.02.2020
+
+Icecream PDF Converter Pro 2.86 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа, позволяющая конвертировать как в PDF, так и из PDF. При преобразовании файлов в PDF конвертер может склеивать исходные файлы в один PDF документ, а также предлагает множество настроек выходного файла. Можно преобразовать PDF в JPG, BMP, EPS и др. форматы без ограничения по количеству страниц, а также файлы под паролем. Программа имеет встроенную PDF-читалку.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8446ECA637A646FBEC8FDA9EB52CDCFD512361
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357716   (972945) от 04.02.2020
+
+CleanMyPC 1.10.4.2039 RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972945.jpg" />
+</div>
+
+
+###  Подробнее
+
+CleanMyPC очищает компьютер от ненужных файлов, системного мусора, остатков ранее удалённых приложений и освобождает место на диске, а также обеспечивает более быструю работу Windows. Также продукт позволяет безопасно и без возможности восстановления удалять файлы с диска, управлять расширениями и плагинами браузеров, гаджетами рабочего стола, чистить реестр, очищать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FE0FEAC9435A415743F5AD539C6F6708D13FEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357506   (972949) от 04.02.2020
+
+BlueStacks App Player 4.170.0.1042 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972949.jpg" />
+</div>
+
+
+###  Подробнее
+
+BlueStacks App Player — бесплатное программное решение, представляющее собой эмулятор операционной системы Android. Уникальная технология "Layercake" позволяет насладиться в полном объеме не только системными приложениями, но и великолепной графикой популярных игр, предназначенных для работы в вышеупомянутой операционной системе, которая используется в (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6345D6206486F4DE7FE5769A4567CE6383F52B33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975179   (972950) от 14.01.2016
+
+Слендер / Always Watching: A Marble Hornets Story (2015) BDRip [H.264/1080p]
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972950.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Доктор Райан Стоун, блестящий специалист в области медицинского инжиниринга, отправляется в свою первую космическую миссию под командованием ветерана астронавтики Мэтта Ковальски, для которого этот полет — последний перед отставкой. Но во время, казалось бы, рутинной работы за бортом случается катастрофа.
-Шаттл уничтожен, а Стоун и Ковальски остаются совершенно одни; они находятся в связке друг с другом, и все, что они могут, — это двигаться по орбите в абсолютно черном пространстве без всякой связи с Землей и какой-либо надежды на спасение.Жанр: Фантастика, Триллер, ДрамаРежиссер: Альфонсо КуаронПродюсер: Альфонсо Куарон, Дэвид Хейман, Кристофер ДеФариаАктеры: Сандра Буллок, Джордж Клуни, Эд Харрис, Орто Игнатиуссен, Пол Шарма, Эми Уоррен, Башер СаважПеревод: ДублированныйПродолжительность: 01:30:56
+Съемочная группа, готовящая сюжет про исчезнувшую семью, обнаруживает коробку кассет со свидетельствами появления Слендера — страшного существа, которое можно увидеть только через объектив видеокамеры. Посмотрев пленки, они навлекают на себя ужасное проклятье: их начинает преследовать сам Слендер, от которого не спрятаться и не скрыться.Производство: США / Bellevue Productions, MosaicЖанр: УжасыРежиссер: Джеймс МоранАктеры: Крис Маркетт, Александра Брекенридж, Джейк Макдорман, Даг Джонс, Майкл Бунин, Александра Холден, Морган Е. Бастин, Блэр Бомар, Синтия Марелл, Рик ОттоПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:31:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DCDCC3C58A7617501EE3B643B80B69CC5302511
+magnet:?xt=urn:btih:FF7C4B2DE48DA06713353FB37DA6412357CFDB69
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 743586   (974230) от 09.01.2014
+###  Публикация: 975193   (972963) от 14.01.2016
 
-MKVToolNix 6.7.0 + Portable [Multi/Ru]
+Notepad++ 6.8.9 Final + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972963.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MKVToolnix - функциональный набор инструментов для работы с видео-файлами MKV Matroska. Очень полезная программа, позволяет добавлять/убирать звуковые дорожки, субтитры, склеивать/резать файлы. Все очень быстро и понятно. Поддерживаются такие типы видео потоков: AVI, Ogg/OGM, и RealVideo. MKVToolnix - специальный аудио/видео контейнер, похожий на AVI, хранящий в себе огромное количество информации. Формат MKV - открытый проект Матрешка (Matroska), призванный создать единый стандарт мультимедийных контейнеров на ПК. Его особенность, открытость кода, что позволяет совершенствовать данный формат любому программисту мира, а также команде программистов. Формат MKV стал необычайно распространен в последнее время, благодаря своим возможностям и, в частности, преобладанием функций над форматом AVI.Язык интерфейса: Русский, Английский, и другие
+Notepad++ - бесплатный редактор текстовых файлов, значительно превосходящий Блокнот по функциональности. Поддерживает синтаксис всевозможных языков программирования, предназначен для работы в операционной системе MS Windows. Этот проект базируется на компоненте Scintilla (очень мощном компоненте для редактирования) написанном на C++ с использованием только Win32 (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:570F4AD7AAA78E0BBE67D4F13A6508F56B5C0D2B
+magnet:?xt=urn:btih:23CB901F6863A09D1C0A7CF5B8B2BD2CEB0A257F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 93234   (974231) от 09.01.2014
+###  Публикация: 975425   (972969) от 14.01.2016
 
-НГО: Суперсооружения: Туннель через пролив Ла-Манш / MegaStructures: Channel Tunnel (2004) [TVRip]
+KLS Backup 2015 8.3.1.6 Professional [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972969.jpg" />
+</div>
+
+
+###  Подробнее
+
+KLS Backup 2015 Professional — мощная программа, которая предназначена для архивирования и создания резервных копий Вашей важной информации. KLS Backup сжимает информацию в ZIP-архивы и позволяет их сохранять на любые накопители, включая сетевые и FTP-сервера. Работа программы достаточно быстра и корректна, возможность создания инкрементных копий поддерживается. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1064F8FA51F6B7F1B6368A581E34740BE09DA274
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 94087   (972972) от 10.01.2014
+
+NG: Суперсооружения: Сделано из бетона / MegaStructures: How It's Built: Concrete (2006) [TVRip]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
@@ -114,7 +582,7 @@ magnet:?xt=urn:btih:570F4AD7AAA78E0BBE67D4F13A6508F56B5C0D2B
 
 ###  Подробнее
 
-Строительство самого дорого железнодорожного туннеля в истории сопровождалось потопами и обрушениями крыши, но технология одержала победу и превратила рискованную затею в инженерное чудо.Жанр: ДокументальныйПеревод: Профессиональный (одноголосый)Продолжительность: 00:46:55
+Самый распространенный строительный материал - бетон использовался как древними римлянами, так и строителями небоскребов. Исследуйте самые известные бетонные сооружения мира.Жанр: ДокументальныйПеревод: Профессиональный (одноголосый)Продолжительность: 00:47:22
 
 ## Скачать торент
 ```bash
@@ -124,12 +592,12 @@ magnet:?xt=urn:btih:570F4AD7AAA78E0BBE67D4F13A6508F56B5C0D2B
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 742986   (974239) от 09.01.2014
+###  Публикация: 744075   (972978) от 10.01.2014
 
-Мачете убивает / Machete Kills (2013) BDRemux [1080p]
+Новый Камеди Клаб / Комеди Клаб / Comedy Club (10.01.2014) WEB-DL [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Юмора
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -138,360 +606,19 @@ magnet:?xt=urn:btih:570F4AD7AAA78E0BBE67D4F13A6508F56B5C0D2B
 
 ###  Подробнее
 
-Правительство США вербует Мачете для миссии, которую не под силу выполнить простому смертному. Мачете прорывается в Мексику, чтобы схватить безумного лидера карательного отряда и эксцентричного миллиардера, торгующего оружием, который, в свою очередь, лелеет мечту начать войну планетарного масштаба и запустить смертельно опасное оружие в космос. И только Мачете может предотвратить этот глобальный хаос.Жанр: Боевик, КомедияРежиссер: Роберт РодригесАктеры: Дэнни Трехо, Мишель Родригес, София Вергара, Эмбер Хёрд, Леди Гага, Антонио Бандерас, Кьюба Гудинг мл., Джессика Альба, Демиан Бишир, Мэл ГибсонПеревод: ДублированныйЯзык субтитров: АнглийскийПродолжительность: 01:47:32
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из КВН. 23 апреля 2005 года «Comedy Club» впервые вышел в эфир телеканала ТНТ. Рейтинги программы стали бить все рекорды и это приносило программе большие доходы, на которые они стали делать другие проекты. Впоследствии они создали свою продюсерскую компанию «Comedy Club Production». 15 апреля 2007 года на ТНТ был показан сотый выпуск программы. Регулярно выходят новые выпуски и другие проекты - например спецвыпуски на Первом канале, юмористические фестивали и продюсирование участниками «Comedy Club» проекты других телепередач. 23 апреля 2010 года «Comedy Club» вышло с новой музыкой и обновлённым оформлением. Также «Comedy Club» выходит на каналах ICTV, (   Читать дальше...   )Жанр: ТелепередачаПродолжительность: ~ 00:46:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB488F58B57A3DEA9C2EA91375A396B5A7FE6E76
+magnet:?xt=urn:btih:D2B48502F402AD7055920F73186F39F7DE205C72
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 438970   (974242) от 20.01.2012
+###  Публикация: 94828   (972980) от 10.01.2014
 
-VA - TMP: Clear Sky 061 (20.11.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-001. Airwave - Alone In The Dark (Daniel Wanrooy Together In The Light Remix)
-002. Answer42 - Dew Point (Martin Roth's Evening Dew Remix)
-003. Dennis Sheperd & Cold Blue feat. Ana Criado - Fallen Angel (Dennis Sheperd Club Mix)
-004. ATB feat. JanSoon - Gold (Golden Fields Club Mix)
-005. Erick Strong - Joker
-006. Binary Finary & Matthew Nagle - Replode (Original Mix)
-007. Aquile & TeeB feat. Ton Chief - Ruined (Anna Lee Remix)
-008. Sied Van Riel feat. Nicola McKenna - Stealing Time (Aly & Fila Remix)
-009. DIGITALmusikanten - Thrust (Digitalmusikanten New Breed Remix)
-010. Triple A - Winter Stayed (Alex M.O.R.P.H. Mix)20.11.2011Жанр: Vocal Trance, Uplifting Trance, Dream Trance, TranceПродолжительность: 01:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD9831139818ED852BD07CCFB553D6983C34AAD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 439286   (974243) от 20.01.2012
-
-VA - Dance Expert (2011) [MP3|320 kbps]<Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Alain Bertoni (feat. Jimmy Slitter) - Come With Me (Radio Edit)
-02. DJ Shevtsov - Moscow Girls (feat. Mic E.P)
-03. South Men - The Cell (Radio Edit)
-04. Mondotek (feat. Carlprit) - Digi Ben (Taito Edit)
-05. Hijackman, Vitorio (feat. Marvin) - Like You (Radio Edit)
-06. Marc Canova - Free (Radio Edit)
-07. Markanera (feat. Nita) - Watching the Sun Go Down (Stereo Palma Remix)
-08. Jay Style - Reach Up (Radio Edit)
-09. Tony Marquez (feat. Phylly) - In Love With the Music (Radio Edit)
-10. Jeremy Kalls - Anything for You (Radio Edit)(   Читать дальше...   )2011Жанр: DanceПродолжительность: 01:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F22BD7ACB60A935D3DC8B8C70355DF9543B5BFCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 438698   (974244) от 20.01.2012
-
-[Wallpapers] Full HD Wallpapers Pack (19.01.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Full HD Wallpapers Pack (19.01.12) 
-Название:  Full HD Wallpapers Pack (19.01.12) 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5E71C9A9FE977D9503FBAF8056C2BC436D6213F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 438355   (974245) от 20.01.2012
-
-[Wallpapers] Girls Wallpapers 66
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Girls Wallpapers 66 
-Название:  Girls Wallpapers 66 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B2BBD531AEE2C7A5B7887266B5B9CC48D3FA9AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 439056   (974246) от 20.01.2012
-
-[Wallpapers] Collection HQ Wallpapers №31
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Collection HQ Wallpapers №31Название: Collection HQ Wallpapers №31
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1680x1050 до 4000х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E9340E054421AD0AB4E0C33B519D4EF4D5DE78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 439138   (974247) от 20.01.2012
-
-DJ Nike Twist - TranceWave 025 @ GTI Radio (19.01.2012) [MP3|256 kbps]<Trance, Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. MaLu - The Girl From Yesterday (Peet B Remix) (Unearthed Red)
-2. Kristina Sky & Randy Boyer feat Shyboy - Welcome To The Future (Jason Mill Uplifting Mix) (EnMass Music)
-3. Deep Haze feat. Rima - Celestial (Original Mix) (Apocalypse Recordings)
-4. Vast Vision - Black Shores (Bjorn Akesson Remix) (Future Sounds Of Egypt)
-5. Billy Gillies - Fly Zone (Original Mix) (Fraction Records)
-6. Sascha Milde - Siberia (Original Mix) (Shah Digital Germany)
-7. Function C presents Keelin Temple - Iridescent (Original Mix) (Defcon)
-8. Sensetive5 Feat Liek - I Cant Believe (Stan Wise Dub) (Unearthed)
-9. Lunarbeam - From Dusk Till Dawn (Original Mix) (Inov8)
-10. Steve Bengaln & Daniel Meyer - Illumination Phase Two (Original Mix) (Condura)19.01.2012Жанр: Trance, Uplifting TranceПродолжительность: 01:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365E894307A5A37821B4CEA63A8EEAE9175C1304
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 439033   (974248) от 20.01.2012
-
-[Wallpapers] Collection HQ Wallpapers №27
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Collection HQ Wallpapers №27Название: Collection HQ Wallpapers №27
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1D5484D6F1794BA34C554EF488C6EA334E39FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 438697   (974249) от 20.01.2012
-
-[Wallpapers] Best HD Wallpapers Pack (19.01.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE4978C81F4619B3560E9EBF57BA9E32F7A6152
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 438990   (974250) от 20.01.2012
-
-[Wallpapers] Digital Wallpapers | BlackWolfik (20.01.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B63C6611779E77472E48D7E4F8A8A51DF3648B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 439163   (974251) от 20.01.2012
-
-DJ Kocmoc - Клубный АВТОпилот (19.01.2012) [MP3|320 kbps]<Electro House, Electro Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Matthias Richter - Hello Everbody (Original Mix)
-2. Dale Hooks - The Kids Wants Techno (Jesse Voorn Remix)
-3. Leony - Party In Ibiza (Twin Pack Remix)
-4. Geeno Fabulous - That Girl!
-5. Basto - Gregorys Theme (Asino Di Medico Remix)
-6. Zoe Badwi - Freefallin (Dj Solovey Club Mix)
-7. Hard Fi - Fire In The House (Tiesto Remix)
-8. Masters Of South Feat. Jay Delano & R.Kay - Dance
-9. The Underdog Project - Summer Jam (Eric Chase Edit)
-10. Avicii - Fuck The Music (Original Mix)(   Читать дальше...   )19.01.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:607981EC4DD4E31EBED869A57B1515EE2F5201B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 439060   (974252) от 20.01.2012
-
-[Wallpapers] Collection HQ Wallpapers №32
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Collection HQ Wallpapers №32Название: Collection HQ Wallpapers №32
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E38C0AD3DE67622154D3249ACDDEA5128E65E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 438996   (974253) от 20.01.2012
-
-[Wallpapers] Best HD Wallpapers Pack (20.01.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73DDCB77056E44463EC8CA831E1E4D700C55934C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 439112   (974254) от 20.01.2012
-
-Дорожные войны. Выпуск №70 (2012.01.19) SATRip
+NG: Суперсооружения: Олимпийский стадион в Пекине / Megastructures: Beijing Olympic Stadium (2008) [TVRip]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
@@ -503,23 +630,22 @@ magnet:?xt=urn:btih:73DDCB77056E44463EC8CA831E1E4D700C55934C
 
 ###  Подробнее
 
-Документальный сериал «Дорожные войны» рассказывает о работе сотрудников ГИБДД. Программа основана на материале, снятом видеорегистраторами патрульных машин, уличными камерами наблюдения и случайными очевидцами. Также присутствуют и собственные репортажи от съемочной группы ДТВ, выезжающей на дежурство вместе с экипажами ГИБДД.
-В целом, «Дорожные войны» посвящены двум извечным проблемам: дуракам и дорогам. Теперь, когда появились видеокамеры, можно оценить масштабы этих проблем. Сюжеты получаются разные: от смешных до трагических, от поучительных до просто вызывающих недоумение. Конечно, больше всего проблем на дорогах создают подвыпившие водители, но бывают и более интересные случаи. Например, съемочной группе выдалось заснять как наряд ГИБДД несколько кварталов гнался за… трактором! Водитель долго пытался скрыться, создавая угрозу на дороге — выезжал на встречную полосу и на тротуары. Когда трактор, наконец, удалось остановить, выяснилось, что он числиться в угоне, но водитель так и не смог объяснить, зачем (   Читать дальше...   )Жанр: Документальный сериал, криминалПродолжительность: ~ 00:19:04
+Узнайте об уникальном архитектурном сооружении - Пекинском национальном стадионе, одном из самых грандиозных проектов современного Китая. Его называют "Ласточкино гнездо".Жанр: ДокументальныйПеревод: Одноголосый закадровыйПродолжительность: 00:47:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB28CA8382512810B0D8D3472D4E8B5676FED11B
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 438839   (974255) от 20.01.2012
+###  Публикация: 744226   (972981) от 10.01.2014
 
-Иэн Рэнкин | Кошки-мышки [2009] [MP3]
+Comedy Woman. Новый формат. Лучшее  (2014.01.10) WEBDLRip [H.264/720p]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Юмора
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -528,22 +654,23 @@ magnet:?xt=urn:btih:AB28CA8382512810B0D8D3472D4E8B5676FED11B
 
 ###  Подробнее
 
-В эдинбургской трущобе обнаружен труп наркомана. Казалось бы, дело ясное: передозировка. Однако инспектору Ребусу не дает покоя эта смерть, подозрительно смахивающая на убийство, и он в одиночку, сражаясь с безразличием и разоблачая предательство, пытается докопаться до истины.Жанр: Детектив
+Пока мужчины меняют зимнюю резину в автосервисах, девушки из ComedyWoman меняют формат шоу. В новом сезоне комеди-дамы покажут все, на что они способны и остановить их не сможет никто... Даже ОН! Ведь в рамках предвыборной кампании хорошего жениха в гости ComedyWoman заглянет Второй Человек в нашей стране! Теперь в Comedy Woman всех ожидает все на 100% женское, ведь не считая Дмитрия Хрусталева на сцене и в зале будут только дамы. Впрочем, будут и исключения. Фишкой нового сезона станут новые костюмы, специально разработанные для девчонок одним модным дизайнером. Теперь в нарядах будет больше секса, а на сцене больше женских ног, которые ранее тщательно скрывались за длинными юбками. Кроме этого зрители увидят и новые декорации в стиле «Алиса в стране чудес»
+Популярное шоу Сomedy Woman теперь становится на 100% женским! Здесь все по-новому: еще больше секса, голых ног, эротичных костюмов, жарких шуток, веселых закулисных перебранок и никаких мужчин даже в зале! Разве что Дмитрий Хрусталев останется и парочка очень (   Читать дальше...   )Жанр: ТВ-ШоуПродолжительность: ~ 00:49:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DAACA8FD8404EA89BBA2FD611A0495949DACA1B
+magnet:?xt=urn:btih:CAE58C1E1518CFE595C46613847C8674C0E5A509
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 438993   (974256) от 20.01.2012
+###  Публикация: 96187   (972984) от 10.01.2014
 
-[Wallpapers] Valina's Wallpapers (20.01.12)
+НГО: Суперсооружения: Большой бостонский тоннель / Megastructures: Boston's Big Dig (2005) [TVRip]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -552,22 +679,22 @@ magnet:?xt=urn:btih:5DAACA8FD8404EA89BBA2FD611A0495949DACA1B
 
 ###  Подробнее
 
-Обои для рабочего стола
+Возможно ли построить подземную автодорогу с десятью полосами движения под одним из главных городов Америки, не нарушая при этом напряженный ритм города? Такой проект стоимостью в 15 миллиардов долларов уже осуществляется.Жанр: ДокументальныйПеревод: Одноголосый закадровыйПродолжительность: 00:44:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:24E8013F1E1FBBB5977017590E9271EEB60D01F2
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 438988   (974257) от 20.01.2012
+###  Публикация: 94082   (972985) от 10.01.2014
 
-[Wallpapers] HQ Wallpapers (20.01.12)
+НГО: Суперсооружения: Сделано из стали / MegaStructures: How It's Built: Steel (2006) [TVRip]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -576,113 +703,11 @@ magnet:?xt=urn:btih:24E8013F1E1FBBB5977017590E9271EEB60D01F2
 
 ###  Подробнее
 
-Обои для рабочего стола
+Сталь, один из самых прочных материалов на Земле, повлияла на ход истории и развитие цивилизаций. Узнайте об областях применения стали: от строительства небоскребов до изготовления столовых приборов.Жанр: ДокументальныйПеревод: Профессиональный (одноголосый)Продолжительность: 00:47:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6A8C903A711FD27B8508B48C52C1CAD6415F0FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 438503   (974258) от 20.01.2012
-
-[Wallpapers] Best HD Wallpapers Pack №342
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Best HD Wallpapers Pack №342Название: Best HD Wallpapers Pack №342
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F570A5C017DB39A608065490BBCE1A5DA9430F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 438984   (974259) от 20.01.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (20.01.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43CA62C4CB9F83015E28AF0A22DC179A10271BDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 439055   (974260) от 20.01.2012
-
-[Wallpapers] Collection HQ Wallpapers №30
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Collection HQ Wallpapers №30Название: Collection HQ Wallpapers №30
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1680x1050/1600x1200 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A8DFEF25605233FD9EF3FABB32E536C763F9E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 438693   (974261) от 20.01.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (19.01.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B8390C3C3286AA419AEBFF7F7706098C9C6856
+нет
 ```
 
 

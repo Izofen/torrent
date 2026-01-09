@@ -1,3 +1,30 @@
+###  Публикация: 1370149   (898484) от 26.03.2020
+
+VA - Exotic Chill House (2020) [MP3|320 Kbps] <Chill House, Relax, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898484.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nazca - Unchained
+002. Lord Of The Flies - Ice Water
+003. Cool Jaques - About Us
+004. Archelix - By Night (Original Mix)(   Читать дальше...   )Жанр: Chill House, Relax, ChilloutПродолжительность: 08:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A02F13CBA1A4E9920B2087044FC185A7E2B7C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 637168   (898530) от 01.04.2013
 
 VA - Громче музыку! Жаркий хит (2013) [MP3|256-320 кб/с]<Dance, Club, Pop>
@@ -680,33 +707,6 @@ VA - Fresh Club Music Vol. 1 (2017) [MP3|320 Kbps] <Club, Dance, House, Electro 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:189FFD6E70112A5F94A2CEDF249C02B76A9F015D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992568   (900701) от 02.03.2016
-
-VA - Collection Reggae (2016) [MP3|320 кб/с] <Reggae, Ska, Hip-hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bazzookas - Haha  02:28
-02. Manaky - Ain't Nobody  04:57
-03. Nas & Damian Marley - Africa Must Wake Up (f. K'naan)  06:40
-04. The Wailers Band - MY FRIEND  03:41(   Читать дальше...   )Жанр: Reggae, Ska, Hip-hopПродолжительность: 02:29:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:029D879445419C715FCA04E9C6FF3B9CF17DFA1D
 ```
 
 

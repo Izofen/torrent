@@ -1,3 +1,30 @@
+###  Публикация: 1207602   (780546) от 18.02.2018
+
+Eros Ramazzotti - Duets (2017) Compilation [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eros Ramazzotti feat. Tina Turner - Cose Della Vita (Can't Stop Thinking Of You) 4:50
+02. Eros Ramazzotti feat. Nicole Scherzinger - Fino All'estasi 3:46
+03. Eros Ramazzotti feat. Giorgia - Inevitabile 3:56
+04. Eros Ramazzotti feat. Anastacia - I Belong To You (Il Ritmo Della Passione) 4:26(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B3237C933BC43E6328A7E7ECFE07673E60CC813
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207545   (780560) от 18.02.2018
 
 Руслана - Дикі Танці (2003) [FLAC|Lossless|image + .cue]<Pop, Folk>
@@ -668,33 +695,6 @@ Lady Gaga - Chromatica (2020) Deluxe Edition, Limited Edition [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEC60B15B160B23100E5979C9BBFC6B2579A7396
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388220   (786856) от 05.06.2020
-
-Thomas Anders & Florian Silbereisen - Das Album (2020) [FLAC|Lossless|WEB-DL|tracks] <Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786856.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
-2. Sie hat es wieder getan (feat. Florian Silbereisen)
-3. Sie ist wieder da
-4. Versuch's nochmal mit mir(   Читать дальше...   )Жанр: EuropopПродолжительность: 01:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C11F2247338F77AF18195100D7F6B695B2D076
 ```
 
 

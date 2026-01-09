@@ -1,3 +1,165 @@
+###  Публикация: 1387502   (791200) от 02.06.2020
+
+Moby - All Visible Objects (2020) Little Idiot [FLAC|Lossless|WEB--24Bit|tracks] <House, Ambient, Dance-pop, Leftfield>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morningside (05:31)
+ 02. My Only Love (05:45)
+ 03. Refuge (05:45)
+ 04. One Last Time (05:34)(   Читать дальше...   )Жанр: House, Ambient, Dance-pop, LeftfieldПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E1EEEF1BCBA8464B0BB917D6CB6EB8A4A651EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387193   (791224) от 02.06.2020
+
+GRiZ - 6 Albums, 4 Extended plays, 2 Mixtapes (2012-2019) [FLAC|Lossless|WEB-DL|tracks] <Dubstep, Glitch Hop, Trap, Future Funk>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791224.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I've Been Dreamin (06:02)
+2. Akhet's Theme (05:33)
+3. Feel Like Makin Love ft. The Cabin (04:02)
+4. Smoke That ft. ProbCause and Jaye Prime (03:01)(   Читать дальше...   )Жанр: Funk, Future Funk, Electro Soul, Dubstep, Glitch-Hop, Trip HopПродолжительность: 06:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:641864F4B3B1313ECAE0C59AF54E8BB8257A4F9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387489   (791290) от 02.06.2020
+
+Luke Vibert - Luke Vibert presents Amen Andrews (2020) Hypercolour [FLAC|Lossless|WEB-DL|tracks] <Jungle, Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pressure (04:02)
+ 02. God (03:56)
+ 03. Animen (03:52)
+ 04. DBC 1 (04:40)(   Читать дальше...   )Жанр: Jungle, Drum & BassПродолжительность: 01:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D1F54716518C74776C000F80E44953ABE887EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510321   (791318) от 16.11.2021
+
+Нейромонах Феофан - Древнерусский рейв (2021) [MP3|320 Kbps] <Drum & Bass, Electronic>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791318.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Древнерусский рейв
+2. Небо
+3. До берегу
+4. Дуб(   Читать дальше...   )Жанр: Drum & Bass, ElectronicПродолжительность: 00:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF78643965875E959C6DAF0D26C5968FE38957E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387604   (791338) от 02.06.2020
+
+Eric Prydz vs. Floyd - Proper Education (2007) Maxi-Single [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Proper Education (Radio) (3:26)
+02. Proper Education (Club Mix) (6:11)
+03. Proper Education (Dub Mix) (8:40)
+04. Proper Education (Instrumental) (2:31)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C66C2F01A978FF566BE1750961F9CF8B4EE420FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510413   (791464) от 16.11.2021
+
+VA - Dark Sessions Live At The Recoverworld Club Lounge (Mixed by Chris Hampshire) (2021) [FLAC|Lossless|WEB|tracks|image] <Tech Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Greg Downey - Grade A (Mandy Reid Remix) (7:26)
+02. Danny Oliveira - Drop It Your Love (John O'Callaghan Remix) (7:21)
+03. Cristian Ketelaars - Tank (Original Mix) (6:59)
+04. Craig Forsyth - Salamanca's Bell (Original Mix) (6:14)(   Читать дальше...   )Жанр: Tech TranceПродолжительность: 03:19:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD4D2E66488813ADBD343C7A84E788555F47F65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510409   (791467) от 16.11.2021
 
 Factor B - Theatre of the Mind (2021) [FLAC|Lossless|WEB|tracks] <Trance, Progressive House>
@@ -530,168 +692,6 @@ Resoe - Discography 15 Releases (2007-2020) Baum Records, Echocord [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E518EEAA61E906ACAB2EA696349EF089478385EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387468   (791848) от 01.06.2020
-
-Aura Minimum - Mysterious Segments (2020) Modern Nature [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Segment I (11:56)
- 02. Segment II (13:52)
- 03. Segment III (12:00)
- 04. Segment IV (13:40)Жанр: Dub Techno, AmbientПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90DA3C7B9A94E0B654D806C96B7398835D22F937
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387273   (791850) от 01.06.2020
-
-Ferrein - Valentine (2016) Echotourist [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterglow (08:05)
-02. Field (05:22)
-03. Grow (05:28)
-04. Noone (05:39)(   Читать дальше...   )Жанр: Dub Techno, Ambient, ExperimentalПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAAC08827470B1E5163E7462C24A2613A67B75DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387359   (791851) от 01.06.2020
-
-Exos - Indigo (2020) Figure [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reincarnation (03:22)
-02. Í skjóli nætur (04:16)
-03. Sælu-reitur (06:13)
-04. Quod Arcanum Leticia (05:49)(   Читать дальше...   )Жанр: Dub Techno, Techno, AmbientПродолжительность: 01:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8F6451062C28B5F78B741AE2BF2657323E859A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387270   (791852) от 01.06.2020
-
-St. Concrete - Listen Past Me (2019) Modern Cathedrals [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno, Leftfield>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Köpenickerstr (05:28)
- 02. Oberbaumbrücke (06:56)
- 03. Cass Ave (05:23)
- 04. Skalitzerstr (06:37)(   Читать дальше...   )Жанр: Dub Techno, Techno, LeftfieldПродолжительность: 00:30:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F475CA595DFE1F0772BA876AB31428ACE333FA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510234   (792030) от 15.11.2021
-
-VA - Big Workout Hits 2022 - Remixed for Fitness! (2021) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stephan Baker - Bad Habits (Workout Mix 130 bpm) (04:16)
-02. Stephan Baker - Take My Breath (Workout Mix 130 bpm) (04:06)
-03. Chandler FX - Higher Power (Workout Mix 178 bpm) (03:34)
-04. Chandler FX - Peaches (Workout Mix 178 bpm) (03:40)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 03:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C289DDA8689DEA74D8689190D0CC6B196560130
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510032   (792140) от 15.11.2021
-
-Peter Pearson - Hearts and Flowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On The Edge Of A Dream (5:36)
-02. Coup De Coeur (Feat. Tim Gelo) (5:39)
-03. A Thousand Petals (6:24)
-04. Hearts And Flowers (5:36)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B03D3F2E1BCA0F5145E852746ED02B9CF19F4C1
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1125674   (768066) от 15.04.2017
+
+VA - Spring Lounge 2017: Chill Sounds Like Sunshine (Mixed by DJ Maretimo) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Maretimo - The Midnight Hour (feat. Vladi Strecker) (Zero O'Clock Mix)  8:56
+02.  Frank Borell - Tibetan Tears (Eurasia Mix)  6:07
+03.  Island Sun - Time (Sunset Mix)  5:44
+04.  Cafe Americaine - In Your Fantasy (Playa de Palma Mix)  5:23(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E64B42F97C98288DFD99B22B37E3A464E0A2C486
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125587   (768068) от 15.04.2017
+
+VA - Special Sport Songs 7 (2017) [MP3|320 Kbps] <House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hr Troels - Chameleon (Radio Edit)  3:37
+02.  Dave Gate - I Can't Get You (Radio Edit)  2:56
+03.  Phun & Key - System Crash (Radio Edit)  3:05
+04.  Sequence 2 - Crazy (Radio Edit)  4:16(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 02:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC00DBE832F2856ACADBBBEF728B7142EB320362
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125641   (768093) от 15.04.2017
+
+Аrjen Sсhаt - Skаrсе (2017) [MP3|320 Kbps] <Ambient, Berlin-School, Drone>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768093.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Snurks
+2. Desqam
+3. Tranquil
+4. Gradual Consonant Transposition Modulation(   Читать дальше...   )Жанр: Ambient, Berlin-School, DroneПродолжительность: 00:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33CAA18E9D86966032C6759EF558608D73553A2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125309   (768094) от 15.04.2017
+
+Dense - Tide Forger (2017) [MP3|320 Kbps] <Ambient, Downtempo, Psychill>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Star In A Cage 06:26
+02. Not Alone 08:09
+03. Nox 08:17
+04. Rise Up Now 07:18(   Читать дальше...   )Жанр: Ambient, Downtempo, PsychillПродолжительность: 01:08:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31988527F9C94E7845F5B90F51A532264AA158B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125582   (768103) от 15.04.2017
+
+VA - Sirup Deep Anthems Mykonos (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Croatia Squad - The Best 03:25
+02. Sir Felix - Hope (Nora En Pure Radio Mix) 03:27
+03. Edx - Goombah (Radio Mix) 03:07
+04. Sons Of Maria - Surrender (Radio Mix) 04:00(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C5A5ADED71F27418AA37DEEAA04713D480B581
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125541   (768106) от 15.04.2017
+
+VA - Unique Sense In Miami (Mixed by Abstract Vision) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Abstract Vision - Vertex (Radio Edit)  3:36
+02.  D'Jaeger - Genesis (Radio Edit)  2:38
+03.  Iversoon & Alex Daf vs Aurora Night - Hover (Radio Edit)  3:49
+04.  D'Jaeger - Chronicle (Radio Edit)  2:26(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F1E09494534FB19C952754FE65E48ACB3120F8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125507   (768110) от 15.04.2017
 
 VA - Trance Mission (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -533,165 +695,6 @@ VA - Work Body Extreme Top Selection (2020) [MP3|320 Kbps] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1673B657EA531633B90D7701D6CFFC68692A13A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392283   (769334) от 25.06.2020
-
-Blank & Jones - RELAX - Edition 12 (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electronic, Chillout, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Ambient (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise & Shine (4:28)
- 02. What You Won't Do for Love (Relax Mix) (3:36)
- 03. Malibu (3:58)
- 04. C'est pas la mer à boire (4:33)(   Читать дальше...   )Жанр: Electronic, Chillout, Lounge, DowntempoПродолжительность: 01:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D32CD5B258BACB8952228D2FCB7756CC19874252
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221215   (769341) от 25.06.2020
-
-Darkhalo - Discography 8 Releases (2009-2020) [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, IDM, Downtempo, Ambient>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abiogenesis (05:30)
- 02. Naturally, Effortlessly (06:00)
- 03. Digital Blade (04:30)
- 04. Relevant Ads in Your Social Feed (03:40)(   Читать дальше...   )Тип издания: WebЖанр: Drum n Bass, IDM, Downtempo, Ambient •Продолжительность: 06:55:25 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FEA99084B65DA1A3A0CB5D95EA75CB86BA36D96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392306   (769385) от 25.06.2020
-
-Viill & Aura Minimum - Full Harvest (2020) Modern Nature [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viill - Lost SignalЖанр: Dub Techno, AmbientПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB6BAA61C35AD0916F92BC1725782BD0F09805B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392354   (769386) от 25.06.2020
-
-Darkhalo - Metamorph (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, IDM, Ambient>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abiogenesis (05:30)
-02. Naturally, Effortlessly (06:00)
-03. Digital Blade (04:30)
-04. Relevant Ads in your Social Feed (03:40)(   Читать дальше...   )Жанр: Drum n Bass, IDM, AmbientПродолжительность: 01:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A399AB00505572D5A48CCFE0A12D382512206C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016863   (769554) от 15.05.2016
-
-VA - Vocal Trance Hits 2016-02 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren feat. Susana - Shivers (Dan Thompson Remix) (03:38)
-02. Above & Beyond feat. Justine Suissa - Little Something (Super8 & Tab Remix) (03:46)
-03. Gareth Emery feat. Gavrielle - Far From Home (Craig Connelly Remix) (03:59)
-04. Andrew Rayel feat. Kristina Antuna - Once In A Lifetime Love (03:41)(   Читать дальше...   )Производство: Armada DigitalЖанр: Trance, Vocal TranceПродолжительность: 02:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6410BA8A89B685621025BAFB2A9BD4DE87224842
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016441   (769683) от 15.05.2016
-
-Soukie & Windish - Loom (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fitzroy (Original Mix) (06:41)
-02. Jaglion (Original Mix) (08:01)
-03. St. Tropitz (Original Mix) (07:44)
-04. Cable Gardens (Original Mix) (05:41)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87370758E1195811D22091B9F7A39C33BA87EFC1
 ```
 
 

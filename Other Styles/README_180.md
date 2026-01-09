@@ -1,3 +1,328 @@
+###  Публикация: 168685   (967578) от 23.01.2010
+
+Dale Cooper Quartet and the Dictaphones - Parole De Navarre (2006) [FLAC|Lossless]<Krautrock, Ambient, Jazz Noir, Drone>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ta Grenier (4:14)
+02 - Une Cellier (11:08)
+03 - La Boudoir (4:18)
+04 - Aucun Cave (6:49)(   Читать дальше...   )Жанр: Krautrock, Ambient, Jazz Noir, DroneПродолжительность: 01:11:14
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 745413   (968177) от 14.01.2014
+
+David Arkenstone - Ocean Dreams (2006) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (1:07)
+02. Along the Shore (6:37)
+03. Swirling Pools (6:16)
+04. Beachcomber (5:48)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB1BEE4BD64E20E8DE869D6E72D59E3C396438E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619053   (968485) от 15.02.2013
+
+Deep Forest & Rahul Sharma - Deep India (2013) [APE|Lossless]<Ambient, World, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Viva Madikeri (Karnataka)
+02. Bihu (Assam)
+03. Rajasthan
+04. Dhol Lejhim (Maharashtra)
+05. Thillelo (Kerala)
+06. Punjab
+07. The Village (Sindh)
+08. Mountain Ballad (Jammu)
+09. Sounds Of The Village
+10. Viva Madikeri (Radio Edit)Жанр: Ambient, World, New AgeПродолжительность: 00:52:21
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619019   (968551) от 15.02.2013
+
+Deep Forest & Rahul Sharma - Deep India (2013) [MP3|320 кб/с]<New age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Viva Madikeri (Karnataka) (5:52)
+02. Bihu (Assam) (4:45)
+03. Rajasthan (4:54)
+04. Dhol Lejhim (Maharashtra) (5:09)
+05. Thillelo (Kerala) (3:40)
+06. Punjab (5:59)
+07. The Village (Sindh) (6:43)
+08. Mountain Ballad (Jammu) (7:06)
+09. Sounds Of The Village (4:08)
+10. Viva Madikeri (Radio Edit) (4:01)Жанр: New age, WorldПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:248D185379726E61B5EA85C9CD6A13B808048279
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976576   (968650) от 18.01.2016
+
+VA - Крид: Наследие Рокки  / Creed (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с] <Soundtrack, Hip-Hop, Rap, R&B, Soul>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future - Last Breath (3:59)
+02. Meek Mill - Check (3:14)
+03. White Dave - Intolerant (3:34)
+04. The Roots - The Fire (feat. John Legend) (3:41)(   Читать дальше...   )Жанр: Soundtrack, Hip-Hop, Rap, R&B, SoulПродолжительность: 01:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD443B1C8A3A4591FDDA9D65322D9C7F8F66478
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 663203   (968921) от 13.01.2014
+
+Московская оперетта - Граф Орлов (2013) [MP3|192 кб/с]<Мюзикл>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Увертюра (Оркестр)
+02 - Ливорно (Андрей Белявский, Александр Маракулин, Сергей Ли)
+03 - Красотка (Александр Постоленко)
+04 - Чужая страна (Андрей Белявский)(   Читать дальше...   )Жанр: МюзиклПродолжительность: 01:43:06
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 745140   (969214) от 13.01.2014
+
+David Arkenstone - Journey of the Whales (2006) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (1:28)
+02. The Deep Blue (8:19)
+03. Breath of the Ocean (8:12)
+04. The Long Journey (8:22)
+05. Sparkles in the Sea (8:13)
+06. Majestic Giants (8:14)
+07. Waltz of the Whales (7:39)
+08. Floating (9:33)Жанр: New AgeПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC179FCF3879BF10797D631060E21EDF3E9DD87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 744906   (969327) от 13.01.2014
+
+Dum Dum Girls - Too True (2014) [MP3|192 кб/с]<Indie Pop>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Cult Of Love (2:15)
+2. Evil Blooms (2:37)
+3. Rimbaud Eyes (3:31)
+4. Are You Okay (2:52)
+5. Too True To Be Good (3:05)
+6. In The Wake Of You (2:41)
+7. Lost Boys And Girls Club (3:25)
+8. Little Minx (2:31)
+9. Under These Hands (3:30)
+10. Trouble Is My Name (4:03)Жанр: Indie PopПродолжительность: 00:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3801C2349FCD96E2070C4F204EC076277620F0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618300   (969541) от 14.02.2013
+
+Pucaramanta - Sound of the spirits (2010) [MP3|~190 кб/с (V2)]<Native American,New Age,Ethnic,Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Qapaq Nan
+02. Chirapaq
+03. The Last Mohican
+04. Ananau
+05. Sunquyman
+06. Tananka
+07. White buffalo
+08. Kabra Nawy
+09. Paway Anka
+10. Abiu Tusuy(   Читать дальше...   )Жанр: Native American,New Age,Ethnic,FolkПродолжительность: 01:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D439EBB0390D647F8B82AC433BC82CEDFA65AD28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358227   (969562) от 07.02.2020
+
+VA - Birds of Prey / Хищные птицы (Потрясающая история Харли Квинн): The Album (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969562.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:14| 01. Doja Cat - Boss Bitch
+|02:11| 02. Whipped Cream - So Thick (feat. Baby Goth)
+|03:19| 03. Megan Thee Stallion & Normani - Diamonds (with Normani)
+|02:48| 04. Saweetie & GALXARA - Sway With Me(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311378A72E690E63E71DF6D75707451E779CD6A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358382   (969632) от 07.02.2020
+
+VA - Birds of Prey / Хищные птицы (Потрясающая история Харли Квинн): The Album (2020) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969632.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:14| 01. Doja Cat - Boss Bitch
+|02:11| 02. Whipped Cream - So Thick (feat. Baby Goth)
+|03:19| 03. Megan Thee Stallion & Normani - Diamonds (with Normani)
+|02:48| 04. Saweetie & GALXARA - Sway With Me(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74DAA493A30EB4F046789261BD6BF3130376FEDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358226   (969641) от 07.02.2020
 
 VA - Birds of Prey / Хищные птицы: Потрясающая история Харли Квинн (The Album) (2020) [MP3|320 кб/с]<Soundtrack>
@@ -436,335 +761,6 @@ Medwyn Goodall - The Elixir of Life (2020) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1A546C97191DE2E1C41B3B56C7842E8877143A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744687   (970713) от 12.01.2014
-
-Niladri Kumar - IF. Magical Sounds of Sitar (2003) [MP3|320 кб/с]<New ega, Meditative, World Fusion>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(08:45) 1. If you ever loved
-(09:45) 2. Calling Ganesha
-(10:58) 3. Ya - Man
-(07:55) 4. Lukhnow
-(08:42) 5. Haseen
-(13:31) 6. Salute to tradition
-(05:40) 7. Khwab
-(03:36) 8. IFЖанр: New ega, Meditative, World FusionПродолжительность: 01:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F07E8C1D204F38BB57AC33FE34B5C15C7299AE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357245   (970732) от 06.02.2020
-
-Tom Kenyon - Songs of Magdalen (2005) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Meeting at the Well (4:17)
-02. I and My Beloved (8:36)
-03. Sar'h's Song (3:27)
-04. The Skies over Jerusalem (2:54)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D2ACF8BC2BD56579349B59B37512F5F92FF300
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976103   (970803) от 16.01.2016
-
-Ennio Morricone - Correspondence (La Corrispondenza) Original Soundtrack (2016) [MP3|320 кб/с] <Soundtracks, Instrumental>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Casa Sul Lago
-02. Una Stella, Miliardi Di Stelle
-03. Improvvisazione In Sol
-04. Stuntgirl(   Читать дальше...   )Жанр: Soundtracks, InstrumentalПродолжительность: 01:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3818881BBC80C75B2B45A14C9497DA05FCF151
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975770   (970807) от 16.01.2016
-
-Jens Gad (ex.-Enigma) - Le Spa Sonique (2006) [FLAC|Lossless|tracks + .cue] <Downtempo, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (1:28)
- 02. El Momento (6:02)
- 03. Navajo (4:43)
- 04. The Orbiting Suns (4:42)(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 00:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FBA6E7A85538AB46C31A8F34467479428CB205F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975823   (970810) от 16.01.2016
-
-Enigmatic Obsession - Secrets Of Seduction (2005) [FLAC|Lossless|tracks + .cue] <Downtempo, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening My Eyes (feat. Luisa Fernandez)
- 02. In The Recent Past (feat. Luisa Fernandez)
- 03. The Delta Of The Red River
- 04. Northern Horizon (feat. Helene Horlyck)(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:852E17BAA6FC3127B90764A5012EC5DF3216DD60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 439873   (970923) от 22.01.2012
-
-VA - Питер FM (2006) [FLAC|Lossless]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Кирилл Пирогов - Музыка города (3:19)
-Ундервуд - Сегодня модно быть ди-джеем (4:29)
-Кирилл Пирогов - Перекресток (2:09)
-Pep-See - Диско (3:44)
-Кирилл Пирогов - Решётка (1:25)
-Uncle. L - Летний дождь (5:41)
-Город 312 - Вне зоны доступа (3:32)
-Кирилл Пирогов - Вокализ (4:19)
-Pep-See - Уступите парню лыжню (2:39)
-Кирилл Пирогов - Медленная музыка (3:00)(   Читать дальше...   )2006Жанр: SoundtrackПродолжительность: 1:01:43
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 417540   (970946) от 13.02.2013
-
-Paul Lawler - 3 альбома (2008-2012) [MP3|320 kbps]<New age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(6:20) 01. Wake Up The Sun
-(5:05) 02. Dreams of the Day
-(5:58) 03. Lazy Summer
-(4:37) 04. The Traveller
-(5:48) 05. Daybreak
-(6:09) 06. Neon Worlds
-(7:26) 07. Angel Falls
-(4:40) 08. Waltz in B
-(5:08) 09. The Dreaming Willow
-(4:26) 10. Buffalo Horn Shuffle(   Читать дальше...   )Жанр: New age, AmbientПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6EF0ABB8B8C3C45D984266919376C85418BFD1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 440307   (971049) от 22.01.2012
-
-Midori (Medwyn Goodall) - Gregorian Harmony (2006) [FLAC|Lossless]<New Age, Relaxation>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - Gregorian Soul
-02 - Mercy on Me
-03 - Through Dark Ages
-04 - Veni Creato
-05 - Pange Lingua
-06 - Ancient Ways
-07 - Devotion
-08 - Passage to Heaven2006Жанр: New Age, RelaxationПродолжительность: 00: 42:10
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616974   (971187) от 13.02.2013
-
-The Nymphs - Language of the Nymphs (2012) [MP3|192 кб/с]<New age, Instrumental, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971187.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:39) 1. Sa Na Du
-(6:56) 2. Waka Zia
-(6:26) 3. Donde Djembeh
-(4:26) 4. Umna Sa
-(4:46) 5. Na No Mi Ne
-(5:46) 6. Adjah Bihem
-(5:04) 7. Nouri SamahЖанр: New age, Instrumental, RelaxПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517AA0BD7BCF379130E5DEDB194E8DEA3B78F4EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 438559   (971234) от 22.01.2012
-
-VA - Seduction Time (2012) [MP3|320 kbps]<Erotic Lounge, Chillout, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.Unclubbed with Abigail Bailey - Touch me (3:19)
-02.Wildboyz feat. Ameerah - The sound of missing you (3:36)
-03.Jes - Love song (Acoustic love mix) (4:19)
-04.Kosmopolitans feat. Crystalia - Wild is the wind (3:49)
-05.Consoul Trainin feat Joan Kolova - Beautiful (Kosmopolitans mix) (3:34)
-06.Polaris feat. Augusta - You are my love (3:38)
-07.Omikron feat. Baby Queen - My favourite game (Kosmopolitans mix) (3:50)
-08.Tereza - Everybody's got to learn sometime (4:02)
-09.Reunited - Sun is shining (Out Of Sight RMX) (4:28)
-10.Mystic Diversions feat. Daniele Vit - Why can't we live together (4:24)(   Читать дальше...   )2012Жанр: Erotic Lounge, Chillout, AmbientПродолжительность: 03:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D4B40162B9B21495133BCBFD26AA1E08E2CCEBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617081   (971264) от 13.02.2013
-
-Richard Ackrill - The Lightness of Being (2012) [MP3|320 кб/с]<New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971264.jpg" />
-</div>
-
-
-###  Подробнее
-
-(6:46) 1. Infinity 
-(7:15) 2. Rising Above It All
-(8:44) 3. Wings To Guide Me 
-(6:48) 4. Rain Walking
-(6:12) 5. Presence
-(6:12) 6. Closer To The Light
-(9:02) 7. Beyond The CloudsЖанр: New ageПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C1645612714832C143D1B687C5EEABD7EFC46D5
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1844805   (1050418) от 28.12.2025
+
+VA - Fortune Teller Blues - Smming up the Results (2025) [MP3|320 Kbps] <Blues, Blues rock, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050418.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Playing For Change - Fly Like an Eagle [04:19]
+002. Popa Chubby - I'm Going Down [05:31]
+003. Def Leppard - Stand By Me [03:11]
+004. Professor Louie & The Crowmatix - Stick To The Plan [05:25](   Читать дальше...   )Жанр: Blues, Blues rock, InstrumentalПродолжительность: 08:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD37F7C4320E76FFE4C47E1B12C8216AD1DE377
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844725   (1050420) от 28.12.2025
 
 Richard Marx - Collection от ALEXnROCK (2025) [MP3|320 Kbps] <Rock>
@@ -236,6 +263,438 @@ Ai - Inspired Blues & Soul Songs Part 2 (2025) [MP3|320 Kbps] <Blues & Soul Song
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63C2E8B1D41557EB60DA662ED463F5510F129DA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845655   (1050761) от 
+
+Nina Blaze - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Where the Silence Sleeps
+02 - Burning for You
+03 - Poisoned Tongue
+04 - The Echo That Stayed(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C30E844AB61296CF2EEAF6689E6347475E84C02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845086   (1050785) от 
+
+Ai - No name compilation part 36 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad, Soulful Female Vocal, Soul Fusion, Ai>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - If I Knew How to Hold You
+02 - While I Was Still Yours
+03 - We Chose to Stay Burning
+04 - Don’t Say You’re Sorry Now(   Читать дальше...   )Жанр: Slow Pop Rock Ballad, Soulful Female Vocal, Soul Fusion, AiПродолжительность: 01:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55EBC9ED2E2734DE9BF0B357853706520B272F37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845195   (1050786) от 
+
+Ai - No name compilation part 37 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad, Soulful Female Vocal, Soul Fusion, Ai>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - You're Drifting Away
+02 - Fallen
+03 - The Way You Move Me
+04 - Hidden Flame(   Читать дальше...   )Жанр: Slow Pop Rock Ballad, Soulful Female Vocal, Soul Fusion, AiПродолжительность: 01:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78FA0F11E941BC90C7D63C65DC10C77DB94FCF3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845519   (1050787) от 
+
+VA - Blues compilation part 3 Blues Ballad (2025) [MP3|320 Kbps] <Blues Ballad>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Morgan Luna - Low River Prayer
+02 - Ai - Don't Let Me Go
+03 - Ai - The Water Still Knows Me
+04 - Ai - Where the Night Still Hurts(   Читать дальше...   )Жанр: Blues BalladПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B80D79FB9A66DB6B92C4C9168DA6AA4F8AC11B21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845537   (1050788) от 
+
+Ai - No name compilation part 38 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Whispers in the Wind
+02 - My Foolish Heart Never Saw His Devotion
+03 - Hold Me Close, Don't Ever Let Go
+04 - At the End of the Wait(   Читать дальше...   )Жанр: Slow Pop Rock BalladПродолжительность: 01:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE99E37B7DD8AEE82C04625120A4508F13D51C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845572   (1050789) от 
+
+Ai - No name compilation part 39 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - This Heart is Weary
+02 - Stay
+03 - When I’m No Longer Here
+04 - I Miss You So(   Читать дальше...   )Жанр: Slow Pop Rock BalladПродолжительность: 01:25:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76612176BCBFE76C6184AFCD600E0542D371A9E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845711   (1050927) от 
+
+VA - Лучшие песни Наше радио за 2025 год (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ария - Гордиев узел (5:15)
+02. Radio Tapok - Фрау чёрная смерть (3:37)
+03. Casual, Глобалис - Не жалей ни о чём (3:57)
+04. ГУДТАЙМС & Найк Борзов - Инопланетный гость (4:44)(   Читать дальше...   )Жанр: RockПродолжительность: 05:27:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78ABCA902B1740F0736926121E1FD004281EB72B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845785   (1051005) от 
+
+VA - Hard Rock: Steel Anthems (2025) [MP3|320 Kbps] <Hard-Rock, Metal, Core>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051005.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Drive - Mrclaps  - (01:52)
+ 002 Gasoline Tongue - Noah Vale  - (02:43)
+ 003 Berliner Suffmarsch - Krawallonkel  - (04:14)
+ 004 County Queen - Jay Rosaa  - (04:58)(   Читать дальше...   )Жанр: Hard-Rock, Metal, CoreПродолжительность: 11:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3483B0A3AD94B8EC8CE88C3E69B12E72E83E696
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846021   (1051027) от 
+
+VA - Зима на Love Radio (2026) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lyriq - Oh My Love (2:56)
+02. Katy Perry - bandaids (3:08)
+03. Полина Гагарина - Полина (3:30)
+04. Taylor Swift - The Fate of Ophelia (3:46)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1EAEDF5D3EF8947CC043E76063A6CD671428A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845958   (1051073) от 
+
+VA - Лучшие песни Радио Рекорд за 2025 год (2026) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051073.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Misha Miller & Alex Velea - Bam Bam (2:30)
+002. David Guetta & Sia - Beautiful People (3:07)
+003. Rudimental & Khalid - All I Know (2:56)
+004. Zerb & Ty Dolla Sign & Wiz Khalifa - Location (2:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6872A68585F3A7596FE1139C7113951DAFF94B2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845945   (1051082) от 
+
+Nina Blaze - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues Ballad, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Love Left in the Rain
+02 - No Light in This Room
+03 - Where the Warmth Used to Live
+04 - When the Smoke Took Your Name(   Читать дальше...   )Жанр: Blues Ballad, Blues Rock, AIПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9213935668D02B272217A5523ADABE3421C2BAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845949   (1051083) от 
+
+Nina Blaze - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Blues Ballad, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Echoes in the Hollow
+02 - Endless Nights
+03 - Storm Where My Heart Should Be
+04 - Blue Remains(   Читать дальше...   )Жанр: Blues Ballad, Blues Rock, AIПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E7F9ED25871888295684927E4D175B7AC1141A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845952   (1051086) от 
+
+Nina Blaze - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Blues Ballad, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Hollow in My Soul
+02 - Whispers of the South
+03 - The Hollow in My Chest
+04 - Bitters in My Blood(   Читать дальше...   )Жанр: Blues Ballad, Blues Rock, AIПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E82B41DEB98E87236C40454B60394BBFA20F58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845815   (1051091) от 
+
+VA - Blues compilation part 4 Blues Ballad (2025) [MP3|320 Kbps] <Blues Ballad>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ai - Silver in the Dust
+02 - Etta Mae Hartwell - Emerald Silence
+03 - Ai - Remember Me
+04 - Mick Simpson - Now That the Magic Has Gone(   Читать дальше...   )Жанр: Blues BalladПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB302C9056C07DE3CE89B1BB644650C7C00AB1F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845811   (1051093) от 
+
+Ai - Inspired Blues & Soul Songs Part 3 (2025) [MP3|320 Kbps] <Blues & Soul Songs>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Broken Enough to Bleed
+02 - I Found Forever in You
+03 - I Cant Breathe Without Your Love
+04 - I Still Belong Where You Left Me(   Читать дальше...   )Жанр: Blues & Soul SongsПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B6B2A0847FA8E67292939EA17D7F66DFD8F30C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845813   (1051094) от 
+
+Ai - Inspired Blues & Soul Songs Part 4 (2025) [MP3|320 Kbps] <Blues & Soul Songs>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - You're the Reason I Still Believe
+02 - Glows
+03 - No One Feels Like Home But You
+04 - So Real(   Читать дальше...   )Жанр: Blues & Soul SongsПродолжительность: 01:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2DA77A9FE01B36827F11DB978CBEDB53FF2234B
 ```
 
 

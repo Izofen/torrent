@@ -1,3 +1,162 @@
+###  Публикация: 991314   (907908) от 27.02.2016
+
+Coming Soon!!! - The Album (2016) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance , Progressive Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anti Social Media (feat. Bryan Kearney) (7:20)
+02. Ghetto Rebels (6:50)
+03. Instant Rush (6:21)
+04. Prism (5:58)(   Читать дальше...   )Жанр: Psy-Trance , Progressive Psy-TranceПродолжительность: 01:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F78BA946475AADA46C8C879A42E102B9EA2554
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990810   (907923) от 27.02.2016
+
+Eric Prydz - Opus (2016) [FLAC|tracks|WEB-DL]<House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907923.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:44] 01. Liam
+[06:17] 02. Black Dyce
+[05:23] 03. Collider
+[06:37] 04. Som Sas(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2DD8FC29C4AF98B576DC18DA962D0260E319D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991239   (908019) от 27.02.2016
+
+Ferry Corsten - Hello World (2016) [MP3|320 кб/с] <Progressive Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart's Beating Faster (feat Ethan Thompson) (3:03)
+02. Find A Way (4:08)
+03. Beat As One (feat Angelika Vee) (2:56)
+04. Homeward (5:32)(   Читать дальше...   )Жанр: Progressive Trance, Progressive HouseПродолжительность: 01:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46CF2848F3E20AD6C8840A538281BD7D782BD696
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991108   (908020) от 27.02.2016
+
+VA - Various Artists LP Vol. 1 (2016) [MP3|320 кб/с] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dereck - Boom (Original Mix)
+02. Dextems - Blackrelief (Original Mix)
+03. Electrosoul System - Here We Go (Original Mix)
+04. Frosper - Tonal Twist (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADEEEC91AC7B7D47464CFF51F2182180AFC1BC60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990805   (908021) от 27.02.2016
+
+Eric Prydz vs. CHVRCHES - Tether (2015) Single [FLAC|tracks|WEB-DL]<Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908021.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:40] 01. Eric Prydz vs. CHVRCHES - Tether (Original Mix)Жанр: Progressive HouseПродолжительность: 00:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:183EF09536E126957DEE5C737B31C803EF1D9436
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098485   (908597) от 30.01.2017
+
+Animotion - Obsession - The Best Of Animotion (1996) Compilation [FLAC|Lossless|tracks + .cue] <Pop-Rock, Synthpop, 80s>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Obsession (5:37)
+ 02. Let Him Go (4:28)
+ 03. I Want You (4:38)
+ 04. I Engineer (4:15)(   Читать дальше...   )Жанр: Pop-Rock, Synthpop, 80sПродолжительность: 01:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E273AC7B3CA1233048A79ED55BC3E38A77BAECFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491661   (908724) от 26.08.2021
 
 Xu & Darren Harper - Arising & Ceasing Of Things (2021) Rottenman Editions [FLAC|Lossless|WEB-DL|tracks] <Ambient>
@@ -527,168 +686,6 @@ Abiogenesis - Biosynthesis (2017) Altar Records [FLAC|Lossless|WEB-DL|tracks] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E2D69251483D6ECDFC3AD7B96B150E66F45CE74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098085   (910508) от 29.01.2017
-
-Camouflage - Sensor (2003) [FLAC|Lossless|image + .cue] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me and You (4:40)
- 02. Perfect (4:54)
- 03. Harmful (4:29)
- 04. Here She Comes (4:38)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD23EA50A644FFFC5D6C25019D128A2629DFD614
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491190   (910569) от 25.08.2021
-
-VA - Trance 100 (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910569.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren - Euthymia
-002. i_o - Castles In The Sky
-003. Above & Beyond - Crash
-004. Gareth Emery feat. Annabel - You'll Be OK (Giuseppe Ottaviani Remix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 05:56:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F764DE41FBFBF29ED71A65D4C94A54DC316578B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097898   (910763) от 29.01.2017
-
-VA - Melodica Electronica Vol.3 (2017) [FLAC|Lossless|tracks] <Deep House, Tech House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aki Bergen & Richter - Nimitta (Original Mix) [07:00]
-02. I am Frost - Dead End (Original Mix) [08:10]
-03. Marius Lehnert & Arno Mueller - Dagoo (Giorgia Angiuli Remix)[06:22]
-04. Boss Axis - Golden Hour (Sebastian Boldt & Emka Remix) [06:18](   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 02:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB56D27662F6E5B37F37A3BE40789638E9AE1E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098244   (910774) от 29.01.2017
-
-VA - Nu Lounge 2017 Vol 1 (Finest Chilled New Beats) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Sol - Nube De Agua (Feat Ines Prados - Extended Mix) 04:54
-02. Svendaq - Eternal Sunshine 06:45
-03. Sunyata Project - The Journey Begins (Extended Mix) 03:55
-04. After Sunrise - Sunny October 07:35(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36335EF843B63D47B872C6F15F9E10B2CBC995A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368426   (910854) от 19.03.2020
-
-Roger Eno and Brian Eno - Mixing Colours (2020) Deutsche Grammophon [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spring Frost (04:07)
-02. Burnt Umber (04:15)
-03. Celeste (04:22)
-04. Wintergreen (04:10)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 01:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1154396A0716D1C65D65BDB7AA0A2E48BDE07A0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098106   (910904) от 29.01.2017
-
-VA - Commemoration 3 Years (2017) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soft Machine – Made In Brooklyn (06:15)
-02. Hoover’s – People (06:40)
-03. Edu Marks & Audioactive – Alive (06:09)
-04. Danilo Milani & Society Haus – Dirty Minds (06:45)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9941594DA37D4FEDC6D813B0FB8297E901A5E044
 ```
 
 

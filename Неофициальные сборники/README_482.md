@@ -1,3 +1,30 @@
+###  Публикация: 1017925   (759088) от 18.05.2016
+
+VA - Союз XXXL - Весенний Драйв (2016) [MP3|320 кб/с] <Pop, Dance, Disco, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yotto - Aviate (Original Mix)
+ 02. As I Am feat. Jedd Roberts - Closer (Original Mix)
+ 03. Rauschhaus - A Place Beyond Belief (Original Mix)
+ 04. m.O.N.R.O.E. - Seeing Things (Original Mix)(   Читать дальше...   )Жанр: Pop, Dance, Disco, RockПродолжительность: 07:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B95BFE637F66594C7081BFAED81698D913EA562
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017738   (759186) от 18.05.2016
 
 VA - Chill Acoustic Jazz Playlist (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
@@ -665,33 +692,6 @@ Bonnie Bianco - Compilation (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95D00C07F53EF89C5E4B3E57CE74681ABD0999C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522167   (760348) от 06.01.2022
-
-VA - NYE Trance December Set (2021) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Транс - это мелодии чувств, от прослушивания которых испытываешь удовольствие. Немногим удаётся понять и осознать данный стиль музыки, но однозначно повезло тем, кто способен проникнуться чудесными мелодиями и звуками, которые приносит с собой транс музыка.001. Alvaro Santis - Silent Punch
-002. Dan Thompson - Atlas (Radio Edit)
-003. Paul Todd - La Graciosa
-004. Corrado Baggieri - Exciderunt(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 11:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9ED2689FE02D4ADF8F0D035650D90DAE8FFDB8
 ```
 
 

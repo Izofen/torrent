@@ -1,3 +1,57 @@
+###  Публикация: 1453213   (1027103) от 10.03.2021
+
+Tane Cain - Tane Cain (1982) Reissue, 2015, Rock Candy [MP3|320 Kbps] <AOR, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Temptation (03:45)
+02. Danger Zone (04:42)
+03. My Time to Fly (04:02)
+04. Crazy Eyes (03:34)(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2169063D1C9B8690B09FBD2DE087A4190DADA6EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453179   (1027108) от 10.03.2021
+
+Arc Angel - Arc Angel (1983) Reissue, 1990, Portrait [MP3|320 Kbps] <AOR, Melodic Rock, Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stars (05:04)
+02. Tragedy (03:34)
+03. Wanted: Dead or Alive (03:29)
+04. Used to Think I'd Never Fall in Love (03:52)(   Читать дальше...   )Жанр: AOR, Melodic Rock, ProgПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E39E46C2A742DDA58D58CE4D3DBD32C3527DC3CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453122   (1027237) от 09.03.2021
 
 Benjamin Orr - The Lace (1986) [MP3|320 Kbps] <Pop Rock>
@@ -641,60 +695,6 @@ God Is an Astronaut - Ghost Tapes #10 (2021) [MP3|320 Kbps] <Post-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A37981B375039D4F5425C65FD6F1D4FC799BC94E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446726   (1032566) от 10.02.2021
-
-Artnat - The Mirror Effect (2021) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riding The Edge Of Darkness (05:15)
- 02. Eternal Dance Of Love (05:54)
- 03. Return to OM (14:01)
- 04. From Chaos To Beauty (03:51)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 001:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37058EDEF9B50509B6B8FCB4123F6847AB4D8163
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446621   (1032588) от 10.02.2021
-
-WinaSchnitzel - In The Light (2020) [MP3|320 Kbps] <Prog Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Void (00:58)
- 02. Run (03:03)
- 03. Out of Order (03:39)
- 04. Waiting (Intro) (01:19)(   Читать дальше...   )Жанр: Prog Folk RockПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D39A81CAB2B27DD3A7E12F0315E09C4525ADDED
 ```
 
 

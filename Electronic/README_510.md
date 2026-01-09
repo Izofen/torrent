@@ -1,3 +1,161 @@
+###  Публикация: 1459006   (1023495) от 31.03.2021
+
+VA - Cafe Del Amor: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Cafe Del Amor (03:52)
+02. Schwarz & Funk - Communication (04:35)
+03. Chillson - Pappas Do, Pappas Don't (04:52)
+04. Chilled Ibiza - Naked Nova (06:32)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFC7ED6E6647177D73F4C2591C83A3F1C9AE9789
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364806   (1023644) от 30.03.2021
+
+Vector Lovers | Martin Wheeler - Discography 30 Releases (1997-2020) Soma Quality Recordings [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Ambient, Techno, Glitch>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Eyed Girl (04:18)
+ 02. Odd Mannequinisms (05:56)
+ 03. Sulphuric Dawn (05:12)
+ 04. Something On The Moor (06:00)Тип издания: CD, Web, VinylЖанр: IDM, Electro, Ambient, Techno, Glitch •Продолжительность: 15:26:39 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FAF5F8A17C70722C8BD71E9D5DE3F0664B8760E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458931   (1023663) от 30.03.2021
+
+Advanced Suite - Cruzin (2021) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Psychill, Dub, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chill The Spectra (02:42)
+ 02. Swashbuckler (05:17)
+ 03. Lost In Endless (07:58)
+ 04. Flexible (05:15)(   Читать дальше...   )Жанр: Psychill, Dub, Downtempo, AmbientПродолжительность: 01:05:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2433E4FCB22742BF357CC0116AF929D540CC252
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458622   (1023683) от 30.03.2021
+
+Alien Skin - Cold War Pop (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold War Pop [00:03:12]
+02. My Machine [00:03:14]
+03. Someone With Your Name [00:03:34]
+04. I Say I Do But [00:03:24](   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:371D3168050FB03E705920D32D93F6C40BE12B04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301183   (1023771) от 29.03.2021
+
+Tim Hecker | Jetone - Discography 28 Releases (2000-2019) Alien8 Recordings, Room40, Kranky [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental, Glitch, Drone, Minimal, Abstract>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norberg (20:25)
+ 02. Apondalifa (08:48)Тип издания: CD, WebЖанр: Ambient, Experimental, Glitch, Drone, Minimal, Abstract •Продолжительность: 20:33:56 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6CDA8AF2FE5B188A681811F2E26FBA3F728D963
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 866252   (1023786) от 29.03.2021
+
+edIT | エディット - Discography 7 Releases (2004-2021) Alpha Pup Records, Planet Mu [FLAC|Lossless|tracks+.cue, tracks]<Glitch, IDM, Glitch Hop>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Game Is Not Over (feat. Dabrye/J-Dilla/Phat Kat) (05:39)
+ 02. More Lazers (04:55)Тип издания: CD, Web •Жанр: Glitch, IDM, Glitch Hop •Продолжительность: 04:24:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EAB5D8383CDB1E703D704BABA535091FE60A9B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457590   (1023795) от 29.03.2021
 
 VA - H25PITAL (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
@@ -527,165 +685,6 @@ VA - A Call Too Close (2021) Brokntoys [FLAC|Lossless|WEB-DL|tracks] <Electro, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED56B2CD5DBD84D7D90A4B2686EE0E80B322F5A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457246   (1024615) от 25.03.2021
-
-Joi Lau - 3 UR Mind (2021) Klasse Wrecks [FLAC|Lossless|tracks+.cue] <Breakbeat, House, Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Need Is (05:50)
- 02. Bipolar ( Dark Zone Version ) (06:22)
- 03. Desert Core ( Extended Version ) (09:00)
- 04. Exotic Beat (06:19)(   Читать дальше...   )Жанр: Breakbeat, House, BassПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0090866B8039FAE36DCB1CE9FDBC6D560F41C7DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457303   (1024626) от 25.03.2021
-
-Leitstrahl - Chromium Dioxide (2021) [MP3|320 Kbps] <Nu Disco, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Telemark [00:05:56]
-02 - Chevrolée [00:05:50]
-03 - Orbit Anthem [00:05:32]
-04 - Europa Supersaw [00:05:57](   Читать дальше...   )Жанр: Nu Disco, SynthpopПродолжительность: 01:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B481CE72AB9DC951E2F0D7B5598B7989A0A78E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456954   (1024785) от 24.03.2021
-
-VA - Main Control Board (2010) Lagunamuch Community [FLAC|Lossless|tracks+.cue] <Leftfield, IDM, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indu Mezu vs Flagra - The Game (05:25)
- 02. Speyer - Dust (05:42)
- 03. Riverz End - Triangle Man (03:33)
- 04. Abstract Avenue - Oxid (06:04)(   Читать дальше...   )Жанр: Leftfield, IDM, ExperimentalПродолжительность: 00:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E7256E47A1A5B6E764EE1203106265ECA18C98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014804   (1024855) от 23.03.2021
-
-Andy Stott - Discography 23 Releases (2005-2021) [FLAC|Lossless|tracks+.cue, tracks ] <Techno, Bass, Grime, Ambient, Downtempo, Experimental, House, Abstract>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beginning (feat. Alison Skidmore) (04:31)Тип издания: CD, WebЖанр: Techno, Bass, Grime, Ambient, Downtempo, Experimental, House, Abstract •Продолжительность: 10:36:16 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA545A48E4BA5D6DA0AF1A8155C3B922807B8FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456300   (1024933) от 23.03.2021
-
-[ШтуRм] - Финал (2021) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Жизнь из железа [00:04:34]
-02 - Зомби-бомбы [00:04:36]
-03 - Мир в зеркалах [00:05:04]
-04 - Ночные дожди [00:05:04](   Читать дальше...   )Жанр: EBM, Dark ElectroПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D5EF284C0A7A4F53169388F85D468CB29268E72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 202238   (1025025) от 22.03.2021
-
-Goldfrapp - Head First (2010) [FLAC|Lossless|tracks + .cue]<Electro, Synth-pop, Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocket 3:51
-02. Believer 3:43
-03. Alive 3:28
-04. Dreaming 5:07(   Читать дальше...   )Жанр: Electro, Synth-pop, DiscoПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B733A970C18A9BD99578924D74D11F5C990F2C96
 ```
 
 

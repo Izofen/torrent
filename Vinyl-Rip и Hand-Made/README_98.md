@@ -1,3 +1,31 @@
+###  Публикация: 970826   (985764) от 03.01.2016
+
+VA - Кубинская эстрадная оркестровая музыка 60-х годов (1961) [FLAC 2.0 24/96|tracks (Vinyl-Rip)] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маленький ансамбль - Оркестр Э. Лекуона
+02. Мама Инес - Оркестр Э. ГренетаЖанр: Pop, RetroПродолжительность: 00:04:41
+
+Страна-производитель: USSR
+Издатель (лейбл): Пластмасс(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A1C7680908B3B23444F48E7FC6B6274AC089F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 680927   (985968) от 24.01.2020
 
 Planet P Project – Planet P (1983) [APE 2.0 24/192|tracks (Vinyl-Rip)]<Progressive Rock>
@@ -751,39 +779,6 @@ B5. Каравелла 2:54(   Читать дальше...   )Жанр: Post-pu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:600F9F1D454EA5A2F649A031DFD80B2D7DB585E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602537   (997489) от 13.01.2013
-
-Cyndi Lauper - She's So Unusual (1983) [FLAC 2.0 96/24|image (vinylRip)]<Contemporary Pop/Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money Changes Everything (5:04)
-02. Girls Just Want to Have Fun (3:57)
-03. When You Were Mine (5:05)
-04. Time After Time (4:01)
-05. She Bop (3:51)
-06. All Through the Night (4:31)
-07. Witness (3:39)
-08. I'll Kiss You (4:11)
-09. He's Son Unusual (0:46)
-10. Yeah Yeah (3:13)Жанр: Contemporary Pop/RockПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08DE481F3E2E6CD4D024C9271EC82EFECC054612
 ```
 
 

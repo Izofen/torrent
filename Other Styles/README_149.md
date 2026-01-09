@@ -1,3 +1,297 @@
+###  Публикация: 1378595   (846600) от 25.04.2020
+
+Atom Music Audio - Blood Crave (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Craft of War [02:13]
+02. Blood Crave [01:52]
+03. Bleak Profecy [02:15]
+04. Dark Ritual [01:54](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:23:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A2EE74C6D5F8BC654620BAF9FD66DD8ED272350
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002499   (846832) от 01.04.2016
+
+Gelka - Stardust Memories (2015) [MP3|128 кб/с] <Electronica>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Have You Kept Your Ticket 04:06
+02 Flying Clouds (feat. Phoenix Pearle) 03:40
+03 These Days (feat. Sena) 03:53
+04 Inside Galaxies (feat. Phoenix Pearle) 03:50(   Читать дальше...   )Жанр: Chillout, Lounge, PopПродолжительность: 01:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:203A489A4E12A0A854A4FAAC1B82D70A47801F67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111353   (848175) от 05.03.2017
+
+Vangelis - Delectus (1973-1985)  Remaster, 2017, Universal International Music, 13 CD Box Set [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vangelis - Come On (Remastered)
+02. Vangelis - We Are All Uprooted (Remastered)
+03. Vangelis - Sunny Earth (Remastered)
+04. Vangelis - He-O (Remastered)(   Читать дальше...   )Жанр: Electronic, Ambient, New Age |Продолжительность: 09:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D48D0F5A5ACED87D26947B9067D0B78D7726E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111247   (848365) от 05.03.2017
+
+Adrian Von Ziegler - Moonsong (2016) [FLAC|Lossless|WEB-DL|tracks] <Celtic Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Storm [00:04:48]
+02. High Tide [00:04:01]
+03. Moonsong [00:03:36]
+04. Daydream Melody [00:02:10](   Читать дальше...   )Жанр: Celtic FolkПродолжительность: 01:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B19CE20DC083C0290EF3C9D2D96D2DF3898C54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499169   (849649) от 01.10.2021
+
+Diaspora - Meditation (1998) [MP3|320 Kbps] <Native American, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Song of the Sun
+02. Chisy Muspuyalay
+03. Savry Nan
+04. May Yoe Walk in Sunshine(   Читать дальше...   )Жанр: Native American, EthnicПродолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC2EF1DCFBC32628F5B6D580B04F2CF853CFF7E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001739   (850049) от 30.03.2016
+
+Estas Tonne - Internal Flight (Guitar Version) 2013 [FLAC|Lossless|tracks] <Folk, World, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Internal Flight.Estas Tonne (guitar version)Жанр: Folk, World, InstrumentalПродолжительность: 01:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E10FDE8C013F42787F3595953E6CB7C0067D52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377748   (850089) от 23.04.2020
+
+Aesop Rock - Freedom Finger (Music from the Game) (2020) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Beats, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Play Dead (3:22)
+02. KOWP (3:39)
+03. Drums On The Wheel (3:45)
+04. Play Dead (Instrumental) (3:22)(   Читать дальше...   )Производство: RhymesayersЖанр: Hip-Hop, Beats, SoundtrackПродолжительность: 00:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02AF0ABB1CF8684B2A376F8AD114E566FAADBEB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110989   (850183) от 04.03.2017
+
+Armik - Enamor (2017) [FLAC|Lossless|image + .cue] <Flamenco, Acoustic guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enamor
+02. Lost Love
+03. La Guitarra De Oro
+04. Santa Cruz(   Читать дальше...   )Жанр: Flamenco, Acoustic guitarПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40B781535AA047CC603B968E8ABF029BC22B53D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110809   (850184) от 04.03.2017
+
+Marco Beltrami - Logan / Логан (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles (02:21)
+02. Laura (02:25)
+03. The Grim Reavers (01:33)
+04. Old Man Logan (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 0:00:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:595CFD36D93865E8B4B64F99FBDDBAA18AD048EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110808   (850242) от 04.03.2017
+
+Marco Beltrami - Logan / Логан (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles (02:21)
+02. Laura (02:25)
+03. The Grim Reavers (01:33)
+04. Old Man Logan (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 0:00:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9AC3A8882CD4C7E38861FAF594F4D93DDF4C962
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001983   (850469) от 30.03.2016
+
+Nicholas Gunn - Thirty - One Nights (2012) [FLAC|Lossless|tracks] <Brass & Military, New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remember Me Prelude    00:51
+02. Fiesta Patria    03:14
+03. Thirty-One Nights    03:59
+04. The Swallows of Na' Lu'um    05:29(   Читать дальше...   )Жанр: Brass & Military, New Age, InstrumentalПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF345B827B00440BF4974F4DD912CB00C832D0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 648719   (851685) от 26.04.2013
 
 Nicolas Jeandot - Metamorphose (2013) [MP3|320 кб/с]<New age, Relax>
@@ -431,336 +725,6 @@ Moreza - Once Upon a Love (2004) [MP3|320 кб/с]<Instrumental, Flamenco, Latin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E986F1B1E429E4373D12542578E21E3FFEE704B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 191177   (852912) от 11.04.2010
-
-Студия Сретенского монастыря - Акафисты (Не указан) [MP3|320 kbps]<Православные песнопения>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Акафист Божественным страстям Христовым 50:49
-2. Акафист Божией Матери 45:43
-3. Акафист святителю Николаю Чудотворцу 44:13
-4. Акафист преподобному Серафиму Саровскому 45:02
-5. Акафист святой блаженной Матроне Московской 46:10Жанр: Православные песнопения
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 648526   (852966) от 25.04.2013
-
-Anthony Ventura - Love Album (2013) [MP3|256 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 I can't stop loving you (04:28)
-02 Stranger On The Shore - Love Is Blue (03:49)
-03 Comme D'habitude (My Way)(03:17)
-04 La vie en rose (03:04)
-05 My Happiness - Only You (04:55)
-06 Love Story (03:40)
-07 When A Man Loves A Woman (02:45)
-08 Speak Softly Love - Somewhere Over The Rainbow (04:12)
-09 Let Your Love Flow - It's a Heartache (04:11)
-10 Apres Toi (03:52)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5AE72AF1D2383F509169D4313EA8B33C4B1B1D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769971   (852986) от 24.03.2014
-
-Steve Barakatt - The Best of Steve Barakatt (2004) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(3:50) 01. Flying
-(3:59) 02. California Vibes
-(3:30) 03. Rainbow Bridge
-(3:25) 04. I Believe in You
-(4:22) 05. All About Us
-(4:19) 06. Eternity
-(3:58) 07. I'm Sorry
-(3:23) 08. Day by Day
-(3:58) 09. Montreal 350
-(3:49) 10. Nuit d'Amour a Paris(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F4B567BD567FD6B668BA3645330EAB74775DA1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 190247   (853018) от 11.04.2010
-
-Astor Piazzolla - The History of Tango (5CD) (2006) [APE|Lossless]<Tango>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TangoПродолжительность: 05:21:07
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 191324   (853020) от 11.04.2010
-
-Various - Полонезы И Вальсы Русских Композиторов (1990) [FLAC|Lossless]<Classical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Waltz From The Ballet Raymonda
-02 - Waltz From The Ballet Lady Soubrette
-03 - Waltz From Ballet Suite Op.52
-04 - Waltz Capriccio
-05 - Waltz From The Opera Eugene Onegin
-06 - Polanaise From The Opera Christmas Eve
-07 - Polonaise From The Opera Pan Voyevoda
-08 - Introduction And Polonaise From The Opera Boris Godunov
-09 - Polonaise From Ballet Suite Op. 52
-10 - Polanaise From The Opera Cherevichki(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:04:43
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768066   (853102) от 24.03.2014
-
-Maya Fiennes - 3 альбома (2006-2010) [MP3|128-320 кб/с]<New age, Meditative, Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(00:55) 1. Tune in
-(11:12) 2. Be happy
-(11:04) 3. We are One
-(10:55) 4. Energise
-(11:12) 5. Achieve wealth
-(11:02) 6. Balance the hormones
-(11:11) 7. Heal yourself
-(05:07) 8. Deep relaxation
-(01:01) 9. Tune outЖанр: New age, Meditative, MantrasПродолжительность: 01:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BEA6140FC6B5E48AD937A00FED31CC53C18CC93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769425   (853182) от 24.03.2014
-
-Kevin Kern - Imagination's Light (2005) [FLAC|Lossless]<New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Remembering the Light (4:26)
-02. Safe in Your Embrace (3:48)
-03. Pearls of Joy (3:53)
-04. Told to the Heart (4:17)
-05. Fields of Gold (4:51)
-06. Imagination's Key (4:14)
-07. Keepers of the Flame (3:49)
-08. Musings (3:44)
-09. Sweet Dreams, Helena (3:51)
-10. I Am Always Right Here (3:35)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BAD48064CF8FCDB3DC7F7BCFB747E4990DCC064
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 191130   (853251) от 11.04.2010
-
-Алексей Рафиев и Алексей Борисов - Знамение Пресвятой Богородицы (2009) [MP3|320 kbps]<Spoken Word, Ritual Ambient, Experimental>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Молитва Пресвятой Богородице (3:56)
-02. Стон Города (9:23)
-03. Дом Огня (1:54)
-04. Щит Святого Патрика (6:54)
-05. Ольга (2:25)
-06. Царь и Бог (2:18)
-07. Солнце и Луна (2:32)
-08. Возрождайся Царица Ольга (3:01)
-09. Чаша и Посох (2:55)
-10. Молоко (5:12)(   Читать дальше...)Жанр: Spoken Word, Ritual Ambient, Experimental
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110197   (853606) от 02.03.2017
-
-VA - The Best of Instrumental Music (2004) Compilation [FLAC|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Mauriat Orchestra - El Bimbo (2:30)
-02. Candy Dulfer & Dave Steward - Lily Was Here (4:18)
-03. The Ventures - Vibrations (2:53)
-04. Mario Cavallero - La Cumparsita (2:32)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B31042B9D4421B70FFADBA128FD2A5B35651C27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110292   (853735) от 02.03.2017
-
-Isgaard - Whiteout (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <New-Age, Сrossover, Pop-art, Progressive>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (3:28)
-02. No Man's Land (5:48)
-03. Shine On (4:54)
-04. You Didn't Fall (4:35)(   Читать дальше...   )Жанр: New-Age, Сrossover, Pop-art, ProgressiveПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A2A12073CF45008A0D13901609D0B9AD10B9D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498519   (853994) от 28.09.2021
-
-2Cellos - Dedicated (2021) [FLAC|Lossless|image + .cue] <Instrumental Pop, Instrumental Soft Rock, Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853994.jpg" />
-</div>
-
-
-###  Подробнее
-
-2CELLOS - всемирно известный хорватский дуэт виолончелистов, который составляют Luka Šulić и Stjepan Hauser. Музыканты исполняют инструментальные аранжировки известных поп- и рок-песен, а также классическую музыку и музыку из фильмов. Собрав более 1,3 миллиарда просмотров на YouTube, миллиарда audio streams, бесчисленные аншлаговые концерты и миллионы поклонников (   Читать дальше...   )1. Wherewer I Go (3:23)
-2. Bad Guy (2:38)
-3. Sweet Child O' Mine (4:01)
-4. Halo (4:22)(   Читать дальше...   )Жанр: Instrumental Pop, Instrumental Soft Rock, ClassicalПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54987459F48F25C33AE0CF649CBDE9B4506034F2
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1243227   (1028983) от 26.02.2021
+
+Andrew Bayer - Discography 60 Releases (2006-2021) Anjunabeats [FLAC|Lossless|tracks+.cue, tracks] <Trance, Ambient, Glitch, Downtempo, Techno, House, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond - Group Therapy Intro (ABGT300ABD) (01:02)
+ 02. Andrew Bayer - Eight To Sixteen (ABGT300ABD) (05:15)
+ 03. Andrew Bayer - Nobody Told Me (ABGT300ABD) (05:15)
+ 04. Andrew Bayer - Only You Boy (ABGT300ABD) (05:30)(   Читать дальше...   )Тип издания: CD, WebЖанр: Trance, Ambient, Glitch, Downtempo, Techno, House, Experimental •Продолжительность: 28:44:51 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25525DA85315D903FDCD9376517BE8799A7187E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450455   (1029041) от 26.02.2021
+
+Nu:Tone - Little Spaces (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nu:Tone, Charlotte Haining - Sleepwalker (05:50)
+02. Nu:Tone - Girl On A Bike (04:13)
+03. Nu:Tone, Lalin St. Juste - One Day At A Time (03:53)
+04. Nu:Tone - Can't Stop, Won't Stop (05:48)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:04:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B259CFFC480035912F3024386D1BFB46EDE8573E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450566   (1029047) от 26.02.2021
+
+Damirat - Pixcurve (2020) dingn\dents [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Glitch>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intelien C (03:32)
+ 02. Texmass (04:46)
+ 03. Deliope (03:10)
+ 04. Telocurve (04:55)(   Читать дальше...   )Жанр: IDM, Experimental, GlitchПродолжительность: 00:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E5766D222509267FD6CD098CAD438A94037C1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450440   (1029049) от 26.02.2021
+
+Kas - Like Sunlit Threads (2021) Ilian Tape [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Was Never Really Here (02:23)
+ 02. Like Sunlit Threads (08:11)
+ 03. Last Silence (03:12)
+ 04. Mystery Beyond Mystery (06:57)(   Читать дальше...   )Жанр: Ambient, Techno, ExperimentalПродолжительность: 01:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BA6EA28AE9A424F1C8101C5C7B13453A58EC424
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450263   (1029050) от 26.02.2021
+
+Septabeat & Sofi Mari - Sundance EP (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sundance (05:35)
+02. Origins (05:40)
+03. Waiting (03:52)
+04. Shiver (05:20)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4ABFCEF8AAA6ABC163664C6E17F0461D22FF021
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623802   (1029092) от 03.04.2023
+
+Mirage Of Deep - The Best Of Mirage Of Deep (2023) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moon Light (Mediterranean Roots) (Remastered 2023) (7:46)
+02. Forbidden Perfume (Remastered 2023) (5:27)
+03. Hechizo De Luna (Remastered 2023) (5:32)
+04. Totality (Remastered 2023) (6:21)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:297E585A393ED570AFF4C1743B37121E1152FB7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156174   (1029157) от 25.02.2021
 
 Tim Koch (10:32, Thug) - Discography 16 Releases (1999-2021) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Leftfield, Abstract, Downtempo, Experimental, Ambient>
@@ -528,168 +690,6 @@ VA - Soul Diary Chapter.1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDC4F622EA47730A4C4BFC67B1D5DE6E404A9604
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449791   (1029588) от 23.02.2021
-
-Erell Ranson - MOA1201 (2020) Móatún 7 [FLAC|Lossless|WEB-DL|tracks] <IDM, Leftfield, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Month To Wait (04:22)
- 02. Unexpected Bleeding (05:01)
- 03. Emma (05:16)
- 04. Oxygen Desaturation (06:05)(   Читать дальше...   )Жанр: IDM, Leftfield, AmbientПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD2FB7ADBDCD079E2D0CBEA39B8467143CC1EC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449871   (1029592) от 23.02.2021
-
-Geroyche - Voxxx Series A.1 (2005) Ventilator Tonträger [FLAC|Lossless|WEB-DL|tracks] <IDM, Breakcore, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death (04:51)
- 02. Tubby (04:24)
- 03. Great Expectations (04:10)
- 04. It's All So Simple Now (05:24)(   Читать дальше...   )Жанр: IDM, Breakcore, ExperimentalПродолжительность: 00:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F066DC64DA89327A739A4B884D9EC42C3B839F19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449868   (1029594) от 23.02.2021
-
-VA - Voxxx Series A (2004) Ventilator Tonträger [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Experimental, Breakcore>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echorausch - Finetuner (04:41)
- 02. Vio Lat Cen - Sjignenghaan (04:30)
- 03. Geroyche - Overthrow Dem Downpressors (Edit) (03:55)
- 04. Setzer - Ratifacts (04:04)(   Читать дальше...   )Жанр: IDM, Glitch, Experimental, BreakcoreПродолжительность: 00:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE82636A55DF4DD8470ADDBE22276DC2A50DAC09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622917   (1029607) от 31.03.2023
-
-VA - Future Trance - Rave Classics (2023) [MP3|320 Kbps] <Electro House, Progressive House, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darius & Finlay feat. Aili Teigmo - World's Crashing Down (Club Mix) (4:00)
-02. John Newman - Fire In Me (Sigala Remix) (3:39)
-03. Don Diablo & Marnik - Children Of A Miracle (3:09)
-04. Avicii feat. Agnes & Vargas & Lagola - Tough Love (Tiësto Remix - Radio Edit) (3:13)(   Читать дальше...   )Жанр: Electro House, Progressive House, Future HouseПродолжительность: 05:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A41CF868275112C7C12640561E5C32E326016C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622616   (1029617) от 31.03.2023
-
-G.H.T - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into Darkness [00:03:33]
-02. In the Dungeon [00:03:40]
-03. Die for a Second [00:03:48]
-04. Apologize [00:03:55](   Читать дальше...   )Жанр: EBM, Dark ElectroПродолжительность: 2 CD, 01:16:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B81F96EBBB714DB24FF41CD361381DEF2B05AEA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449619   (1029730) от 22.02.2021
-
-VA - Thumbs Up For Cardio Dance 2021 Workout Compilation (2021) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D'Mixmasters - 911 (Fitness Version 128 Bpm) (04:15)
-02. DJ Kee - Push It (Fitness Version 128 Bpm) (04:00)
-03. D'Mixmasters - Lasting Lover (Fitness Version 128 Bpm) (04:00)
-04. Groovy 69 - Dominos (Fitness Version 128 Bpm) (04:00)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:59:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14BDA9993EF9D42E008B17E7F4E5079B8887DDB7
 ```
 
 

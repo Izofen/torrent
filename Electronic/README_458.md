@@ -1,3 +1,165 @@
+###  Публикация: 1103432   (886052) от 12.02.2017
+
+VA - Cosy Winter Lounge Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omaya - We All Do - Original Mix
+02. Weathertunes - La Seine - Original Mix
+03. Van - All as Before - Original Mix
+04. Foggy Sky - Who Are You - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84AA94B7640991B270CD77197DAD2FC1E080A077
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103047   (886064) от 12.02.2017
+
+VA - City of Souls: Lounge Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Gorda Project - Morning Darkness  5:45
+02.  Enrico Donner - Side Chain Reactions  5:58
+03.  Cane Garden Quartet - Erotisme  5:37
+04.  Baghira - Synapses  5:56(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109A736B5E88C1EE5850AFC6727C384BC8D8F9A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103120   (886077) от 12.02.2017
+
+VA - Moment Of Chill Vol.2 (Finest Selection Of Music To Chill) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Florito - A Roma  3:22
+02.  Chris Le Blanc - Shiva And The Sea (Sunset Ashram Mix)  6:14
+03.  Christos Fourkis - La Vida Es Una Siesta  5:10
+04.  Joker - Erotic Dream  7:27(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8F0511F9708D6A3A7C929934E9114BAA87F6617
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103525   (886084) от 12.02.2017
+
+VA - Down For Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Surfing Emotional Waves 05:45
+02. Enrico Donner - Golfinhos 05:57
+03. Cane Garden Quartet - Ageless 05:52
+04. Baghira - A Clear Image 05:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF84EFDB14756E46D17AD4D717B2B5EADA09C32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103061   (886090) от 12.02.2017
+
+VA - Smooth Island Chill  Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Marga Sol - Children  6:42
+02.  Submersion - Other Rules (Original Chillout Mix)  4:07
+03.  Seven24 & Soty - Hope (feat. Jama) (Vocal mix)  4:11
+04.  Rega Avoena - Earth Angels  5:02(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CEEB1EA70BDEA88014764B46937CC5C9C1421CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103228   (886114) от 12.02.2017
+
+VA - The White Beach Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Wonderlights - Barcelona City Lights (Lounge House Mix)  5:43
+02.  Ibiza Bitches - Be Happy (Deep House Lounge Version)  5:57
+03.  Long Island Ice Tea - Be With Me (Radio Rework)  3:35
+04.  Hotel Stereo - Believe (Lounge Radio Edit)  3:38(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2992629208707B2D53D1FB7FF883B8DD2820C5B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995199   (886151) от 10.03.2016
 
 Physical Dreams - Cosmos (2016) [MP3|320 кб/с] <Uplifting Trance>
@@ -529,168 +691,6 @@ Trigg & Gusset - Discography 5 Releases (2013-2021) Preserved Sound [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6C74994202DE35E00F06FE860DE5A238245C06A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102579   (888737) от 10.02.2017
-
-Depeche Mode - 4CD's Rare Album Set (2006, 2013) Compilation [FLAC|Lossless|tracks] <Synthpop, New Wave, House>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Personal Jesus (Boys Noize Rework) (6:54)
- 02. Never Let Me Down Again (Digitalism Remix) (4:38)
- 03. Everything Counts (Oliver Huntemann & Stephan Bodzin Dub) (6:54)
- 04. People Are People (Underground Resistance Remix) (7:22)(   Читать дальше...   )Жанр: Synthpop, New Wave, HouseПродолжительность: 03:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7FF39A935439C8FB03E12E9543BE505774ED3F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640322   (888769) от 06.04.2013
-
-Midge Ure (Ex. Ultravox) - The Works (2013) 2CD [APE|Lossless]<Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Midge Ure (James «Midge» Ure) - шотландский гитарист, певец, клавишник, автор песен, продюсер, один из отцов "новой романтики" и ключевая фигура "новой волны".
-Широкому кругу известен как фронтмен группы Ultravox, но за свою музыкальную карьеру успел поучавствовать во многих музыкальных проектах, таких как  Slik, Sex Pistols, Visage, Thin Lizzy (   Читать дальше...   )01. If I Was (2010 Digital Remaster)
-02. That Certain Smile (2010 Digital Remaster)
-03. Cold Cold Heart
-04. Call Of The Wild(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 02:39:31
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280023   (888786) от 07.09.2021
-
-John Beltran (Placid Angles, Nostalgic) - Discography 43 Releases (1995-2021) Delsin, Ubiquity [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, IDM, Detroit Techno, Future Jazz, Leftfield>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Placid Angles (06:35)
- 02. Detroit Moments (01:57)
- 03. Going Home (06:00)Тип издания: CD, Web, VinylЖанр: Techno, Ambient, IDM, Detroit Techno, Future Jazz, Leftfield •Продолжительность: 27:17:43 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A2B5014659680DB73884D9F042B2F7EB006AD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494361   (889076) от 07.09.2021
-
-VA - Artist Showcase - 2nd Edition (2021) Point Source Electronic Arts [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Experimental, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Access to Arasaka – Shard (04:17)
-02. Tapage – Leaf (04:35)
-03. Aviv Stern – Forward Delay (03:19)
-04. Sytrjv – Replifunk (04:18)(   Читать дальше...   )Жанр: IDM, Glitch, Experimental, AmbientПродолжительность: 01:08:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C53AD8C0FFDF234B7E8A8E60447E609DD4A40AF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494432   (889112) от 07.09.2021
-
-VA - Endless Summer: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beamy - Twisted Soul (Jero Nougues Sunrise Chill Mix) (4:28)
-02. Marga Sol - Inner Worlds (5:43)
-03. Jero Nougues - Daffodil (Original Mix) (4:57)
-04. Martin Hiska - Higher (4:24)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:602C226A7A7067132FB635CB96832B8CB6FF203A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494483   (889217) от 07.09.2021
-
-VA - Elektro Codes (One, Two, Three) (1997-2000) Elektrolux [FLAC|Lossless|tracks+.cue] <Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889217.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
- 01. MAS 2008 - Outpost Omega To Houston (04:59)
- 02. Index ID - Raumzentriert (05:48)
- 03. N)E(M - Welcome To Third Space (06:36)(   Читать дальше...   )Тип издания: CD, CompilationЖанр: Electro •Продолжительность: 05:43:33 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:274E15DF66F2A8D0BC7EBA240918BAC9CBBD0E6F
 ```
 
 

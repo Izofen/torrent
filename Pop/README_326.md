@@ -1,3 +1,245 @@
+###  Публикация: 861241   (934613) от 20.01.2015
+
+Meghan Trainor - Title (Deluxe Edition) (2015) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Part (Interlude)
+02. All About That Bass
+03. Dear Future Husband
+04. Close Your Eyes(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEBF97956FFF6B2FA36C5895C9DAEC7D19376814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984489   (935114) от 11.02.2016
+
+Юрий Антонов - Несёт Меня Течение (1993) [FLAC|Lossless|image + .cue] <Pop Rock,Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	От Печали До Радости 	04:16
+02. 	Несет Меня Течение 	04:25
+03. 	Все, Как Прежде 	03:21
+04. 	У Берез И Сосен 	03:54(   Читать дальше...   )Жанр: Pop Rock,RetroПродолжительность: 00:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A73608D312A5D0F6BFC0AED4A8A2A882C83F9406
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984434   (935118) от 11.02.2016
+
+Земляне - Grand Collection (1992) Compilation [FLAC|Lossless|image + .cue] <Rock,Soviet Rock>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Трава у дома 	04:45
+02. 	Каскадёры 	03:31
+03. 	Я люблю природу 	04:32
+04. 	Маленький кораблик 	04:45(   Читать дальше...   )Жанр: Rock ,Soviet RockПродолжительность: 01:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62ACB18F9539C2152C1CACD1A1553F7FD15E8BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093286   (935321) от 14.01.2017
+
+Corona X - And Me U (2000) [MP3|256 Kbps] <Europop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Volcano
+02. Everything You Need
+03. Good Love
+04. And Me U(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF70C085FF08C0EC378DD6ACF3E535F45A39658
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985042   (935394) от 11.02.2016
+
+Виктор Салтыков - Star Collection (2001) Compilation [FLAC|Lossless|image + .cue] <Electronic, Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Кони В Яблоках 	04:42
+02. 	Островок 	03:18
+03. 	Улетели Листья 	04:08
+04. 	Белая Ночь 	04:37(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC43953FA86A3CC61F1A721A545C93AE40069AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985257   (935528) от 11.02.2016
+
+VA - Kuschelrock 17 (2003) [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shakira - The One (3:46)
+02. Jennifer Lopez - Again (5:50)
+03. Justin Timberlake - Cry me a river (4:52)
+04. Kelly Rowland - Stole (4:13)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C26BA0EED7C9DF129F8C504C85410FDF7143EA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985502   (935543) от 11.02.2016
+
+Ronan Keating - Time of My Life (2016) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Love You
+ 02. As Long As We're In Love
+ 03. Breathe
+ 04. She Knows Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE562544056DC69DAAD585BE3AC358F057FE55D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985494   (935548) от 11.02.2016
+
+Monica Naranjo - 4.0 (2014) [MP3|~245 кб/с (V0)] <Latin, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935548.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Desatame / Intro 6:29
+2.Solo Se Vive Una Vez 4:14
+3. Todo Mentira 4:01
+4. Entender El Amor 6:16(   Читать дальше...   )Жанр: Latin, Rock, PopПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5244A812FB686EFDF0F4A1BF267EA57C8A34524
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 88540   (935639) от 03.03.2020
+
+F.R. David - 5 Альбомов (1982-2007) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание:
+Ф. Р. Дэвид (фр. F. R. David, по-французски произносится «Эф Эр Дави́д»; настоящее имя — Эли́ Робе́р Фитусси́ (фр. Elli Robert Fitoussi), род. 1 января 1947 года в Тунисе) — французский певец тунисского происхождения, исполняющий песни на английском языке.
+Музыкальную карьеру в конце 1960-х он начинал как аккомпаниатор (бас) различных (   Читать дальше...   )Жанр: Pop, Pop rock, Euro disco, SynthpopПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD88E16CC0125EB8DA6B63D8BBDBBAA2140F63AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 284962   (935864) от 20.01.2011
 
 Silent Circle - Hits & More (2010) [MP3|320 kbps]<Disco, Dance, Pop>
@@ -471,249 +713,6 @@ The Rithie Family (USA) Состав: Cheryl Jaks, Cassandra Wooten, Gwen Oliver
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFC55467AE32B7DC1DA60ECA1525689DC0DAD0C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984309   (940218) от 08.02.2016
-
-Tindersticks - The Waiting Room (2016) [FLAC|Lossless|tracks + .cue] <Chamber Pop, Indie Rock, Alternative Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Follow Me (02:46)
-02. Second Chance Man (03:57)
-03. Were We Once Lovers? (04:50)
-04. Help Yourself (05:39)(   Читать дальше...   )Жанр: Chamber Pop, Indie Rock, Alternative PopПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B479C9923418CFB0C9CC4751ACCE7FD2EBEF668
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363770   (940430) от 29.02.2020
-
-Кар-Мэн - 020 бит (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940430.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sonorous Agressor (DJ Noiz Mix)
-2. Чао, бамбино (DJ Noiz Mix)
-3. Девушка с Востока (New Remix)
-4. Дождь (New Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2CBEE30697D0B6A3122CAAF7A1822FE2EA06FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 149305   (940473) от 29.02.2020
-
-Demis Roussos - Demis (2009) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. September (I'm On My Way) (2:45)
-02. On My Pillow (3:24)
-03. Love Is (3:24)
-04. What They Say (3:25)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C7402FB26BC49156D2ACB2A43255B913E2ABBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363798   (940572) от 29.02.2020
-
-Modern Talking - Let's Talk About Love (1985) [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.   Cheri Cheri Lady   [3:51]
-02.   With a Little Love   [3:39]
-03.   Wild Wild Water   [4:23]
-04.   You’re the Lady of My Heart   [3:24](   Читать дальше...   )Жанр: DiscoПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:323FFC9DD8AA343DEA710C1AA4D3CA49EC2452E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363774   (940730) от 29.02.2020
-
-Настя Макаревич & Лицей - Лучшее (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940730.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Осень
-2. Ты станешь взрослой
-3. Падаю вверх
-4. Как ты о нём мечтала(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC57AAB074D0BB4E0F853E1CB28C2BEEB159C9C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363669   (940747) от 29.02.2020
-
-Paradisio - The Hottest Summer Tracks (20TH Anniversary Deejays Full Length Versions) (2017) [FLAC|Lossless|WEB-DL|tracks] <Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940747.jpg" />
-</div>
-
-
-###  Подробнее
-
-1-01. Bailando (Discoteca Drums Mix) (6:51)
-1-02. Un Clima Ideal (Eurodance Discoteca Mix) (6:25)
-1-03. Samba del Diablo (Extended Fiesta Club Mix) (5:10)
-1-04. El Ritmo Caliente (DJ Extended Club Mix) (6:07)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 02:22:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6FF24CC98B3AE1D185627A3FA0A0F2B6530206F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363779   (940750) от 29.02.2020
-
-Балаган Лимитед - Песни о любви (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940750.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Не губи любовь
-2. Мальчик из Нальчика
-3. Кто бы мог подумать
-4. Молодая, глупая(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B628211EDE778510A0FAA1502452767FF3BFD42C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363649   (940853) от 29.02.2020
-
-Каролина - Русские звезды (2004) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Летний дискобар 2003 (3:11)
-02. Не надо слез (3:56)
-03. Звездный вечер (4:05)
-04. Феличита (3:04)(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83EFC5DD6728884599BC206E9F52793709FBCE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363678   (940929) от 29.02.2020
-
-СтеклоVата - Спецшкола (2006) [MP3|320 Kbps] <Europop, Novelty, Chanson>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. И всё-таки он ждёт [4:10]
-02. Спецшкола [4:04]
-03. Красные птицы [4:52]
-04. Школа жизни [5:13](   Читать дальше...   )Жанр: Europop, Novelty, ChansonПродолжительность: 01:20:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3355F91AEE4A2450AFCA8076DB860B239DD11ACA
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 911885   (614490) от 24.06.2015
+
+Aaron Fink - Saint Sylvania (2015) [MP3|320 кб/с]<Alternative, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After the Afterglow
+02. Atomic Doves
+03. The Other Side
+04. Nor'easter(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A73D9AC75AB61F5393E46C9093C0F3C5FA6D83C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 524194   (614743) от 17.07.2012
 
 The Beach Boys (Brian Wilson) - 57 альбомов (70CD) (1961-2012) [MP3|160-320 kbps] <Surf Rock>
@@ -686,33 +713,6 @@ Band Of Light - Total Union (1973) CD, Reissue, Remastered, 2006, Aztec Music [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5991178B3B8492F363102ED29EC1C56C9C5222E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909771   (626280) от 18.06.2015
-
-Scream Silence - Heartburnt (2015) [MP3|320 кб/с]<Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born With Blood On My Hands 06:10
-02. Art Remains 03:35
-03. The Seventh Sorrow 06:03
-04. We Can Do No Wrong 04:22(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC8E3C74A0EB2CFC8E9833A6AABA76E78D1BECFB
 ```
 
 

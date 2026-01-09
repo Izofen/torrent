@@ -1,3 +1,165 @@
+###  Публикация: 1197379   (812022) от 09.01.2018
+
+VA - Lounge Cocktails Vol.3 (Delicious Grooves For Cafe Bar And Hotel Suites) (2014) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Smooth Deluxe  -  Wonderful Micronesia (Original Mix)  5:37
+02.  351 Lake Shore Drive  -  Velvet Beach (feat. Alex Love) (Original Mix)  5:58
+03.  Mirage Of Deep  -  Urban Forest (Original Mix)  7:11
+04.  Albert St.Barth  -  Cafe Au Lait (feat. Lady Janet) (Original Mix)  5:52(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:21:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCFE4502F3C4C1095A8E988F0C8FEFA366315A31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197799   (812023) от 09.01.2018
+
+VA - Inner Balance: Chillout Your Soul 5 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gabriel Florea & Dirk M. Schumacher  -  Mindful Listening  13:58
+02.  Nova Casa  -  You Get Me (Instrumental) (feat. Nathalia)  3:57
+03.  Relaxea  -  Lotus Eater  8:09
+04.  Harmonium  -  Dew (Short Edit)  4:35(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33001A87822BBB50FED17EEF3C2504BFA3450E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197497   (812027) от 09.01.2018
+
+Aurora B.Polaris - Nostalgia (2017) [MP3|320 Kbps] <Chillstep, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812027.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Oceans Apart (5:53)
+2. Above the Sky (4:30)
+3. Hazy Eyes & Lost Souls (3:10)
+4. Silent Screams of Solitude (5:06)(   Читать дальше...   )Жанр: Chillstep, DowntempoПродолжительность: 00:20:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D706A0E910C07CD5BBB0AEE7FEE7FA8A762ED9E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504575   (812105) от 23.10.2021
+
+VA - Trance Classics Collection (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812105.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Talla 2XLC - The Spring Is My Love (Club Mix) (6:03)
+02. Markus Schulz feat. Airwave - Ballymena (Original Mix) (7:05)
+03. DJ Sakin & Friends - Little Paradise (Radio Mix) (3:56)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F18EBD4AD3C62072184208F1D1879C9338D1A6EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197688   (812130) от 09.01.2018
+
+VA - The Best Of Levitated Music 2017 (2018) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sergey Lagutin  -  Lazure (Original Mix)  6:23
+02.  Dachs  -  Flower Master (Original Mix)  6:10
+03.  Mart Sine  -  Atlantis (Original Mix)  6:05
+04.  Braulio Stefield  -  Chain Of Memories (Original Mix)  7:39(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:23:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:198C6BABE9C8C97F22E3E3A93EE179BE2EA922C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197927   (812131) от 09.01.2018
+
+Luke Terry - Supersonic (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luke Terry - Prelude (Original Mix)
+02. Luke Terry - Minerva (Original Mix)
+03. Luke Terry - Eternal (Original Mix)
+04. Luke Terry - Skylab (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B07ECBF45CCB940836925D6492FDF2AD148E13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197711   (812132) от 09.01.2018
 
 VA - Best Of Trancer 2017 (Mixed by Nick Turner) (2018) [MP3|320 Kbps] <Trance, Orchestral Trance>
@@ -538,168 +700,6 @@ Stanisha - The Ancient Galleries (2012) [MP3|320 кб/с]<progressive house>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54B06ED40E209DC1A28A7B26C28A996511E8EE33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008493   (814827) от 18.04.2016
-
-VA - The Ultimate Euphoric Trance Vol. 2 (2016) [MP3|320 кб/с] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christian Peter Stier - Last Summer (Original Mix) 08:36
-02. Noize Compressor - Underground (Original Mix) 06:44
-03. Nique de Graaff - Peculiar (Original Mix) 09:47
-04. Daniel Preston - Moments (HighGo Remix) 06:31(   Читать дальше...   )Жанр: TranceПродолжительность: 01:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E682F98DF4BE949FC4E8348D9A6A000534E1EB2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117965   (815201) от 24.03.2017
-
-Solaris - Aeon V (2017) Synphaera Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psybient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ritual (07:21)
-02. Levitation (05:51)
-03. Inward (06:43)
-04. Waiting (07:58)(   Читать дальше...   )Жанр: Ambient, PsybientПродолжительность: 01:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163EAE549CB8A876E6914464A5A789E932E35ED3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382871   (815298) от 13.05.2020
-
-VA - Ambient Boxed: A Guide By Instinct (2001) Instinct Records [FLAC|Lossless|tracks+.cue] <Ambient, Techno, Dub, IDM, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taylor Deupree - Occur 9 (05:41)
- 02. Prototype 909 - Understand (08:17)
- 03. Klip - Mirage (03:48)
- 04. Unknown Artist - Interlude 4.1 (00:31)(   Читать дальше...   )Тип издания: CD •Жанр: Ambient, Techno, Dub, IDM, Experimental •Продолжительность: 04:24:03 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1D581FCEF01BAA8EF42B690B5E3BDCA47F1A1FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117959   (815341) от 24.03.2017
-
-Dash Berlin - We Are (Part 2) (2017) [MP3|320 Kbps] <House, Vocal House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dash Berlin & Matt Simons - With You  3:08
-02.  Dash Berlin & DBSTF ft. Jake Reese & Waka Flocka vs. DJ Whoo Kid - Gold  3:29
-03.  Dash Berlin & Do - Heaven  3:18
-04.  Dash Berlin & Luca Perra - Without The Sun  3:02(   Читать дальше...   )Жанр: House, Vocal HouseПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E269526AABE3F320332B0A4962E816E5EBFBBDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117966   (815489) от 24.03.2017
-
-VA - Grotesque Essentials Spring 2017 Edition (Mixed by ReOrder & Ciaran McAuley) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solarstone & Ferry Tayle - Lifeline (Intro Edit) (6:01)
-02. Stoneface & Terminal - Southern Lights (Extended Mix) (7:04)
-03. Ferry Corsten - Live Forever (Gareth Emery Remix) (feat. Aruna) (3:26)
-04. Jak Aggas - Subversion (Original Mix) (6:23)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27F2F5BD20210B73B3A0D00D314E6AE03E22F0C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117870   (815491) от 24.03.2017
-
-VA - Beautiful Lounge Collection Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruggero - Zaffiro
-02. Deephouse 84 - A Night on the Beach
-03. Alyssa Lee - Morning Light
-04. Mont Hanary - Dog(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9A317918D01B53D9CE713A994AA2B18BFC4FA28
 ```
 
 

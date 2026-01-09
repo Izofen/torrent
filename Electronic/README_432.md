@@ -1,3 +1,163 @@
+###  Публикация: 1007525   (819453) от 16.04.2016
+
+VA - Urban Dance, Vol. 16 (2016) Scene [FLAC|Lossless|WEB-DL|tracks] <Dance, Deep House, EDM>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819453.jpg" />
+</div>
+
+
+###  Подробнее
+
+04. Another Lonely Night (3:46)
+01. Faded (3:32)
+18. Little Swing (2:43)
+11. The Horns (Radio Remix) (3:32)(   Читать дальше...   )Жанр: Dance, Deep House, EDM, HouseПродолжительность: 03:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D241F3822FEFEF494F1C8F54029DADA0399BC9D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007547   (819552) от 16.04.2016
+
+Jonas Blue - Fast Car (feat. Dakota) (2016) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fast Car (Radio Edit) (3:35)
+02. Fast Car (Club Edit) (3:17)Жанр: HouseПродолжительность: 00:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC66C4BFB8B020CD74213F16222E9403D4915B75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007789   (819555) от 16.04.2016
+
+VA - Blackout: Best of 2015 (2016) [MP3|320 кб/с] <Drum & Bass, Neurofunk>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Sun Empire - Until the World Ends (feat. PNC) (05:44)
+02. Neonlight & Wintermute - Influx (04:59)
+03. Khronos - The Heavy (04:06)
+04. Telekinesis - Fight Club (feat. Coppa) (04:38)(   Читать дальше...   )Жанр: Drum & Bass, NeurofunkПродолжительность: 02:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9D5B645F1C3CA79B78A4E9C2280190EB90C7986
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007791   (819747) от 16.04.2016
+
+Timboletti - Hintersee (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coconut Kingdom (Original Mix) (6:05)
+02. Coconut Kingdom (Al Lindrum Remix) (7:07)
+03. Helva Selva (Original Mix) (6:28)
+04. Helva SelvaЖанр: Techno, HouseПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68AD2D286EB310724537EAF6790B0ECE7A9EF32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007942   (819895) от 16.04.2016
+
+VA - Black Hole House Music 04 - 16 (2016) [MP3|320 кб/с] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bassanova ft Austin Massirman - Fire Escape (Evil Twin Remix) 06:28
+02. Myon & Shane 54 with Haley - Round We Go (Extended Mix) 05:08
+03. Manufactured Superstars ft Iossa - Carry You Home (Jaguar Nights Remix) 06:20
+04. Eve Belle & Brian Laruso - Solace (M-22 Remix) 04:43(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7606067E3DEC189C354CF8E3357BFDAA3C8AF068
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007883   (819898) от 16.04.2016
+
+VA - The Best Progressive Hits Vol.5 (2016) [MP3|320 кб/с] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luck Out - Asylum of Love 06:20
+02. Jimmy Roqsta - Eavesdropping of Aliens 05:37
+03. Ivanshee - Clarity 07:21
+04. Haxxy - You Not See, but They Do Exist 10:28(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905F3598057C5474077BFE4DE6BA0B6183896E44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007819   (819899) от 16.04.2016
 
 VA - Urban Dance Battle Nation (2016) [MP3|320 кб/с] <House, Progressive>
@@ -526,168 +686,6 @@ Glanko - Discography 10 Releases (2012-2020) Halbsicht Records [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6936BAF670AAA4768ABC4DF93576C7B422C8C66B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196701   (822403) от 03.01.2018
-
-Karl Maddison - On the Road to Tibet (2006) [FLAC|Lossless|image + .cue] <New Age, Relax, Meditative>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wishing Wheel
-02. Pearls Of Wisdom
-03. Sacred Mountain
-04. Legend(   Читать дальше...   )Жанр: New Age, Relax, MeditativeПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C2B891E807C67D4511E7CBF4229C34CB4FDC5D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196504   (822417) от 03.01.2018
-
-bvdub - Heartless (2017) [FLAC|Lossless|tracks + .cue] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleepless (9:33)
-02. Nameless (12:01)
-03. Flawless (6:45)
-04. Limitless (6:18)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:16:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C1173F8CCD7ABD522DFC108DF8F1BD42CB4B12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196485   (822419) от 03.01.2018
-
-VA - Erotica (2000) [FLAC|Lossless|WEB-DL|tracks] <House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PS-Band - Erotica (4:27)
-02. Domina - Auf die Knie (3:20)
-03. James Brown - Sex Machine (5:02)
-04. Construction - Sex Is Like Fire (3:31)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 00:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE2B8E0871C0D0F37EA5E714FBF3740F0EA1785
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196600   (822423) от 03.01.2018
-
-VA - Inner Symphony Gold 2017 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mashk & Soul Button - Penses [07:35]
-02. Soul Button - Placid [07:39]
-03. Clawz SG - Perennial [07:38]
-04. Fractal Architect & Dan Baber - Antikythera Mechanism [06:45](   Читать дальше...   )Жанр: Progressive House, Tech House, Chill HouseПродолжительность: 01:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41A62E62D319B20FAB972E33BCA51D0EAE5020B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196676   (822425) от 03.01.2018
-
-VA - Ori Uplift - Uplifting Only 255 (Tune of the Year Vote - Top 25 Countdown) (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.RAM & Arctic Moon with Stine Grove - A Billion Stars Above (Extended Mix)
-02.illitheas - Moments with You (Maratone Remix)
-03.Manuel Rocca & Illitheas - Enchanted
-04.Afternova feat. Andrea Becker - For You (Trance Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF736E282606A586DB41DD2E65C1A27D424C68ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196660   (822547) от 03.01.2018
-
-Mi Chan - In The Night (2017) [MP3|320 Kbps] <Trance,Progressive Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Morning (Original Mix)
-02. Way (Original Mix)
-03. Where I Am (Original Mix)
-04. Sunrise (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive Trance,Uplifting TranceПродолжительность: 01:01:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FA6244A845E584C45A950F854111C2190992FA
 ```
 
 

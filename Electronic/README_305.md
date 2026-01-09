@@ -1,3 +1,30 @@
+###  Публикация: 1149322   (601155) от 10.07.2017
+
+VA - Bodybuilding Music: No More Words Needed (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Page Two – Horsin
+02. Pacey Rookz – Bespoken
+03. Oceane Ripped – Punch
+04. Niki Taylor – Coach(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957A819A6A8FCB66872BBDBAB460DFDADC4F2B73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913893   (601346) от 30.06.2015
 
 VA - Uplifting Only - Orchestral Trance Year Mix 2014 (Mixed By Ori Uplift) (2015) [MP3|320 кб/с]<Uplifting Trance>
@@ -668,33 +695,6 @@ VA - Uplifting Summer (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FA9B7AD2C07EF0AAA93EA577003D8C25BB180E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547716   (602422) от 29.04.2022
-
-VA - Beautiful Vocal Trance - Chapter 8 (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zetandel - Higher Ground (Costa & Aurosonic Remix) (3:44)
-02. Trance Classics - A Day Without Rain (Costa Remix) (3:39)
-03. 4 Strings - Enough (Radio Edit) (3:28)
-04. 4 Strings - Completely (2:49)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:26:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1822D7B389E2DD46FB8767611891F341F36FE4B
 ```
 
 

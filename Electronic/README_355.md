@@ -1,3 +1,165 @@
+###  Публикация: 1220196   (706189) от 18.04.2018
+
+VA - Essential House Spring 2018 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tzesar - Spring Break (Original Mix) [00:05:15]
+02. Chris Kaufman - Burning My Socks [00:05:30]
+03. Tzesar - April Lady (Original Mix) [00:05:18]
+04. Renee - Music Heals All Wounds (Ice Cream edit) [00:05:35](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1905EDCF5AE35FECE4ADA04D4AD28E443CA0343
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220357   (706192) от 18.04.2018
+
+VA - Nothing But... The Future of Trance Vol. 06 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Exo - Skybouncer (Original Mix)
+02. Ultimate - Enru (Original Mix)
+03. Tau-Rine - New Life (Radio Edit)
+04. Paul Arcane - Transcend (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B67109D5EFDF9BB5E9B10FD20BF8BD8831AD0EE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220187   (706193) от 18.04.2018
+
+VA - Trance Spring Essentials (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airdraw,Aaren, Jo.E - Bryde's Whale (Club Mix)
+02. LTN,Stendahl, Arielle Maren - Black Hole (Blood Groove & Kikis Instrumental Remix)
+03. PROFF - Innervate (Original Mix)
+04. Sound Quelle & Piramex - Shoreline (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:545D7AD83E6875F69B5FAA47EF8E1AB4D2BBB326
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220352   (706194) от 18.04.2018
+
+Mr. Cloudy - IRIT (2018) Limited Edition [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/08. Irit (0:40)
+ 02/08. The Version (12:35)
+ 03/08. Nautilus Lo-Fi Replication (9:25)
+ 04/08. Desove Blessed Dub (7:21)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440B8E606472C2A8B9E2BA78B6C38511E86111DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131732   (706476) от 06.05.2017
+
+Moskva-Kassiopeya - 3 Albums (2015-2017) [MP3|320 Kbps] <Synthpop, Electro, Retrowave, Space Disco, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moskva-Kassiopeya - российский электронный проект музыканта Жарикова Александра (также известного под псевдонимом "B A I K A L"), созданный в 2011 году. Стиль проекта характеризуется как сплав электронного саунда 80-х и современных веяний Electro, объединенных единой научно-фантастической концепцией ретро-футуризма, сочетая в себе элементы классической (   Читать дальше...   )Список альбомов:
+2015 - Road To The Stars (Author's compilation)
+2016 - Jupiter And Beyond The Infinite
+2017 - Encounters(   Читать дальше...   )Жанр: Synthpop, Electro, Retrowave, Space Disco, SynthwaveПродолжительность: 02:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D214BF964E08A39168759838B51A4E8218E9B40F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131552   (706606) от 06.05.2017
+
+Forest Swords - Compassion (2017) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Experimental, Tribal, Leftfield>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War It (05:54)
+02. The Highest Flood (05:07)
+03. Panic (04:49)
+04. Exalter (05:37)(   Читать дальше...   )Жанр: Experimental, Tribal, LeftfieldПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9348361DDB080B37ACFD97ED0547E2051BC7056B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131597   (706616) от 06.05.2017
 
 LCD Soundsystem - Call the Police / American Dream (2017) Single [FLAC|Lossless|tracks] <Electronic, Dance-Punk, Indie Rock>
@@ -527,168 +689,6 @@ Desolate Horizons - Every Dream Is a Lifetime (2019) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC785B720182627EE20763CA80B7146CEB443156
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 329403   (709213) от 29.04.2011
-
-London Elektricity - Yikes (2011) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elektricity Will Keep Me Warm
-02. Meteorites (ft. Elsa Esmeralda)
-03. Had a Little Fight
-04. The Plan That Cannot Fail(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:01:27
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 147117   (709253) от 12.06.2010
-
-The Chemical Brothers - Discography - 66 Releases (1994-2010)|320]<Electro/Big Beat>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electro/Big BeatПродолжительность: 00:59:09
-01. Setting Sun & Chemical Beats (San Fransico '96) (14:56)
-02. The Sunshine Underground (Woodstock '99) (9:15)
-03. The Private Psychedelic Reel (Open Air Field Festival '02) (17:36)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218767   (709960) от 16.04.2018
-
-joergmueller - Discography 4 Releases (2009-2018) [FLAC|Lossless|WEB-DL|tracks+.cue, tracks] <Dub Techno, Ambient, Dub, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DFM #1 (05:36)
- 02. DFM #2 (06:47)
- 03. DFM #3 (05:53)
- 04. DFM #4 (05:32)(   Читать дальше...   )Тип издания: CD, WebЖанр: Dub Techno/Ambient/DowntempoПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AD328B91C67CBE09D25C5B6DD2892E539DE01C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025583   (710110) от 12.06.2016
-
-VA - Electric for Life - Ibiza (Mixed by Gareth Emery) (2016) [MP3|320 кб/с] <Progressive House, Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noah Neiman & Meredith Call - You Are [5:12]
-02. Lyar Ft. Laura Luppino - Trigger (Summer Edit) [3:04]
-03. Jus Jack - Stargazing [3:09]
-04. Lane 8 - Sunlight (Jody Wisternoff Remix) [4:17](   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 06:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5984BFB249939890011517C4B213B0FB57566B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130698   (710394) от 04.05.2017
-
-VA - Best Of Progressive House Vol.03 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Shingo Nakamura - Always (Extended Mix)  6:52
-02.  eleven.five & LTN - LiPo (Original Mix)  6:46
-03.  Nigel Good & Sarah Clark - This Is You (Blood Groove & Kikis Remix)  7:42
-04.  Mango & Jan Martin - Pillows (Stendahl Remix)  7:54(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:22:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9B1E87934B1BC5025875801787E4A46B03CA5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131013   (710656) от 04.05.2017
-
-Dive - Underneath (2017) [FLAC|Lossless|WEB-DL|tracks] <EBM, Darkwave, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/10. Underneath (4:08)
- 02/10. Far Away (4:19)
- 03/10. Sacred Skin (5:26)
- 04/10. Let Me In (4:21)(   Читать дальше...   )Жанр: EBM, Darkwave, IndustrialПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AAEFDD7380DD520092313A32A14DDC7815893D4
 ```
 
 

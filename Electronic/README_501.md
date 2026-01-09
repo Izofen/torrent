@@ -1,3 +1,165 @@
+###  Публикация: 1110717   (1009387) от 25.06.2021
+
+Microlith | Rhys Celeste - Discography 13 Releases (2014-2021) CPU Records, mindcolormusic, Fundamental Records [FLAC|Lossless|WEB-DL|tracks] <Electro, Ambient, IDM, Acid, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled 87 7 (04:27)
+ 02. Untitled 8 9 (06:50)
+ 03. Untitled 23 2 (07:23)
+ 04. Untitled 102 3 (02:00)(   Читать дальше...   )Тип издания: WebЖанр: Electro, Ambient, IDM, Acid, Techno •Продолжительность: 08:29:13 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:070A14523F2F2FEBCF6A3F797EB7D86D567A3434
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479746   (1009411) от 25.06.2021
+
+VA - Female Vocal Trance 2021 [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurosonic & Fenna Day - You'll Be Fine (4:13)
+02. C-Systems & Hanna Finsen - Feeling Fine (3:51)
+03. Costa & Sarah Russell - I Remember (3:39)
+04. Zetandel & Tiff Lacey - Higher Ground (Costa & Aurosonic Remix) (3:45)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E81201D779976DE5F31F031374ED67DD0C4159
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479624   (1009413) от 25.06.2021
+
+Eli & Fur - Found In The Wild (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire To Fire (3:25)
+ 02. Wild Skies (3:24)
+ 03. In Too Deep (feat. Holly Martin) (4:42)
+ 04. Carbon (4:30)(   Читать дальше...   )Жанр: EDM, Deep House, HouseПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:685BB2DABAEE4D3403FE01F88445CD526F2F4A02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450470   (1009428) от 25.06.2021
+
+Liebknecht (Daniel Myer & Rinaldo Bite) - Discography 8 Releases (2017-2021) Hard Electronic [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial, Electro>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 6 Months (Danzig Demo 2015) (05:20)
+ 02. 6 Months (Danzig Demo 2016) (07:58)
+ 03. Arnold (Demo 2014) (06:12)
+ 04. Conjunction (Demo 2014) (01:48)(   Читать дальше...   )Жанр: Techno, Industrial, Electro •Продолжительность: 04:22:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D384C90AAB5D819E20C478323B791A0B15E67C1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456946   (1009432) от 25.06.2021
+
+Gimmik - Discography 15 Releases (1997-2021) Worm Interface, Toytronic, n5MD [FLAC|Lossless|tracks+.cue, tracks] <IDM, Glitch, Abstract, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Floating Clear (1998) (04:13)
+ 02. Share Some Grammar (1995) (05:54)
+ 03. Typologic (1999) (03:54)
+ 04. Diving-Pool (Num Num RMX) (2000) (04:11)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM, Glitch, Abstract, Ambient •Продолжительность: 08:48:28 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5790BC017DA3EEDC3AA0729DCD702B6665167AF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479752   (1009460) от 25.06.2021
+
+Mause - Run/Stop EP & Remixes (2021) Massage Brain Cult [FLAC|Lossless|WEB-DL|tracks] <IDM, Acid, Drum & Bass, Breakcore, Electro, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DMX Acidheim (04:17)
+ 02. Evas Bounce (06:09)
+ 03. Errire (04:58)
+ 04. Dolpin Funk1 (05:48)(   Читать дальше...   )Жанр: IDM, Acid, Drum & Bass, Breakcore, Electro, AmbientПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F4816753AF1FB09EB8B7A0594A850758496F346
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479726   (1009472) от 25.06.2021
 
 Nutronixx - Planet Of Love (2020) [FLAC|Lossless|tracks + .cue] <Synth-pop, Euro-Disco>
@@ -524,168 +686,6 @@ Dimension - Organ (2021) [FLAC|Lossless|tracks + .cue] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:592CD85EE2FDD675305D266CF69F46CF138A273C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478634   (1010200) от 20.06.2021
-
-Lane 8 - Summer 2021 Mixtape (2021-06-15) [MP3|320 Kbps] <Deep House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010200.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ID - ID
-2. ID - ID
-3. Peer Kusiv feat. Johanson - Bring You Back
-4. Massane - Genova(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 04:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEDD7D87BBB2A2E19AFFD17632554B2907ABD9D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478698   (1010203) от 20.06.2021
-
-Inkipak - Inkipak (2021) Mighty Force [FLAC|Lossless|WEB-DL|tracks] <IDM, Breaks, Electro, Acid>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eight Thirty Seven (08:34)
- 02. Fragment (06:48)
- 03. Unobtainable (06:00)
- 04. Live In Hope (05:39)(   Читать дальше...   )Жанр: IDM, Breaks, Electro, AcidПродолжительность: 01:16:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0017B37C5EB9D1ADCCFC1EA07F2D3576DD811D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478616   (1010213) от 20.06.2021
-
-Hologram - The Great Divide (2001-2007) (2020) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Great Divide (01:58)
- 02. Elements (06:15)
- 03. Sephiroth (07:22)
- 04. Ion (03:30)(   Читать дальше...   )Жанр: IDM, Ambient, ExperimentalПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56999B551F32B56E3C45F0034F9698372CBE0D59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478485   (1010319) от 19.06.2021
-
-Odderon - Hydroelectric EP (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Acid, Ambient>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Homecoming (04:11)
- 02. Late Spring (04:12)
- 03. Hydroelectric (04:22)
- 04. Floodplain (04:33)(   Читать дальше...   )Жанр: IDM, Acid, AmbientПродолжительность: 00:20:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDEB9689562A3DF3FFC5FA659C3EACB412D0E256
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478492   (1010341) от 19.06.2021
-
-VA - Ambiental Dreams: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Calma (5:28)
-02. Ann Grace - Vega - Original Mix (7:11)
-03. Michael E - Infinite Beauty - Original Mix (4:54)
-04. Beamy - Gawain (4:00)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DAF45D9E90384D40344259A361CC4D1D9E11629
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478453   (1010359) от 19.06.2021
-
-Vintage Culture - Live @ Defected Livestream, Brazil (2021-06-11) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vintage Culture & Fancy Inc ft. Roland Clark - ID
-02. Meca - Chains
-03. Sofi Tukker - Drinkee (Vintage Culture & John Summit Remix)
-04. Vintage Culture & Ferreck Dawn - ID(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:28:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5E6D34D674BA407DB3BB7CB10B92CDB00EE9992
 ```
 
 

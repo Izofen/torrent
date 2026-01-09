@@ -1,3 +1,165 @@
+###  Публикация: 1200459   (796427) от 20.01.2018
+
+Primal Code - Konstrukt 008 (2018) Konstrukt [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artemisia (07:06)
+ 02. Allysum (05:51)
+ 03. Acaulis (05:58)
+ 04. Alpine Violet (07:08)Жанр: Techno, AmbientПродолжительность: 00:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7FC2FB1300D5C71C67F3475DBD77A9A000FFF00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011620   (796441) от 28.04.2016
+
+VA - Dance Map, Electro Stops Vol.3 (2016) [MP3|320 кб/с] <House, Progressve House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fuji -  Burn  6:39
+02. KountDown Project -  Moon Bass  7:56
+03. Sello -  Such as More  7:25
+04. DJ Afreek -  Orgasmo  6:30(   Читать дальше...   )Жанр: House, Progressve HouseПродолжительность: 02:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F78ECD807F9B493B94EDC8E91BFDA070E353B8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200234   (796450) от 20.01.2018
+
+VA - Special Sport Songs 11 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Beat - Come Down to Me (Radio Edit) 03:06
+02. Dennis Grkn - Winner (Radio Edit) 03:15
+03. Mr. Groove - We're Living for the Moment (Radio Edit) 03:31
+04. Miguel Alcobia - I Don't Need You Anymore (Radio Edit) 02:13(   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D9501989F56E4BBEAEF70384D866B97814C2F89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200289   (796459) от 20.01.2018
+
+VA - Urban Party Alarm 11 (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nick Le Funk  -  Leaving  3:30
+02.  The Boogeyman  -  The Bass Poem (Radio Edit)  3:21
+03.  Roger Horton & Slippy Beats  -  Feel Fine (Radio Edit)  3:07
+04.  Project Weekend Sound  -  Girls & Boys (Radio Edit)  3:26(   Читать дальше...   )Жанр: HouseПродолжительность: 02:16:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5097F7DB50A4D03DC16BEA45389D86DB69CC5BCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319368   (796543) от 26.05.2020
+
+W O L F C L U B (Wolfclub) - Collection 5 Releases (2017-2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All We Live For (3:19)
+02. Rebels (3:14)
+03. Fire (3:29)
+04. New York (3:19)(   Читать дальше...   )Жанр: Electronic, Synthwave, Retrowave |Продолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C221F976411FB79CFF4BB75CF1EF0C904A93319
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385795   (796648) от 26.05.2020
+
+Visage - 3 Albums (1980-1984) LP [MP3|320 Kbps] <Electronic, New Wave, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visage - британская группа, одна из лидеров модно-музыкального движения новых романтиков начала 1980-х гг. Основанная в Лондоне Стивом Стрейнджем и Расти Иганом из The Rich Kids, Visage была чисто студийным проектом с участием музыкантов из Ultravox (Мидж Юр, Билли Карри), Magazine (Дейв Формула), Siouxsie and the Banshees (Джон Макгиох).Список альбомов:
+1980 - Visage
+1982 - The Anvil
+1984 - Beat Boy(   Читать дальше...   )Жанр: Electronic, New Wave, Synth-popПродолжительность: 02:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97D227F0F7578FCFFEF134AF34C7A4F35E2AEEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156046   (796649) от 26.05.2020
 
 PBS'73 - Discography 4 Releases (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Synthwave, Ambient>
@@ -533,168 +695,6 @@ VA - Club House - Selected Works Vol.01 (2008) [FLAC|Lossless|tracks] <House, El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0E00251411702A5EF92CA6682CF85D6A148B6BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011287   (797022) от 27.04.2016
-
-Sieren - Transients of Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. See You (04:08)
-02. Marbles (04:27)
-03. Hold On (06:15)
-04. Chroma (07:16)(   Читать дальше...   )Жанр: Deep House, AmbientПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87496E14B7BAB5A3A58320AD86BF7ED52FE0F83B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011247   (797031) от 27.04.2016
-
-Forteba - Stereoform (2012) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Magnetik Fluid
-03. Breath
-04. Linoleum(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A370CD87ED04236B7364C0573FED4D478A587C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011231   (797040) от 27.04.2016
-
-VA - Melodic Progressive House Vol. 05 (2016) [MP3|320 кб/с] <House, Progressve House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LTN,Kokai, Arielle Maren -  Just Believe (Blood Groove & Kikis Remix)  6:40
-02. Schodt -  You're Brighter Than The Sun (Original Mix)  6:15
-03. Blugazer -  Feel Me Wondering (Dub Mix)  7:30
-04. Universal Solution -  Pressure Point (Original Mix)  7:25(   Читать дальше...   )Жанр: House, Progressve HouseПродолжительность: 02:31:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35129F39BF96B270E1FC098E4E547E536EDD42C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011260   (797050) от 27.04.2016
-
-Forteba - For Some Time Past (2008) [FLAC|Lossless|image + .cue] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	For Some Time Past
-02.	Dizoxin
-03.	Caliphone
-04.	Piko(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B1446512AC84C1A12EE73848223C81A6614701
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328112   (797122) от 25.05.2020
-
-Eguana - Synchronicity (2019) [MP3|320 Kbps] <Electronic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Hugs (3:42)
-02. Believe Me (3:31)
-03. Keep My Hands (3:39)
-04. Sad Story (4:04)(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A1B9E81FE7A04EA9AC576F4E57AB7CBE415BA4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385692   (797141) от 25.05.2020
-
-VA - Homestudio Fitness Moves: 100 Great Tracks to Train At Home (2020) [MP3|320 Kbps] <Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797141.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bob Lee - Roundup (4:12)
-2. Ben Billson - Wallets (4:12)
-3. Bandpass Cut - Voyage (4:12)
-4. Ax7is - Specks (4:12)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 06:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78784E542758620A811183D846994D1370CCEC0B
 ```
 
 

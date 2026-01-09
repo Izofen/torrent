@@ -1,3 +1,27 @@
+###  Публикация: 918457   (586847) от 15.07.2015
+
+Microsoft Malicious Software Removal Tool 5.26 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Malicious Software Removal Tool - утилита для обнаружения и удаления наиболее распространённых вирусов. Microsoft Malicious Software Removal Tool выполняет проверку компьютера на наличие наиболее распространенных вредоносных программ (включая Blaster, Sasser и Mydoom) и удаляет их в случае обнаружения. Поскольку компьютеры, будучи зараженными, на первый (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF434A7D3BED3A39BAA6EC48CCC9E8B5670F7FA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918476   (586849) от 15.07.2015
 
 7 Star Browser 1.41.7.325 [En]
@@ -613,33 +637,6 @@ Display Driver Uninstaller это утилита удаления драйвер
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E143369B8A8EBEB80A8666EEF6E4D174AF27282B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300987   (587087) от 09.05.2019
-
-AstroPilot - Solar Walk I (Remastered) (2019) Astrosphere [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Languor (02:28)
- 02. Perceiving The Universe (05:58)
- 03. Between (08:34)
- 04. En Reve (07:28)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 01:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1343B1B5F9F5B8D73DB873A11901414582AC2F9
 ```
 
 

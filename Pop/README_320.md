@@ -1,3 +1,249 @@
+###  Публикация: 1369167   (905654) от 22.03.2020
+
+!Бум! - Kanikuly (2007) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kanikuly 2007 (Каникулы 2007) (3:42)
+02. Starsheklassnitca (Старшеклассница) (3:58)
+03. Poezd (Поезд) (3:53)
+04. Ne uletai (Не улетай) (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B49F0D532EC7CC4200AB4F277F6E4726561D286E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369168   (905699) от 22.03.2020
+
+VA - Die Neue Schlagerparade 2020 [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905699.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1. Thomas Anders feat. Florian Silbereisen - Sie sagte doch sie liebt mich
+2. Olaf Henning - Bis ans Ende dieser Welt (Pesch Remix Radio Version)
+3. Ben Luca - Liebessymphonie(   Читать дальше...   )Жанр: PopПродолжительность: 02:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63EFD32B4241E65D3A0B1C85C55C3C0F46B88CF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991523   (905854) от 28.02.2016
+
+Дмитрий Маликов - Зовут тебя красивым именем (2016) [MP3|256 кб/с] <pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зовут тебя красивым именем
+02. Больше не моя
+03. Ты моей никогда не будешь (Radio Edit)
+04. Ещё, ещё(   Читать дальше...   )Жанр: popПродолжительность: 01:24:35
+
+Дмитрий Маликов 25 февраля 2016 года выпустил сборник своих лучших лирических композиций. Альбом получил название «Зовут тебя красивым именем» - по новой песне, премьера которой состоялась на недавнем концерте в Санкт-Петербурге.
+- Многим она сразу запала в душу, - написал Дмитрий в блоге. - Стихи к ней написаны близким мне человеком.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4E9D0751A44CCF27C2214E95A3976A75B27CE2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991533   (905899) от 28.02.2016
+
+Ace Of Base - Singles Of The 90s (1999) [FLAC|Lossless|image + .cue] <Europop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C'est La Vie (Always 21) (03:27)
+02. The Sign (03:09)
+03. Beautiful Life (03:40)
+04. Hallo Hallo (02:52)(   Читать дальше...   )Жанр: Europop, EurodanceПродолжительность: 00:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72626313AC56A72D34F836114A6DCB12363FB941
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990804   (906194) от 28.02.2016
+
+VA - Discoradio Collection Vol.3 (2004) 2CD Compilation [FLAC|Lossless|tracks + .cue] <Synthpop, Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Banderas - This Is Your Life (4:39)
+02. Tina Charles - I Love To Love (3:02)
+03. Londonbeat - I've Been Thinking About You (3:50)
+04. Greg Kihn - Jeopardy (3:49)(   Читать дальше...   )Жанр: Synthpop, Pop, Pop-RockПродолжительность: 02:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6E4B507FADE3769A951B7627F05A9965C25164
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099151   (906642) от 31.01.2017
+
+Marian Hill - Sway (2015) EP [FLAC|Lossless|tracks] <Alternative Pop, Electronic, Minimalist>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Time
+02. Got It
+03. Lips
+04. Wasted(   Читать дальше...   )Жанр: Alternative Pop, Electronic, Minimalist, R&B, Synthpop, Nu JazzПродолжительность: 00:23:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:746AF6D4FA19065AE847CC95BB6B1835BE9E9DB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099093   (906782) от 31.01.2017
+
+Marian Hill - Act One (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Electronic, Minimalist>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down
+02. Talk to Me
+03. Wild
+04. Bout You(   Читать дальше...   )Жанр: Alternative Pop, Electronic, Minimalist, R&B, Synthpop, Nu JazzПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E243C848BADF6F195A22DCEB347D24D54ABD2926
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098983   (907074) от 31.01.2017
+
+VA - 30 Stars: Love (2017) [MP3|320 Kbps] <Roots Rock, Alternative, Electro Soul, Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907074.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Kelly Clarkson - Heartbeat Song 03:20
+02. Little Mix - Love Me Like You 03:17
+03. Sara Bareilles - Love Song 04:19(   Читать дальше...   )Жанр: Roots Rock, Alternative, Electro Soul, CountryПродолжительность: 01:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22AD9E4FD60402B659CB6E4E4BD9D0507FD4CFD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368716   (907086) от 21.03.2020
+
+Вадим Казаченко - Лучшее (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907086.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Глаза в глаза
+2. На волоске
+3. Бегу за тобой
+4. Ты одна такая(   Читать дальше...   )Жанр: PopПродолжительность: 01:20:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40B9C93955FFC5E93CF60421CF03DAEA6C67D0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099076   (907180) от 31.01.2017
 
 VA - Twelve Inch Eighties: When the Going Gets Tough (2017) [MP3|320 Kbps] <Pop, R&B, New Wave, Italo Disco>
@@ -449,246 +695,6 @@ Adam Lambert - VELVET (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33B58D4E3CD3B65D2F1962488A13F2EB93F3A43D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625187   (909881) от 29.01.2017
-
-ВИА Верасы - Советская эстрада. Избранное (2CD) (2009) [MP3|320 кб/с]<поп, ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: поп, ретроПродолжительность: 01:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5786207C0B6C2359E21CB2D771674E06592DB3FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990843   (909992) от 26.02.2016
-
-VA - World Dance Music (2004) [FLAC|Lossless|tracks + .cue] <Trance, World & Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rahmaj - Fly to India (1:59)
-02. Gitan Suite - Spanish Dream (1:54)
-03. Lya Cannes - Vuela Vuela (3:00)
-04. Kariber - Mueve (3:29)(   Читать дальше...   )Жанр: Trance, Folk, World, & Country, PopПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4105AE9EFD27D4F3362A1B4929BC9A23598CB5B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491476   (910344) от 25.08.2021
-
-VA - Disco Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bee Gees - More Than A Woman (From "Saturday Night Fever" Soundtrack) (03:16)
-02. Donna Summer - Hot Stuff (Single Version) (05:14)
-03. Abba - Waterloo (02:45)
-04. Kool & The Gang - Celebration (04:58)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC8A840E002B52A16E22ADA2A885E8B25A25177
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491625   (910578) от 25.08.2021
-
-London Boys - Requiem: The London Boys Story (2021) 5CD Expanded Box Set [MP3|320 Kbps] <Eurodance, Eurobeat>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Requiem (4:20)
-02. Kimbaley (My Ma-Mama Say) (4:19)
-03. Harlem Desire (3:50)
-04. Chinese Radio (3:50)(   Читать дальше...   )Жанр: Eurodance, EurobeatПродолжительность: 06:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE16EA56EC76FDF33F122098250736F533932AA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491487   (910699) от 25.08.2021
-
-VA - All Acoustic (2021) [MP3|320 Kbps] <Pop, RnB, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katy Perry - The One That Got Away (Acoustic) 4:19
-02. Florence + The Machine - Shake It Out (Acoustic) 4:13
-03. Jp Cooper, Jonas Blue - Perfect Strangers (Acoustic) 3:11
-04. Niall Horan - Slow Hands (Acoustic) 2:41(   Читать дальше...   )Жанр: Pop, RnB, OtherПродолжительность: 02:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E63B2985ABE8F3556CF0E0F218A29B0FD2A088F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368217   (910871) от 19.03.2020
-
-Stylove - The 2nd Album (2019) Limited Edition [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Music Energy (4:39)
-02. Canzone (4:20)
-03. Dolce Vita (Edit Version) (3:37)
-04. Lady Fantasy (3:12)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924B89BC8A34EC03F5AE862D8B70144D85C1ABBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368281   (911024) от 19.03.2020
-
-Качеля - Грустить и танцевать (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Море зовёт (4:22)
-02. Если ты уйдёшь (4:49)
-03. Город детства (4:00)
-04. Ветра (4:33)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ABFBD0609010BE9C7FE0EDFA341F83342ABC713
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989954   (911281) от 25.02.2016
-
-VA - Легендарные Песни. Выпуск 01 (86-91) (2002) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ласковый Май - Белые Розы (5:40)
-02. Мираж - Музыка Нас Связала (4:25)
-03. Евгений Белоусов - Девочка Моя Синеглазая (6:09)
-04. Комбинация - Бухгалтер (4:31)(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64313CC589EA5FD6B2AC1FB7C52C0BB46CA307B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097747   (912049) от 28.01.2017
-
-VA - NOW That's What I Call Music! 61 (US series) (2017) [FLAC|Lossless|tracks] <Pop, Dance, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Mars - 24K Magic (3:45)
-02. Maroon 5 feat. Kendrick Lamar - Don't Wanna Know (3:33)
-03. Alessia Cara - Scars To Your Beautiful (3:46)
-04. Ariana Grande feat. Nicki Minaj - Side To Side (3:42)(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 01:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99F0B9DA1AADED0356F208D529F6137B140A10C1
 ```
 
 

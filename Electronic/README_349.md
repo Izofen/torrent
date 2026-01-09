@@ -1,3 +1,165 @@
+###  Публикация: 1402851   (691931) от 19.08.2020
+
+VA - Goa Culture - Season 4 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691931.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. One Function - Values of Love (3:49)
+2. Thusgaard & Bierlich - Algea Rhythm (7:17)
+3. Atmos - Soundglider (Yestermorrow Remix) (9:29)
+4. Flowjob - Reverse Vacation (7:39)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:14:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636E7FED34C74E981F313C6A79EBC49AE22340EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351016   (691933) от 19.08.2020
+
+Fatum - All In Radio 001-017 (2020) [MP3|192 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691933.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. RUFUS DU SOL - Treat You Better (Purple Disco Machine Remix)
+2. Andrew Cash - Deeptrak
+3. Jon Hopkins & Kelly Lee Owens - Luminous Spaces
+4. ARTBAT feat. WhoMadeWho - Closer(   Читать дальше...   )Жанр: TranceПродолжительность: 14:22:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A5F16D31D92AD8FB2712A25AC84CBB3D6B50DE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288849   (691958) от 13.03.2019
+
+Mr.Kitty - EPHEMERAL (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Darkwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wait (4:22)
+ 02. From Liquid (3:45)
+ 03. My Weak Side (3:56)
+ 04. Disconnect Lover (4:23)(   Читать дальше...   )Жанр: Electronic, Synthwave, DarkwaveПродолжительность: 01:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6885CCB6D8409B8EA2003B734FDA768C8B9F34C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288935   (691964) от 13.03.2019
+
+VA - Armin van Buuren - A State Of Trance Festival 900 - (Madrid) (2019) [MP3|320 Kbps] <Trance, Progressive Trance, Vocal Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ilan Bluestone & Maor Levi – Everybody (Ilan Bluestone & Maor Levi Club Mix)
+02. Maor Levi & OTIOT – Bandana
+03. Maor Levi & OTIOT ft. Ashley Tomberlin – Turn Out The Lights
+04. Ilan Bluestone & Maor Levi ft. El Waves – Will We Remain?(   Читать дальше...   )Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 07:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F2D0758F5A395BB852F54BC786EFE57167AEC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288841   (691974) от 13.03.2019
+
+VA - Yoga & Meditation Selections Vol.06 (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander Tarasov - October (Original Mix) 6:19
+02. Dan Wack - A Beginning (Original Mix) 5:37
+03. Kirsty Hawkshaw & Sam Hyder - Thecosomata (Original Mix) 2:53
+04. Johannes Fischer - Farewell (Piano Version) 4:43(   Читать дальше...   )Жанр: Downtempo, ChillOut, Ambient, Meditation, NewAge, Relax, ElectronicaПродолжительность: 02:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C71E1C3064CB5B1F93060AACE8C328913E4122
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288876   (692096) от 13.03.2019
+
+VA - Cool Girls: Urban Dance Downtempo Music (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Lo-Fi>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luli Mana - Runaway With Me (Summer Party Mix) 3:59
+02. Anna & Tamma - Any Day With You (Original Mix) 4:44
+03. Karma Mika - We Feel It (Original Mix) 5:27
+04. Creminolima - I Want You (Original Mix) 5:11(   Читать дальше...   )Жанр: Downtempo, ChillOut, Lo-Fi, ElectronicaПродолжительность: 02:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5818D738296CB169FFB50A401233B83BDC1FF24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288857   (692111) от 13.03.2019
 
 VA - Tropical Chillout 2019 (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
@@ -533,168 +695,6 @@ VA - Laid-Back Lounge Vibes Vol.8 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1C0FC3786ADB71CD2DF1EF3D073A2D62912124F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133636   (693425) от 13.05.2017
-
-Nite Jewel - Real High (2017) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Chillwave, Neo Soul>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Nite (2:47)
-02. Had to Let Me Go (4:27)
-03. 2 Good 2 Be True (3:43)
-04. Real High (4:06)(   Читать дальше...   )Жанр: Electropop, Chillwave, Neo Soul, SynthpopПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6101DD8840C0F245C2CFD19B116526D6015A5D84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133863   (693426) от 13.05.2017
-
-VA - Blue Lounge 2: Selected Lounge Tunes By The Ocean (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jean-Michel Vallet - Living In My Dreams (Main)  2:33
-02.  Giacomo Bondi - Days (Full Mix)  4:41
-03.  Oliver Fox - Deep Project (Main)  2:49
-04.  Jean-Michel Vallet - Day To Love (Main)  3:18(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75BA5131526804D8B777C0F1D463EE4A9BD13748
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133587   (693427) от 13.05.2017
-
-VA - EDM Hits Vol.2 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Russian Dolls & Nathia Kate - Always (Original Mix)  4:24
-02.  Audino & ELMY - Beat It (Extended Mix)  4:11
-03.  Feel - Firedrops (Original Mix)  3:25
-04.  Papulin - Paper Boats (feat. Maria Milewska) (Original Mix)  3:35(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506E43231A1A3264FFEA187B1BBCB0C374302E41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133809   (693429) от 13.05.2017
-
-VA - Not That Simple Sound Vol.10: Premium Lounge & Downtempo Moods (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Buben - Symmetry  5:58
-02.  FieldFunk - Make Me  2:54
-03.  Don Gorda Project - Always On My Mind  6:08
-04.  Monodeluxe - Get Down With It  5:37(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B9B920554FE6EE0C986AACC906FD25A8412A0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133854   (693432) от 13.05.2017
-
-VA - Island Of Summer (Ibiza Smooth Summer Tunes) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Oscar Salguero - We Have To Go Back  3:26
-02.  Living Room - World Traveller  4:37
-03.  Roberto Sol - Momentos Azules (El Sur Mix)  5:24
-04.  Alex Naevecke - Summerlove  4:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29A296BE253E35EA80FD69E82068B1F51B5A17F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133861   (693434) от 13.05.2017
-
-VA - White Dinner Session Vol.1 (Relaxed & Sunny Dinner Tunes) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alex Field - Wake Me (Bryan Milton Remix)  5:32
-02.  Alexander S. Karlov - Melancholy Road  3:24
-03.  Alex Naevecke - Summerlove  4:11
-04.  Living Room - Ganja Tribe  4:05(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FEB9E91A27CAF462C67F6549FA7F29A8EEB1192
 ```
 
 

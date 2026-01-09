@@ -1,3 +1,165 @@
+###  Публикация: 1463811   (1020134) от 20.04.2021
+
+Electric Dark Souls - Heroes (2020) [MP3|320 Kbps] <Synthwave, Retrowave, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neon Light (4:11)
+02. Heroes (4:18)
+03. Cyberpunk (4:41)
+04. Another Day (4:18)(   Читать дальше...   )Жанр: Synthwave, Retrowave, ElectropopПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F6A1018EA32A4E1789D99FF39AD94C89D355F46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463807   (1020142) от 20.04.2021
+
+Electric Dark Souls - Planet 0712 (2019) [MP3|320 Kbps] <Synthwave, Retrowave, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting Line (5:53)
+02. SOS from Planet 0712 (5:34)
+03. Zero Gravity (Pt.1) (0:59)
+04. Space Rangers (4:48)(   Читать дальше...   )Жанр: Synthwave, Retrowave, ElectropopПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:412C4BED5FAB38D5486197064CA11238E895694C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463724   (1020281) от 19.04.2021
+
+VA - Black Hole Trance Music 04-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Myon feat. Nikol Apatini - Ghost Town (Myon Tales from Another World Extended Mix) 7:29
+02. Dennis Sheperd & RELEJI - Omid (Extended Mix) 5:38
+03. JES - Under The Midnight Sun (Somna Extended Remix) 5:22
+04. Estuera - Elpida (Extended Mix) 7:22(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BF7E3BCEB64E7BBE98F08AFC93C2CE312235DD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463616   (1020304) от 19.04.2021
+
+VA - Lo-Fi City Vibes: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beamy - Colours (5:05)
+02. Patiotic, Lohbe - Dream Forest (2:10)
+03. Dellasollounge - Break My Mind (Original Mix) (3:11)
+04. G.Pantelidis - Hypnotic Poem (4:29)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35B5508A973758774717351EFE82DF4B2C58F3A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463699   (1020326) от 19.04.2021
+
+Kymelle - Show  That Body Baby (1996) Maxi-Single [FLAC|Lossless|image + .cue] <Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Show That Body Baby (Ultimate Single Mix) 3:48
+02. Show That Body Baby (Ultimate Mix) 5:40
+03. Show That Body Baby (Mix Version) 5:19
+04. Show That Body Baby (The T. Mix) 4:25Жанр: Euro HouseПродолжительность: 00:19:23.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C518AB0D100DE1527982EF0FDC33EF92DA87A226
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463090   (1020653) от 17.04.2021
+
+VA - Synthwave Dreams, Vol. 14 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TELEGIMNASTIKA - MIR (Microsha 89 Remix) (3:04)
+02. Born In '82 - Critical Summer (3:40)
+03. MOTA - 80's Child (5:25)
+04. Neoneez - Warm Vibe (4:10)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB9E4B5233EC0057DF904378F114F8A3E0EE7178
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462708   (1020656) от 17.04.2021
 
 Front Line Assembly - Mechanical Soul (2021) [FLAC|Lossless|image + .cue] <Electronic>
@@ -530,168 +692,6 @@ Korolova - Live @ Zanzibar, Tanzania (2021-03-26) [MP3|320 Kbps] <Deep House, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35795DA14C2C7E9748313D7E82781F2FEA3E32FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462188   (1021322) от 13.04.2021
-
-Maps and Diagrams - _Modulus (2021) Handstitched* [FLAC 2.0|44.1/48/24|tracks|WEB-DL] <Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ooad (07:36)
-02. Tern (08:50)
-03. Iris (03:20)
-04. Quel (04:46)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B2FC60FFF0E5EC37DF7FF9BC025CEEABE829397
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997185   (1021371) от 12.04.2021
-
-Modeselektor - Discography 41 Releases (2002-2021) [FLAC|Lossless|tracks+.cue, tracks] <Leftfield, Techno, Glitch, IDM, Dubstep, Electro, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minibus (01:20)
- 02. Dentist (01:39)
- 03. Sekt Um 12 (03:06)
- 04. Tacken (03:20)(   Читать дальше...   )Тип издания: CD, Vinyl, WEBЖанр: Leftfield, Techno, Glitch, IDM, Dubstep, Electro, Experimental •Продолжительность: 20:17:24 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69DC24F46B688A2C4DC45F3F0CA82D128E2D39B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462120   (1021413) от 12.04.2021
-
-VA - Spacechillers Vol. 4 (Compiled by Maiia) (2021) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S1gns Of L1fe – Simulation Of Reality (08:58)
-02. Ateris – Every Ending Is A New Beginning (Flucturion 2.0 Remix) (09:17)
-03. Nile – Long And Prosper Life (06:44)
-04. Dreaming Cooper – Illusions (07:52)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 01:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A8CC1D6D21D3264FC25D4BFFDD36C7BC27AC491
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462094   (1021432) от 12.04.2021
-
-Nora En Pure - Live @ Graubünden, Switzerland (2021-04-03) [MP3|320 Kbps] <Deep House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passenger 10 - Days Of Yore
-02. Nora En Pure - Cognitive Fadings
-03. Passenger 10 - Thuringia
-04. Nora En Pure - Enchantment(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 02:17:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:244B86C44661D0EC75EE470867543A91CF33AC42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212270   (1021450) от 12.04.2021
-
-Ferrein - Openclose (2012) Farver [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Downtempo, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Me In (05:38)
- 02. Hover (05:20)
- 03. On The Bottom (05:00)
- 04. Castle Of Air (06:07)(   Читать дальше...   )Жанр: Dub Techno, Downtempo, TechnoПродолжительность: 00:29:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77226741911A0A82C32C69704E4EC302C2527E17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461865   (1021628) от 11.04.2021
-
-Junior Boys - Collection 5 Releases (2004-2016) [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop, Indie Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Say That (4:56)
-02. Over It (3:45)
-03. C'Mon Baby (4:49)
-04. Baby Give Up On It (4:16)(   Читать дальше...   )Жанр: Electronic, Synthpop, Indie Pop |Продолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D94635C76D217AD37BE0626E813CE6B6F1812E5
 ```
 
 

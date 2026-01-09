@@ -1,3 +1,300 @@
+###  Публикация: 1366442   (922127) от 12.03.2020
+
+Klayton - The Dunes (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922127.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:59| 01. Gerald
+|01:55| 02. A Pretty Bright Light
+|01:07| 03. Detroit
+|01:42| 04. Blood(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F8AF7B93E0B3068DEE213359954180C07288B56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366610   (922133) от 12.03.2020
+
+Benjamin Wallfisch - The Invisible Man / Человек-невидимка (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922133.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:42| 01. Cobolt
+|04:28| 02. Escape
+|03:37| 03. He's Gone
+|02:19| 04. This Is What He Does(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B74524DAC46F84CCE7EB749F7743784A5AF1C99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366622   (922135) от 12.03.2020
+
+Игорь Вдовин - Вторжение (Оригинальный Саундтрек) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922135.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:54| 01. Интро
+|01:33| 02. Лаборатория ВКС
+|00:55| 03. Эксцесс в лаборатории
+|00:40| 04. Папа беги(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B7E635338EEF2EDBBABCCAA32B9E81BDD1C4569
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366602   (922234) от 12.03.2020
+
+Voidoid - The Greatest Movie Anthems of All Time (2018) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922234.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:18| 01. Aquaman
+|02:34| 02. Ant-Man and the Wasp
+|01:31| 03. Deadpool 2
+|02:02| 04. Incredibles 2(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F63F9ADFA0404E980F5FDEE1B0D348E630C4344
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366623   (922236) от 12.03.2020
+
+Игорь Вдовин - Вторжение (Оригинальный Саундтрек) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922236.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:54| 01. Интро
+|01:33| 02. Лаборатория ВКС
+|00:55| 03. Эксцесс в лаборатории
+|00:40| 04. Папа беги(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D443E8F13FDC5A330878B497B07E4816E666FFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366609   (922242) от 12.03.2020
+
+Benjamin Wallfisch - The Invisible Man / Человек-невидимка (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922242.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:42| 01. Cobolt
+|04:28| 02. Escape
+|03:37| 03. He's Gone
+|02:19| 04. This Is What He Does(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2886131B078C56912139153582BBE1D9AF109798
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366462   (922247) от 12.03.2020
+
+Andrew Swarbrick - The Runaways (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922247.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:22| 01. Hay
+|01:29| 02. Dead Reith
+|01:29| 03. Life's Rich Tapestry
+|01:18| 04. We've Got to Do Something(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CC71626731D16294E0251C88E73903A64DA81D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366603   (922250) от 12.03.2020
+
+Voidoid - The Greatest Movie Anthems of All Time (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922250.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:18| 01. Aquaman
+|02:34| 02. Ant-Man and the Wasp
+|01:31| 03. Deadpool 2
+|02:02| 04. Incredibles 2(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAA089D2277BE7815CA22BB2F76215634D5C6722
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366525   (922331) от 12.03.2020
+
+Aldo Shllaku - Triumph (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922331.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:07| 01. In Serbia
+|02:35| 02. The Rematch
+|03:34| 03. The Interview
+|02:08| 04. The Coach(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2030577BCFA0D52E0A3D609F3A01D3268CEAA4F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366463   (922335) от 12.03.2020
+
+Andrew Swarbrick - The Runaways (Original Motion Picture Score) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922335.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:22| 01. Hay
+|01:29| 02. Dead Reith
+|01:29| 03. Life's Rich Tapestry
+|01:18| 04. We've Got to Do Something(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3990566FAD3BE209A28410F9922F1DE888DAC99E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366524   (922336) от 12.03.2020
+
+Aldo Shllaku - Triumph (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922336.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:07| 01. In Serbia
+|02:35| 02. The Rematch
+|03:34| 03. The Interview
+|02:08| 04. The Coach(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3455CF0C7DE2BDEEB1181AFE36876CF7B358AD88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988055   (922637) от 19.02.2016
 
 Nick Ingman & Prague Philarmonia - Classic Love At The Movies (1999) S&V #10/2000 [FLAC|Lossless|tracks + .cue] <Instrumental>
@@ -410,351 +707,6 @@ Eric Paslay - Eric Paslay (2014) [MP3|320 кб/с]<Country rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C57ECDF5E0A2402762AC5553128DDF05FAC482E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588402   (927849) от 10.02.2014
-
-Parijat - 5 albums (2004 - 2013) [MP3|320 кб/с]<New age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(10:02) 1. The Healing Path
-(09:58) 2. Sunset In Heaven
-(10:00) 3. Celebrate Yourself
-(10:00) 4. Path Of Silence
-(10:00) 5. Traveling East
-(09:58) 6. New MorningЖанр: New age, Meditative, RelaxПродолжительность: 00:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1B4F6CD31EAB0CCD3BEA19F629773A3601C6F4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 177958   (927953) от 23.02.2010
-
-Bandari - Sunrise Hill (2009) [MP3|320 kbps]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. April
-02. Spirit
-03. Eternal Ring
-04. Holy Water
-05. First Rose in Spring
-06. Limerick
-07. The Foggy Dew
-08. Temple of Pearl
-09. Children Of Atlantis
-10. Shadow on The Sky(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:02:01
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 630185   (928023) от 15.03.2013
-
-Starcraft 2 Heart Of The Swarm OST (2013) MP3|320 кб/с
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-[07:49] 01. Glenn Stafford, Derek Duke, Neal Acree - Corruptors
-[07:13] 02. Cris Velasco, Neal Acree - Heart of the Swarm
-[05:15] 03. Glenn Stafford, Neal Acree - Collateral Damage
-[08:03] 04. Glenn Stafford, Derek Duke, Neal Acree - Fire in the Sky
-[06:19] 05. Glenn Stafford, Derek Duke, Neal Acree - Stronger
-[07:13] 06. Glenn Stafford, Derek Duke, Neal Acree - The Coming Storm
-[07:31] 07. Glenn Stafford, Jason Hayes, Neal Acree - Conscience
-[07:15] 08. Glenn Stafford, Derek Duke, Russell Brower, Neal Acree - Phantoms of the Void
-[06:37] 09. Russell Brower, Neal Acree - He Had it Coming
-[05:57] 10. Glenn Stafford, Derek Duke, Neal Acree - Ascension(   Читать дальше...   )Жанр: OSTПродолжительность: 01:14:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A12AF9ADF5854CFDC633E98D86CFBA7FFD0BB6CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 755477   (928095) от 10.02.2014
-
-Brian Crain - Piano and Light (2011) [FLAC|Lossless]<New Age, Neo-Classical, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Softness and Light   (5:38)
-02.  In the Meadow   (2:53)
-03.  Moonlit Shore   (5:40)
-04.  At the Ivy Gate   (4:53)
-05.  Pastel Garden   (2:53)
-06.  Under the Willow   (4:26)
-07.  Dream of Dreams   (4:20)
-08.  Reflecting Pool   (4:27)
-09.  A Glimmer In Her Eyes   (3:32)
-10.  Imagining   (3:26)(   Читать дальше...   )Жанр: New Age, Neo-Classical, PianoПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8659D611E66D2B3D42DF7FCF014B2CD2D010B767
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 755011   (928153) от 10.02.2014
-
-James Horner - Игры патриотов / Patriot Games (1992) /Limited Edition/ [FLAC|Lossless]<Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - Main Title
- 02 - Attempt on the Royals
- 03 - CNN News Report* / Sean's Interrogation*
- 04 - Kevin Walks Away* / Deadly Lover* / Sean's Trial*
- 05 - Sean Obsessing in Jail* / Highland's Execution
- 06 - Strange Cargo*
- 07 - The Hit
- 08 - Hospital Vigil*/ Jack Returns to CIA* / Studying Sean's File*
- 09 - Arrest of the Bombers
- 10 - Putting the Pieces Together / Reading to Sally* / Sean's Midnight Call*(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B6A9C7C3A32CB451346F35CFE015EE7DD44D6B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 755308   (928262) от 10.02.2014
-
-VA - New Age Style - Space Relax (2011) [MP3|320 кб/с]<Space, Ambient Dub, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Direct 2 Brain - Inner Wave (4:23)
-02. U.P.I. - Escape from confusion (8:20)
-03. Next Logic - Eternal Time (4:36)
-04. Synopsis - Threshold (5:43)
-05. DirecT 2 Brain - Total Immersion (6:50)
-06. Lens Flare - Reflections (6:08)
-07. Direct 2 Brain - Serenity (4:51)
-08. Synopsis - The Silent Moon (7:57)
-09. E-Motion - My Own Space (5:41)
-10. E-MOTION - Emotional Voyage (6:31)(   Читать дальше...   )Жанр: Space, Ambient Dub, New AgeПродолжительность: 07:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D1158A5DE639811BBCB440369827C8A26A10DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 755490   (928274) от 10.02.2014
-
-Anne Dudley - Ancient and Modern (1995) [FLAC|Lossless]<Contemporary Classical, Choral>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Anne Dudley - Canticles Of The Sun And The Moon (05:43)
- 02. Veni Sanctus Spiritus (04:17)
- 03. Communion (04:48)
- 04. Veni Emmanuel (05:05)
- 05. Tallis' Canon (06:57)
- 06. The Holly And The Ivy (05:04)
- 07. Coventry Carol (04:39)
- 08. Prelude (02:42)Жанр: Contemporary Classical, ChoralПродолжительность: 00:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F789CCD80BAF6866C42B33504331B84AF5C8893
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 755359   (928381) от 10.02.2014
-
-Silentx - Path To Freedom (2007) [MP3|192 кб/с]<New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(4:36) 01. The Journey Begins
-(5:03) 02. Silent Cry
-(4:43) 03. The Child Within
-(8:02) 04. Heart Beats
-(6:33) 05. Voice Of Spirit
-(6:44) 06. Reinvention
-(8:38) 07. Path To Freedom
-(6:06) 08. Into The Horizon
-(6:33) 09. Moon Light
-(5:47) 10. The Way Home(   Читать дальше...   )Жанр: New ageПродолжительность: 01:18:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF2C8DF2AB5367341A47C280D5B97C9138D6A0C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 630362   (928465) от 15.03.2013
-
-VA - Hawaiian Paradise (Гавайский рай). Коллекция от Ридерз Дайджест (5CD) (2004) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01. Hawaiian Paradise - Louie King & His South Sea Islanders
-02. Forevermore - Kalua Beach Boys w- Chorus
-03. The Far Lands - Kalua Beach Boys
-04. Sing Me a Song of the Islands - Kalua Beach Boys
-05. Sail Along, Silv'ry Moon - Louis Nunley & Kalua Beach Boys
-06. Flamingo - Kalua Beach Boys
-07. Hawaii Calls - Kalua Beach Boys
-08. Hawaiian War Chant - Louis King & His South Sea Islanders
-09. The Hawaiian Love Call - Kalua Beach Boys w- Chorus(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:29:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDD5D52E8987CBEEE8C0E3A7A5C0FD75A18361D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986121   (928767) от 15.02.2016
-
-VA - Quentin Tarantino's The Hateful Eight / Омерзительная восьмёрка (Original Motion Picture Soundtrack) (2015) Score by Ennio Morricone [FLAC|Lossless|tracks + .cue] <Soundtracks, Classical>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'Ultima Diligenza Di Red Rock (07:33)
-02. Overture (03:12)
-03. "Major Warren Meet Daisy Domergue" (00:33)
-04. Narratore Letterario (02:02)(   Читать дальше...   )Жанр: Soundtracks, ClassicalПродолжительность: 01:12:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35EA36560D8C1A0E09F95651C353C6F48604CD47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986626   (928891) от 15.02.2016
-
-Janis Joplin - Janis Little Girl Blue (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с] <Soundtrack, Blues, Rock>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Janis Joplin - Careless Love (3:07)
-02. Big Brother & The Holding Company - Down On Me (2:03)
-03. Janis Joplin - Women Is Losers (Live) (5:06)
-04. Big Brother & The Holding Company - Ball And Chain (Live) (8:07)(   Читать дальше...   )Жанр: Soundtrack, Blues, RockПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C994BB86B1E2C0DA6EFCF8BF631B1076BA07D4F3
 ```
 
 

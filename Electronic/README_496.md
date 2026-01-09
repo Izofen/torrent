@@ -1,3 +1,164 @@
+###  Публикация: 1349946   (1003797) от 04.01.2020
+
+VA - Best Of Ibiza 2020 [MP3|320 Kbps] <Minimal, Tech House, Funky>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Sassari - Put A Record On (Extended Mix) 5:19
+02. Sneaky Sound System - We Belong (Extended Mix) 5:11
+03. Roger That (Uk) - How Does It Feel (Endor Remix - Extended Mix) 5:46
+04. Robbie Doherty - Pour The Milk (Matt Sassari Remix - Extended Mix) 5:42(   Читать дальше...   )Жанр: Minimal, Tech House, FunkyПродолжительность: 05:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:060C953E511E70ECA3636C73228F2F3D9453060D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350009   (1003810) от 04.01.2020
+
+VA - The Aperitif Party (House Grooves Only) (2020) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003810.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mark Garrett - Report (Sunrise House mix)
+2. Radical Razors - Get Perfect (House mix)
+3. Lorentz 'O - Loop Again (Club Night mix)
+4. Grand Star - Given Some Fain (Dyba's House mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:25:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E09F596B5D2769215F762F5E8C053CF131187844
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487208   (1003857) от 04.08.2021
+
+W O L F C L U B (Wolfclub) - Just Drive - Part 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flashbacks (feat. Dora Pereli) (4:38)
+02. California Days (feat. Dora Pereli) (3:19)
+03. Sunset To Sunrise (feat. Dora Pereli) (3:36)
+04. Crossroads (feat. Dora Pereli) (4:20)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDF151BE958C55F1254001F1C0285563A2BFB2F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487335   (1003882) от 04.08.2021
+
+Midub - The Story Dub (2017) [FLAC|Lossless|tracks] <Dub Techno, Deep Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003882.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Forest Dub (Original Mix)
+2. Horizons Dub (Original Mix)
+3. The Story Dub (Original Mix)Жанр: Dub Techno, Deep Techno, AmbientПродолжительность: 00:20:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C96EB00014A431BF9CE25FCE148AB38D9892D69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232147   (1003921) от 03.01.2020
+
+Na-Hag - Discography 7 Releases (2011-2020) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, IDM, Tribal, Industrial, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Altars In Anthills (07:26)
+ 02. Victim And Executioner (07:46)
+ 03. Amazement (09:58)
+ 04. Righteous Anger (09:39)Тип издания: WebЖанр: Industrial/Tribal/Rhythmic Noise/Dark AmbientПродолжительность: 05:55:38 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A84FBA57F83D11D5AC3EAB206F9839A1D3DD9E9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349809   (1004063) от 03.01.2020
+
+VA - Train with Us, Vol. 1 (2020) [MP3|320 Kbps] <Drum'n'Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flanger Drummer - DnB Check 03:07
+02. NuClear - No Mas 04:02
+03. DMPR - Gloom & Harror 05:14
+04. DUVRTE - Texas Noon 04:21(   Читать дальше...   )Жанр: Drum'n'BassПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93242A01970D97ABAF8A65878221E8588A671A02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349751   (1004064) от 03.01.2020
 
 VA - Best Vocal Chill Out Remixes for 2019 [MP3|320 Kbps] <Balearic, Downtempo>
@@ -529,168 +690,6 @@ Wagon Christ - Lovely (1998) Virgin [FLAC|Lossless|tracks+.cue] <Breakbeat, IDM,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A9D8E94C69DE9C496EC830783A14021AD9B4646
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485836   (1005100) от 28.07.2021
-
-Tentura - Theme Patcher (Remixes) (2014) Uxmal Records [FLAC|Lossless|WEB-DL|tracks] <Breaks, Progressive Trance, Psychill>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme Patcher (07:51)
- 02. Theme Patcher (Unusual Cosmic Process Remix) (07:33)
- 03. Theme Patcher (Phantom Sentinel Remix) (08:39)
- 04. Theme Patcher (Magobee Remix) (08:29)(   Читать дальше...   )Жанр: Breaks, Progressive Trance, PsychillПродолжительность: 00:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:427DFBAF7D925F730A42F10CF6311C8F1C267702
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485684   (1005197) от 27.07.2021
-
-Komarebi - After Effects (2020) Touched Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Electro, Ambient>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drift (04:55)
- 02. Between Zones (04:47)
- 03. Alpha (07:42)
- 04. Hypher (04:28)(   Читать дальше...   )Жанр: IDM, Electro, AmbientПродолжительность: 01:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1D532F59C905F2DD95C10FBA1C6437448B7C42A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485686   (1005199) от 27.07.2021
-
-bvdub - Hard Times, Hard Hearts (2021) AY [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Downtempo, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under Blue Waters (10:30)
-02. On Petrified Skies (09:16)
-03. Over Invisible Walls (19:01)
-04. Inside Infinite Machines (09:25)(   Читать дальше...   )Жанр: Ambient, Downtempo, ExperimentalПродолжительность: 02:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4BC96E8F9271F6DE83B77869E6069A42E0A464
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485679   (1005209) от 27.07.2021
-
-Komarebi - Nebulous (2021) Ping Disc [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Breaks, Downtempo, Ambient>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams (05:40)
- 02. From Darkness (04:50)
- 03. Glacial Shift (05:36)
- 04. Altered Senses (04:45)(   Читать дальше...   )Жанр: IDM, Breaks, Downtempo, AmbientПродолжительность: 00:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4084DEE729EAF375B278222C574F451B2444146
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485824   (1005213) от 27.07.2021
-
-Underwater Sleep Orchestra - The Night and Other Sunken Dreams (2021) Cryo Chamber [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dark Ambient, Field Recording, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Sinkhole (05:15)
- 02. A Sullen Slumber (06:04)
- 03. Worms Within (03:46)
- 04. The Gnawing (05:31)(   Читать дальше...   )Жанр: Ambient, Dark Ambient, Field Recording, DroneПродолжительность: 01:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78FB6CECACC1B808B524F8501DA61253D975165C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485759   (1005216) от 27.07.2021
-
-Aviv Stern - Half Mind (2021) Point Source Electronic Arts [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Glitch, Experimental, Bass>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thick (04:07)
- 02. Herb (04:50)
- 03. Desert (03:04)
- 04. Medicine (04:38)Жанр: IDM, Glitch, Experimental, BassПродолжительность: 00:16:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EDF249FC2607BE8074308A234A733C589256A76
 ```
 
 

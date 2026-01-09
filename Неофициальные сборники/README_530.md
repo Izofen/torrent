@@ -1,3 +1,30 @@
+###  Публикация: 1273665   (799399) от 03.01.2019
+
+VA - Отдохни от праздников (2019) [MP3|320 Kbps] <Soul, Pop, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sade - The Sweetest Taboo
+02. Lenny Williams - 'Cause I Love You
+03. The Isley Brothers - Between the Sheets (Single Version)
+04. Dalton - Soul Brother(   Читать дальше...   )Жанр: Soul, Pop, OtherПродолжительность: 01:07:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63AC5AEA97CC18075F9A2B6EFC1015A2ED9A047
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273593   (799407) от 03.01.2019
 
 Inkubus Sukkubus - Tales of Witchcraft and Wonders.(Vol. 1-3) (2016-2018)[MP3|320 Kbps] <Pagan, Rock>
@@ -668,33 +695,6 @@ VA - Beatport Techno Hypnotic: Sound Pack #88 (2020) [MP3|320 Kbps] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:685CAFF5B238C91154E4D24C1CEE2733FDE5A4AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384837   (800198) от 23.05.2020
-
-VA - Beatport Deep House: Electro Sound Pack #87 (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800198.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sans Souci - Alvaro (Extended Mix)
-002. Ben Lucky - Heartwave
-003. Criptosk - El Heladero
-004. Swedz - Nights (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 12:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8063EFCFB4617A7090637C24126AEFB973517D2
 ```
 
 

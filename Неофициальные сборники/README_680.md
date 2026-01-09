@@ -1,3 +1,30 @@
+###  Публикация: 1443360   (1035771) от 28.01.2021
+
+VA - Beatport Hardstyle: Electro Sound Pack #228 (2021) [MP3|320 Kbps] <Hard Dance, Hardcore, Hardstyle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практически все треки 228-го релиза от Beatport преисполнены бешенными темпами и скоростными семплами, от чего лонгплей превосходно покажет себя на разных клубных площадках. Большое количество электроники наполняет все свободное пространство, тем самым делая музыку прогрессивной и заводной. Надо отметить, что композиции имеют прогрессивный звук, качественные аранжировки, (   Читать дальше...   )001. Xense - Welcome To My World
+002. Nuk3Dom - Goin' Down
+003. Adam Frantic - Colour Of Sound
+004. Audio Damage - Stand Up(   Читать дальше...   )Жанр: Hard Dance, Hardcore, HardstyleПродолжительность: 08:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F0F3FE4B3FEF7B2A1F4D68B93897D0C4EDBCB31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443356   (1035773) от 28.01.2021
 
 VA - Beatport Tech House: Electro Sound Pack #227 (2021) [MP3|320 Kbps] <Tech House, Electro>
@@ -668,33 +695,6 @@ VA - Музыка для машины Vol.10 (2023) [MP3|320 Kbps] <Pop, Dance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEC101A8C8D06964EF64DBE353DA7F5E39BCF206
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615745   (1036978) от 28.02.2023
-
-Everybody Loves An Outlaw - Compilation (2023) [MP3|320 Kbps] <Rock, Pop Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood on a Rose
-02. I See Red Instrumental
-03. Everybody Loves an Outlaw
-04. Wicked Ways(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:28:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02694C093284EDFE549FBA7E990CF8ECF1A9464F
 ```
 
 

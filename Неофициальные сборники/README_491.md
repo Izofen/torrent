@@ -1,3 +1,30 @@
+###  Публикация: 1125585   (768096) от 15.04.2017
+
+VA - Visual Image: Extended Trance Mix (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768096.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Above & Beyond - A.I. (Original Mix) 06:29
+002. Manuel Rocca - Against The Wind (Braulio Stefield Remix) 07:36
+003. Lignum - Our Destination (Radio Edit) 03:12
+004. Above & Beyond, Justine Suissa - Little Something (Super8 & Tab Remix) 06:11(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 09:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FEA5762FE3BFA061E561D00BB9B67A5797B50C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213454   (768155) от 17.03.2018
 
 VA - ЕвроХит Топ 40 Europa Plus 16.03.2018 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -666,33 +693,6 @@ VA - Правильная музыка радио Шансон (2016) [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B24B9F10C1D9247BE80FA23FFDC230AD8F05F3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016815   (769566) от 15.05.2016
-
-VA - Smooth Jazz: Behind Closed Doors Vol.1 (2016) [MP3|320 кб/с] <Jazz, Lounge>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sister Paris - Dream Chaser - Ambient Passion Mix
-02. CoolCut - Please Come Home - Snip & Slap Mix
-03. Deechiller - City Lights - Extended Mix
-04. Hamilton Selfish - So Simple - Vocal Mix(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 01:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F17420FBB1253D9AD7100FA17C1B94011F486BB4
 ```
 
 

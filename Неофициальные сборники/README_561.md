@@ -1,3 +1,30 @@
+###  Публикация: 1378631   (844803) от 26.04.2020
+
+VA - Record Super Chart 633 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Big - UNO 2:41
+02. Billie Eilish - Everything I Wanted (Arroy & Sergey Raf Remix) 3:28
+03. El Capon - Shut Up Chicken 2:31
+04. NRD1 - All Good Things (Come To An End) 3:27(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABCA5E1F63A1670E6B88952342483B227558231C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378671   (844804) от 26.04.2020
 
 VA - Hard Fusion: Hardstyle Music For Sport (2020) [MP3|320 Kbps] <Hardstyle, Dance, Electro>
@@ -668,33 +695,6 @@ Livin' Blues - 100% Livin' Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2F18660F9E9AFFD6D09458EB5E494F847E5EACC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378276   (846457) от 25.04.2020
-
-Andru Donalds - Great Artists of My Heart Vol. 03 (2020) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846457.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:29| 01. Andru Donalds - Just For One Day
-|03:45| 02. Andru Donalds - Holdin' On To You
-|04:00| 03. Andru Donalds - Mishale
-|04:21| 04. Andru Donalds - Better Way(   Читать дальше...   )Жанр: PopПродолжительность: 02:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F094CE54973DA3E582E137BDE8F2D041C0EFC5C
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1037960   (610108) от 26.07.2016
+
+VA - 538 Dance Smash 2016 Festival Edition (2016)2CD [FLAC|Lossless|image + .cue] <House, Club, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Garrix & Third Party - Lions in the wild (03:30)
+02. Otto Knows & Avicii - Back where I belong (02:53)
+03. Lucas & Steve - Can't get enough (02:36)
+04. Sam Feldt, Wulf, Lucas & Steve - Summer on you (02:40)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5443F9182DCA43E92DC594090543B2A62459B1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296592   (610131) от 18.04.2019
+
+VA - Sonic Alchemy (Mixed by Chris Hampshire) (2019) [MP3|320 Kbps] <Techno>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guillermo DR - Only Attack (Original Mix) (08:20)
+02. Active Lab - Test Subject (Original Mix) (07:02)
+03. Casey Rasch - Werun (Original Mix) (07:27)
+04. Cenk Basaran - The Creator (Original Mix) (06:52)(   Читать дальше...   )Жанр: TechnoПродолжительность: 03:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39F7522ABDC926040E1B14B1748D6A79894DB37B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296689   (610134) от 18.04.2019
+
+Jens Buchert - Exoplanet (2019) Dimension Music [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep Space House, Ambient Dub>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exoplanet (5:15)
+ 02. Arcticon (4:51)
+ 03. Worldrone (6:11)
+ 04. Icelander (5:29)(   Читать дальше...   )Жанр: Electronic, Deep Space House, Ambient DubПродолжительность: 00:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED06C8982471AD8E69AA470E61460E836C0F8A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296119   (610135) от 18.04.2019
+
+VA - Made In Germany Vol. 1 - A German Synthwave Compilation (2017) [FLAC 2.0|44.1, 48/16, 24|tracks] <Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alpha Boy - Intro (0:27)
+02. LeveL -1 - Wasteland Motor Race (3:54)
+03. Street Hawk - Dreamrunner (6:18)
+04. Superflight - Outline (3:03)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA346CACB71C4933C688E95D01C3C10C030F1D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188676   (610200) от 15.06.2018
+
+TEVOL - Label-Pack 4 Releases (2016-2017) [FLAC|Lossless|tracks] <Dub Techno, Minimal, Techno>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Greev (08:49)
+ 02. Greev (Idealist remix) (06:35)
+ 03. Sofar (08:36)
+ 04. Sofar (Andre Kronert remix) (06:54)Жанр: Techno/Deep TechnoПродолжительность: 00:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10C1D197D8071CD87C77FE8B7A6AE8E038405D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296533   (610226) от 18.04.2019
 
 VA - Synthwave, Vol. 4 (2016) [MP3|320 Kbps] <Synthwave, Retrowave>
@@ -572,141 +707,6 @@ VA - Techno Club Vol.54 - (Mixed By Talla 2XLC & Neelix) (2018) [MP3|~ 247-252] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADED5EB714A1BEC0B2894A8FE9B0A47C420A73DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230833   (612340) от 14.06.2018
-
-Yarn - Undiscovered Places (2018) [MP3|320 Kbps] <Ambient, Psychill, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mushroom Valley 10:02
-02.Dreamcatcher 04:28
-03.Cross the Swamp 05:40
-04.Shelter 06:39(   Читать дальше...   )Жанр: Ambient, Psychill, DowntempoПродолжительность: 01:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BFABFA1DD3C752D3A5481FFF2E934A7D68BB66E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230676   (612341) от 14.06.2018
-
-Martin Stig Andersen - Discography 4 Releases (2004-2011) Usagi [FLAC|Lossless|WEB-DL|tracks] <Experimental, Ambient, Drone, Abstract>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Menu (03:10)
- 02. Boys' Fort (02:17)
- 03. City (03:38)
- 04. Rotating Room (03:03)(   Читать дальше...   )Тип издания: WebЖанр: Soundtrack/Musique Concrete/ExperimentalПродолжительность: 00:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA8DA1DD159FCB0D9DFDFDD1F201892FBCE736CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912200   (612902) от 25.06.2015
-
-Dense - Splendensity, Vol. 1 (2015) [MP3|320 кб/с]<Ambient, PsyChill, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GMO & Dense - Shell And Seal (Dense Remix) 6:31
-02. The Great Unknown (Mystic Crock Remix) 6:40
-03. Mystic Crock - Awakening (Dense Remix) 9:17
-04. Return 7:37(   Читать дальше...   )Жанр: Ambient, PsyChill, DowntempoПродолжительность: 00:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E495E1CAD4CFFBE6DA9A021242BED17F3222EA84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146796   (612965) от 30.06.2017
-
-VA - Sensual Mood Lounge Vol.8 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Charly McLion - Open Sky (Original Mix)  3:57
-02.  Euphonic Traveller - Moro Bay (Original Mix)  8:19
-03.  Florzinho - A La Luna (Original Mix)  4:49
-04.  Camiel - Sigueme (Original Mix)  3:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15D509B8211095971684F7658B5F4463FDD9B4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545354   (613021) от 20.04.2022
-
-WineSmoke - DreamPop (2021) [MP3|320 Kbps] <Synthpop, Electropop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прости нас, Юра
-02. Когда хочу, тогда и дура
-03. Разберись уже с этим
-04. Помолчи со мной о чём-нибудь(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 00:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59B3525C3490A7D6061CF22270F38EC762244D2F
 ```
 
 

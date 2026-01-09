@@ -1,3 +1,165 @@
+###  Публикация: 1009671   (807984) от 22.04.2016
+
+Roger Shah - Music For Meditation, Yoga & Other Wellbeing Moments (2016) [MP3|320 кб/с] <Ambient, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Close Your Eyes (7:17)
+02. Inner Peace (7:06)
+03. Island of Calm (8:02)
+04. Quiet Your Mind (7:00)(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 01:17:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DAD877FB2FDAFAABEE6F129490B42575D007CB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383854   (808001) от 17.05.2020
+
+VA - Outliers​:​1 (2020) Samurai Music [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, Experimental>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancestral Voices - Primal Plane (08:24)
+ 02. ASC - Fall Into Place (07:01)
+ 03. ENA - Dipteran (Sam KDC Remix) (05:50)
+ 04. The Untouchables - Bushi Ronin VIP (05:20)(   Читать дальше...   )Жанр: Drum n Bass, ExperimentalПродолжительность: 02:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB183C569404FA393FE75C33C554D38D6D207F87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009871   (808116) от 22.04.2016
+
+VA - Global Underground: Afterhours (2016) [MP3|320 кб/с] <House, Deep House, Downtempo, Chillout>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superpitcher - Moon Fever (Lawrence Ambient Mix)
+02. Gidge - Dusk
+03. Ambassadeurs - Looking At You (feat. C Duncan)
+04. Rival Consoles - Recovery (Vessels Remix)(   Читать дальше...   )Жанр: House, Deep House, Downtempo, ChilloutПродолжительность: 06:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25DC125039AC8F51BDE401E68869B599304482E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009664   (808123) от 22.04.2016
+
+VA - Milchbar - Seaside Season 8 (Compiled By Blank & Jones) (2016) [MP3|320 кб/с] <Downtempo, Ambient, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Borneland - Eyes (Extended Version) (5:40)
+02. Afterlife - Ten Thousand Things (5:17)
+03. Blank & Jones - April (Milchbar Mix) (4:31)
+04. Nick & Samantha - Sambala (4:22)(   Читать дальше...   )Жанр: Downtempo, Ambient, ChilloutПродолжительность: 01:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9691F04009F40961856F745C0843B5CF2D0C68E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383743   (808137) от 17.05.2020
+
+VA - Progressive House Trance 2020 Top 40 Chart Hits, Vol. 2 DJ Mix 3Hr (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808137.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Goa Doc - Progressive House Trance 2020 Vol 2 (3Hr DJ mix) (3:00:00)
+2. Shivaratri;Astro-D - Psyhorn (Progressive House Trance 2020, Vol. 2 DJ Remixed) (6:34)
+3. Te Tuna - Crop Circles (Progressive House Trance 2020, Vol. 2 DJ Mixed) (5:57)
+4. Psynosis - Waldhutte (Progressive House Trance 2020, Vol. 2 DJ Mixed) (6:39)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 06:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EFBE45DAD379D31F711C079F5310D9B6310D5B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383857   (808141) от 17.05.2020
+
+Pessimist - Pessimist Discography 2011 - 2016 (2019) Pessimist Productions [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abstract (06:46)
+ 02. Short Sighted (06:11)
+ 03. Hypnosis Ft. Understate (05:56)
+ 04. Girl Wants A Biscuit (06:21)(   Читать дальше...   )Жанр: Drum n BassПродолжительность: 01:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312C172BAB92080C8577659275C130586212BC67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383827   (808144) от 17.05.2020
 
 VA - Ibiza Megamix 2020 [MP3|320 Kbps] <Funky, Club House>
@@ -528,168 +690,6 @@ VA - The Best Of Turbotronic: Mega Compilation Album (2017) [MP3|320 Kbps] <Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37D9704510B7213FD389ABFE65CFEE120EBB6960
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009415   (810168) от 21.04.2016
-
-VA - EDM Club Tracks Part 3 (2016) [MP3|320 кб/с] <House, Progressive House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Combo - Party Hard (Stephan F Remix) (feat. MC Duro) 05:21
-02. Tosch - DJ Banger (Club Version) 06:47
-03. Afrochuck - The Dirty Workout Plan (Extended Cardio Mix) 04:48
-04. Nastyz - Tonight 04:55(   Читать дальше...   )Жанр: House, Progressive House, Electro HouseПродолжительность: 02:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:601E124C43A670B867893620C5098A1E585B9C32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198080   (810250) от 10.01.2018
-
-VA - Progressive House Winter Essentials (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Marsh  -  Face To Face (Airdraw Intro Remix)  5:42
-02.  LTN  -  Wondering Soul (Original Mix)  5:15
-03.  Blugazer & The Cynic Project  -  Queenscapes (Original Mix)  7:26
-04.  Shingo Nakamura & RNX  -  Oregon (RNX Mix)  5:30(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:710A40D3A5FCE895E0EAB1999C0A3B35C8D183B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198274   (810255) от 10.01.2018
-
-Billow Observatory - II: Plains/Patterns (2017) Azure Vista Records [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pulsus (08:21)
-02. Kercheval (08:26)
-03. Nulstil (05:33)
-04. Plains (09:53)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31EA11761A6C16B202D1E96E27A994995E67DAAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198277   (810256) от 10.01.2018
-
-Angel 1 - Terra Nova (2017) Constellation Tatsu [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speed (10:18)
-02. Volunteering (07:04)
-03. The German Idea of Freedom (06:32)
-04. Apple-tini (08:47)(   Читать дальше...   )Жанр: Ambient, Downtempo, ExperimentalПродолжительность: 00:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E968D999F5A9FBF711C36FBEA3914522CA3408
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198269   (810265) от 10.01.2018
-
-Acronym - Malm (2017) Field Records [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paranoia (09:48)
-02. Inner Conflict (05:55)
-03. The Final Decision (07:26)
-04. Rails (06:02)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:874169611615CE39B4A58DF5C50976A27BD70533
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009351   (810295) от 21.04.2016
-
-VA - Venera Music Vol.5 (2016) [MP3|320 кб/с] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filek - All Be O.K. 06:11
-02. FreshwaveZ - Time of Happiness 04:33
-03. Highland Bird - Far 04:09
-04. J.A. Project - Can't Go Back in Time 04:08(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6762316DCCAA3C16A9FED3E610B03ABE1875A6C
 ```
 
 

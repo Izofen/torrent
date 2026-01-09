@@ -1,3 +1,164 @@
+###  Публикация: 971138   (984599) от 04.01.2016
+
+VA - Club 86 Recordings Best Of (2015) [MP3|320 кб/с] <House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burdan - Father (07:31)
+02. Chantola - Miami Burning (05:51)
+03. Klaukenberg - Walk Of Shame (05:39)
+04. Kantholz - Motel Star (06:05)(   Читать дальше...   )Производство: Club 86 RecordingsЖанр: House, Club HouseПродолжительность: 01:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:442F9A784A01C4498A6D163A64891AE1C459D660
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971737   (984651) от 04.01.2016
+
+Dirty Vegas - Days Go By (2002) [FLAC|Lossless|tracks + .cue] <Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984651.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dirty Vegas - Days Go By (7:12)
+ 2. Dirty Vegas - Days Go By (Scumfrog Vocal Remix) (7:09)
+ 3. Dirty Vegas - Days Go By (Paul Oakenfold Vocal Remix) (5:32)Жанр: Progressive House, Deep HouseПродолжительность: 00:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE33F70C2AA9848D550C45D1453170AFCA91A13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971881   (984682) от 04.01.2016
+
+VA - Havana Lounge (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqua Mundi - Simple ou double [05:33]
+02. Rex Kramer - Chanoyu [04:50]
+03. Bahia de Roses - Desde el Mar [03:55]
+04. The Tonal - Eastern Sun [03:07](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F276BEA89A7092F6B40CD7130C9CA0F8500B1ED9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971885   (984699) от 04.01.2016
+
+VA - Delicate Lounge (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Bliss - Sway with Me [03:16]
+02. Spirit, Sound & Vision - Early Morning [04:37]
+03. Chillout In Turin - Murazzi Lounge Vibes [04:24]
+04. Schwarz & Funk - Sheela & Luna [04:59](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B41B759885CC583886A71449265741F06AA35D14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355173   (984744) от 25.01.2020
+
+Pet Shop Boys - Hotspot (2020) 2CD Special Edition [FLAC|Lossless|tracks + .cue] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. Will-o-the-wisp
+02. You are the one
+03. Happy people(   Читать дальше...   )Жанр: Synthpop |Продолжительность: 01:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D216F7121C249B88E1843E2AB1A8A903BC239D9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355163   (984915) от 25.01.2020
+
+VA - Black Hole Trance Music 01-20 (2020) [MP3|320 Kbps] <Trance, UpliftingTrance, ProgressiveTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert Nickson - Blue Encounter (Extended Mix) 8:01
+02. Obie Fernandez - So Far Away (Extended Mix) 6:28
+03. Markus Schulz - Sunrise Over The Bay (Extended Mix) 6:39
+04. Somna - Never Feel Lost (Extended Mix) 6:31(   Читать дальше...   )Жанр: Trance, UpliftingTrance, ProgressiveTranceПродолжительность: 02:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F12C4CF76234DC89601C34FD1670253E6952113
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355159   (984981) от 25.01.2020
 
 VA - Black Hole House Music 01-20 (2020) [MP3|320 Kbps] <House, Progressive House, Deep House>
@@ -569,168 +730,6 @@ CD1
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354082   (989054) от 21.01.2020
-
-Space Project - The Return Of Space Raiders (2008) [FLAC|Lossless|image + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989054.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 The Return Of Space Raiders (Original Version) 6:48
-2 The Return Of Space Raiders (Staffan Öhman Remix) 6:54
-3 The Return Of Space Raiders (mindXpander Remix) 8:08
-4 The Return Of Space Raiders (Marco Rochowski Remix) 7:09(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAD137E8949C4CACFDAFD5DB94DF784F5A55C695
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610455   (990323) от 29.01.2013
-
-Martin Roth - Beautiful Life / Make Love To Me Baby (2012) [FLAC|Lossless]<Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Life (8:15)
-02. Make Love To Me Baby (9:33)Жанр: Deep HouseПродолжительность: 00:17:47
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610450   (990378) от 29.01.2013
-
-Full Tilt - Take Me Away (2012) [FLAC|Lossless]<Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me Away (Original Mix) (7:17)
-02. Take Me Away (Andrew Bayer & James Grant Remix) (6:16)Жанр: Progressive HouseПродолжительность: 00:13:33
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606874   (990447) от 29.01.2013
-
-Lawrence - Jill (2009) [FLAC|Lossless]<Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 		Jill 	6:53
-02. 		Jill (Reprise) 	4:06
-03. 		Hamtramck 	6:39
-04. 		Sunrise 	4:24Жанр: Deep HouseПродолжительность: 00:22:01
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608308   (990498) от 29.01.2013
-
-Jamie Stevens - The Night Before (2003) [FLAC|Lossless]<Progressive House, Progressive Breaks>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Night Before (Original Mix) 09:30
-02. The Night Before (Momu Remix) 09:34Жанр: Progressive House, Progressive BreaksПродолжительность: 00:19:01
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610272   (990511) от 29.01.2013
-
-VA - Zirkus Zirkus Vol.1: Elektronische Tanzmusik (2013) [MP3|320 кб/с]<House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliver Schories - Archipel
-02. Marc De Vole & Patrick Muschiol - Ein Tag Im Herbst (feat Charly - Rodriguez Jr remix)
-03. Oliver Schleenvoigt - Gerissene Rolle (Neurotron remix)
-04. David Durango - Speak Time
-05. Till von Sein - Injoy
-06. BarBQ - My Pink Motor Boat
-07. Matzak - African Roots (Rodriguez Jr remix)
-08. Quinto - It Is What
-09. Satoshi Fumi - Asiantam (Takaaki Tsuchiya remix)
-10. Dave Pad - Going Nowhere(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 03:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE8926424D5D1911E00F08D4C03AA97233B9B5CD
 ```
 
 

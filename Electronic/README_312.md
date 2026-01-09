@@ -1,3 +1,144 @@
+###  Публикация: 1545426   (614688) от 19.04.2022
+
+VA - Black Hole Trance Music 04-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. XiJaro & Pitch - Rescue Me (Extended Mix) [07:18]
+02. Cosmic Gate - Retrospection (Extended Mix) [06:51]
+03. Paul Ryan - Stars (Solarstone Extended Retouch) [06:55]
+04. Activa - Return to Life (Roman Messer Extended Remix) [06:06](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D07DC86E5BC295E0C22AFFAAC57EECA712BBC9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545313   (614690) от 19.04.2022
+
+Давид Тухманов, Электроклуб - Тёмная лошадка (2007) [FLAC|Lossless|tracks + .cue] <Synth-pop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нервы, нервы...
+02. Воздушные замки
+03. Чистые пруды
+04. Но всё-таки лето(   Читать дальше...   )Жанр: Synth-pop, New WaveПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3046DE19CDD31FBF46E66E529DA86D0C588900C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146022   (614768) от 29.06.2017
+
+Гектор Мукомол - Погружение (2002) [FLAC|Lossless|image + .cue] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Глубина (10:11)
+02. Долина Любви (13:13)
+03. Лабиринт (6:18)
+04. Колыбельная (9:21)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:02:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE04106EFA740B7F43EC9A2672503B25B4F8F1B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296149   (614932) от 15.04.2019
+
+Moby - Long Ambients Two (2019) Little Idiot [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LA12 (47:03)
+ 02. LA13 (26:56)
+ 03. LA14 (39:18)
+ 04. LA15 (32:07)(   Читать дальше...   )Жанр: AmbientПродолжительность: 03:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43024BF7348AE9158E2D88717C4D6413B3B838CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524270   (615096) от 17.07.2012
+
+DJ JIM - Sirena Mix (2012) [MP3|320 кб/с] <Electro House, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daddy's Groove ft. Skin - Crazy (Wild World)(Cryogenix Remix)
+02. Offer Nissim - Happy People (Playmen Remix)
+03. Adrian Lux ft. Dante - Burning (Carli Remix)
+04. City Shakerz - Love Somebody (Marc Van Damme & Nick Otronic Remix)
+05. Cardiobeats - Funkin'Em Up (Original Mix)
+06. Chris Ride - Touch It Now (Original Mix)
+07. Jean Elan vs. William Naraine - I Don't Care (John Van Doe Remix)
+08. Damien N-Drix - Get Ready (Original Mix)
+09. Brodlek & Tamolotof - Outgoing (Original Mix)
+10. Pablo Kopanos & Nick Harvin - One Life (Panda Rock Mix)(   Читать дальше...   )Жанр: Electro House, HouseПродолжительность: 01:03:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F24E9400A9463EE9B5D3A2A2F1FF8ECCB85B6395
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296030   (615143) от 15.04.2019
 
 VA - 35 Spring Top Hits 2019 For Fitness & Workout (2019) [MP3|320 Kbps] <Funky, Club House>
@@ -557,141 +698,6 @@ VA - Main Stage Festival (2017) [MP3|320 Kbps] <House, Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DDCF24FEACBCC8901C7BAC47D8A45E2664EE268
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 209157   (616642) от 14.04.2019
-
-VA - Pumping Storm 7 Special Release (2010) [MP3|160-320 kbps]<Hardbass, Pumping House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616642.jpg" />
-</div>
-
-
-###  Подробнее
-
-00. INTRO PUMPING STORM 7!
-01. XS Project – The Real Bass!
-02. XS Project – Pumping Storm ( Dj Relakz Rmx )
-03. BEAT OF BASS (feat. Dj dANGER) – Hard Bass Power(   Читать дальше...   )Жанр: Hardbass, Pumping HouseПродолжительность: 01:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D8D1C2B9A8B1045C3896231BF5CB7BFCA35B9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295907   (616909) от 14.04.2019
-
-VA - Trance Top 1000: Chill Edition (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Trance>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren feat. Trevor Guthrie - This Is What It Feels Like (John Ewbank Classical Remix)
-02. Chicane feat. Moya Brennan - Saltwater (The Thrillseekers Remix)
-03. Gareth Emery - I Could Be Stronger (But Only For You) (Original Mix)
-04. Delerium feat. Sarah McLachlan - Silence (Acoustic Mix)(   Читать дальше...   )Жанр: Downtempo, ChillOut, TranceПродолжительность: 03:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E5D7722C13CAAFAD6911449B1441C4C878AD1DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143435   (616922) от 14.04.2019
-
-Jaime Irles (Known Rebel) - Discography (2015-2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, IDM, Breaks, Techno, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fierce (04:42)
- 02. Getaway (Feat. Orgar) (03:32)
- 03. Undo (Feat. Orgar) (04:30)
- 04. Hypnos (Feat. German Escandell) (05:56)(   Читать дальше...   )Тип издания: WEBЖанр: Breaks/Downtempo/IDM/Techno/AmbientПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5DCD2C19FBC9B80142BCF6F457000687CD25E88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295801   (617017) от 14.04.2019
-
-VA - Black Hole Trance Music (04-19) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate & Foret - Need To Feel Loved (Extended Mix) 06:52
-02. Dustin Husain - Hour Of Twilight (Extended Mix) 07:15
-03. Eddie Murray feat. Veronica Moran - Adrift (Extended Mix) 06:43
-04. Formal One - Be Like Me (Extended Mix) 06:15(   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78DD0C7E256DF3A66BEA6BF488B5ED7BCD97752B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295761   (617089) от 14.04.2019
-
-VA - The Beatless Collection Vol. 1 (2008) Elektrolux [FLAC|Lossless|tracks+.cue] <Ambient, Downtempo, Electro>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subsonic Park - X-ident (06:18)
- 02. Joris Voorn - This Is Our Fiction (02:00)
- 03. Hiroshi Watanabe - Genesis (Beatless Version) (05:22)
- 04. Subsonic Park - After Dark (Video Edit) (08:15)(   Читать дальше...   )Жанр: Ambient, Downtempo, ElectroПродолжительность: 01:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F46CD9F7BEEABC17C752E858034E55A5C50564
 ```
 
 

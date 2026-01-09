@@ -1,3 +1,30 @@
+###  Публикация: 1394387   (763713) от 05.07.2020
+
+VA - Music for You vol.11 (2020) [MP3|320 Kbps] <Rock, Progressive Metal, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergey Golovin - Charger (04:05)
+ 02. Stellar Circuits - Skylights (03:57)
+ 03. Nova Collective - Dancing Machines (09:47)
+ 04. Thank Your Scientist - Wrinkle (02:32)(   Читать дальше...   )Жанр: Rock, Progressive Metal, OtherПродолжительность: 04:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31789775D45ADEFFFEC5CAB893C98BBB1FA32D4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394177   (763717) от 05.07.2020
 
 VA - ЕвроХит Топ 40 Europa Plus 03.07.2020 [MP3|320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ VA - Better World (2019) [MP3|320 Kbps] <Reggae, Dub, SKA>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AA8692AD31B15922C6C7C3D27B1C756F67CCF50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279715   (764534) от 31.01.2019
-
-VA - Hands Up Dance Music (2019) [MP3|320 Kbps] <Dance, Club, Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764534.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cezаrаni - Brаve
-002. Briаn Theоdоre - Originаl Gаngstа Mke
-003. Christiаn Bаrtаsek - Hаnds Uр
-004. Abсd - Pаssiоn(   Читать дальше...   )Жанр: Dance, Club, Electro HouseПродолжительность: 08 :19 :02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547CABCE8BED753E7372467E23773B92AA08DB95
 ```
 
 

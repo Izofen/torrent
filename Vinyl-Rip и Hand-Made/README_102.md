@@ -1,3 +1,30 @@
+###  Публикация: 1843047   (1048973) от 18.12.2025
+
+Vhaldemar (Vhäldemar) - Studio Albums (7 releases) (2002-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vhäldemar - испанская пауэр-метал группа, образованная в 1999 году.2002 - Fight To The End
+2003 - I Made My Own Hell
+2011 - Metal Of The World
+2013 - Shadows Of CombatЖанр: Power MetalПродолжительность: 05:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CBB60D2E8EE486F2A1A58ACEAAB54B245947BF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843977   (1049799) от 23.12.2025
 
 Orange Goblin - Studio Albums (10 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Stoner Metal>
@@ -209,6 +236,137 @@ Kaunis Kuolematon - метал-группа из Финляндии, образ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CDA80B9E86F4B9D53C56471ECB828D1554A44EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845558   (1050827) от 
+
+End of Aeon - Studio Albums (2 releases) (2012-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050827.jpg" />
+</div>
+
+
+###  Подробнее
+
+End of Aeon - финская метал-группа, участники которой также входят в состав групп Sinamore и Kaunis Kuolematon2012 - Ever
+2016 - Through Infant EyesЖанр: Melodic Doom/Death MetalПродолжительность: 01:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C1C3607B2C5BC7F0B53B9EEE2BAA777E8BF4FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845545   (1050835) от 
+
+Sinamore - Studio Albums (2 releases) (2006-2007) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Metal/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sinamore - финская метал-группа, основанная в 2004 году, из участников которой впоследствии была сформирована группа Kaunis Kuolematon2006 - A New Day
+2007 - Seven Sins a SecondЖанр: Gothic Metal/RockПродолжительность: 01:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C7FE65827C0D5AEDF52D9631CD1D02431B9D179
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845776   (1051000) от 
+
+Miss May I - Studio Albums (9 releases) (2007-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Miss May I - американская метал-группа из города Трой, штат Огайо. Основана в 2007 году.2007 - Vows for a Massacre (EP)
+2009 - Apologies Are For The Weak
+2011 - Monument
+2012 - At HeartЖанр: MetalcoreПродолжительность: 05:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85FA17A1B59F9927BDBEBD12ECB9E23405D36F74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846433   (1051342) от 
+
+Entwine - Studio Albums (8 releases) (1999-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Entwine - финская рок-группа из Лахти, основанная в 1997 году.1999 - The Treasures Within Hearts
+2001 - Gone
+2002 - Time Of Despair
+2004 - DiEversityЖанр: Gothic MetalПродолжительность: 06:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BEF360E09BBD9913A8B8D5D7E86A3C5BA741D3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846733   (1051663) от 
+
+Dew-Scented - Studio Albums (11 releases) (1996-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dew-Scented — метал-группа из немецкого города Брауншвейг. Сформирована в 1992 году.1996 - Immortelle
+1998 - Innoscent
+1999 - Ill-Natured
+2002 - InwardsЖанр: Thrash/Death MetalПродолжительность: 08:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA4E6028878DF71FFA70447919DFEAFD2C049EA3
 ```
 
 

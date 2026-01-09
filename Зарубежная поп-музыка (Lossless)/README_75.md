@@ -1,3 +1,30 @@
+###  Публикация: 1507667   (798220) от 05.11.2021
+
+ABBA - Voyage (2021) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Still Have Faith In You (05:09)
+ 02. When You Danced With Me (02:50)
+ 03. Little Things (03:08)
+ 04. Don't Shut Me Down (03:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0C460E3FF37E2D1F9E306F5C17893EE7E19BE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507598   (798243) от 05.11.2021
 
 ABBA - Voyage (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -667,33 +694,6 @@ Duran Duran - Greatest (1998) [FLAC|Lossless]<Pop, New Wave>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009975   (805564) от 23.04.2016
-
-VA - Radio 538 Hitzone 77 (2016) 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный Нидерландский лейбл Радио 538 продолжает в этом году свою серию двухдисковым сетом новинок популярной музыки. Довольно регулярно на трекере публикуются эти новинки. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию.CD1:
-01. Dua Lipa - Be The One  (3:24)
-02. Coldplay -  Hymn For The Weekend  (4:21)
-03. Fifth Harmony feat. Ty Dolla Sign - Work From Home  (3:38)(   Читать дальше...   )Жанр: Top 40, Pop, RockПродолжительность: 02:31:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD27BB68E39FCFDFCF08699ABE1BFE4DCB98C91
 ```
 
 

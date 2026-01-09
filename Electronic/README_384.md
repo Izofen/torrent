@@ -1,3 +1,165 @@
+###  Публикация: 1393154   (766852) от 01.07.2020
+
+Depeche Mode - LiVE SPiRiTS SOUNDTRACK (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, Alternative Rock, Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766852.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro (LiVE SPiRiTS) (2:31)
+2. Going Backwards (LiVE SPiRiTS) (6:12)
+3. It's No Good (LiVE SPiRiTS) (4:57)
+4. A Pain That I'm Used To (LiVE SPiRiTS) (4:29)(   Читать дальше...   )Жанр: Electronic, Synthpop, Alternative Rock, PopПродолжительность: 01:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE653D4C09F9BE4EACBAE88C50FA9DE77E93D25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393629   (766903) от 01.07.2020
+
+V.A. - Best Of Del Mar Vol.9: Beautiful Chill Sound (2020) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, ChillOut, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Maretimo & Citrus Jam - Flower (Blue Ocean Cut)
+02. Frank Borell - Vibes Del Mar (Airwaves Mix)
+03. Stereo Gringos - Machine Mexicano (Latin Lounge Cut)
+04. Jazz City - Balearic Islands (Laidback Beach Cut)(   Читать дальше...   )Жанр: Downtempo, ChillOut, LoungeПродолжительность: 01:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7808A4CF4B58106B5AF476AD8E24F1C5EFD55322
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393601   (766945) от 01.07.2020
+
+VA - Powerwalk 2020 [MP3|320 Kbps] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alesso, Tove Lo - Heroes (we could be) (03:35)
+02. ZEDD, Foxes - Clarity (04:28)
+03. Alexander Oscar - Bad Intentions (Faustix Remix) (02:37)
+04. Sebastian Ingrosso, Tommy Trash, John Martin - Reload (Radio Edit) (03:50)(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:986E6B3C6D4F5E109B3AD7817E47BCCB8FEBE4D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393626   (766952) от 01.07.2020
+
+Kyau & Albert - Anjunabeats Worldwide 681 (2020-06-22) [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766952.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Jon Gurd - Together
+2. Matt Fax feat. LEVV - Always You
+3. Grum feat. Nicole Dash Jones - Home
+4. Rick & Morty feat. Kotomi & Ryan Elder - Don’t Look BackЖанр: Trance, Progressive HouseПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8083A8F66A7E69CE740998ED02F38C68527F450
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125811   (766967) от 16.04.2017
+
+VA - Space Odyssey. First Human In Space (2017) [MP3|320 Kbps] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zona-X - Intro (00:54)
+02. Ray Orion - Mystery Of 3 Planets (04:48)
+03. SynthOne - Cosmodroom (05:40)
+04. Amateon - Journey To The Sun (03:36)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:18:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0978B391D9DBAE6F4F4908850D047DF6DBEB164
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279110   (766983) от 28.01.2019
+
+Sangam - You Make Me (2019) Kudatah [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Export (03:53)
+ 02. Here with You (04:26)
+ 03. Miserable (02:15)
+ 04. Set Aside (04:04)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF96D8731A420DA70D24FD94AE29FB96454EABC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125860   (767130) от 16.04.2017
 
 VA - Lovely Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -533,168 +695,6 @@ Afterlife - Reimagine (2017) [MP3|320 Kbps] <Electronic, Ambient, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B3D0F3F4C9A1AD730CB9BE4E587F62FC84F2019
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125674   (768066) от 15.04.2017
-
-VA - Spring Lounge 2017: Chill Sounds Like Sunshine (Mixed by DJ Maretimo) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Maretimo - The Midnight Hour (feat. Vladi Strecker) (Zero O'Clock Mix)  8:56
-02.  Frank Borell - Tibetan Tears (Eurasia Mix)  6:07
-03.  Island Sun - Time (Sunset Mix)  5:44
-04.  Cafe Americaine - In Your Fantasy (Playa de Palma Mix)  5:23(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64B42F97C98288DFD99B22B37E3A464E0A2C486
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125587   (768068) от 15.04.2017
-
-VA - Special Sport Songs 7 (2017) [MP3|320 Kbps] <House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hr Troels - Chameleon (Radio Edit)  3:37
-02.  Dave Gate - I Can't Get You (Radio Edit)  2:56
-03.  Phun & Key - System Crash (Radio Edit)  3:05
-04.  Sequence 2 - Crazy (Radio Edit)  4:16(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 02:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC00DBE832F2856ACADBBBEF728B7142EB320362
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125641   (768093) от 15.04.2017
-
-Аrjen Sсhаt - Skаrсе (2017) [MP3|320 Kbps] <Ambient, Berlin-School, Drone>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768093.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Snurks
-2. Desqam
-3. Tranquil
-4. Gradual Consonant Transposition Modulation(   Читать дальше...   )Жанр: Ambient, Berlin-School, DroneПродолжительность: 00:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33CAA18E9D86966032C6759EF558608D73553A2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125309   (768094) от 15.04.2017
-
-Dense - Tide Forger (2017) [MP3|320 Kbps] <Ambient, Downtempo, Psychill>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Star In A Cage 06:26
-02. Not Alone 08:09
-03. Nox 08:17
-04. Rise Up Now 07:18(   Читать дальше...   )Жанр: Ambient, Downtempo, PsychillПродолжительность: 01:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31988527F9C94E7845F5B90F51A532264AA158B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125582   (768103) от 15.04.2017
-
-VA - Sirup Deep Anthems Mykonos (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Croatia Squad - The Best 03:25
-02. Sir Felix - Hope (Nora En Pure Radio Mix) 03:27
-03. Edx - Goombah (Radio Mix) 03:07
-04. Sons Of Maria - Surrender (Radio Mix) 04:00(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7C5A5ADED71F27418AA37DEEAA04713D480B581
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125541   (768106) от 15.04.2017
-
-VA - Unique Sense In Miami (Mixed by Abstract Vision) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Abstract Vision - Vertex (Radio Edit)  3:36
-02.  D'Jaeger - Genesis (Radio Edit)  2:38
-03.  Iversoon & Alex Daf vs Aurora Night - Hover (Radio Edit)  3:49
-04.  D'Jaeger - Chronicle (Radio Edit)  2:26(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F1E09494534FB19C952754FE65E48ACB3120F8D
 ```
 
 

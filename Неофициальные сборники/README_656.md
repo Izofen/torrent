@@ -1,3 +1,30 @@
+###  Публикация: 1483096   (1006988) от 12.07.2021
+
+VA - Music Love: Romantic Sound Mix (2021) [MP3|320 Kbps] <Pop, Romantic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maisie Peters - John Hughes Movie
+02. Jackson R.A. - Little Love
+03. Cautious Clay - Cheesin’
+04. D.Polo - Tenderlove(   Читать дальше...   )Жанр: Pop, RomanticПродолжительность: 04:31:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E47BD75A2234771E3ED647DD6AF2455A069EEBF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483101   (1007017) от 12.07.2021
 
 VA - Electro House: Late Night Party (2021) [MP3|320 Kbps] <House, Electro, Club, Dance>
@@ -668,33 +695,6 @@ VA - Tik Tok Треки выстрелили летом 2021 [MP3|320 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F664232ED79B9C117BD6DE6840F9D80B7895B694
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481261   (1008241) от 03.07.2021
-
-VA - Shazam & Apple Music Chart (Россия Топ 100 Июнь) (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008241.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ULTRA - Научиться вновь доверять (3:03)
-002. BRANYA, MACAN - Пополам (2:21)
-003. Dzharakhov, Markul - Я в моменте (2:06)
-004. Zivert - Рокки (2:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E71A32945BDDBA628A74E69C3E3D430AF2BC5286
 ```
 
 

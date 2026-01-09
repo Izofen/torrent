@@ -1,3 +1,30 @@
+###  Публикация: 916006   (591406) от 07.07.2015
+
+VA - JOOF Editions Volume 2 (Mixed by John '00' Fleming) (2015) [MP3|320 кб/с]<Progressive Trance, Progressive House, Breaks,  Psychedelic, Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 00.db - Amanitas (8:37)
+02. Miika Kuisma & Luminescent - Wave Of Life (5:12)
+03. Matt Lange - Falling Into Place (7:53)
+04. Rick Pier O'Neil - Funktional (6:25)(   Читать дальше...   )Жанр: Progressive Trance, Progressive House, Breaks, Psychedelic, TechnoПродолжительность: 13:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C7196A5107CB25D774A5D4B388A4F8FA3EDE6E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 807442   (591432) от 24.07.2014
 
 Little Snitch 3.3.4 [En]
@@ -602,30 +629,6 @@ Topaz B&W Effects 2.1.0 RePack by Stalevar [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BC4D1DA23531ACFE0A1FC0DF366CB5412C137E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915744   (591768) от 06.07.2015
-
-ESET Mail Security для Microsoft Exchange Server 4.5.10023.0 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591768.jpg" />
-</div>
-
-
-###  Подробнее
-
-ESET Mail Security для Microsoft Exchange Server предназначен для защиты почтовых серверов от всех типов вредоносного программного обеспечения и для фильтрации почтовых сообщений в режиме реального времени.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E154D39F32B4A6E81C2E7F7F2C8FE59BF8F0A040
 ```
 
 

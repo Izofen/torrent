@@ -1,3 +1,31 @@
+###  Публикация: 871081   (881099) от 21.02.2015
+
+Modern Talking - The 1st Album (1985) [FLAC|Lossless]<EuroDisco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Heart, You're My Soul (5:36)
+02. You Can Win If You Want (3:53)
+03. There's Too Much Blue In Missing You (4:45)
+04. Diamonds Never Made A Lady (4:09)
+05. The Night Is Yours-The Night Is Mine (5:33)(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2B99AC81E7C3492D0C9014C02E3F1187B49D29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 871258   (881216) от 21.02.2015
 
 VA - Pure... Party (2012)  Box Set, 4CD[FLAC|Lossless]<Pop, Dance, Eurodance>
@@ -682,39 +710,6 @@ Richard Sanderson - Anytime At All (1990) [APE|Lossless|image + .cue] <Europop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:698EB5C823605675079CCAE980984CAA789CE965
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 763112   (886636) от 05.03.2014
-
-VA - BRAVO Hits 84 (2014) [FLAC|Lossless|WEB-DL]<Pop, Top 40>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в мир BRAVO Hits 84 - самые большие звезды, лучшие "штурмовики" чартов и последние хиты на двойном CD! (   Читать дальше...   )01. Ed Sheeran - I See Fire (4:56)
-02. Katy Perry - Unconditionally (3:50)
-03. Imagine Dragons - Demons (2:57)
-04. OneRepublic - Burning Bridges (4:18)
-05. Söhne Mannheims - Großstadt (Single Edit) (3:48)
-06. Sido - Liebe (3:15)
-07. Marteria - Kids (2 Finger an den Kopf) (3:50)
-08. Max Herre - A-N-N-A (immer wenn es regnet) (MTV Unplugged / Radio Version) (3:51)
-09. Stromae - Formidable (3:35)
-10. Anna F. - Too Far (3:58)(   Читать дальше...   )Жанр: Pop, Top 40Продолжительность: 02:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578E3B7C81863ABBFB29B3DC6C1CED3360D088AA
 ```
 
 

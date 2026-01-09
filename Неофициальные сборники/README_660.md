@@ -1,3 +1,30 @@
+###  Публикация: 1475170   (1012539) от 05.06.2021
+
+VA - Killer Sound: Hardstyle Mixtape (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012539.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. N-Expected - Hypnotized
+002. Btox - Get It Money
+003. Sub Sonik - Flames
+004. Tokyo Gabba Posse - I Don't Wanna Be A Gangsta(   Читать дальше...   )Жанр: Hardstyle, Hard DanceПродолжительность: 08:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F48BDE62C6BEC569F43223822B3CE41580ED86E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475174   (1012570) от 05.06.2021
 
 VA - EDC Dance Nation: Club House Mix (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
@@ -668,33 +695,6 @@ VA - Synergetic Nightclub (Vol.02) (2021) [MP3|320 Kbps] <Club, Dance, House, ED
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A17BAB545B00EF38364140831CF9BD00CA9571B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473650   (1013473) от 30.05.2021
-
-VA - Soft Rock (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013473.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Guns N' Roses - Don't Cry (Original) (4:44)
-002. Mr. Mister - Broken Wings (5:43)
-003. ZZ Top - Rough Boy (4:49)
-004. Chicago - You're the Inspiration - 2009 Remaster (3:49)(   Читать дальше...   )Жанр: RockПродолжительность: 12:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CDD0A252776DD7A1F3FE7F2A0A42E0094F5A80A
 ```
 
 

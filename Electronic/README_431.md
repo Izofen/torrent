@@ -1,3 +1,165 @@
+###  Публикация: 1197115   (817698) от 06.01.2018
+
+VA - Ori Uplift - Uplifting Only 256 (Ori's Top 30 Vocal Uplifters of 2017) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Nolans Stenemberg feat. Jennifer Lauren - The Winter
+02.Night Sky & Rebecca Louise Burch - Till I Break Free (Madwave Remix)
+03.Andrew Henry feat. Angel Falls - No Need To Hide (Aldo Henrycho Remix)
+04.Artisan feat. Anki - Thank You (Ultimate Extended Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC32825DC98B057DE72C774087D7350462653A30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197130   (817714) от 06.01.2018
+
+VA - Vocal Trance 2k18 Vol. 1 (2018) [MP3|320 Kbps] <Trance,Vocal Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Schillings - I Remember the 90s
+02. Rheligie feat. Spectre Cross - Ardent Fever (Adip Kiyoi remix)
+03. Denis Reukov feat. Selecta - We Stay Alone
+04. Latisha Van Simon - Let's Make Love (Remundo Trance remix)(   Читать дальше...   )Жанр: Trance,Vocal Trance,Uplifting TranceПродолжительность: 02:34:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD11D8BB99AD7C1F9F1A82234935F3F56249B43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008290   (817847) от 17.04.2016
+
+VA - Mayday: Twenty Five (2016) [MP3|256 кб/с] <House, Progressive House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friends Of Mayday - Twenty Five (Jerome's Official Anthem Mix) 05:45
+02. Dimitri Vegas & Like Mike & W&W - Arcade (Dimitri Vegas & Like Mike vs. W&W) 05:17
+03. Afrojack & Hardwell - Hollywood (Extended Mix) 03:33
+04. Gestort aber GeiL & Marc Narrow - Geh nicht weg (Sean Finn Remix) 04:26(   Читать дальше...   )Жанр: House, Progressive House, Electro HouseПродолжительность: 10:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBB4B1E643CD7CADED9A1B59FA666217F0B62E1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008112   (817856) от 17.04.2016
+
+VA - Erotic Yoga Vol.1 (2016) Deluxe Chill Out For Special Moments  [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ambitus - Overflight - Interlude
+02. Bes & Meret - Ko Samui Nights
+03. South Soul - In The Vibes - Original Mix
+04. Marga Sol - Over The Mountains(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:59:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636F94B8AE8939E6A243B23979A495CE004DF8BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008094   (818094) от 17.04.2016
+
+VA - Summer Deep (2016) [MP3|320 кб/с] <Minimal House, Deep House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Put Dat Down
+02. Stacia x Wunderwald - Like a Flame (Radio Edit)
+03. Mr. Groove - Holding Me Closer
+04. Animalist - Timber(   Читать дальше...   )Жанр: Minimal House, Deep House, DanceПродолжительность: 02:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64A91BA4EFBFBEDBCCE56BCFB703F6DCF367D9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007999   (818098) от 17.04.2016
+
+VA - Blow It Up (2016) [MP3|320 кб/с] <House, Progressive House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tristan Garner - Fuckin Down (Miami Special Edit) 06:19
+02. Mark Bale - Faith in the Music (DBN Remix) (Feat. Tom Skyler) 06:09
+03. WeSmile - Felix 06:04
+04. Alex Lamb - Phantom 05:48(   Читать дальше...   )Жанр: House, Progressive House, Electro HouseПродолжительность: 02:09:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52B3FF359BB8AD9DB806D7BEC3C616BD64A2DF13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196983   (818509) от 05.01.2018
 
 VA - New Year Party 2017 (2018) [MP3|320 Kbps] <Progressive House>
@@ -531,166 +693,6 @@ VA - In Between Worlds Vol.2 (2017) [MP3|320 Kbps] <House, Progressive House, El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15226BDAC63AA02C6B72AB226548D33629B4ABEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007525   (819453) от 16.04.2016
-
-VA - Urban Dance, Vol. 16 (2016) Scene [FLAC|Lossless|WEB-DL|tracks] <Dance, Deep House, EDM>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819453.jpg" />
-</div>
-
-
-###  Подробнее
-
-04. Another Lonely Night (3:46)
-01. Faded (3:32)
-18. Little Swing (2:43)
-11. The Horns (Radio Remix) (3:32)(   Читать дальше...   )Жанр: Dance, Deep House, EDM, HouseПродолжительность: 03:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D241F3822FEFEF494F1C8F54029DADA0399BC9D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007547   (819552) от 16.04.2016
-
-Jonas Blue - Fast Car (feat. Dakota) (2016) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fast Car (Radio Edit) (3:35)
-02. Fast Car (Club Edit) (3:17)Жанр: HouseПродолжительность: 00:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC66C4BFB8B020CD74213F16222E9403D4915B75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007789   (819555) от 16.04.2016
-
-VA - Blackout: Best of 2015 (2016) [MP3|320 кб/с] <Drum & Bass, Neurofunk>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Sun Empire - Until the World Ends (feat. PNC) (05:44)
-02. Neonlight & Wintermute - Influx (04:59)
-03. Khronos - The Heavy (04:06)
-04. Telekinesis - Fight Club (feat. Coppa) (04:38)(   Читать дальше...   )Жанр: Drum & Bass, NeurofunkПродолжительность: 02:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D5B645F1C3CA79B78A4E9C2280190EB90C7986
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007791   (819747) от 16.04.2016
-
-Timboletti - Hintersee (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coconut Kingdom (Original Mix) (6:05)
-02. Coconut Kingdom (Al Lindrum Remix) (7:07)
-03. Helva Selva (Original Mix) (6:28)
-04. Helva SelvaЖанр: Techno, HouseПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68AD2D286EB310724537EAF6790B0ECE7A9EF32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007942   (819895) от 16.04.2016
-
-VA - Black Hole House Music 04 - 16 (2016) [MP3|320 кб/с] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bassanova ft Austin Massirman - Fire Escape (Evil Twin Remix) 06:28
-02. Myon & Shane 54 with Haley - Round We Go (Extended Mix) 05:08
-03. Manufactured Superstars ft Iossa - Carry You Home (Jaguar Nights Remix) 06:20
-04. Eve Belle & Brian Laruso - Solace (M-22 Remix) 04:43(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7606067E3DEC189C354CF8E3357BFDAA3C8AF068
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007883   (819898) от 16.04.2016
-
-VA - The Best Progressive Hits Vol.5 (2016) [MP3|320 кб/с] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luck Out - Asylum of Love 06:20
-02. Jimmy Roqsta - Eavesdropping of Aliens 05:37
-03. Ivanshee - Clarity 07:21
-04. Haxxy - You Not See, but They Do Exist 10:28(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:905F3598057C5474077BFE4DE6BA0B6183896E44
 ```
 
 

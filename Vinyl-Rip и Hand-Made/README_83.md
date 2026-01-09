@@ -1,3 +1,28 @@
+###  Публикация: 1072817   (620203) от 16.04.2022
+
+Джаз-квинтет п/у Я. Валясека - Импровизированный джаз (1955) Shellac-78rpm [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чай Вдвоём, фокстрот
+02. Знаю одно средство, фокстротЖанр: JazzПродолжительность: 00:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D336984AC1CB96C0F77ACC92BDF252DE8FDFFD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205059   (620346) от 12.04.2019
 
 Queen - Hot Space (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
@@ -665,33 +690,6 @@ A4. Down And Dirty (3:17)(   Читать дальше...   )Жанр: Glam Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8619B09483285023A9B4DDFAA0EB8077D2D7E125
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228179   (639015) от 30.05.2018
-
-Queen - A Kind Of Magic (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Vision (5:11)
-02. A Kind Of Magic (4:24)
-03. One Year Of Love (4:29)
-04. Pain Is So Close To Pleasure (4:23)(   Читать дальше...   )Производство: EMI Records - EU 3509Жанр: RockПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964A0913C93D40DAAAE7739E56ED680BF285240E
 ```
 
 

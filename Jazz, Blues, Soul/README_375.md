@@ -1,3 +1,219 @@
+###  Публикация: 1148578   (603496) от 07.07.2017
+
+Dean Martin - Everybody Loves Somebody (1998) Prism Leisure [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everybody Loves Somebody [02:04]
+02. Don't Let The Stars Get In Your Eyes [02:31]
+03. Deep Purple [02:42]
+04. I Wonder Who's Kissing Her Now [01:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:14:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABF467E4C2CB874C6C2628464FF28C14302B74B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148390   (603497) от 07.07.2017
+
+Hendrik Meurkens - Samba To Go! (2009) ZONO Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, World Fusion, Brazilian Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spaceburger [05:20]
+02. Odessa in April [06:36]
+03. Samba To Go! [04:31]
+04. So Tinha De Ser Com Voce [05:46](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, World Fusion, Brazilian JazzПродолжительность: 00:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71D1A33A1A96ECF68A219108129E8AF1FAD8CE5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148572   (603498) от 07.07.2017
+
+Karin Plato - Blue Again (2000) Stikjazz Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Takes Two To Tango [03:06]
+02. Someone To LIght Up My Life [04:17]
+03. Blue Again [04:31]
+04. What'll I Do? [04:08](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8456EA3612B44B07FE11EA8CB4AAE229B878807
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297607   (603605) от 23.04.2019
+
+Wayne Shorter - Wayning Moments (1961) 2000, Koch Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Orpheus (take 4) [4:36]
+02. Devil's Island (take 8) [3:57]
+03. Moon of Manakoora (take 2) [3:43]
+04. Dead End (take 8) [4:34](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5527070CC787A0CD9E0F1F3DCA11A731A6AFFF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231786   (603759) от 20.06.2018
+
+Bing Crosby - The Legendary Bing Crosby (1930-e - 1950-e) 1990, Metrodome [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Of Spain [2:32]
+02. The Very Thought Of You [2:59]
+03. June In Januray [3:13]
+04. Zip-A-Dee-Doo-Dah [1:47](   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF6B0ED67BBE6DD275C3F5B4A510E675CCBC8BD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231890   (603763) от 20.06.2018
+
+Melly Frances - The Album (2018) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Dress (02:44)
+02. All I Seen (06:06)
+03. Bootlegger's Ball (05:29)
+04. Rebel Girl (05:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4964F6ED4FE72C07361C5DB65BA2242891DB6FDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546865   (603817) от 26.04.2022
+
+Travellin' Blue Kings - Bending the Rules (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Many People (3:44)
+02. Do It Baby (3:55)
+03. Never Never Land (4:36)
+04. What Needed Doin' Done (3:27)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D6D086966CE10B5B6342A9E66F62F636BAD2F5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546864   (603880) от 26.04.2022
+
+THICK - Audio Obesity (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tin Foil Hat (2:54)
+02. Healthy Whiskey (4:07)
+03. Audio Obesity (2:57)
+04. Healing Powers (3:59)(   Читать дальше...   )Жанр: Blues Rock, RockПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA5EABC37AF65800E6103078C91EAE7C72D8794
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148385   (603900) от 06.07.2017
 
 Members Of The Tommy Dorsey Orchestra - A Tribute To Tommy Dorsey (1997) Green Hill [FLAC|Lossless|image + .cue] <Swing, Big Band>
@@ -479,222 +695,6 @@ The Modern Jazz Quartet - Modern Jazz Quartet (1957) 2013, Warner [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78958390464660F67B9A25875E3B97B51DFC1813
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231648   (604153) от 19.06.2018
-
-Larry Vuckovich Trio - Street Scene (2006) Tetrachord Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dexter's Mode [5:58]
-02. Street Scene [6:43]
-03. News For Lulu [6:07]
-04. As Time Goes By Mambo [4:43](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD5B3AB3FC39141AA7090E32FE61AFF49D833571
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231644   (604154) от 19.06.2018
-
-Larry Vuckovich - Somethin' Special (2011) Tetrachord Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somethin' Special [7:10]
-02. Enchament [6:25]
-03. What Will I Tell My Heart? [7:16]
-04. Comin' Home Baby [7:07](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B304D685D618D5AB8D5DC5A557CFC548474FA366
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546862   (604249) от 25.04.2022
-
-Greenslade and Thomas - G & T (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Wants To Talk To You (3:18)
-02. Sabotage (4:20)
-03. Freefall (3:57)
-04. Late Coming Love (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CCC60462A95F5352BC941FC5DD866D1D280E1E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065514   (604250) от 25.04.2022
-
-Cesaria Evora - Cafe Atlantico (1999) [APE|Lossless|image + .cue] <Jazz, Latin, Afro-Cuban>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flôr di nha esperança
-02. Vaquinha mansa
-03. Amor di mundo
-04. Paraiso di Atlantico(   Читать дальше...   )Жанр: Jazz, Latin, Afro-CubanПродолжительность: 00:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F60D1430458E18ED6ECA397FF4FE0ADE4A7F2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148021   (604319) от 05.07.2017
-
-Harry Allen, Scott Hamilton, New York Sextet - Swing Brothers (2005) [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 My Lean Baby [7:58]
-02 Flying Home [7:06]
-03 Danny Boy [5:38]
-04 Shiny Stockings [6:23](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F4ACEAA4EF3964F401B2673E6672E63C9067A44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148146   (604402) от 05.07.2017
-
-Hank Mobley, Al Cohn, John Coltrane, Zoot Sims - Tenor Conclave (1956) 2014, Analogue Productions [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tenor Conclave [11:06]
-02. Just You, Just Me [09:29]
-03. Bob's Boys [08:19]
-04. How Deep Is the Ocean? [15:08]Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9217415928770AE86AF0E8D7DC3E8F24AFCD479
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148137   (604405) от 05.07.2017
-
-The Harry Allen Duo / Trio - I'll Never Be the Same (1995) N/A [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Through the Night [5:21]
-02. I Won't Dance [6:10]
-03. I'll Close My Eyes [2:52]
-04. I'm Gonna Sit Down and Write Myself a Letter [5:20](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CF0B92172BCB6232620BD021A35380DEF6F156E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148134   (604473) от 05.07.2017
-
-Harry Allen & Joe Temperley - Cocktails For Two (2007) Sackville [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cocktails For Two (take 2) [6:10]
-02. Blues In The Closet (take 2) [5:39]
-03. My Romance [4:13]
-04. I've Got The World On A String [10:09](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF081E5914330D8D862C21EC57A7FB8837DC969
 ```
 
 

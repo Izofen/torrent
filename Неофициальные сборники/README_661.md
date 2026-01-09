@@ -1,3 +1,30 @@
+###  Публикация: 1473650   (1013473) от 30.05.2021
+
+VA - Soft Rock (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013473.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Guns N' Roses - Don't Cry (Original) (4:44)
+002. Mr. Mister - Broken Wings (5:43)
+003. ZZ Top - Rough Boy (4:49)
+004. Chicago - You're the Inspiration - 2009 Remaster (3:49)(   Читать дальше...   )Жанр: RockПродолжительность: 12:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CDD0A252776DD7A1F3FE7F2A0A42E0094F5A80A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473673   (1013489) от 30.05.2021
 
 VA - Music Collection Vol.3 (2020) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -665,33 +692,6 @@ VA - Beatport Clubbing House: Electro Sound Pack #283 (2021) [MP3|320 Kbps] <Clu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39E92FCD856516D9E258AF85C1DC826F142D7F0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472650   (1014139) от 26.05.2021
-
-VA - Options Remake 125 Tracks New May (2021) [MP3|320 Kbps] <Funky, Soulful, Progressive, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014139.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Booka Shade, Felix Raphael - Follow
-002. Brascon - Yeah
-003. Katarina Dariy - The Sun (Extended Mix)
-004. Jay Frog & Sunny Marleen - For You (BlackBonez Extended Remix)(   Читать дальше...   )Жанр: Funky, Soulful, Progressive, Future HouseПродолжительность: 12:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E01B0A09B979D56329864D0708C832BCC0F0EBB4
 ```
 
 

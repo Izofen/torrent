@@ -1,317 +1,252 @@
-###  Публикация: 995101   (886242) от 10.03.2016
+###  Публикация: 1495056   (884454) от 10.09.2021
 
-Thisbe Vos - Under Your Spell (2013) [MP3|320 кб/с] <Contemporary Jazz, Vocal Jazz>
+Samantha Fish - Faster (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faster
+02. All Ice No Whiskey
+03. Twisted Ambition
+04. Hypnotic(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CECA3853F3963BFC6D1309A35271E435C640879
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495074   (884537) от 10.09.2021
+
+Matthew Whitaker - Now Hear This (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overcoat (5:20)
+02. Tranquility (5:33)
+03. Underground (5:50)
+04. Bernie's Tune (3:48)(   Читать дальше...   )Жанр: Contemporary Jazz, Post-Bop, Soul-JazzПродолжительность: 01:11:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE8B975167C1D59132518A484E61235FE12A427
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 870564   (884542) от 19.02.2015
+
+JJ Grey & Mofro - Ol' Glory (2015) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Everything Is a Song
+02. The Island
+03. Every Minute
+04. A Night To Remember
+05. Light a Candle(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F48D281D681467B139397FF5EF908BFA0E44235
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 870591   (884558) от 19.02.2015
+
+JJ Grey & Mofro - Ol' Glory (2015) [MP3|320 кб/с]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Everything Is a Song
+02. The Island
+03. Every Minute
+04. A Night To Remember
+05. Light a Candle(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFCB8C4D06E7F934DF5255A2E6722F0AFDA9FA6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 870767   (884564) от 19.02.2015
+
+Pain Killer - Cuts Of A Virgin & Buried Secrets (1998) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Scud Attack [03:07]
+02. Deadly Obstacle Collage [00:19]
+03. Damage to the Mask [02:40]
+04. Guts of a Virgin [01:15]
+05. Handjob [00:11](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0DD496A08B9DCCF7F413BC87FA3CA606C2F121
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995487   (884614) от 11.03.2016
+
+VA - Easy Listening: 30 Best Pieces Of Beautiful Instrumental Music (2015) [MP3|320 кб/с] <Jazz, Lounge, Piano>
 
 >>Jazz, Blues, Soul
 >>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886242.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884614.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shanghai Blues (Thisbe Vos)
-02. Under Your Spell (Thisbe Vos)
-03. I Thought About You (Jimmy Van Heusen/Johnny Mercer)
-04. That's All Right With Me (Thisbe Vos)(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:46:36
+01. Jazz Lounge Zone - Easy Listening (2:25)
+02. Piano Bar Music Ensemble - Mellow Jazz Cafe (3:28)
+03. Good Morning Jazz Academy - Wake Up (Happy Day) (3:10)
+04. Jazz Lounge Zone - Angel Eyes (3:18)(   Читать дальше...   )Жанр: Jazz, Lounge, PianoПродолжительность: 01:51:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:41072EAAD10E2ECBAAE3C96A6167CEDA88BA2C7C
+magnet:?xt=urn:btih:50A99AFF5DC27D3A1CE8DFDDA8ED3DD08BD940CA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 870397   (886295) от 18.02.2015
+###  Публикация: 995488   (884760) от 11.03.2016
 
-Delta Moon - Goin' Down South (2004) [MP3|320 кб/с]<Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. That's It (03:26)
-02. I Want To Go (04:09)
-03. Dreams Come Real (03:51)
-04. Stone Cold Man (04:13)
-05. Goin' Down South (03:44)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3BA3A6B834ED6F3D50FA65A30799B220BBF9D39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870475   (886309) от 18.02.2015
-
-Elvin Jones - It Don't Mean A Thing ... (2005) [FLAC|Lossless]<Jazz, Post-Bop>
+Dr. Lonnie Smith - Spiral (2010) Palmetto Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Hammond Organ>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Green Chimneys [07:02]
-02. A Lullabby Of Itsugo Village [06:08]
-03. It Don't Mean  A Thing [05:44]
-04. Lush Life [06:46]
-05. Zenzo's Spirit [06:59](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:58:07
+01.Mellow Mood [05:13]
+ 02.I've Never Been In Love Before [05:11]
+ 03.Frame For The Blues [08:55]
+ 04.I Didn't Know What Time It Was [07:49](   Читать дальше...   )Жанр: Jazz Fusion, Hammond OrganПродолжительность: 00:49:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADA59EF85253554CFE65D71643CCB43D00E44D4E
+magnet:?xt=urn:btih:7E7217342862AAB189E72B417D8C791F376C2B34
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 995070   (886421) от 10.03.2016
+###  Публикация: 995470   (884786) от 11.03.2016
 
-Nicki Parrott - The Look of Love (2013) [FLAC|Lossless|image + .cue] <Contemporary Jazz, Vocal Jazz>
+Kosuke Mine with Kimiko Kasai - Yellow Carcass In The Blue (1971) Remaster, 2013, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886421.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884786.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Moonlight Serenade
-02. The Look of Love
-03. The Man That Got Away
-04. As Time Goes By(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 01:01:08
+01.Alone Together [03:19]
+ 02.Blues in C Minor [06:08]
+ 03.River Dry [13:06]
+ 04.Round Midnight [09:15](   Читать дальше...   )Жанр: Post-Bop, Vocal JazzПродолжительность: 00:47:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99BB9100BC7419A5D0B8FF4CD886854F690DBD57
+magnet:?xt=urn:btih:582DA309CF7652CB18096DB9571525507CFDCEE6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 763371   (886431) от 05.03.2014
+###  Публикация: 995490   (884801) от 11.03.2016
 
-Malia & Boris Blank - Convergence (2014) [FLAC|Lossless]<Electronic, Future Jazz>
+Duke Pearson - Now Hear This (1968) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886431.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884801.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Celestial Echo
-02. Embraceable Moon
-03. I Feel It Like You
-04. Touching Ghosts(   Читать дальше...   )Жанр: Electronic, Future JazzПродолжительность: 00:45:05
+01.Disapproachment [05:53]
+ 02.I'm Tired Cryin' Over You [03:51]
+ 03.Tones For Joan's Bones [05:34]
+ 04.Amanda [03:47](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:43:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4ED673BA7DD0FE8BDD6587470D7B9E338647F465
+magnet:?xt=urn:btih:6A53DF760F56115179C4E81435A6EE95F8A7406C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 640506   (886543) от 07.04.2013
+###  Публикация: 185904   (884926) от 23.03.2010
 
-Emperor Norton's Stationary Marching Band - Reign of Revelry (2010) [FLAC|Lossless]<Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Those Grimy Little Stars
- 02. Flight of the Winged Serpent
- 03. Lonesome Vagabond
- 04. Hey Rube! (It's A Clem!)
- 05. Dusty Bones
- 06. Mad Squirrel March
- 07. Psychoactive
- 08. Mesecina
- 09. Save the Ship
- 10. Deteriorated(   Читать дальше...   )Жанр: Jazz, Big BandПродолжительность: 01:03:24
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995171   (886589) от 10.03.2016
-
-Art Blakey & The Jazz Messengers - Blue Night (1985) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Two Of A Kind [09:53]
- 02.Blue Minor [11:28]
- 03.Blue Night [07:26]
- 04.Body And Soul [07:27](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:07:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14AEE9ECD75892A855186538731F373756186C3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995249   (886591) от 10.03.2016
-
-The Dave Bailey Quintet - Two Feet In The Gutter (1961) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Comin' Home Baby [05:40]
- 02.Two Feet In The Gutter [08:00]
- 03.Shiny Stockings [07:55]
- 04.Lady Iris B [06:09](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94059818DD2B198FDFD15DFC4E3F762D03F552F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995295   (886595) от 10.03.2016
-
-Billy Taylor Trio - At Town Hall (1954) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sweet Georgia Brown [05:04]
- 02.Theodora [04:39]
- 03.A Foggy Day [03:34]
- 04.How High The Moon [13:04](   Читать дальше...   )Жанр: Mainstream Jazz, Bop, Piano JazzПродолжительность: 00:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76DE18AAD9A5639CEACA57B2054D3BC2C50FC6D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 185202   (886632) от 22.03.2010
-
-Chick Corea Elektric Band II - Paint The World (1993) [APE|Lossless]<Jazz-Rock, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Paint The World (3:57)
-2. Blue Miles (5:30)
-3. Tone Poem (6:48)
-4. Cta (5:48)
-5. Silhouette (1:43)
-6. Space (6:03)
-7. The Ant & The Elephant (7:31)
-8. Tumba island (5:57)
-9. Ritual (7:34)
-10. Ished (7:15)(   Читать дальше...   )Жанр: Jazz-Rock, Post Bop, FusionПродолжительность: 01:14:01
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371703   (886801) от 02.04.2020
-
-Tower of Power - Step Up (2020) [FLAC 2.0|96/24|tracks|WEB-DL]  <Funk, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East Bay! All the Way!                                                [00:54]
-02. Step Up                                                               [05:10]
-03. The Story of You and I                                                [04:47]
-04. Who Would Have Thought?                                               [03:58](   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:133BCA090523B09FAD3D2B2C5013555BF4B23958
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 763306   (886872) от 05.03.2014
-
-VA - The Best Blues Album In The World...Ever! 2CD (2000) [APE|Lossless]<Blues>
+Gary Moore - Guitar Mindtrip (2010) [APE|Lossless]<Blues>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
@@ -323,49 +258,7 @@ VA - The Best Blues Album In The World...Ever! 2CD (2000) [APE|Lossless]<Blues>
 
 ###  Подробнее
 
-01.  Muddy Waters -  Mannish Boy  (2:56)
-02.  Little Walker -  My Babe  (2:35)
-03.  Koko Taylor  -  Wang Dang Doodle  (3:02)
-04.  Howlin' Wolf -  Little Red Rooster  (2:28)
-05.  Chuck Berry -  Reelin' and Rockin'  (3:16)
-06.  Etta James -  I'd Rather Go Blind  (2:35)
-07.  John Lee Hooker -  Boom Boom  (4:19)
-08.  Gary Moore -  Still Got the Blues  (4:04)
-09.  Johnny Winter -  Shame, Shame, Shame  (4:21)
-10.  Jon Cleary  -  Help Me Somebody  (5:17)(   Читать дальше...   )Жанр: Blues |Продолжительность: 02:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3FD83FEAFA8C5421B5D5AEBC591DA8CC8437C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640430   (887054) от 07.04.2013
-
-Edward Simon, John Patitucci, Brian Blade - Unicity (2006) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. One for Antonio
-02. Did You get It
-03. Arena (Sand)
-04. Challenge within
-05. Ballade
-06. Greedy Silence
-07. Inner Urge
-08. Solar
-09. Eastern
-10. Abiding UnicityЖанр: JazzПродолжительность: 00:49:41
+Жанр: BluesПродолжительность: 01:16:50
 
 ## Скачать торент
 ```bash
@@ -375,75 +268,9 @@ Edward Simon, John Patitucci, Brian Blade - Unicity (2006) [FLAC|Lossless]<Jazz>
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 640455   (887291) от 07.04.2013
+###  Публикация: 640919   (884932) от 08.04.2013
 
-Elizabeth Shepherd - Rewind (2012) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Love For Sale (4:45)
- 02. Poinciana (3:58)
- 03. Pourquoi Tu Vis (3:16)
- 04. Lonely House (4:22)
- 05. Les Amoureux Des Bancs Publics (3:51)
- 06. Feeling Good (5:30)
- 07. Midnight Sun (6:30)
- 08. Sack Of Woe (2:50)
- 09. Buzzard Song (5:22)
- 10. When You Are Near (4:45)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:42
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640670   (887300) от 07.04.2013
-
-Solveig Slettahjell - 3 альбома (2005-2007) [FLAC|Lossless]<Jazz Vocal, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. 4:30 AM [03:15]
-02. I Do [03:00]
-03. One of these days [03:19]
-04. This is my people [03:09]
-05. Because [02:44]
-06. Time [04:18]
-07. Snowfall [03:17]
-08. Match Perfect [02:33]
-09. Inscription for the ceiling of a bedroom [01:52]
-10. Bed is too small [03:00](   Читать дальше...   )Жанр: Jazz Vocal, Contemporary JazzФормат: image+cueПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640381   (887347) от 07.04.2013
-
-Eddie Harris - Dancing By A Rainbow (1995) [FLAC|Lossless]<Hard Bop, Soul, Funk>
+VA - Blues Breakers! (MOJO) (2013) [FLAC|Lossless]<Jazz, Blues>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
@@ -455,14 +282,10 @@ Eddie Harris - Dancing By A Rainbow (1995) [FLAC|Lossless]<Hard Bop, Soul, Funk>
 
 ###  Подробнее
 
-01. Mean Greens
- 02. The Grand Strut
- 03. Set Us Free
- 04. Boogie Woogie Bossa Nova
- 05. You Are Not the Right One for Me
- 06. Dancing by a Rainbow
- 07. An April to Be Remembered
- 08. It's Just Fun and GamesЖанр: Hard Bop, Soul, FunkПродолжительность: 00:56:50
+Mojo Magazine всегда отличается очень интересной подачей материала и его тематической направленностью. Вот и на этот раз получилась замечательная вещь: Джазовые композиции, использованные Эриком Клэптоном в своем творчестве, записаны в "as is" виде. Именно так они звучали в 1930-1960 годах (первая запись датируется 1930годом, последняя 1962). Послушайте (   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:42:39
+Страна-производитель диска: England
+Год издания: май 2013
+Издатель (лейбл): Mojo Magazine(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -472,57 +295,30 @@ Eddie Harris - Dancing By A Rainbow (1995) [FLAC|Lossless]<Hard Bop, Soul, Funk>
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494564   (887351) от 08.09.2021
+###  Публикация: 640845   (884942) от 08.04.2013
 
-Chris Rea - Blue Guitars II - Country Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Edgar Winter and Rick Derringer - Live in Japan (1990) [FLAC|Lossless]<Blues>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walkin' Country Blues (3:41)
-02. Man Gone Missing (4:40)
-03. Can't Stay Blues (4:58)
-04. KKK Blues (4:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F01EA0CA9C44DC1DED0104C5CF5E2359A7DEEDDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640450   (887353) от 07.04.2013
-
-Elina Duni Quartet - Matane Malit (2012) [FLAC|Lossless]<Contemporary Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Ka nje mot
- 02. Kjani trima
- 03. Kur te kujtosh
- 04. Vajze e valeve
- 05. Une ty moj
- 06. Ere pranverore
- 07. Celo Mezani
- 08. Ra kambana
- 09. Cobankat
- 10. Kristal(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:53:43
+01.Introduction [01:50]
+02.Keep Playin' That Rock And Roll [03:53]
+03.Teenage Love Affair [03:36]
+04.Free Ride [04:07]
+05.Fly Away [08:03]
+06.Blood From A Stone [05:28]
+07.Under Cover Man [04:19]
+08.Jump, Jump, Jump [07:17]
+09.Hang On Sloopy [05:45]
+10.Against The Law [04:25](   Читать дальше...   )Жанр: BluesПродолжительность: 01:14:47
 
 ## Скачать торент
 ```bash
@@ -532,12 +328,12 @@ Elina Duni Quartet - Matane Malit (2012) [FLAC|Lossless]<Contemporary Jazz, Voca
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 640482   (887400) от 07.04.2013
+###  Публикация: 763716   (885000) от 06.03.2014
 
-Eddie C.Campbell - Spider Eating Preacher (2012) [MP3|320 кб/с]<Blues/Chicago Blues>
+Stevie Ray Vaughan and Double Trouble - Greatest Hits (1995) [FLAC|Lossless]<Blues>
 
 >>Jazz, Blues, Soul
->>Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -546,31 +342,31 @@ Eddie C.Campbell - Spider Eating Preacher (2012) [MP3|320 кб/с]<Blues/Chicago
 
 ###  Подробнее
 
-01. I Do
-02. Spider Eating Preacher
-03. Call My Mama
-04. Cut You A-Loose
-05. Soup Bone (Reheated)
-06. I Don't Understand This Woman
-07. Boomerang
-08. Starlight
-09. Skin Tight
-10. All My Life(   Читать дальше...   )Жанр: Blues/Chicago BluesПродолжительность: 01:01:51
+01. Taxman (3:34)
+02. Texas Flood (5:22)
+03. The House Is Rockin' (2:24)
+04. Pride And Joy (3:40)
+05. Tightrope (4:39)
+06. Little Wing (6:49)
+07. Crossfire (4:10)
+08. Change It (3:59)
+09. Cold Shot (4:01)
+10. Couldn't Stand The Weather (4:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F84CD8B52DFD0C7F741A353AACB569AB8681CE80
+magnet:?xt=urn:btih:33AB50ABEEA9A6625674EE33E4EA2CC1D15E2551
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 640368   (887433) от 07.04.2013
+###  Публикация: 763711   (885057) от 06.03.2014
 
-Eddie Daniels - The Five Seasons (1995) [FLAC|Lossless]<Smooth Jazz>
+John Mayall & The Bluesbreakers - In the Shadow Of Legends 2CD (2011) [FLAC|Lossless]<Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -579,16 +375,289 @@ Eddie Daniels - The Five Seasons (1995) [FLAC|Lossless]<Smooth Jazz>
 
 ###  Подробнее
 
-01. Spring I
-02. Spring II
-03. Spring III
-04. Summer I
-05. Summer II
-06. Summer III
-07. Autumn I
-08. Autumn II
-09. Autumn III
-10. Winter I(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:05:09
+01. The Dark Side Of Midnight (4:04)
+02. Why Are You So Mean To Me? (with Albert King) (5:58)
+03. Born Under A Bad Sign (with Albert King) (7:43)
+04. Call It Stormy Monday (with Albert King) (9:04)
+05. C.C. Rider Blues Jam (with Albert King, Buddy Guy, Junior Wells, Etta James &... ) (15:38)
+06. Room To Move (6:36)Жанр: Blues |Продолжительность: 01:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD138A4FC5D8569A9EDD0501D6D6C400C09BE733
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641198   (885079) от 08.04.2013
+
+VA - Heavenly Sweets. Jazz Blend & Lounge Tunes Vol. 1 (2013) [MP3|320 кб/с]<Lo-Fi, Lounge, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Beegie Adair - Watch What Happens
+2. Cleo Laine - That Old Feeling
+3. Molly Johnson - My Oh My
+4. Perry Como - It's Impossible
+5. Sister Kat - I Will Survive
+6. Cecile Bredie - Don't Know Why
+7. Dimie Cat - Ping Pong
+8. Gabin Feat. Gary Go - City Song
+9. Karen Souza - Creep
+10. Marg Nelson - Lady Marmalade(   Читать дальше...   )Жанр: Lo-Fi, Lounge, JazzПродолжительность: 03:23:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C091784BDEAACDFFEA86F285801A8858FC7D7430
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641181   (885146) от 08.04.2013
+
+Stitches Brew (feat. Julia Pellegrini) - Love_and other Songs (2013) [MP3|320 кб/с]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. I Am No Good At Love 06:42
+02. How Can I Forget 05:45
+03. You Said You'd Bring My Blue Skies Back 05:33
+04. Close, Close All Night 05:06
+05. Stumble Trap 07:09
+06. The Mermaid/The Smile 07:24
+07. The Telephone 06:27
+08. Hurry Up (And Get The Blues) 03:56
+09. The Night 07:01
+10. I'll Explain 05:20Жанр: Vocal JazzПродолжительность: 01:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E978FD8777548065A2E5723DDFD2E8D1D516FBCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 763718   (885178) от 06.03.2014
+
+Albert King - The Best of Albert King (1998) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Born Under A Bad Sign (2:50)
+02. Phone Booth (3:59)
+03. Crosscut Saw (2:51)
+04. I'll Play The Blues For You Pt 1 (3:45)
+05. Killing Floor (3:08)
+06. Breaking Up Somebody's Home (3:41)
+07. Cold Sweat (5:21)
+08. Driving Wheel (4:14)
+09. Flat Tire (4:21)
+10. The Pinch Paid Off Pt 1 (3:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4104B58AA261F424A597B46FC9D7828C7BD3BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 763719   (885269) от 06.03.2014
+
+Freddie King - The Blues Live! Expanded Edition (2012) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Have You Ever Loved A Woman (12:47)
+02. Mojo Boogie (7:19)
+03. You`re The One (7:13)
+04. Messin' With The Kid (4:26)
+05. Going Down (4:18)
+06. Stormy Monday (13:39)
+07. Let The Good Times Roll (8:05)
+08. Sweet Home Chicago (6:04)
+09. Hide Away (4:27)
+10. Rock Me Baby (5:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7157AD3CEB8A45AC73978106A303A8F95D7E600F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 763654   (885286) от 06.03.2014
+
+Buddy Guy - Live At Legends (2012) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:39)
+02. Best Damn Fool (6:14)
+03. Mannish Boy (4:06)
+04. I Just Want To Make Love To You\Chicken Heads (9:22)
+05. Skin Deep (5:17)
+06. Damn Right I Got The Blues (6:26)
+07. Boom Boom\Strange Brew (3:01)
+08. Voodoo Chile\Sunshine Of Your Love (3:35)
+09. Polka Dot Love (5:35)
+10. Coming For You (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34FE2D12C7E6731DB869E5A0CFC4A73CC606300A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103379   (885563) от 12.02.2017
+
+Omar & the Howlers - Essential Collection (2011) 2×CD, Compilation [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Европейские поклонники блюза всегда восхищались техасским музыкантом Омаром Кентом Дайксом, чему в немалой степени способствовал его имидж, соответствовавший их представлением об американце. Высокий, в ковбойских сапогах, с глубоким голосом и южным акцентом, Омар с легкостью мог завести аудиторию. Дайкс родился в 1950 году там же где и Бо Диддли, в маленьком городке (   Читать дальше...   )CD 1 - Best Of
+CD 2 - Omar's PicksЖанр: Blues-RockПродолжительность: 02:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AEAF784E64928F9E321BFE8CB8873CBE37ABE18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103470   (885575) от 12.02.2017
+
+Dwane Dixon - Black Satin Blues (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Rockin' Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'd Rather Get Shot Down (3:38)
+02. Elevator Operator (4:03)
+03. 24-7 Blues (3:49)
+04. Long Way (From Loving You) (6:33)(   Читать дальше...   )Жанр: Blues, Rockin' BluesПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1819247C6E3AB867732F0FE5930F67E144FDDCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372063   (885623) от 03.04.2020
+
+Oscar Peterson - Keyboard 1950 (2005) Membran Music [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jumpin' With Symphony Sid [3:02]
+02. Robbins Nest [3:16]
+03. Tico Tico [3:02]
+04. Get Happy [2:32](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D9CF59BB4143A7FC57D7A6EE550A0489BC4CBA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 297737   (885695) от 19.02.2011
+
+Joe Cocker - Joe Cocker - The Ultimate Collection 1968-2003 (2003) 2CD [APE|Lossless]<Blues, Soul, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Could You Be Loved (4:15)
+02. Civilized Man (3:54)
+03. First We Take Manhattan (3:45)
+04. The Simple Things (4:47)
+05. N'oublies Jamais (4:41)
+06. That's All I Need To Know Difendero (Live) feat. Eros Ramazzotti (4:03)
+07. Have A Little Faith In Me (4:17)
+08. Don't Let The Sun Go Down On Me (5:31)
+09. Now That The Magic Has Gone (4:42)
+10. Sweet Lil' Woman (4:04)(   Читать дальше...   )Жанр: Blues, Soul, Rock |Продолжительность: 02:09:22
 
 ## Скачать торент
 ```bash
@@ -598,195 +667,81 @@ Eddie Daniels - The Five Seasons (1995) [FLAC|Lossless]<Smooth Jazz>
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 640460   (887460) от 07.04.2013
+###  Публикация: 1103537   (886007) от 12.02.2017
 
-Emilio Miranda - Emilio Miranda (2006) [FLAC|Lossless]<Jazz-Rock>
+Various Artists - Hammond Street (2001) [FLAC|Lossless|image + .cue] <Acid Jazz, Rock, Funk, Soul>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Juego 1
- 02. Efecto Dopler
- 03. Filete De La Zona
- 04. Vuelve A Mirar El Sol
- 05. Juego 2
- 06. Maitoco Blanco
- 07. Tuyio En La Masa
- 08. Suena Lugar Extrano
- 09. Kiltro-MenЖанр: Jazz-RockПродолжительность: 00:38:08
+01. The Past Present Organisation - Itchy Feet
+02. Trashmonkeys - Clubtown
+03. Sugarman Three - Soul Barrio Part 2
+04. James Taylor Quartet - Car Chase(   Читать дальше...   )Жанр: Acid Jazz, Rock, Funk, SoulПродолжительность: 00:55:53
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:FFD919D424276B93E06D9610C41D63AFCEBAA69D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 640516   (887468) от 07.04.2013
+###  Публикация: 1103411   (886050) от 12.02.2017
 
-Enrico Galetta - 48 Hour Odyssey (2008) [APE|Lossless]<Jazz - Rock, Fusion, Bass>
+Monika Roscher Bigband - 2 Album (2012, 2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Fusion, Contemporary Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886050.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. High damper
- 02. 48 Hour odyssey
- 03. Apulia arabian night
- 04. Love despite the distance
- 05. Sant'isaia street
- 06. L'illy time
- 07. White smoke rising
- 08. Be part of itЖанр: Jazz - Rock, Fusion, BassПродолжительность: 00:49:43
+Список альбомов:
+2012 - Failure in Wonderland
+2016 - Of Monsters and BirdsЖанр: Fusion, Contemporary JazzПродолжительность: 02:15:43
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:EEB377665B5127892C0CDB424911902235BF9239
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 640416   (887483) от 07.04.2013
+###  Публикация: 1103694   (886059) от 12.02.2017
 
-Edmar Castaneda - Cuarto De Colores (2005) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Sonrisas (3:19)
- 02. Andrea (4:02)
- 03. Autumn Leaves (3:38)
- 04. Cuarto De Colores (5:52)
- 05. Negrita (1:10)
- 06. Madrugaga Azul (5:11)
- 07. Amen (0:38)
- 08. Alfonsina Y El Mar (5:57)
- 09. Afrojoropo (4:34)
- 10. El Camino (4:39)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640373   (887492) от 07.04.2013
-
-Eddie Gomez, Billy Drummond, Yutaka Kobayashi - Beautiful Love (2008) [FLAC|Lossless]<Fusion>
+Stanley Cowell - Musa: Ancestral Streams (1974) 2006, Bomba Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886059.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Softly, As In a Morning Sunrise
- 02. Missing Moments
- 03. Beautiful Love
- 04. Captain Marvel
- 05. Nefertiti
- 06. Crossing Memories
- 07. I'll Close My Eyes
- 08. Sundry Waltz No. 9
- 09. Chiquilin de BachinЖанр: FusionПродолжительность: 01:03:10
+01.Abscretions [05:07]
+ 02.Equipoise [03:44]
+ 03.Prayer For Peace [07:09]
+ 04.Emil Danenberg [02:53](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:38:00
 
 ## Скачать торент
 ```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640496   (887507) от 07.04.2013
-
-Emma Pask - Emma (1999) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Love (3:15)
- 02. No More Blues (4:18)
- 03. A Little Bit Of What You Fancy (5:26)
- 04. How Insensitive (5:39)
- 05. Mr Better (4:12)
- 06. Polka Dots And Moonbeams (4:20)
- 07. Tea For Two (4:41)
- 08. Whenever (4:42)
- 09. If I Should Lose You (6:13)
- 10. My Romance (4:13)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:38
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640524   (887511) от 07.04.2013
-
-EOL Trio - End of Line (2012) [FLAC|Lossless]<Jazz-Rock, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Walking Downtown
- 02. Smoke On the Tube Amp
- 03. Dollers
- 04. Drums Solo
- 05. Take Care Brother
- 06. New One
- 07. Bad Song
- 08. Soft Tune
- 09. Hard Tune
- 10. MMWЖанр: Jazz-Rock, Contemporary JazzПродолжительность: 00:53:43
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:B501E5E439A78C0582F13EDE7CA636BD4E6B826A
 ```
 
 

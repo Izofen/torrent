@@ -1,3 +1,165 @@
+###  Публикация: 1008493   (814827) от 18.04.2016
+
+VA - The Ultimate Euphoric Trance Vol. 2 (2016) [MP3|320 кб/с] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christian Peter Stier - Last Summer (Original Mix) 08:36
+02. Noize Compressor - Underground (Original Mix) 06:44
+03. Nique de Graaff - Peculiar (Original Mix) 09:47
+04. Daniel Preston - Moments (HighGo Remix) 06:31(   Читать дальше...   )Жанр: TranceПродолжительность: 01:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E682F98DF4BE949FC4E8348D9A6A000534E1EB2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117965   (815201) от 24.03.2017
+
+Solaris - Aeon V (2017) Synphaera Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psybient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ritual (07:21)
+02. Levitation (05:51)
+03. Inward (06:43)
+04. Waiting (07:58)(   Читать дальше...   )Жанр: Ambient, PsybientПродолжительность: 01:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163EAE549CB8A876E6914464A5A789E932E35ED3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382871   (815298) от 13.05.2020
+
+VA - Ambient Boxed: A Guide By Instinct (2001) Instinct Records [FLAC|Lossless|tracks+.cue] <Ambient, Techno, Dub, IDM, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taylor Deupree - Occur 9 (05:41)
+ 02. Prototype 909 - Understand (08:17)
+ 03. Klip - Mirage (03:48)
+ 04. Unknown Artist - Interlude 4.1 (00:31)(   Читать дальше...   )Тип издания: CD •Жанр: Ambient, Techno, Dub, IDM, Experimental •Продолжительность: 04:24:03 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1D581FCEF01BAA8EF42B690B5E3BDCA47F1A1FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117959   (815341) от 24.03.2017
+
+Dash Berlin - We Are (Part 2) (2017) [MP3|320 Kbps] <House, Vocal House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dash Berlin & Matt Simons - With You  3:08
+02.  Dash Berlin & DBSTF ft. Jake Reese & Waka Flocka vs. DJ Whoo Kid - Gold  3:29
+03.  Dash Berlin & Do - Heaven  3:18
+04.  Dash Berlin & Luca Perra - Without The Sun  3:02(   Читать дальше...   )Жанр: House, Vocal HouseПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E269526AABE3F320332B0A4962E816E5EBFBBDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117966   (815489) от 24.03.2017
+
+VA - Grotesque Essentials Spring 2017 Edition (Mixed by ReOrder & Ciaran McAuley) (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solarstone & Ferry Tayle - Lifeline (Intro Edit) (6:01)
+02. Stoneface & Terminal - Southern Lights (Extended Mix) (7:04)
+03. Ferry Corsten - Live Forever (Gareth Emery Remix) (feat. Aruna) (3:26)
+04. Jak Aggas - Subversion (Original Mix) (6:23)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F2F5BD20210B73B3A0D00D314E6AE03E22F0C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117870   (815491) от 24.03.2017
+
+VA - Beautiful Lounge Collection Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruggero - Zaffiro
+02. Deephouse 84 - A Night on the Beach
+03. Alyssa Lee - Morning Light
+04. Mont Hanary - Dog(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9A317918D01B53D9CE713A994AA2B18BFC4FA28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008317   (815508) от 18.04.2016
 
 David Guetta Feat. Nicki Minaj, Bebe Rexha & Afrojack - Hey Mama (2015) Remixes EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, House>
@@ -530,168 +692,6 @@ VA - 35 Best Body Building Hits 2021 (Fitness Version) [MP3|320 Kbps] <House, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A43AE9D507BF50CFAB88267EE29A7591EA99FBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197115   (817698) от 06.01.2018
-
-VA - Ori Uplift - Uplifting Only 256 (Ori's Top 30 Vocal Uplifters of 2017) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Nolans Stenemberg feat. Jennifer Lauren - The Winter
-02.Night Sky & Rebecca Louise Burch - Till I Break Free (Madwave Remix)
-03.Andrew Henry feat. Angel Falls - No Need To Hide (Aldo Henrycho Remix)
-04.Artisan feat. Anki - Thank You (Ultimate Extended Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC32825DC98B057DE72C774087D7350462653A30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197130   (817714) от 06.01.2018
-
-VA - Vocal Trance 2k18 Vol. 1 (2018) [MP3|320 Kbps] <Trance,Vocal Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Schillings - I Remember the 90s
-02. Rheligie feat. Spectre Cross - Ardent Fever (Adip Kiyoi remix)
-03. Denis Reukov feat. Selecta - We Stay Alone
-04. Latisha Van Simon - Let's Make Love (Remundo Trance remix)(   Читать дальше...   )Жанр: Trance,Vocal Trance,Uplifting TranceПродолжительность: 02:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD11D8BB99AD7C1F9F1A82234935F3F56249B43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008290   (817847) от 17.04.2016
-
-VA - Mayday: Twenty Five (2016) [MP3|256 кб/с] <House, Progressive House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friends Of Mayday - Twenty Five (Jerome's Official Anthem Mix) 05:45
-02. Dimitri Vegas & Like Mike & W&W - Arcade (Dimitri Vegas & Like Mike vs. W&W) 05:17
-03. Afrojack & Hardwell - Hollywood (Extended Mix) 03:33
-04. Gestort aber GeiL & Marc Narrow - Geh nicht weg (Sean Finn Remix) 04:26(   Читать дальше...   )Жанр: House, Progressive House, Electro HouseПродолжительность: 10:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBB4B1E643CD7CADED9A1B59FA666217F0B62E1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008112   (817856) от 17.04.2016
-
-VA - Erotic Yoga Vol.1 (2016) Deluxe Chill Out For Special Moments  [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ambitus - Overflight - Interlude
-02. Bes & Meret - Ko Samui Nights
-03. South Soul - In The Vibes - Original Mix
-04. Marga Sol - Over The Mountains(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:59:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:636F94B8AE8939E6A243B23979A495CE004DF8BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008094   (818094) от 17.04.2016
-
-VA - Summer Deep (2016) [MP3|320 кб/с] <Minimal House, Deep House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - Put Dat Down
-02. Stacia x Wunderwald - Like a Flame (Radio Edit)
-03. Mr. Groove - Holding Me Closer
-04. Animalist - Timber(   Читать дальше...   )Жанр: Minimal House, Deep House, DanceПродолжительность: 02:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64A91BA4EFBFBEDBCCE56BCFB703F6DCF367D9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007999   (818098) от 17.04.2016
-
-VA - Blow It Up (2016) [MP3|320 кб/с] <House, Progressive House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tristan Garner - Fuckin Down (Miami Special Edit) 06:19
-02. Mark Bale - Faith in the Music (DBN Remix) (Feat. Tom Skyler) 06:09
-03. WeSmile - Felix 06:04
-04. Alex Lamb - Phantom 05:48(   Читать дальше...   )Жанр: House, Progressive House, Electro HouseПродолжительность: 02:09:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52B3FF359BB8AD9DB806D7BEC3C616BD64A2DF13
 ```
 
 

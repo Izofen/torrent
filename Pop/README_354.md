@@ -1,3 +1,246 @@
+###  Публикация: 1452909   (1026918) от 11.03.2021
+
+VA - Я - голос ваш (2021) Трибьют Анны Ахматовой [MP3|320 Kbps] <Alternative>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ANIKV - Вот это я тебе [00:02:05]
+02. IOWA - Дверь полуоткрыта [00:02:46]
+03. Елена Темникова - Реквием [00:03:03]
+04. Тося Чайкина - И мальчик что играет на волынке [00:02:55](   Читать дальше...   )Жанр: PopПродолжительность: 00:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E22FD7B28700A02ED025FB7D4646E3FFF7EFAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453593   (1026919) от 11.03.2021
+
+Балаган Лимитед - Поговорки (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026919.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Обнимашки
+2. Чё те надо (Version 2019)
+3. На восходе
+4. Ветер унеси (Solo Version)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B486C60558DF42B0282E0BA2FFDFA92F7D4A90E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453450   (1026926) от 11.03.2021
+
+Michael Bedford - When Angels Talk (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Angels Talk (3:37)
+02. More Than A Kiss (3:48)
+03. Tonight (3:26)
+04. Space Boys (3:37)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro-DiscoПродолжительность: 00:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76DA410F0607FA4E56A68825688C421475744511
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453409   (1027045) от 10.03.2021
+
+Imperio - Best of Imperio (2020) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Dreampop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amor Infinitus (Album Version) (4:55)
+02. Veni Vidi Vici (Radio Mix) (3:52)
+03. Cyberdream (Cyber Video Mix) (4:54)
+04. Never Go Away (4:28)(   Читать дальше...   )Жанр: Eurodance, DreampopПродолжительность: 00:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C0BA31FA4240A07A3F1171AF80A094283D98B3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453391   (1027062) от 10.03.2021
+
+Selena Gomez - Revelacion (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Una Vez 2:36
+02. Buscando Amor 3:08
+03. Baila Conmigo (With Rauw Alejandro) 3:06
+04. Damelo To' (Feat. Myke Towers) 3:04(   Читать дальше...   )Жанр: PopПродолжительность: 00:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF94161186DB48C7DF9E8A8ED4B8E19A1D7003BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453350   (1027071) от 10.03.2021
+
+Caravelli - Rainbow & Tenderly (2016) 2xCD, Compilation (1984, 1988) [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Caravelli (12.09.1930, Paris, France – 1.04.2019, Cannet, France) - руководитель оркестра, композитор и аранжировщик легкой оркестровой музыки. Сын отца-итальянца и матери-француженки получил при рождении имя Claude Vasori. В семь лет он впервые сел за рояль, а в тринадцать уже посещал Парижскую консераторию. В двадцать лет профессионально гастролировал, аккомпанируя (   Читать дальше...   )CD - 1 - Rainbow (1984):
+01. Laura (4:02)
+02. The Green Leaves Of Summer (3:42)
+03. Temptation (3:08)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 01:25:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC266457423E038F89A6D7AB0086A68D61B4C713
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453323   (1027085) от 10.03.2021
+
+Joe Yellow - I'm Your Lover (1988) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Your Lover (5:06)
+02. Love At First (3:49)
+03. Lover To Lover (3:37)
+04. Take My Heart (4:58)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2B37E8C42EFE2DB991672091325563CD8CE43C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453209   (1027101) от 10.03.2021
+
+VA - soulmates (2021) Explicit [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Niall Horan - Black And White (3:13)
+02. Julia Michaels - If You Need Me (3:36)
+03. BØRNS - Past Lives (4:34)
+04. Tove Lo - Habits (Stay High) (3:29)(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB62E7FFFED87582F46E3BC52FC546285B347E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453167   (1027180) от 09.03.2021
+
+Lana Del Rey - Chemtrails Over The Country Club (2021) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Dress [00:05:33]
+02. Chemtrails Over The Country Club [00:04:31]
+03. Tulsa Jesus Freak [00:03:35]
+04. Let Me Love You Like A Woman [00:03:20](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62AA95887E026D359C3FF6FC254F67AFAB884F45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453163   (1027186) от 09.03.2021
 
 Lana Del Rey - Chemtrails Over the Country Club (2021) [MP3|320 Kbps] <Pop>
@@ -452,249 +695,6 @@ magnet:?xt=urn:btih:1465359CCF2139B89BFBF70785153E1D75820392
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06746D60FC41BD211C22DE139F1D3DCEE53A56BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451577   (1028219) от 03.03.2021
-
-VA - Pop Acoustic Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kylie Minogue - I Believe In You
-02. Jason Derulo - Whatcha Say (Acoustic)
-03. Jason Mraz - Live High
-04. Seal - Crazy (Acoustic Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:461ACB4048DEAC0E5EE1B2B6AFC9D296ECEB0BFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451280   (1028326) от 02.03.2021
-
-Lara Fabian - 19 Albums, 6 Compilations, 4 Live, 27 Singles (1991-2020) [MP3|320 Kbps] <Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028326.jpg" />
-</div>
-
-
-###  Подробнее
-
-1991 - Lara Fabian
-1995 - Carpe diem
-1996 - Pure
-1999 - Lara FabianЖанр: Pop, ChansonПродолжительность: 41:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82815E9D786D07C3BEB4CE426E478B5D929A3D58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451486   (1028342) от 02.03.2021
-
-VA - New Italo Disco Top 25 Compilation, Vol. 15 (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Dance, Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boy Blue - Don't Leave Me Alone (Short Vocal Disco Mix) (4:33)
-02. Boy Blue - Save Me (Short Vocal Classic Mix) (4:15)
-03. Italian Party - The Name of the Game (Vocal Radio Dancefloor Mix) (4:25)
-04. Momento - Systematic Lover (Vocal Short Dancefloor Mix) (Radio-Edit) (4:26)(   Читать дальше...   )Жанр: Italo-Disco, Dance, EurobeatПродолжительность: 01:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A78400E7CCA4E5C231EEC3B3C1011EB4006FA5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451326   (1028358) от 02.03.2021
-
-Star Sisters - Hooray For Hollywood  (1984) Reissue, 2005, 2000 FruitGum Corp[FLAC|Lossless|image + .cue] <Disco, Swing, Funk / Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	A Tribute To Marilyn Monroe	4:21
--	My Heart Belongs To Daddy
--	I Wanna Be Loved By You
--	Diamonds Are A Girl's Best Friend(   Читать дальше...   )Жанр: Disco, Swing, Funk / SoulПродолжительность: 00:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:084F0CBA56CE9A964639C5757502C976C304C468
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450793   (1028419) от 01.03.2021
-
-Beach Club Records Label Pack (2012-2021) Ken Martina (Kennard van der Bijl), et cetera [FLAC|16-24/44.1|tracks|WEB-DL] <Italo-Disco, Dance, Eurobeat>
-
->>Pop
->>Eurodance, Disco (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Casanova - Angel Eyes (Full Extended) (7:47)
-02. Alan Brando - Once Upon a Time (Vocal Version) (9:34)
-03. Ken Martina - Cinderella (Vocal Extended Mix) (7:40)
-04. Ken Martina - My Love Is Forever (Extended Mix) (6:18)(   Читать дальше...   )Жанр: Italo-Disco, Dance, Hi-NRG, Eurobeat, Synthpop •Продолжительность: 321:01:58Kennard van der Bijl - более известный под одним из своих псевдонимов как Кен Мартина. Голландский исполнитель, композитор и продюссер. Основатель студии Beach Club Records. Пишет музыку в стилях итало-диско и итало-дэнс. Практически все песни он же и исполняет, под разными псевдонимами. Кроме Кеннарда в записях принимают участия ещё две бэк-вокалистки Annemarie (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420C509D12EB41D52206382785CA66B0A5E89174
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451139   (1028707) от 28.02.2021
-
-VA - 70s 80s and 90s Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Straight Up (02:48)
-02. Logan York - Good Enough (04:11)
-03. John Burnsby - Ain’t No Sunshine (03:08)
-04. Django Wallace - Hard to Say I’m Sorry (04:27)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109539EEA6C9D07680FD54AC186F202CAFE2D214
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450873   (1028741) от 28.02.2021
-
-Natalia Oreiro - Natalia Oreiro (1998) [FLAC|Lossless|image + .cue] <Latin, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De tu amor (03:57)
-02. Uruguay (03:44)
-03. Se pegó en mi piel (04:09)
-04. Me muero de amor (03:56)(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCD5BB56AE6E1E4C9935D5012D2EB5A462F43041
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450603   (1028863) от 27.02.2021
-
-VA - Disco Deluxe - Disco Classics (2005) 2CD [FLAC|Lossless|tracks + .cue] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Chocolate - You Sexy Thing (4:05)
-02. Gloria Gaynor - I Will Survive (Re-Rec) (4:52)
-03. Two Fons O'fon - I Got The Feeling (5:17)
-04. Marshall, Hain - Dancing In The City (3:45)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 02:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8571158AF4819F40506C838EEADF048B15374BBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450562   (1029019) от 26.02.2021
-
-VA - Italo Made In Spain 4 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various - Italo Made In Spain 4 (Edicion Mexico) (16:15)
-02. Various - Italo Made In Spain 4 (Summer Session) (28:49)
-03. Francesco Napoli - Lady Fantasy 2018 (Italo New Extended Mix) (6:54)
-04. Naoky feat. Stylove - Cybernetic Love (Extended Mix) (6:13)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, EurobeatПродолжительность: 02:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B42741A4A931A8A57BC9D6FDDA0E005343BE0C
 ```
 
 

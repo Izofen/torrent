@@ -1,3 +1,29 @@
+###  Публикация: 1094450   (597728) от 12.07.2017
+
+Ori Uplift - Uplifting Only 201 - 230 (2016 - 2017) [MP3 | 320 кб/с] < Melodic / Uplifting / Emotional Trance > (Обновлён: 12-07-2017)
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ori Uplift
+
+01. [00:00:33]: Andy Blueman - Time To RestЖанр: Melodic Trance / Epic Trance / Euphoric Trance / Progressive Trance / ProgLift / Vocal Trance / Uplifting Trance / Emotional Trance / ChillOutПродолжительность: 02:12:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C00051EA28E23E096443980A1C105FF0445A24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039128   (597796) от 31.07.2016
 
 Figures At Dawn - In From The Cold (2001) [FLAC|Lossless|image + .cue] <Synthpop, New Wave, Hi-Tech AOR>
@@ -663,33 +689,6 @@ Stardance - Stars Challenge (2017) [MP3|320 Kbps] <Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD8744A9CFF40D5BC72C6AE1C4B50D2D9911ADAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232513   (600053) от 24.06.2018
-
-VA - Ibiza Opening Party 2018 (Deluxe Version) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sounds Fine - Colours (Original Mix) 5:54
-02. MKVG - I Can Give (Original Mix) 5:47
-03. Mack Jack - Marimba (Original Mix) 3:38
-04. Martin Zoom - Above You (Extended Mix) 4:12(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 04:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:129558B2B68B03ADB7E90FDC5C8698D9DB93BFE1
 ```
 
 

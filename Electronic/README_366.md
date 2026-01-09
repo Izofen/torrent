@@ -1,3 +1,165 @@
+###  Публикация: 1284534   (728962) от 21.02.2019
+
+VA - Workout House Bangers (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uniting Nations - Out of Touch (Extended Mix) 6:19
+02. David Morales & The Face feat. Juliet Roberts - Needin' U (Original Mistake Mix) 7:55
+03. Jeremy Sylvester - Whine Ya Bumper (Club Mix) 6:52
+04. Indo - R U Sleeping (Bump 'N' Flex Remix) 5:04(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6435E0B92FBDAD853E135EC2EDB9DED39F9A72F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284530   (728964) от 21.02.2019
+
+VA - Believe In Deep Vol.2 (2019) The Groove Edition [MP3|320 Kbps] <House, DeepHouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jay Cee Morgan - En Deux Heures (Sunrise Mix) 3:32
+02. Beach & Marine Star - Love Investigation (Original Mix) 2:53
+03. Jonas Layne - I Wait For You (Original Mix) 3:15
+04. Isaac Bradley - Shooting Star (Original Mix) 2:59(   Читать дальше...   )Жанр: House, DeepHouseПродолжительность: 01:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CDC03A6082B33268E7FC0059273C599E8D11C09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284469   (728965) от 21.02.2019
+
+VA - Ko Tao Dreams Vol.2 (2019) [MP3|320 Kbps] <House, DeepHouse, Downtempo>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dany Cohiba - El Doble Figurado (Original Mix) 6:24
+02. Climatic - Eya (Original Mix) 5:08
+03. Staubtanzer - Things That I Wrote (Radio Edit) 3:40
+04. Maui & Crizz - We Are The Sun (Radio Edit) 3:11(   Читать дальше...   )Жанр: House, DeepHouse, DowntempoПродолжительность: 02:05:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E8316375390E934321F95D64EFE99E1AAA9CBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530573   (728980) от 11.02.2022
+
+VA - Distant Places Lounge Vol.1: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free Spirit Muse - Breath-Ful Moments (20:21)
+02. Matt Sour - Like a Fairy Tale (Original Mix) (4:44)
+03. Gary B - Afraid to Fall (Original Mix) (4:53)
+04. Michael E - Wind Chime (Original Mix) (5:53)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC95F4D0ECC4D135AE7FC26DC2BC9680CE393493
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530592   (728985) от 11.02.2022
+
+VA - Maretimo Chill Radio - Best of Vol. 1 - Positive Summer Vibes (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Credo – Siesta Del Sol (Laid Back Summer remastered Cut) (04:57)
+02. Cafe Americaine – Solitude Charmante (Level One remastered mix) (04:21)
+03. Miss Lopez – Jeso Creadu (Paraiso Verda mix) (05:32)
+04. Vladi Strecker – Over The Sea (Island Sounds Deluxe remastered mix) (07:14)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FD5DA4A46F885A1547FCE9C387FC30DEEA2B72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530514   (728993) от 11.02.2022
+
+Ben Nicky - Live @ Hellfire, Victoria Warehouse Manchester, United Kingdom (2022-02-05) [MP3|320 Kbps] <Trance, Hard Dance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fred again.. & The Blessed Madonna - Marea (We've Lost Dancing) (Billy Gillies Rework)
+02. D-Block & S-te-Fan - Takin' Off (DJ Isaac Remix)
+03. Underworld & Ashley Bradbury vs. Chris Schweizer - Choose Control (Ben Nicky Mashup)
+04. Nutcase22 - Captain (Restricted Edit)(   Читать дальше...   )Жанр: Trance, Hard DanceПродолжительность: 00:58:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBDD0B32AFD864995CDB526A2044F1457EFDFB41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530491   (729022) от 11.02.2022
 
 MORTEN - DJ Mag Italy Radioshow (2022-02-02) [MP3|~245 Kbps (V0)] <Electro House>
@@ -531,168 +693,6 @@ Tourist - Everyday (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic,  Chillwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC80C42F8ED3D84EDD4EB33F989DA5EA50BBE95F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127693   (731042) от 22.04.2017
-
-Sуntec - Тhе Веginning (2016) [FLAC|Lossless|image + .cue] <SynthPop, ElectroPop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back To The Beginning
-02. Catch My Fall (feat. Blind Passenger)
-03. Devil In Heaven
-04. I Don't Want To Lie Anymore(   Читать дальше...   )Жанр: SynthPop, ElectroPopПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ED25FA6CA1AAE20A5EFA1C11C46C623EB51C499
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283933   (731046) от 19.02.2019
-
-VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arkham Knights - First Light (World Premiere)
-02. Marcus Santoro - Give it All
-03. Above & Beyond - Distorted Truth
-04. Emme & Rodrigo Deem - Black Mamba(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA425E48326BC1544913739A7034D767408C60A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283907   (731050) от 19.02.2019
-
-VA - Ultra Jogging Anthems 2019 Session [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D'rockmasters - Light That Fire (Fitness Version 128 Bpm) 3:51
-02. One Nation - Personal Jesus (Fitness Version 128 Bpm) 3:45
-03. Lady Shelly - Live Love Dance (Fitness Version 128 Bpm) 4:00
-04. Magdaleine - Suddenly (Fitness Version 128 Bpm) 3:45(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCAC55EF3659D68A6AFE3D8DE4F4F8660CA7F3E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127699   (731141) от 22.04.2017
-
-IooN-Cosmic Downtempo - Masters Of The Universe (2017) [MP3|320 Kbps] <Ambient, Drone>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731141.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Passing Horizontal 16:04
-2.Nanomeditative Submersion 08:42
-3.Ascending To Master Stillness 07:11
-4.Masters Of Universal Equilibrium 08:07(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED67F9263A6C68F92190D6AE50FAD600EE7C0708
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127455   (731142) от 22.04.2017
-
-VA - Ferry Corsten Presents Corstenas Countdown April (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ferry Corsten presents Gouryella - Venera (Vee's Theme)  3:08
-02.  DIM3NSION - Voorpret  7:02
-03.  Dan Dobson - Black Magic (Extended Mix)  6:15
-04.  Venaccio - Apollo (Extended Mix)  6:20(   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:543A69E9715615088B7649693533B2594FB519D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127685   (731143) от 22.04.2017
-
-VA - Living Room’s Just Good Mood (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Worldtraveller - Deep Ocean Dive [00:03:38]
-02. Art Stoner - Breakwater [00:07:35]
-03. Living Room - Living Jazz [00:04:22]
-04. Omegaman - Paradiso [00:04:15](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD826ECB632F0F31EADB602171875AAED41A8D8
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1510633   (790762) от 17.11.2021
+
+VA - Beautiful Sunday Morning: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexandra Hampton Merge Of Equals - Beautiful (4:25)
+02. Marga Sol - Beautiful & Bitter (Original Mix) (4:28)
+03. Brass Alessio Ventura Dario Benedetti - Ordinary World (Cover) (6:12)
+04. Simply Chill - Coming Home (Original Mix) (3:38)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E58FE59B6E7BE0B32716CC263749749190A1DAAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202073   (790900) от 27.01.2018
+
+Above & Beyond - Common Ground (2018) [FLAC|Lossless|tracks + .cue] <Progressive House, Trance, Ambient>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Inconsistency Principle (3:18)
+ 02. My Own Hymn (3:49)
+ 03. Northern Soul (5:36)
+ 04. Naked (5:24)(   Читать дальше...   )Жанр: Progressive House, Trance, AmbientПродолжительность: 01:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B74243C2B6111F7420CC614A645BD9A15249DFFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201928   (790904) от 27.01.2018
+
+VA - Best of Ibiza 2018 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MYNC - I Feel Love (Illyus & Barrientos Remix - Radio Edit) (Feat. Wynter Gordon) [4:25]
+02. Carl Cox - I Want You (Forever) (Josh Butler Remix - Radio Edit) [4:06]
+03. Fedde Le Grand - Put Your Hands Up for Detroit (TV Rock & Dirty South Remix) [6:50]
+04. DJ Wady - Hulk (Camelphat 2017 Re-Fix - Radio Edit) [3:31](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6E4EB3D4A53274B1D03A6EF409F5855F440776
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057111   (790905) от 27.01.2018
+
+hyDrone - Discography 6 Releases (2010-2017) [FLAC|Lossless|tracks+.cue, tracks] <Industrial, Ambient, Rhythmic Noise, Dark Ambient>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oscillator, the Violator (10:46)
+ 02. Longing for Trust (06:56)
+ 03. Lust Factor (04:02)
+ 04. Dressed Wounds (06:29)(   Читать дальше...   )Жанр: Industrial, Ambient, Rhythmic Noise, Dark Ambient •Продолжительность: 00:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AAA45D5ACB38E3D82D1DDA3C902688C68311284
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999704   (790936) от 27.01.2018
+
+Sal Solaris - Thresholds (2016) Zhelezobeton [FLAC|Lossless|tracks+.cue] <Industrial, Dark Ambient, Techno, Experimental, Noise>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cryptosystem (08:02)
+02. Limit Value (08:29)
+03. Polygyny Model (07:14)
+04. Displaced (08:48)(   Читать дальше...   )Жанр: Industrial, Dark Ambient, Techno, Experimental, NoiseПродолжительность: 01:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579108AE2619818CE9A4161EBE74D2A44F997D7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201703   (790977) от 27.01.2018
+
+VA - Trance 100 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790977.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Armin van Buuren feat. Josh Cumbee  -  Sunny Days (PureNRG Remix)  3:11
+002.  W&W, Vini Vici  -  Chakra (Original Mix)  3:23
+003.  Aly & Fila, Ferry Tayle  -  Concorde (Original Mix)  4:19
+004.  Paul van Dyk  -  I Am Alive (Original Mix)  4:38(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal Trance, ProgressiveПродолжительность: 05:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE81B8D567A281AEFA1C5CC1B3EB517C4770483
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275121   (791008) от 10.01.2019
 
 VA - A State of Trance: Year Mix (Mixed by Armin van Buuren)2CD (2018) [FLAC|Lossless|tracks + .cue] <Trance,House, Progressive House>
@@ -533,168 +695,6 @@ Sash! - The Best Of (2008) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D2A4F6F448F02BBAE3C3CC62BA53E52EDB5FA46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387502   (791200) от 02.06.2020
-
-Moby - All Visible Objects (2020) Little Idiot [FLAC|Lossless|WEB--24Bit|tracks] <House, Ambient, Dance-pop, Leftfield>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morningside (05:31)
- 02. My Only Love (05:45)
- 03. Refuge (05:45)
- 04. One Last Time (05:34)(   Читать дальше...   )Жанр: House, Ambient, Dance-pop, LeftfieldПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E1EEEF1BCBA8464B0BB917D6CB6EB8A4A651EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387193   (791224) от 02.06.2020
-
-GRiZ - 6 Albums, 4 Extended plays, 2 Mixtapes (2012-2019) [FLAC|Lossless|WEB-DL|tracks] <Dubstep, Glitch Hop, Trap, Future Funk>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791224.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I've Been Dreamin (06:02)
-2. Akhet's Theme (05:33)
-3. Feel Like Makin Love ft. The Cabin (04:02)
-4. Smoke That ft. ProbCause and Jaye Prime (03:01)(   Читать дальше...   )Жанр: Funk, Future Funk, Electro Soul, Dubstep, Glitch-Hop, Trip HopПродолжительность: 06:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:641864F4B3B1313ECAE0C59AF54E8BB8257A4F9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387489   (791290) от 02.06.2020
-
-Luke Vibert - Luke Vibert presents Amen Andrews (2020) Hypercolour [FLAC|Lossless|WEB-DL|tracks] <Jungle, Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pressure (04:02)
- 02. God (03:56)
- 03. Animen (03:52)
- 04. DBC 1 (04:40)(   Читать дальше...   )Жанр: Jungle, Drum & BassПродолжительность: 01:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D1F54716518C74776C000F80E44953ABE887EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510321   (791318) от 16.11.2021
-
-Нейромонах Феофан - Древнерусский рейв (2021) [MP3|320 Kbps] <Drum & Bass, Electronic>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791318.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Древнерусский рейв
-2. Небо
-3. До берегу
-4. Дуб(   Читать дальше...   )Жанр: Drum & Bass, ElectronicПродолжительность: 00:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF78643965875E959C6DAF0D26C5968FE38957E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387604   (791338) от 02.06.2020
-
-Eric Prydz vs. Floyd - Proper Education (2007) Maxi-Single [FLAC|Lossless|tracks + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Proper Education (Radio) (3:26)
-02. Proper Education (Club Mix) (6:11)
-03. Proper Education (Dub Mix) (8:40)
-04. Proper Education (Instrumental) (2:31)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C66C2F01A978FF566BE1750961F9CF8B4EE420FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510413   (791464) от 16.11.2021
-
-VA - Dark Sessions Live At The Recoverworld Club Lounge (Mixed by Chris Hampshire) (2021) [FLAC|Lossless|WEB|tracks|image] <Tech Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Greg Downey - Grade A (Mandy Reid Remix) (7:26)
-02. Danny Oliveira - Drop It Your Love (John O'Callaghan Remix) (7:21)
-03. Cristian Ketelaars - Tank (Original Mix) (6:59)
-04. Craig Forsyth - Salamanca's Bell (Original Mix) (6:14)(   Читать дальше...   )Жанр: Tech TranceПродолжительность: 03:19:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD4D2E66488813ADBD343C7A84E788555F47F65
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1361542   (954199) от 20.02.2020
+
+VA - American Country Session (2020) [MP3|320 Kbps] <Country, Folk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michaela Anne - One Heart
+02. Jamestown Revival - Crazy World
+03. Justin Moore - Why We Drink
+04. Doug Seegers - Give It Away(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 04:27:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE798175DA07E48374AFE85E8EA14B9C7E1A7907
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361541   (954207) от 20.02.2020
 
 VA - House Playdance Mixtape (2020) [MP3|320 Kbps] <Club, Dance, House, Electro>
@@ -677,33 +704,6 @@ VA - 50 Jump Blues Classics (2015) [MP3|320 кб/с] <Blues, Rock, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EAC56E52BCA25E46C4C9E1F7E900DF050495189
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980597   (956098) от 29.01.2016
-
-VA - Instrumental Piano Lyric (2016) [MP3|320 кб/с] <Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Relaxing Piano Jazz Music Ensemble - The Sexi Piano Lounge
-02. Giovanni Tornambene - A New Room
-03. Ray Hamilton Orchestra - Ballade Pour Adeline
-04. Ray Hamilton Orchestra - can you feel the love tonight(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 05:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B281D26FBBBF8C336875CCC06C3248D345FEA4
 ```
 
 

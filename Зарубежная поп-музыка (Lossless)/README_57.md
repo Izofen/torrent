@@ -1,3 +1,30 @@
+###  Публикация: 1146275   (616197) от 28.06.2017
+
+Harry Nilsson - The Real... Harry Nilsson (The Ultimate Collection) (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. 1941
+02. Cuddly Toy
+03. You Can't Do That(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75A089409366427FB651A2D7890A03B271B5D7C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295785   (617024) от 14.04.2019
 
 Bibio - Ribbons (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Indie Pop, Pop Rock>
@@ -665,33 +692,6 @@ Christopher Cross - Doctor Faith (2011) [FLAC|Lossless|image + .cue] <Pop Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:410FA9AA8298946BBE6C0D7AB57D0887EEB7872F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035580   (626505) от 17.07.2016
-
-Arabesque - Greatest Hits Volume 1 (1993) Unofficial Release [APE|Lossless|image + .cue] <Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Mr. Monkey
-02. Fly High Little Butterfly
-03. Buggy Boy
-04. Friday Night(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F2E5E8C05BC74F307B5E666A10DDE023DB8FCE
 ```
 
 

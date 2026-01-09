@@ -1,3 +1,30 @@
+###  Публикация: 1507481   (798480) от 04.11.2021
+
+VA - A Synthwave Panorama Vol. 4 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pilotpriest - Archive Seven (5:45)
+02. STARLANDER - Station 5 (5:10)
+03. Alseph - SuperNova (3:24)
+04. GUNSHIP - When You Grow Up, Your Heart Dies (5:50)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C67649E4ADC86960B41C10D11DD1918DDDF38FA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507486   (798481) от 04.11.2021
 
 VA - A Synthwave Panorama Vol. 5 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
@@ -668,33 +695,6 @@ VA - Tech House: Euro Mastermix (2018) [MP3|320 Kbps] <Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53190A269F61E222477027049218101A0B2B6B24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273665   (799399) от 03.01.2019
-
-VA - Отдохни от праздников (2019) [MP3|320 Kbps] <Soul, Pop, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sade - The Sweetest Taboo
-02. Lenny Williams - 'Cause I Love You
-03. The Isley Brothers - Between the Sheets (Single Version)
-04. Dalton - Soul Brother(   Читать дальше...   )Жанр: Soul, Pop, OtherПродолжительность: 01:07:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63AC5AEA97CC18075F9A2B6EFC1015A2ED9A047
 ```
 
 

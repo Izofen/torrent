@@ -1,3 +1,165 @@
+###  Публикация: 1114732   (832080) от 15.03.2017
+
+VA - Abora Chillout Best of 2016 (Mixed by Johannes Fischer & Ori Uplift) (2017) [FLAC|Lossless|WEB|tracks|image] <Chillout, Modern Classical>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. illitheas & Johannes Fischer - Tears of Hope (Chillout Mix) (2:45)
+02. Afternova - By Your Side (Piano Version) (2:09)
+03. Night Sky - Visions (2:43)
+04. Driftmoon & Sylvia Tosun with Geronimo - Haze (3:33)(   Читать дальше...   )Жанр: Chillout, Modern ClassicalПродолжительность: 01:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1FB84B89743AA70C15F520E2CE9F8568363A906
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114821   (832081) от 15.03.2017
+
+VA - My Italian Cafe Vol.3 (Selection Of Amazing Lounge & Chill Out Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roberto Sol - Contra  4:30
+02.  Roman Bunka - Cafe Abadan  5:29
+03.  Project Blue Sun - Beautiful Day  5:21
+04.  Michael Crueger - Rainforest  6:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A289A993F171E7ED3FA1669178897217FC3F59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114522   (832085) от 15.03.2017
+
+VA - Islas Baleares: The Summer Opening Party 2017 (30 Deep House Anthems) (2017) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mario Chris - Beach  4:06
+02.  Eva Scolaro - Don't Tell Me No (Anders Ponsaing Remix)  5:49
+03.  Slippy Beats - Deep In The Night (Maui's Tropical Beach Remix)  3:48
+04.  Andy B. Jones - World To Life (Matty Menck Dub)  4:09(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AEFE8F5F1A87AAA03C1B8CA210432F320E69C6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114622   (832086) от 15.03.2017
+
+VA - Hygge Acoustic (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Liverpool Express - It's a Beautiful Day  2:04
+02.  Alanis Morissette - Hand In My Pocket (Acoustic Version)  4:31
+03.  Cody Simpson - La Da Dee (Acoustic Version)  3:37
+04.  Jette Torp - You've Got A Friend  4:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FE4E41D93D88786A39ECEDF246BB370983F68C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114716   (832087) от 15.03.2017
+
+Martin Graff & Eva Kade - Destiny (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Martin Graff - Days Go By (Original Mix)  4:55
+02.  Martin Graff - Dreamwalker (Original Mix)  6:15
+03.  Martin Graff - King of Sea Lions (Original Mix)  6:26
+04.  Martin Graff & Kalim Milo - More Than Ever (Original Mix)  5:55(   Читать дальше...   )Жанр: TranceПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73040F657F292F4047371A4739A8B2FFFD6ACA92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114586   (832151) от 15.03.2017
+
+VA - Hernan Cattaneo - Balance Presents Sudbeat (2017) [MP3|320 Kbps] <Deep House, Progressive House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hernan Cattaneo - Balance Presents Sudbeat (continuous DJ mix 1) (78:41)
+02. Hernan Cattaneo - Balance Presents Sudbeat (continuous DJ mix 2) (77:57)
+03. Toki Fuko - An Odor (8:59)
+04. Sahar Z & Navar - The Dogma Code (7:07)(   Читать дальше...   )Жанр: Deep House, Progressive House, Tech HouseПродолжительность: 06:22:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C1612542990DA11ECABA5DA9B4D2BC06AC2F46E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114543   (832155) от 15.03.2017
 
 VA - Nu Disco Super Hits 2017 (Volume 002) (2017) [MP3|320 Kbps] <House>
@@ -533,168 +695,6 @@ Fuerte - Festival Anthem Music Mix 2020 2020-04-10 (00:52:44-02:08:43):(   Чи�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBCB818D53ED3005F33552CD7AFE6BD7DC5DD3D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501614   (835126) от 10.10.2021
-
-NTO - Apnea (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apnea (03:09)
-02. Petit Matin (07:29)
-03. Beyond Control (feat. Monolink) (05:33)
-04. Vivre beaucoup (06:44)(   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 01:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E71FBAA30022E4E0D27D0FB9D31A0BDE8ED9882E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114125   (835339) от 13.03.2017
-
-VA - Artist Choice 049. Seven24 (Chillout Selection) (2017) [MP3|320 Kbps] <Chillout, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Barrel - On the Beach (6:46)
-02. Deep Active Sound - Sunrise (Dynamic Illusion Chill Out Mix) (5:01)
-03. Erin - Sun Children (Dynamic Illusion 'Solar Flare' Remix) (6:54)
-04. Robert R. Hardy - Eastern Crying (7:49)(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 02:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51057434C660B076B601CA16F0609388E580FBFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 879762   (835665) от 19.03.2015
-
-Aly & Fila - The Chill Out (2015) [MP3|320 кб/с]<Chillout, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila - Lost Language (Chill Out Mix) (4:54)
-02. Aly & Fila feat. Sue McLaren - Mysteries Unfold (Chill Out Mix) (3:47)
-03. Aly & Fila feat. Jwaydan - We Control The Sunlight (Chill Out Mix) (3:28)
-04. Aly & Fila - First Sun (Chill Out Mix) (4:36)(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 01:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A919A6D6E61BC924E7BF4BFCBD081DAC487401
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379676   (836108) от 01.05.2020
-
-VA - Sexy and Beautiful (Chillout Edition) (2020) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836108.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rainbow Beats – Bugel (Chillout Mix)
-2. Las Vegas Grooves – Maenace (Nocturne Mix)
-3. Chill Boys – Cineteca (Chillout Mix)
-4. Solarian – Solarian (On the Sea Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0110D5CA2321B141FBB659CDE9817A7D4104C5CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380005   (836265) от 01.05.2020
-
-VA - Positive Vibrations, Vol.1 (Compiled By Vicky Merlino) (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836265.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Vicky Merlino - Positive Vibrations (Dj Set) (1:00:00)
-2. Vicky Merlino; Haley; Gig141 - My Little Alien Frog (7:29)
-3. Pleiadians - Pleione (Morning Mix) (8:17)
-4. Midiride; Liquid Space - Bubblegun (8:03)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:12:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70E5D4F181AD99040CCBC041AE5B94262F9D4F29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379836   (836378) от 01.05.2020
-
-VA - Southbeat Music Pres: Gym Music Motivation (2020) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project 91 And Enyo - Amigos
-02. Manuel Costa And Oscat - Out Of Control
-03. Mirro And WDBS - Land Dance
-04. Van Snyder - For You(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:16:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8764CD84E86FBA64CD5FAEC24BCCCB107B6B9824
 ```
 
 

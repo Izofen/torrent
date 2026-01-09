@@ -1,3 +1,30 @@
+###  Публикация: 1401424   (709395) от 10.08.2020
+
+VA - Summer Magic Morning: Chillout Party (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709395.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Dark - Sole
+002. Mauro Rawn - Reception Hall
+003. Jasmon - Flying Carpet
+004. Michael E - Back To Nature(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C3C9839585C1D4591A7437CEF141B17650477B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 207928   (709659) от 12.06.2010
 
 VA - Романтик Хит - Люблю тебя (2010) [MP3|192-320 kbps]<Pop, Ballad>
@@ -667,33 +694,6 @@ VA - The Official UK Top 40 Singles Chart (01-06-2014) [MP3|320 кб/с]<Pop, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:683D4F2304BB0F74E7C9A469D5CBD85F65B84382
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131060   (710401) от 04.05.2017
-
-VA - Italo & Space Disco Vol.3 (2017) [MP3|320 Kbps] <Italodisco , Spacesynth>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Retronic Voice - Shot Down  5:03
-02.  Peter Wilson - Love Into Action  5:20
-03.  Ryan Paris - I Wanna Love You Once Again  7:08
-04.  Leo Rojas - Serenade To Mother Earth  5:21(   Читать дальше...   )Жанр: Italodisco , SpacesynthПродолжительность: 07:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4166D109BE52793AC34B84A1509B73467890B8
 ```
 
 

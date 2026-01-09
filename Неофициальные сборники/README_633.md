@@ -1,3 +1,30 @@
+###  Публикация: 980597   (956098) от 29.01.2016
+
+VA - Instrumental Piano Lyric (2016) [MP3|320 кб/с] <Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Relaxing Piano Jazz Music Ensemble - The Sexi Piano Lounge
+02. Giovanni Tornambene - A New Room
+03. Ray Hamilton Orchestra - Ballade Pour Adeline
+04. Ray Hamilton Orchestra - can you feel the love tonight(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 05:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B281D26FBBBF8C336875CCC06C3248D345FEA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980345   (956171) от 29.01.2016
 
 VA - Блатная музыка на любимой волне (2016) [MP3|256 кб/с] <Шансон>
@@ -670,33 +697,6 @@ VA - Hot Eurodance Party (2016) [MP3|160-320 кб/с] <eurodance, pop, house>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0D6DBF7EAF576D12F6BF59ABB7357F7384788D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979580   (959868) от 26.01.2016
-
-Robyx Party - Long Single Mix 1990 Mix Part 1-2 (2016) [MP3|320 кб/с] <Italo-Disco, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savage - I just died in your arms (Extended Mix)
-02. Savage - I'm loosing you (Re-Euroedit Remix)
-03. Savage - Goodbye (Trans-Express Mix)
-04. Ice MC - Easy (Attack Remix)(   Читать дальше...   )Жанр: Italo-Disco, DanceПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:711A81BEC9494F4133BBD41E107EDB52A4D08206
 ```
 
 

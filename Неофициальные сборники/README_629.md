@@ -1,3 +1,30 @@
+###  Публикация: 1089449   (950040) от 04.01.2017
+
+VA - Новогодняя Дискотека 80-х от Авторадио – 15 Лет (2017) [MP3|320 Kbps] <Pop , Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950040.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zodiac - Зодиак 5:20
+002. Веселые ребята - Бологое 3:44
+003. Поющие Гитары - Люди встречаются 2:52
+004. Веселые Ребята - Напиши мне письмо 3:15(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 03:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91E9744D0D90FFF5CC751962C0900FABD2305DDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982025   (950120) от 02.02.2016
 
 Freak Lounge Crazy Lounge and Downbeat Soundz (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -669,33 +696,6 @@ VA - Зарубежные хиты экспресс. Версия № 2 (2016) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43D7167193D2FCC9B27FFF20841308DFE0379E4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089302   (951924) от 03.01.2017
-
-VA - Fun Disco House: Gross Funk Party (2017) [MP3|320 Kbps] <Nu Disco, Funky House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951924.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mazelo Nostra - Boogie Nights 5:03
-002. Off Da Hook - Journey To Paradise (Johan S Vocal Mix) 8:10
-003. The Boogeyman - All Music To Me (Original Mix) 8:32
-004. Drone In Ibiza - Back In That Days - Original Mix 6:09(   Читать дальше...   )Жанр: Nu Disco, Funky House, ElectroПродолжительность: 11:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:314EA4B6E6DDFE7DBB86622EF015603A550BBB8D
 ```
 
 

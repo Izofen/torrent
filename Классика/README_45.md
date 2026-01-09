@@ -1,3 +1,84 @@
+###  Публикация: 995228   (885978) от 10.03.2016
+
+Alisa Weilerstein - Solo (2014) [FLAC|96/24|WEB-DL|tracks] <Classical, Chamber>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonata for Solo Cello, Op.8 - I. Allegro maestoso ma appassionato (9:33)
+02. Sonata for Solo Cello, Op.8 - II. Adagio con gran espressione (12:36)
+03. Sonata for Solo Cello, Op.8 - III. Allegro molto vivace (11:54)
+04. Omaramor For Solo Cello (8:15)(   Читать дальше...   )Жанр: Classical, ChamberПродолжительность: 01:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64B9BF0DBAC6E89B586F80213F381B3ADF9CF92C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995069   (886003) от 10.03.2016
+
+Ronald Brautigam - Mozart: Piano Concertos No 20 & 27 (2013) [FLAC|96/24|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto No. 18 in B-Flat Major, K. 456
+1. I. Allegro
+2. II. Andante
+3. III. Allegro(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:53:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD290736A932B8F172FFFB444BEF9A054947FD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995066   (886023) от 10.03.2016
+
+Ronald Brautigam - Mozart: Piano Concertos No 19 & 23 (2013) [FLAC|96/24|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto No. 19 in F Major, K. 459
+1. I. Allegro 00:11:12
+2. II. Allegretto 00:06:19
+3.  III. Allegro assai 00:07:16(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF76403719A7DF393FA052F24A84EF9D673EA720
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995262   (886125) от 10.03.2016
 
 Sviatoslav Richter - Beethoven Piano Sonatas № 8, 23, 8 Bagatelles, Choral Fantasy (Melodiya Edition Vol.2) (2003) [FLAC|Lossless|image + .cue] <Classical, Chamber Music>
@@ -613,87 +694,6 @@ Queenz Of Piano - Queenz Of Piano (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D45B76E4A4CCACB7BDFE5E0FD0216387EFE9893
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993611   (893368) от 06.03.2016
-
-Saint-Saens - Carnival of the Animals, Danse macabre, Symphony 3 (Ormandy, Entremont, Power Biggs) (2009) [MP3|320 кб/с] <Классическая музыка, Romanticism, Symphony>
-
->>Классика
->>Концерты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony no. 3 in C major, op. 78 "Organ"
-01 -1a- Adagio
-02 -1b- Allegro moderato
-03 -1c- Poco adagio(   Читать дальше...   )Жанр: Классическая музыка, Romanticism, SymphonyПродолжительность: 01:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:257E5148D22592370C321B17A81950A1CC668FD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993899   (893443) от 06.03.2016
-
-Alfred Schnittke - Quasi una sonata, Moz-Art a la Haydn, Suite in the Old Style & Concerto Grosso No. 6 (2006) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Classical, Concerto>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893443.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Quasi una sonata for violin and chamber orchestra (1968/1987) 22'22
-2. Moz-Art à la Haydn. Play on music for 2 violins, 2 small string orchestras, double bass and conductor (1977) 11'43
-Suite in the Old Style, arranged for chamber orchestra (1972/1987) 15'49
-3. I. Pastorale 4'03(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B3DDAB27F6A4E3B31440A801BD773E0AA7585C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993599   (893796) от 06.03.2016
-
-Dvorak - Rusalka (Fleming, Czech Philharmonic Orchestra, dir.Mackerras) (1998) 3 CD [APE|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Predehra.Prelude (4:22)
-02.  Hou, hou, hou, stoji mesic nad vodou! (4:35)
-03.  I pekne vitam, pekne vitam (3:08)
-04.  Hastrmanku, taticku ! (5:10)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 02:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1126B04470772B7470E95ACAD31442B32B88476
 ```
 
 

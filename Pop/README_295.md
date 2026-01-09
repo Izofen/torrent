@@ -1,3 +1,243 @@
+###  Публикация: 1505005   (808335) от 25.10.2021
+
+Laura Taylor - Dancin' In My Feet (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Some Love (4:47)
+02. Dancin' In My Feet (6:01)
+03. All Through Me (6:38)
+04. Follow Your Own Star (3:23)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41155E5F7B03F08CD9997FF9393A35C1A8F4025A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119187   (808818) от 27.03.2017
+
+Cerrone - X-XEX (1993) [FLAC|Lossless|image + .cue] <House, Ambient>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X-xex (5:07)
+02. You-Him-Me (4:44)
+03. Do You Loke Watching (3:59)
+04. Woman In Love (4:40)(   Читать дальше...   )Жанр: House, AmbientПродолжительность: 00:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F32D73BBC857EBB03E131D0EB6D82E630C47ED7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119261   (808913) от 27.03.2017
+
+VA - NRJ Spring Hits (2017) 3CD [MP3|320 Kbps] <Pop, Dance, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Dance, R&BПродолжительность: 03:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F2F71FA957640FFBDFC9A211840CD17F07C981
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119120   (808943) от 27.03.2017
+
+Charli XCX - Number 1 Angel (2017) [FLAC|Lossless|tracks] <Dance-Pop, Electro, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Dreamer (feat. Starrah and RAYE)  (03:58) 
+02|  3AM (Pull Up) (feat M)  (03:59) 
+03| Blame It On You  (03:47) 
+04| Roll With Me  (03:21) (   Читать дальше...   )Жанр: Dance-Pop, Electro, Synth-popПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57E69A55121B544D57406607008D72C128B423C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119234   (809151) от 27.03.2017
+
+VA - Moon River: 20 All-Time Favourite Love Songs (1998) [FLAC|Lossless|image + .cue] <Pop, Soft Rock, Disco, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moon River (2:40)
+02. My Guy (3:25)
+03. Friends (4:51)
+04. Dont Let The Sun Catch You Crying (2:23)(   Читать дальше...   )Жанр: Pop, Soft Rock, Disco, OldiesПродолжительность: 01:09:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1B735EFF307DB54AE1A0DB04F418454B1D87D85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119058   (809288) от 27.03.2017
+
+VA - WMC Bonzai Progressive (2017) [MP3|320 Kbps] <Dance, Club, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809288.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Airwave - The Quest For Beauty (Jam El Mar Remix) 8:50
+002. Stan Kolev - Forsaken (Original Mix) 6:51
+003. Darko De Jan - Reflections 6:34
+004. Phi Phi - Breaking Danger 8:27(   Читать дальше...   )Жанр: Dance, Club, ElectroПродолжительность: 08:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A61B07F54F6E608ECA2E20C58F576360EE99D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504473   (810074) от 24.10.2021
+
+Lana Del Rey - Blue Banisters (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Indie-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Text Book [00:05:03]
+02. Blue Banisters [00:04:52]
+03. Arcadia [00:04:23]
+04. Interlude - The Trio [00:01:14](   Читать дальше...   )Жанр: Indie Pop, Pop, Female VocalПродолжительность: 01:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7655AFF505FCF473DEE80672E9278B4256FF160
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383587   (810120) от 16.05.2020
+
+Hazel English - Wake UP! (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born Like (03:46)
+02. Shaking (03:33)
+03. Wake UP! (03:35)
+04. Off My Mind (03:38)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82640E2E8B396F581EDBE3BBE902AFDEF3275047
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198072   (810121) от 10.01.2018
+
+Julio Iglesias - En El Olympia (1976, 1997) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Introduccion: Vivencias
+02. Por el Amor De Una Mujer
+03. Dicen(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 01:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A92A890BD90B2D4D8FCAB8946D58D74085AB06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504775   (810208) от 24.10.2021
 
 ZAZ - Isa (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -452,255 +692,6 @@ Uma2rman (Уматурман, Ума2рман) - Пой, весна! (2016) [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7C2405138D2592D3A5C930DABE61AF3D1A4DBED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382884   (813275) от 14.05.2020
-
-Ken Laszlo - Greatest Hits & Remixes (2016) 2CD [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, 80s>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Cry (Swedish Remix) (6:38)
-02. Tonight (Vocal Version) (5:50)
-03. Hey Hey Guy (US Remix) (5:49)
-04. Glasses Man (Vocal Version) (6:05)(   Читать дальше...   )Жанр: Italo-Disco, 80s |Продолжительность: 01:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB00D84FBA65E4BFAFA6833AE52A02FAAEA4B75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118239   (813312) от 25.03.2017
-
-VA - New Italo Disco Top 25 (Compilation Vol.5) (2016) [MP3|320 Kbps] <Disco, Italo Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Boy Blue - One Day (Radio Version)  4:12
-02.  Angelica Rose - My Love Is Always Forever (Short Bubbles Version)  4:53
-03.  Elario Dante - One Day (Short Version)  4:24
-04.  R&M - Holiday (Short Version)  4:14(   Читать дальше...   )Жанр: Disco, Italo DiscoПродолжительность: 01:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F778B39EF5125203CCDB1CF5A8A698BAAAAAAEFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118228   (813322) от 25.03.2017
-
-VA - New Italo Disco Top 25 (Compilation Vol.6) (2017) [MP3|320 Kbps] <Disco, Italo Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Boy Blue - More Sadness In Her Eyes  4:50
-02.  Ken Martina - My Love Is Still Forever  3:45
-03.  Aldo Lesina - Goodbye (Short Romance Mix)  4:54
-04.  Emy Care - Dream Of Fantasy (Radio Mix)  4:05(   Читать дальше...   )Жанр: Disco, Italo DiscoПродолжительность: 01:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CC85D0892B9419105E55AAC081F5CFAAEACAD67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 316310   (813476) от 31.03.2011
-
-Сергей Пенкин - Live in Moscow Greatest Hits Live (2 CD) (2010) [MP3|320 kbps]<Поп, Вокал>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813476.jpg" />
-</div>
-
-
-###  Подробнее
-
-СD1 (00:45:03)
-01. Дивная история
-02. Днём весенним
-03. Возьми с собой мою любовь
-04. Я не знаю что будет
-05. Прошу прости
-06. Мне не забыть тебя
-07. За пеленой дождя
-08. В другую весну
-09. Вечная любовь(   Читать дальше...)Жанр: Поп, ВокалПродолжительность: 01:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:442B091B4B2A60D3260621B9778EBC525917EB4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118504   (813489) от 25.03.2017
-
-VA - I Am Woman (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destiny's Child - Independent Women, Part 1 (3:42)
-02. Fifth Harmony feat. Ty Dolla $ign - Work from Home (3:35)
-03. Little Mix - Shout Out to My Ex (4:06)
-04. Jessie J, Ariana Grande & Nicki Minaj - Bang Bang (3:19)(   Читать дальше...   )Жанр: PopПродолжительность: 02:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE1A93DF9025E5EF41A3E1CA82EA6066DD88FE13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118329   (813498) от 25.03.2017
-
-Dino Dvornik - Pandorina kutija (Special Edition) (2010) [FLAC|Lossless|image + .cue] <Funk, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813498.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Iden Ća Ka I Moj Ćaća
-2.Hipnotiziran
-3.Ideja
-4.Više Ili Manje(   Читать дальше...   )Жанр: Funk, PopПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47EFCEEE6800572689091634AC20CD7996A91C15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197893   (813520) от 08.01.2018
-
-VA - Bravo 100 Hits – Das Beste Aus 100 Bravo Hits (2018) 5CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813520.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  U 96  -  Das Boot (Techno Version)  5:14
-02.  Die Fantastischen Vier  -  Die Da!  4:25
-03.  Charles & Eddie  -  Would I Lie To You  3:42(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32FA247B3BEA7A48BAB131382CBC5D98647734CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504192   (813563) от 22.10.2021
-
-Григорий Лепс - Подмена понятий (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813563.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Подмена понятий
-2. Трибунал
-3. Всех благ
-4. Одежда между(   Читать дальше...   )Жанр: PopПродолжительность: 01:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0EF297214209AAB6105CDE5EFE0C5D56EFD93D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383015   (813604) от 14.05.2020
-
-Albert One - Turbo Diesel (Maxi-Singles Collection) (1988) Bootleg, 2000, VAL Records [FLAC|Lossless|tracks + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbo Diesel (5:57)
-02. Lady O (4:51)
-03. Heart On (5:32)
-04. For Your Love (5:52)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:14:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D8886B27DEAEFAB4327CB58ED597ED29C75EE7
 ```
 
 

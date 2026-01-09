@@ -1,3 +1,30 @@
+###  Публикация: 903341   (659057) от 30.05.2015
+
+VA - USA Hot Top 40 Singles Chart 6 June (2015) [MP3|~245 кб/с (V0)]<Dancehall, Trap, Alternative, Electro-R&B, Electropop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taylor Swift Feat. Kendrick Lamar - Bad Blood
+02. Wiz Khalifa Feat. Charlie Puth - See You Again
+03. Fetty Wap - Trap Queen
+04. Walk The Moon - Shut Up + Dance(   Читать дальше...   )Жанр: Dancehall, Trap, Alternative, Electro-R&B, ElectropopПродолжительность: 02:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE0A70F8C3D204DB5E9311E9379AB0C441061254
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903369   (659065) от 30.05.2015
 
 VA - Summer Dance Hits (2015) [MP3|320 кб/с]<Club, Dance, House>
@@ -686,33 +713,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC0B5A16CC2132824AA22D6654AF20994B06D848
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139052   (661294) от 01.06.2017
-
-VA - Yin-Yang Deep House Music Vol.01 (2017) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661294.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sebastian Phillip - People in the Club
-002. Gasmic - Bass Overdose
-003. Ramon Tapia - Highway
-004. Sergio Veros - Fly Away(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ABB15C5BDEAFEA1F9490FC777B5709D2AE929CD
 ```
 
 

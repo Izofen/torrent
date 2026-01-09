@@ -1,3 +1,30 @@
+###  Публикация: 1094105   (927714) от 19.01.2017
+
+VA - Зимний драйв. Зарубежная версия (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927714.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mako & Rat City Feat. Natalola - Run For Your Life 3:20
+002. Attlas - Blood Work 3:07
+003. Yade Lauren - Love & War 3:00
+004. The Chemical Brothers - C-H-E-M-I-C-A-L 3:19(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7791A7557044EC0CDEDAED4AC32E052BD52610F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987289   (927727) от 16.02.2016
 
 VA - Autour De Minuit - Piano Bar (2012) [MP3|320 кб/с] <Jazz>
@@ -667,33 +694,6 @@ VA - XXXXL Дискотечный 50/50 (2011) [MP3|128 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A68374B30F2ED0A4777F48CB6AD85904BBCC8CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094534   (929382) от 18.01.2017
-
-VA - Winter Fitness Hits Times (2017) [MP3|217-320 Kbps] <Club, Vocal, Nu Disco, Progressive, Bigroom, Funky>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pulsedriver, Chris Deelay & Brooklyn Bounce - Past, Present, Future (Festival Mix) 04:43
-02. Stonebridge, Crystal Waters - Be Kind (Club Dub) 05:56
-03. Nick & Vincent - Am I Wrong (Bbop & Roksteadi Extended) 05:20
-04. Xenia Ghali Feat. Katt Rockell - Broken (Extended) 04:51(   Читать дальше...   )Жанр: Club, Vocal, Nu Disco, Progressive, Bigroom, FunkyПродолжительность: 08:20:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:368A8C11E3AAC3939CA6D233CFD61079D1C26D23
 ```
 
 

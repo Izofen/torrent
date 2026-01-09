@@ -1,3 +1,246 @@
+###  Публикация: 1207476   (780568) от 18.02.2018
+
+DJ Piligrim - 3 Albums (2011-2014) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Way
+02. Yulduz (feat. Lola)
+03. Ты Да Я...
+04. Я Дышу Сердцем(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 02:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7024447AE7F2EDF8E9BDF22345C4BEAFF3EDBEA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207400   (780571) от 18.02.2018
+
+Giorgia - Oronero Live (2018) Deluxe Edition [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come neve (3:31)
+02. Chiamami tu (2:25)
+03. Credo (Live) (3:42)
+04. È l'amore che conta (Live) (3:41)(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:099B3B77A4651CD5E7E86584C47954269A9B9756
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207529   (780599) от 18.02.2018
+
+Natasha Barnes - Real (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Don't Mean It
+02. Sun, Moon and Stars
+03. Supermodel
+04. Dollar Signs(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8377009D7CD68B87BD84259D5641A01DBC2F30A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207218   (780815) от 17.02.2018
+
+Telex - 11 Studio Albums (1978 - 2006) Discography [MP3|320 Kbps] <Electronic, Disco, Synth-pop, House, Techno>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Telex - бельгийская группа, образованная в 1978 в Брюсселе бывшим участником джаз-рок-группы Cos Марком Муленом (1942—2008), Даном Лаксманом и Мишелем Мером с намерением «создать что-нибудь по-настоящему европейское, непохожее на рок-музыку, без использования гитар: этим критериям больше всего соответствовала электронная музыка». Группа соединяла эстетику диско-музыки, (   Читать дальше...   )Список альбомов:
+1978 - Looking for St. Tropez
+1980 - Neurovision
+1981 - Sex(   Читать дальше...   )Жанр: Electronic, Disco, Synth-pop, House, TechnoПродолжительность: 08:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D315954CDF0B75CCF154EB2EE63A3CDE48507DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207264   (780852) от 17.02.2018
+
+DJ Piligrim - Ночером...вечером...кечером (1999) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Мне не жить без тебя
+03. Хайр, дустим, прощай
+04. Кур булсин(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA2BFB142FD8B0B01F36C3E1B71FB2ED47325561
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391382   (780958) от 20.06.2020
+
+Sade - Collection 6 Albums (1984-2010) Originals & Remasters [FLAC|Lossless|tracks + .cue] <Pop, Smooth Jazz, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780958.jpg" />
+</div>
+
+
+###  Подробнее
+
+1984 - Diamond Life (2005, Epic– MHCP 603, JP)
+1985 - Promise (2005, Epic ‎– MHCP 604, JP)
+1988 - Stronger Than Pride (2005, Epic– MHCP 605, JP)
+1992 - Love Deluxe (2005, Epic ‎– MHCP 606, JP)(   Читать дальше...   )Жанр: Pop, Smooth Jazz, Soul, Funk, R&B, Trip-Hop |Продолжительность: 04:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A74C91F116A2095DCEB11B71A1DD6408BEFB3B13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391379   (780981) от 20.06.2020
+
+Вахтанг Кикабидзе - Лучшие песни (2001) [FLAC|Lossless|tracks + .cue]<Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RetroПродолжительность: 01:00:50Трэклист: 01. Мои года, мое богатство
+02. Проводы любви
+03. Пожелание
+04. Останься, молодость(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE62488E5BC3A7B45ECD1E5FC75AE00F2B8823A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391182   (781010) от 20.06.2020
+
+Black Eyed Peas - Translation (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rap>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_781010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RITMO (Bad Boys For Life) (feat. J Balvin) (03:34)
+02. FEEL THE BEAT (feat. Maluma) (03:57)
+03. MAMACITA (feat. Ozuna & J. Rey Soul) (04:11)
+04. GIRL LIKE ME (feat. Shakira) (03:42)(   Читать дальше...   )Жанр: Pop, RapПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F27E2D8EC2CD2E25759DFB553C2DFDDFC055709
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391127   (781025) от 20.06.2020
+
+VA - Another Side Of Fancy Part Three (2020) 2CD, Compilation, Remastered [MP3|320 Kbps] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_781025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timerider - Space Iwan (12'' Version) (5:36)
+02. Mozzart - Jasmin China Girl (12'' Version) (6:31)
+03. Grant Miller - (Find My) Tracks In The Snow (12'' Version) (5:07)
+04. G.P. Universe - Let Me Love You (12'' Version) (5:14)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E00213A527049B46A73F13651388CF6CDF5F7115
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390980   (781077) от 20.06.2020
 
 I Break Horses - Warnings (2020) [MP3|320 Kbps] <Indie Pop>
@@ -452,247 +695,6 @@ Laura Branigan (Лора Брэниган) - The Best Of Laura Branigan (1990) A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C7E814E02231D6FFDBC58A05C9FC513BA8B3E18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206062   (782946) от 12.02.2018
-
-The Glass Family - 2 Albums (1978,1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. DJ You Know How To Make Me Dance (7:09)
-02. No One Can Find Love (7:24)
-03. Disco Concerto (15:55)
-(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F407FD611D442A0C40A214494320F1AF8E6EF4B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206192   (782949) от 12.02.2018
-
-De Lux - More Disco Songs About Love (2018) [MP3|320 Kbps] <Dance-pop, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782949.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 875 Dollars (5:59)
-2. These Are Some Of The Things That I Think About (4:41)
-3. Smarter Harder Darker (3:54)
-4. Cause For Concern (4:59)(   Читать дальше...   )Жанр: Dance-pop, Italo-DiscoПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D803D1DC770471F2F89DA00A2A26220F615A0329
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205957   (782960) от 12.02.2018
-
-Jose Calvario - The Best Disco In Sound (1977) LP [MP3|320 Kbps] <Instrumental, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Lisbon, Coimbra, Things To Imagine No 2 (11:10)
-02. Cancao Do Mar, Lisboa A Noite, As Coisas Que Eu Invento (12:58)Жанр: Instrumental, DiscoПродолжительность: 00:24:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4C187F02C92A9574CAEB64E6A33959B5115552
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206079   (782961) от 12.02.2018
-
-Shake - Shake (1977) LP [MP3|320 Kbps] <Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Singing This Song For You (3:12)
-02. Ne Me Regarde Pas (4:11)
-03. If (3:36)
-04. Tu Sais Je T'Aime (You Know I Love You) (3:19)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA6FBD961187F98130BC6143164E6E3D1C105C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390508   (783025) от 15.06.2020
-
-Песняры - Концерт к 50-летию Белорусского государственного ансамбля Песняры с Президентским оркестром Республики Беларусь (2020) [MP3|320 Kbps] <Retro, Эстрада>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783025.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Завушніцы
-2. Мой родны кут
-3. Касіў Ясь канюшыну
-4. Зачарованая мая(   Читать дальше...   )Жанр: Retro, ЭстрадаПродолжительность: 01:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D95A6C59473067FB89820A99B479CDD73A5DAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205687   (783208) от 11.02.2018
-
-Noemi - La Luna (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Non smettere mai di cercarmi
-02. Porcellana
-03. Autunno
-04. L'attrazione(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B170A74D73F3AF96F0651FC205BDBCDED0CB85E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205878   (783228) от 11.02.2018
-
-VA - Daniele Baldelli Presents Baia Degli Angeli 1977-1978 (2005,2007) 2CD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарная итальянская дискотека 70-х "Залив Ангелов" от диджея и продюсера Daniele Baldelli.01. Rhythm Makers - Zone (5:18)
-02. John Forde - Don't You Know Who Did it (2:41)
-03. Bombers - Don't Stop the Music (4:01)
-04. Tony Silvester & The New Ingredient - Pazuzu (3:24)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 02:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F11D0063A1FA3C4D77DC02B91EFED5155E6A9A62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390030   (783332) от 14.06.2020
-
-VA - 100 Greatest 60s: Golden Oldies From The Sixtie (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aretha Franklin - Respect (02:27)
-02. Ben E. King - Stand by Me (02:54)
-03. Sam & Dave - Soul Man (02:36)
-04. The Monkees - I'm a Believer (02:45)(   Читать дальше...   )Жанр: PopПродолжительность: 04:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E9C698A853AE59792799C7B0F482D0CF63EE7BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390040   (783346) от 14.06.2020
-
-VA - 100 Greatest Summer Party Songs 2020 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783346.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dua Lipa - Don't Start Now 3:03
-002. Ofenbach - Rock It 2:26
-003. Lizzo - Juice 3:15
-004. Rita Ora - How To Be Lonely (Bomba Estéreo Remix) 2:51(   Читать дальше...   )Жанр: PopПродолжительность: 06:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFCED67EE3F0872D600714EA9DFF84D4409F0FB7
 ```
 
 

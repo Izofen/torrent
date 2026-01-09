@@ -1,3 +1,30 @@
+###  Публикация: 1030191   (674716) от 30.06.2016
+
+VA - Зарубежная Дискотека ХХ Века - 31 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Del Faro - Bandiera La Playa Del Sol ( 1987 )
+02. Blondie - Atomic ( 1980 )
+03. Anika - Precious Love ( 1994 )
+04. Tavares - Heaven Must Be Missing an Angel ( 1976 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A2D7F33CF440CCE40993742A0DB70CFAA39A9AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030194   (674717) от 30.06.2016
 
 VA - Зарубежная Дискотека ХХ Века - 32 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
@@ -683,39 +710,6 @@ VA - Lets Rock: Good History (2017) [MP3|320 Kbps] <Classic Rock, Hard Rock, Alt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74A5D5B0F40F8DE4244A8A5B3FDAE7148A32DB2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507623   (676513) от 11.06.2012
-
-VA - Инструментальная музыка (2012) vol. № 70 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. М.Таривердиев - Вокзал прощания
-02. Agua Loca Project - Bahia Blanca
-03. Kumpusch & Seelos - California Sunset
-04. D.Luca - Звуки Днепра
-05. G.Marradi - Tears
-06. Space - Magic Fly
-07. S.Atan - Berkorban Apa Saja
-08. Б.Шереметев - Я вас любил
-09. Waldo De Los Rios Orchestra - Everybody's Talkin'
-10. Chris Spheeris - Slow Dance(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49343A18CD0ADCC6CFC8BEE4B3BC33154E5EBDA3
 ```
 
 

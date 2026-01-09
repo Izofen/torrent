@@ -1,3 +1,27 @@
+###  Публикация: 1035930   (622551) от 19.07.2016
+
+Шаблоны - GraphicRiver - Disturb - Intense Distortion Effect Photo Template [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disturb - Intense Distortion Effect - шаблон для Вашего творчества.Формат: PSDРазрешение файлов: 3500×4000 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90823D263D1F0DACAB300026AB7A91EC378C548
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036190   (622552) от 19.07.2016
 
 Экшены - GraphicRiver - Multiple Exposure Photo Effect Photoshop Action [ATN]
@@ -603,32 +627,6 @@ magnet:?xt=urn:btih:09977EB4B8A681E3C01273B0BFB08282D7F6F585
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61C312AB534132BE168D758875DE7D24EAF4F38D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229503   (626164) от 06.06.2018
-
-Звуковые библиотеки - Loopmasters - Production Master - Neurosys [WAV, ADG]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из самых больших пакетов сэмплов на сегодняшний день, предоставляющий огромный выбор инструментов, необходимых для создания нейро-музыки жанров D&B/Neurohop/Dubstep/Drumstep
-
-Пожалуйста, обратите внимание: вам потребуется Ableton Live, чтобы в полной мере использовать этот продуктФормат: WAV, ADG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93932F45F0AF4AC5A0B5F550D9B2C98ACD81B048
 ```
 
 

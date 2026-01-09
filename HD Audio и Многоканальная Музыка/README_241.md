@@ -1,3 +1,30 @@
+###  Публикация: 1205059   (620346) от 12.04.2019
+
+Queen - Hot Space (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Staying Power (4:13)
+02. Dancer (3:48)
+03. Back Chat (4:36)
+04. Body Language (4:32)(   Читать дальше...   )Производство: EMI Records - EMA 797Жанр: RockПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7841371A88F4E0F2E1E81CD4B2F373FF0B96D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033055   (620588) от 20.07.2016
 
 Jethro Tull - Aqualung (1971) 2 ADVD, 40th Anniversary Adapted Edition, 2016 [PCM 2.0| DTS 5.1, AC3] <Progressive rock, Folk rock, Hard rock>
@@ -665,33 +692,6 @@ magnet:?xt=urn:btih:C85997CC5FC2605B8D46AABA8C767540C76C0B98
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8CF10AA50B300402F89823344E282237B761DDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228835   (633541) от 02.06.2018
-
-Henry Mancini - The Return of the Pink Panther & Symphonic Soul (2017) 1975 [DTS 4.0 CD-Audio|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633541.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Return of the Pink Panther
-
-01. The Pink Panther Theme (Mancini) Soloist: Tony Coe (Tenor Sax)    [0:03:06.06]
-02. The Greatest Gift (Mancini; David) Instrumental Version    [0:02:20.69](   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E920CC869DD5F3028EDFA61E469B633DC14488B7
 ```
 
 

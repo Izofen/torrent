@@ -1,3 +1,243 @@
+###  Публикация: 1396160   (748401) от 14.07.2020
+
+La Bionda - 4 Albums (1978-1980) LP Mint [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748401.jpg" />
+</div>
+
+
+###  Подробнее
+
+La Bionda - итальянский музыкальный дуэт братьев Кармело (итал. Carmelo; род. 1949) и Микеланджело (итал. Michelangelo; род. 1952) Ла Бионда. Популярность пришла после того, как они обратились к стилю диско и стали одними из первых, кто способствовал распространению диско в Европе. Первый успех к ним пришёл под псевдонимом DD Sound, а затем и под своей фамилией - (   Читать дальше...   )Список альбомов:
+1978 - La Bionda
+1979 - Bandido
+1979 - High Energy(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 02:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8F11679002C8FE86AFD7736FED074EB83942E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281988   (748419) от 10.02.2019
+
+Meghan Trainor - The Love Train (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Blue-Eyed Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ALL THE WAYS (02:55)
+02. MARRY ME (03:35)
+03. I'M DOWN (03:16)
+04. AFTER YOU (03:26)(   Читать дальше...   )Жанр: Pop, Dance, Blue-Eyed SoulПродолжительность: 00:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57C73163427E66BCBC0BF6ADFC34E1C07D913A9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282027   (748427) от 10.02.2019
+
+VA - Euphoric Hard Dance Floorfillers (2019) [MP3|320 Kbps] <Hard Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starman feat. Nikki - Waiting (Poomstyles Radio Edit) 03:38
+02. Unit 13 - A Little Party (Radio Edit) 03:38
+03. S5 - Groove Theory (SystemShock Radio Edit) 03:57
+04. Beat Dynamix - Hypnotized (Radio Edit) 03:59(   Читать дальше...   )Жанр: Hard DanceПродолжительность: 01:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8491CF1B56C4E67FB7B3E6C9B81E669CA55F39A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281931   (748513) от 10.02.2019
+
+The Dip - The Dip Delivers (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sure Don't Miss You (02:54)
+02. Best Believe (03:56)
+03. Advertising (feat. Jimmy James & Delvon Lamarr) (03:00)
+04. Adeline (03:32)(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0989A55AFA39B31B353513864933B9072A837BF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396361   (748682) от 14.07.2020
+
+Perry Rosewood - Citroen Melodie (1979) LP [MP3|320 Kbps] <Disco, Easy Listening, Jazz-Funk, Instrumental>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Citroen-Melodie (Deux Chevaux) (4:09)
+02. Santa Ponsa (4:14)
+03. Black Magic Ladies (5:09)
+04. My Way To Laredo (5:21)(   Читать дальше...   )Жанр: Disco, Easy Listening, Jazz-Funk, InstrumentalПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FED26770A132BF5565D935A6047A103CC39938E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 664067   (748912) от 03.06.2013
+
+Вячеслав Малежик - 36 альбомов (1993-2013) [FLAC|Lossless]<Pop, Blues, Rock, Авторская песня>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Blues, Rock, Авторская песняПродолжительность: 01:19:46
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216635   (749204) от 31.03.2018
+
+Надежда Кадышева и Золотое кольцо - Всё как прежде (2018) [MP3|320 Kbps] <Pop, Pop-Folk>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Всё как прежде (2:32)
+02. Белый ветер (3:45)
+03. Чёрное море (2:22)
+04. Голубая ночь (3:05)(   Читать дальше...   )Жанр: Pop, Pop-FolkПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7EB4B0F5310E07745B3EC49B5B7EE694AB5412
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216572   (749431) от 31.03.2018
+
+Потап и Настя - Не пара-альбом №1 (2008) |Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро (яфшоке!)
+02. Икра
+03. Крепкие орешки
+04. Не пара(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19F64A26420CEAB4EEF15DDBF1DFFA70753F81BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523605   (749789) от 12.01.2022
+
+VA - ZYX Italo Disco: Hits & Rarities Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ken Laszlo - Tonight (5:48)
+02. Brando - He's Brando (6:10)
+03. Ryan Paris - Dolce Vita (7:33)
+04. Roxanne - Shwo Me (5:59)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 02:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2060A5E79B0A5492289C5A289191FE2F9918FD6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523609   (749790) от 12.01.2022
 
 VA - ZYX Italo Disco: Hits & Rarities Vol. 6 (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
@@ -453,249 +693,6 @@ Ariana Grande - thank u, next (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Hip-Hop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A8448677C845CFE762D759FDF4C14AADD754218
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281476   (751617) от 08.02.2019
-
-Lara Fabian - Papillon (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papillon
-02. Je Suis à Toi
-03. Changer Le Jeu
-04. Par Amour(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629C6DFB84A0F72E1AE15D0451C558A4D7BD77CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281536   (751955) от 08.02.2019
-
-Curacao - 2 Albums (1988, 1989) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Австрийская поп-группа, основанная в 1987 году Лео Корном.01. You (3:24)
-02. Curacao (3:10)
-03. I Feel Good (3:28)
-04. Time Up For Love (4:11)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 01:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FEF3A6FDA1AC4BDEDD15CCB4FBE8256A858929E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018911   (752171) от 22.05.2016
-
-Shania Twain - Still The One: Live From Vegas (2015) [FLAC|Lossless|image + .cue] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Gonna Getcha Good! (4:13)
-02. You Win My Love (4:33)
-03. Don't Be Stupid (You Know I Love You) (3:45)
-04. Up! (2:56)(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95FC3E985DA1898A065B9DD1B33C1B0A56CA0B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281228   (753362) от 07.02.2019
-
-VA - Discomax (Mixed by A & A Mixmasters) (2012) Partially Mixed, Limited Edition [FLAC|Lossless|tracks + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various (Mixed by Mr. Acetone) - Megamix Version [111-124 BPM] (14:18)
-1.1-Fable Time - Russia
-1.2-Tom Hooker - Feeling Okay
-1.3-Madonna & MC Miker ''G'' & Deejay Sven - Holiday Rap(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:10:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64DCFB536C95DD73824CBE88FDDE2CD78F9D81F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281202   (753482) от 07.02.2019
-
-The Beloved - Where It Is (1988) Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock, New Wave, 80s>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Hundred Words (3:43)
- 02. Slow Drowning (4:29)
- 03. In Trouble and Shame (7:07)
- 04. This Means War (radio mix) (3:28)(   Читать дальше...   )Жанр: Pop Rock, New Wave, 80sПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3081A86161D24E0B7E325CC9B930992373D77AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018984   (753633) от 21.05.2016
-
-VA - The Yellow Collection (2016) [MP3|320 кб/с] <Disco, Nu-Disco>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atella feat. O Martin - Mechanical Sparrow (04:32)
-02. Nteibint feat. Rush Midnight - By Your Side (04:31)
-03. Du Tonc - We Can Hold On (Satin Jackets dub) (05:06)
-04. MiddleSkyBoom feat. Eliezer - Slow With The Run (05:52)(   Читать дальше...   )Производство: Eskimo BelgiumЖанр: Disco, Nu-DiscoПродолжительность: 01:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348282993F6E988E1A705373F8E7FCB67C18E582
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395402   (753797) от 11.07.2020
-
-Jason Mraz - Look For The Good (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look For The Good (05:10)
- 02. Make Love (05:36)
- 03. My Kind (04:57)
- 04. Good Old Daze (04:12)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3B409C049444FC594387FFFCFE9484FA289C2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215947   (754776) от 28.03.2018
-
-Soultans - 2 Albums (1997-1998) [MP3|320 Kbps] <Pop, Soul, Funk>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Ready (3:31)
-02. I'd Rather Go Blind (4:20)
-03. A Piece Of Heaven (4:21)
-04. If I Can't Have You (4:00)(   Читать дальше...   )Жанр: Pop, Soul,FunkПродолжительность: 01:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC3E2811CBA35BF498BE50FC57E97FACC4171E5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355991   (754815) от 09.01.2022
-
-Umberto Tozzi - 26 Albums (1976-2019) Collection [MP3|320 Kbps] <Pop, Pop Rock, Ballad, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Умберто Антонио Тоцци (Umberto Antonio Tozzi) – популярный итальянский композитор, эстрадный поп-певец и актер. Имея отличные вокальные данные с раннего детства, он заработал славу композитора в 22 года. Сегодня признан самым востребованным итальянским исполнителем за пределами родины, со времени начала выпуска своих альбомов Тоцци продал около 45 млн. записей.Список альбомов:
-1976 - Donna Amante Mia
-1977 - Aria & Cielo
-1977 - E' Nell'Aria...Ti Amo(   Читать дальше...   )Жанр: Pop, Pop Rock, Ballad, VocalПродолжительность: 01:01:31:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:238544E8B4107B2C3F43CBA91E829A08D6CEDE61
 ```
 
 

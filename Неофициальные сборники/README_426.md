@@ -1,3 +1,30 @@
+###  Публикация: 1290116   (681884) от 18.03.2019
+
+VA - Empire Records - Strip 2 (2019) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jay Willie Blues Band - You'll Lose A Good Thing
+02. Siggi Schwarz - Crossroads Blues
+03. Mindi Abair & The Boneshakers - Vinyl
+04. Christie Lamb - What I Love About Love(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D30396348FD31A08D7B09FC5151CBA61771E1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029530   (681955) от 26.06.2016
 
 VA - Hits of My Soul Vol. 02 (2016) [MP3|320 кб/с]<House, Electronic, Dance>
@@ -668,39 +695,6 @@ VA - The House Meloman Collection (2017) [MP3|320 Kbps] <House, Progressive, Fut
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A786F46CD7D87F8B6FB9F7B17AB9A0F2B8FBB599
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507827   (683265) от 08.06.2012
-
-VA - В Машину! Лето Русский (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. E.Lena - Истерика
-02. Джиган (Geegun) feat. Жанна Фриске - Ты Рядом (DJ MEG & NERAK Remix)
-03. 25-17 - Звезда
-04. Hi-Fi - Не Покидай
-05. DNA Family - С Пятницы По Воскресенье
-06. Lerika & DJ Sebastian - Небо и Земля
-07. Юрий Федотов & А-Нет - Волшебная Игра
-08. Roma Kenga - Ты Будешь Счастливой
-09. Music People Deejays - Выпускной (New 2012 Radio Version)
-10. David & Dino MC 47 - Ты Больше Не Моя (DJ Oleg Perets Remix)2012Жанр: PopПродолжительность: 05:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06D494FEF39B0EFA8C2CB51BCC7885800C62334
 ```
 
 

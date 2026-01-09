@@ -1,3 +1,164 @@
+###  Публикация: 1133047   (695195) от 12.05.2017
+
+VA - Dubai Lounge Vol.1 (Compiled by Volcanuca) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Collective Sound Members - Just A Memory Away (Original Mix)  6:33
+02.  Vintage Bullet - Pompadur (Original Mix)  2:36
+03.  Sombra Modos - Botavara (Original Mix)  5:34
+04.  Sweetadelic - Aguas Claras (Original Mix)  5:37(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA8E787C2FB4B2BF08CDEC979BC03B32D0931470
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133345   (695198) от 12.05.2017
+
+VA - Breakfast On The Beach (25 Beautiful Electronic Anthems) Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jack Funk - Naples (Original Mix)  10:28
+02.  Oceanus - Arabamish (Original Mix)  5:34
+03.  Alexius Gabrikov - The Lone Seagull (Original Mix)  3:13
+04.  Zach Fernandez - Chiem (Original Mix)  3:39(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8634FA7CDEBC6896C529ABB69A3D4998AC6A247
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133350   (695200) от 12.05.2017
+
+VA - Poolside Grooves #3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Benatural - Sodur (Original Mix)  7:41
+02.  Van Young - Em Be Myo (Original Mix)  4:53
+03.  Miper - Alpha Swirl (Original Mix)  4:45
+04.  Dominik Pointvogl - Piano Sunset (Original Mix)  6:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:916F2E7B9B1AEF7889B768D0A2478A1D1495346E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133429   (695201) от 12.05.2017
+
+VA - Enhanced Ibiza (2017) [MP3|320 Kbps] <House, Future House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tritonal - Hey MaMaMa (Club Mix)  3:30
+02.  Felix Cartal - Get What You Give (Original Mix)  3:39
+03.  Ryos - Discover Love (Original Mix) (feat. Envy Monroe)  3:45
+04.  Cuebrick - Smoke & Fire (Original Mix) (feat. KARRA)  3:17(   Читать дальше...   )Жанр: House, Future House, Progressive HouseПродолжительность: 02:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF54CBE57B8EA2EF7E0609AEC42E47D2636E5BAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201044   (695555) от 17.08.2020
+
+Echo Grid (Aphelion) - Discography 16 Releases (2013-2020) CRL Studios, Stereoscenic [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Downtempo>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neon Nightmares (04:09)
+ 02. Neon Nightmares (Instrumental) (04:07)Тип издания: WEBЖанр: Ambient, IDM, Downtempo •Продолжительность: 07:31:40 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF02B4C9EA793751D28C1F0144AC080ECA45410
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 896161   (695578) от 08.05.2015
+
+Amon Tobin - Dark Jovian (2015) [MP3|320 кб/с|Vinyl]<Abstract, Ambient>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Jovian (02:50)
+02. In Your Own Time (03:07)
+03. Adrastea Contact (04:25)
+04. Io (06:45)
+05. Encounter on Io (07:00)(   Читать дальше...   )Жанр: Abstract, AmbientПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1F611695D7B68C9C5255BAA229D1E51EB445818
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402854   (695680) от 17.08.2020
 
 VA - Be One (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
@@ -535,168 +696,6 @@ VA - Slow Down Ibiza Vol.1 (Balearic Calm Chill Tunes) (2017) [MP3|320 Kbps] <Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFFF56AF0A4F403E7CB4EAC15985489795F00B0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186895   (697331) от 16.08.2020
-
-Zodiac - Лучшее (Золотая Коллекция) (2008) 2CD [FLAC|Lossless|image + .cue] <Synthpop, Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697331.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Зодиак
-02. Пасифик
-03. Провинциальное диско(   Читать дальше...   )Жанр: Synthpop, ElectronicПродолжительность: 01:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF51EB3B55A75EAD7912B3040EAD4E3912400F1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534146   (697524) от 28.02.2022
-
-Lo-Fi Electronic - The Best Of (2020) [MP3|320 Kbps] <Synthpop, Ambient>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lunar Module ('78 Mix) (4:43)
-02. Void Vision (6:05)
-03. Into Oblivion (6:09)
-04. Rocket Man (6:17)(   Читать дальше...   )Жанр: Synthpop, AmbientПродолжительность: 01:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:011F37A2132A195349D02F7013338AA85F45031A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534286   (697525) от 28.02.2022
-
-Aivo - Infinite Path (2022) [MP3|320 Kbps] <Synthwave, Sovietwave, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to the Perfect City (4:19)
-02. Apollo-Soyuz (4:03)
-03. Neon Way (3:32)
-04. Out of Control (3:46)(   Читать дальше...   )Жанр: Synthwave, Sovietwave, SpacesynthПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:008853D0B09D074D16778B1783D3ADAC29186FCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288292   (697641) от 10.03.2019
-
-Michael Oakley - Introspect (2019) NRW Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introspect (1:05)
- 02. Left Behind (4:16)
- 03. Crystal Ships (5:14)
- 04. Control (4:02)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 00:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B0CF59A642B10CA9053EC74C7FBC8FB8D56DF2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288238   (697651) от 10.03.2019
-
-VA - Best Of Uplifting Trance (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Allen & Amir Hussain - Trinket (Extended Mix)
-02. Talla 2XLC feat. Sarah Lynn - Love Is Wide Awake (Extended Mix)
-03. ReOrder feat. Katty Heath - Meteorite (Extended Mix)
-04. Patrick Dreama - Carousel (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B539145CB0A89B073EE452792367C6BF6A2C82F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402863   (697703) от 16.08.2020
-
-StereOMantra - Present (2020) OM Mantra Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, Ambient, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Particles (07:40)
- 02. Nectar (08:10)
- 03. Stratosphere (07:10)
- 04. Lantern (06:15)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6177F08863C0F4C8F42926139FD45F0DEFEE1D05
 ```
 
 

@@ -1,3 +1,349 @@
+###  Публикация: 1092150   (940270) от 11.01.2017
+
+Ruaidhri - Celtic Landscapes (2013) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Castlerigg [00:06:16]
+02. Glendalough [00:07:59]
+03. Iona [00:06:45]
+04. Lindisfarne The Holy Isle [00:05:58](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEBD96D91C99D97FEB25AE231B90077967669380
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 283539   (940448) от 17.01.2011
+
+Jean-Marc Staehle - Anti-Stress Music (2004) [MP3|192 kbps]<New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Un Sourire Tranquille (4:14)
+02. Accord Parfait (4:23)
+03. Calme Retrouve (4:59)
+04. Le Chemin Vers Toi (4:46)
+05. Source Doree (7:05)
+06. Ile D'amour (3:40)
+07. L'enfant Retrouve (4:42)
+08. Majestueux Et Serein (4:23)
+09. L'appel De L'infini (5:41)
+10. Une Nouvelle Histoire (4:07)(   Читать дальше...)Жанр: New Age, RelaxПродолжительность: 01:01:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61BFC504D7F175626EAE5E4083B94DC98C26EB06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 175634   (940546) от 14.02.2010
+
+Idir - Deux Rives, un Reve (2002) [FLAC|Lossless]<International>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Pourquoi cette pluie ? (3:24)
+02. A Vava Inouva 2 (4:25)
+03. Trompettes... (3:03)
+04. Tizi Ouzou(San Francisco) (4:30)
+05. Azwaw (3:27)
+06. Ssendu (3:12)
+07. Zwit Rwit (3:39)
+08. Yelha Wurar (3:56)
+09. Illusions (3:33)
+10. Tiwizi (4:29)(   Читать дальше...)Жанр: InternationalПродолжительность: 01:00:20
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 175229   (940561) от 14.02.2010
+
+Vali - Forlatt (2004) [MP3|224 kbps]<Dark Neofolk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Når Vinden Gråter (As The Wind Is Weeping) (3:34)
+02. Dypt Inne I Skogen (Deep In The Forest) (3:07)
+03. Et Ensomt Minne (A Lonely Memory) (4:22)
+04. Nordlysets Dans (Northlights Dance) (3:02)
+05. Lengsel (Yearning) (3:36)
+06. Sorg (Sorrow) (6:06)
+07. Skumringens Omfang (The Twilight Dimensions) (0:49)
+08. Her Ute I Mørkret (Out Here In Darkness) (4:11)
+09. Tåke (Fog) (1:40)
+10. Dødens Evige Kall (Death's Eternal Call) (4:36)Жанр: Dark NeofolkПродолжительность: 00:35:03
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 858535   (940881) от 16.01.2015
+
+Hans Zimmer - Интерстеллар / Interstellar (Original Motion Picture Soundtrack) (2015) Deluxe Edition - Illuminated Star Projection [FLAC|Lossless]<Soundtrack>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. First Step (01:48)
+02. Flying Drone (01:53)
+03. Atmospheric Entry (01:39)
+04. No Need To Come Back (04:32)
+05. Imperfect Lock (06:55)
+06. What Happens Now? (02:04)
+07. Who's They? (07:17)
+08. Murph (11:20)
+09. Organ Variation (04:51)
+10. Tick-Tock (08:18)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 02:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CACA6076583ECFF4FF95D0980904571732F3FED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 858531   (940887) от 16.01.2015
+
+Hans Zimmer - Интерстеллар / Interstellar (Original Motion Picture Soundtrack) (2015) Deluxe Edition - Illuminated Star Projection [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. First Step (01:48)
+02. Flying Drone (01:53)
+03. Atmospheric Entry (01:39)
+04. No Need To Come Back (04:32)
+05. Imperfect Lock (06:55)
+06. What Happens Now? (02:04)
+07. Who's They? (07:17)
+08. Murph (11:20)
+09. Organ Variation (04:51)
+10. Tick-Tock (08:18)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 02:12:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D48F6EB69A32B5CB8E19A22BC3D48C628AE2438
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 858201   (941088) от 16.01.2015
+
+Cliff Martinez - Far Cry 4 (Original Game Soundtrack) (2014) 2CD Edition [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. The Cooling Night (02:53)
+02. Like a Tiger's Shadow (03:52)
+03. Retreat Is a Victory (02:11)
+04. Every Life, a New Warrior (03:07)
+05. No One Left Behind (01:31)
+06. No End to Them (01:52)
+07. Amita's Suite (04:25)
+08. Onto the Mountain that Walks (04:01)
+09. The Great One (04:23)
+10. To Face a Demon (01:23)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598894B205E5EA8421853E99C5BC0048E52F43A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 752351   (941108) от 02.02.2014
+
+VA - The World of Akkordeon (2 CD) (1997) /ZYX Music/ [FLAC|Lossless]<Instrumental, Easy Listening, Accordeon>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. Frieda und Carmen Wilhelm - Vogelgezwitscher 	(02:01)
+02. Nando Monika - Carnevale di Venezia 		(02:57)
+03. Frieda und Carmen Wilhelm - Lustig und fidel 	(02:15)
+04. Georg Schwenk - Rosamunde 				(03:35)
+05. Harry Mooten - Deine Träume 			(01:48)
+06. Georg Schwenk - Hummelflug 				(01:31)
+07. Harry Mooten - Coup de Foudre 			(02:31)
+08. Georg Schwenk - Guantanamera 			(02:42)
+09. Drei Generationen Raymond - Maria Linda 		(02:28)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, AccordeonПродолжительность: 01:37:52 (00:47:55 + 00:49:52)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C532230F900C80117055F61129F09168AB26DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486372   (941153) от 16.01.2015
+
+Dagda - 6 альбомов (1999-2010) [MP3|320 кб/с]<New age, Meditative, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+
+1999 - Celtic Trance
+2000 - Underworld(   Читать дальше...   )Жанр: New age, Meditative, CelticПродолжительность: 05:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC198B0733CC4CDC4C727AC1E4C7A9B4122C0760
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 250185   (941155) от 16.01.2015
+
+Eric Chiryoku - 3 альбома (2006-2012) [MP3|320 кб/с]<New Age, Easy Listening, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+
+2006 - Spring Of Life
+2007 - Winter Story
+2012 - Autumn JourneyЖанр: New Age, Easy Listening, PianoПродолжительность: 02:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A43D3AE12D4267637AC30272C3E67BEF616B5C98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 751733   (941177) от 02.02.2014
+
+VA - Accordion Top Tunes (2003) /A Play Collection/ [FLAC|Lossless]<Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Bent Vigg - Le Canari 			(02:54)
+02. John Godtfredsens Trio - Quai d'Orsay 	(02:32)
+03. Kirmes Musik - Klarnetten Muckl 		(03:04)
+04. Rene Grolier - Gaillardo 			(02:12)
+05. Herman Gehring & Troels Pedersen -
+   Det Ligger Karlek I Luften I Kvall 		(02:04)
+06. Kirmes Musik -
+   Appenzeller Jodler Holzhackermarsch 		(03:00)
+07. John Godtfredsens Trio - Harlekin 		(03:05)
+08. Rene Grolier - Fleur de Paris 		(02:26)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A67AFD3D4BCC17E0D51B9963D4CC40AC8F4479
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091423   (941438) от 10.01.2017
 
 George Streicher - Howard Lovecraft and the Frozen Kingdom / Говард и Замерзшее королевство  (2016) [MP3|320 Kbps] <Score>
@@ -433,332 +779,6 @@ VA - Verotika / Веротика (Motion Picture Soundtrack) (2020) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EDEB036A12C5000B0DC77D81826FE7D999AE04F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363475   (942587) от 28.02.2020
-
-VA - Verotika / Веротика (Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack, Rock>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942587.jpg" />
-</div>
-
-
-###  Подробнее
-
-|04:19| 01. Eyes Ripping Fire
-|04:47| 02. Dancing Madly Backwards on a Sea of Air
-|04:39| 03. Close Your Eyes
-|04:33| 04. Crimson Lust(   Читать дальше...   )Жанр: Soundtrack, RockПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE48BF307169D7180AB085F34A6B604C7684326
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091113   (942736) от 09.01.2017
-
-Secret Garden - Live at Kilden: 20th Anniversary Concert (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celebration
-02. Nocturne
-03. Silent Wings
-04. Elan(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:15:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B4B9BFA284581950FF583078814EAD24DBC475A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751889   (942826) от 01.02.2014
-
-Anthesteria - Metro 2033 (2010) [MP3|320 кб/с]<OST, Electronic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(1:48) 01. Metro 2033 Main Theme
-(3:03) 02. The Anomaly
-(2:17) 03. The Market
-(2:06) 04. Haunted Tunnels
-(1:52) 05. Ulman And Pavel
-(2:53) 06. Hope
-(1:06) 07. Guitar Song 1
-(5:11) 08. Alone
-(3:22) 09. A Dog In The Boiler
-(2:22) 10. The Search(   Читать дальше...   )Жанр: OST, ElectronicПродолжительность: 01:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9CB39009FBBD8716B6D81800B79AEB0586F2DC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 626903   (942877) от 06.03.2013
-
-Armik - Greatest Hits (2CD) (2008) [MP3|320 кб/с]<Instrumental, Flamenco>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Romantic Dreams
- 02. Moonlight Cafe
- 03. Mar De Suenos
- 04. Morning Sun
- 05. Mi Passion
- 06. Rumba De Noche
- 07. Corazon
- 08. Amor De Guitarra
- 09. Gypsy Cafe
- 10. Guitarrista(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 01:17:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FED2F9B26B9EEF1D21B9ED81A00AC2BFCD8DF53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751575   (942943) от 01.02.2014
-
-New Age Style - Enigmatic 13 (2014) [MP3|320 кб/с]<New age, Enigmatic, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Magic Ear - Eternal Spring (4:35)
-02. Desert Rose - Fire in your Heart (4:05)
-03. The Rose Keller Project - Dis Moi (4:15)
-04. Quinn - The Mercy of the World (4:20)
-05. Desert Rose - Perception of the Mind (4:33)
-06. Desert Rose - Breath of Life (4:37)
-07. David Wright - Guardians (6:06)
-08. Quinn - All Within a Whisper (5:27)
-09. Briza - Midnight Moon (6:22)
-10. Avalone - Okale (Sun) (3:52)(   Читать дальше...   )Жанр: New age, Enigmatic, ChilloutПродолжительность: 02:22:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D78D2688FA58C2A50818D58809DCA42EBD6BBF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091091   (942992) от 09.01.2017
-
-Erik Scott - In the Company of Clouds (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nine Lives [00:04:35]
-02. Seven Veils [00:04:50]
-03. Women of Avalon [00:05:44]
-04. Breathing Room [00:05:34](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6DD06E49A4D6D7856F9A375A717E620BDA3634B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091512   (943012) от 09.01.2017
-
-Ruaidhri - Celtic Goddess (2010) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nanna
-02. Rosmerta
-03. Sulis
-04. Habonia(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 00:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6E4BA6C567E6294F54DBBBBEA3DB58A2012313
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 282668   (943085) от 15.01.2011
-
-Deuter, Kamal & Anugama - Reiki Wellness (Энергия Рейки) (2002) [FLAC|Lossless]<Meditative, New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Deuter - Flowing
-2. Kamal - Whale Dreaming
-3. Anugama - Magic Flow
-4. Deuter - Healing Circle
-5. Kamal - Travellers of the Seas
-6. Kamal - Dreamcatcher
-7. Deuter - Blessing2002Жанр: Meditative, New Age, RelaxПродолжительность: 01:08:31
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 282253   (943309) от 15.01.2011
-
-Art Of Noise - The Ambient Collection (1990) [FLAC|Lossless]<Ambient>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Opus 4
-02. Opus For 4
-03. Nothing Was Going To Stop Them Then, Anyway
-04. Crusoe
-05. Island
-06. Camilla
-07. Ode To Don Jose
-08. Counterpoint
-09. Roundabout 727 / Ransom In The Sand
-10. Eye Of A Needle(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:49:15
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 282604   (943325) от 15.01.2011
-
-Stellamara - 3 albums (1997-2009) [FLAC|Lossless] <Ethereal, Neoclassical, World, Ambient>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude (01:47)
- 02. Aman Doktor (06:12)
- 03. Miskolc (04:27)
- 04. Yemen Turkusu (09:06)
- 05. Azade (05:28)
- 06. Prituri Se Planinata (04:18)
- 07. Odam Kirec (10:09)
- 08. Lado (06:44)
- 09. Element (12:14)Жанр: Ethereal, Neoclassical, World, AmbientПродолжительность: 01:00:28
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 174949   (943410) от 12.02.2010
-
-Ennio Morricone - io, Ennio Morricone (2002) [FLAC|Lossless]<OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: OST, Classical
-
-## Скачать торент
-```bash
-нет
 ```
 
 

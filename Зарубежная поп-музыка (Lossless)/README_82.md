@@ -1,3 +1,31 @@
+###  Публикация: 872309   (873735) от 25.02.2015
+
+Modern Talking - Ready For Romance - The 3rd Album (1986) [FLAC|Lossless]<EuroDisco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Brother Louie (3:45)
+02. Just We Two (Mona Lisa) (4:00)
+03. Lady Lai (5:01)
+04. Doctor For My Heart (3:22)
+05. Save Me - Don't Break Me (3:50)(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D21D35B0BF1C11AFC232E7B7B5C00649159EEB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997612   (873894) от 17.03.2016
 
 Two Of Us - Inside Out (1988) [APE|Lossless|image + .cue] <Synth-Pop, Sophist-Pop>
@@ -689,34 +717,6 @@ Spagna - Dedicated To The Moon (1987) 1988, Epic International (Tokyo Japan) [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C239FB684BD937FAD3440F1012BC8769BE55CFD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871081   (881099) от 21.02.2015
-
-Modern Talking - The 1st Album (1985) [FLAC|Lossless]<EuroDisco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Heart, You're My Soul (5:36)
-02. You Can Win If You Want (3:53)
-03. There's Too Much Blue In Missing You (4:45)
-04. Diamonds Never Made A Lady (4:09)
-05. The Night Is Yours-The Night Is Mine (5:33)(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE2B99AC81E7C3492D0C9014C02E3F1187B49D29
 ```
 
 

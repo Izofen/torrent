@@ -1,3 +1,165 @@
+###  Публикация: 1031536   (651800) от 04.07.2016
+
+VA - Chill House Ibiza 2016 (Finest Chill House Music) (2016) [FLAC|Lossless|tracks] <Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guilhem Mariposa - Hijos del Sur (Extended Mix) {5:28}
+02. Adonai - She's Gone {4:53}
+03. Max TenRom - Planet (Extended Mix) {5:11}
+04. Adonai - Salut {4:41}(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:20:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EAC1B243523D838AD99D0BDC703A88F8513B6CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227068   (651822) от 23.05.2018
+
+VA - A State Of Trance (Mixed By Armin van Buuren) (2018)2CD [FLAC|Lossless|tracks + .cue] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren vs Shapov - The Last Dancer (Original Mix)
+02. Whiteout & Wilderness - Yalung (Original Mix)
+03. Tom Fall - Cyclone (Original Mix)
+04. Estiva - Bloom (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:29:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF801F03F6319A1490C012E3EB16388550A9902
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031435   (652009) от 04.07.2016
+
+VA - Deep House Invasion (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sascha Beek - Million Questions [08:17]
+02. Steven Moeller - Change the Way (Stefan Jurrack Remix)  [06:57]
+03. 2W Tools - Innate Vision [07:19]
+04. Najwars  - Delta Inflections [06:14](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 04:22:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:718921FE5434507D94D5DE0A20B8754A7A653680
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226924   (652206) от 23.05.2018
+
+Edward Ka-Spel, Jetzmann/L.Ski & Asmus Tietchens - Das Digitale Vertrauen (1997) Soleilmoon Recordings [FLAC|Lossless|tracks+.cue] <Abstract, Downtempo, Experimental, Industrial, Techno>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edward Ka-Spel - Millenium I (12:01)
+ 02. Edward Ka-Spel - Millenium II (11:16)
+ 03. Jetzmann/L.Ski - Supra (Ablaufmechanismusversion) (03:44)
+ 04. Jetzmann/L.Ski - Nur Unterschicht (03:39)(   Читать дальше...   )Тип издания: CDЖанр: Abstract, Downtempo, Experimental, Industrial, Techno •Продолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3E48560EFB62D8B32EEDFCA3F2CBFF905987327
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226957   (652356) от 23.05.2018
+
+Ben Gold - Sound Advice (Chapter One) (2018) [MP3|320 Kbps] <Electronic, Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652356.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. There Will Be Angels (feat. Audrey Gallagher) (03:32)
+2. Stay (feat. Sivan) (03:55)
+3. Two (feat. Ruben de Ronde & Rodg) (03:10)
+4. The Conquest (feat. Omnia) (03:44)(   Читать дальше...   )Жанр: Electronic, Trance, Progressive TranceПродолжительность: 00:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB9E7C7B437DB1A3BBFFBC9BC5C8F8F292258C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540611   (652444) от 30.03.2022
+
+ENiGMA Dubz - Genesis (2012) [FLAC|Lossless|tracks] <Dubstep, UK Garage, Drum & Bass, Hip-Hop>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You've Been Gone (4:07)
+ 02. Can't Spend The Day Without You (5:12)
+ 03. For Real (4:48)
+ 04. Genesis (5:14)(   Читать дальше...   )Жанр: Dubstep, UK Garage, Drum & Bass, Hip-HopПродолжительность: 01:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:032C1AE84007E36EC6E9AF3B6862419DAC7DFDED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141350   (652457) от 09.06.2017
 
 The Human Case - Living library (2017) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Downtempo>
@@ -533,168 +695,6 @@ Wsahl - All Eyes On Wsahl (2017) [MP3|320 Kbps] <Breakbeat, Breaks>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B8C039F3FAC742D95E572FD225CD1C940663DF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539677   (653962) от 29.03.2022
-
-Kraftwerk - Remixes (2020) Remastered, Reissue [FLAC 2.0|48, 44.1/16, 24|tracks|WEB-DL] <Electronic, synth-pop, krautrock>
-
->>Electronic
->>Synthpop, New Wave, Retro (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Non Stop [00:08:32]
-02. Robotnik  (Kling Klang Mix) [00:07:58]
-03. Robotronik  (Kling Klang Mix) [00:05:05]
-04. Radioactivity  (William Orbit Hardcore Remix - Kling Klang Edit) [00:05:35](   Читать дальше...   )Жанр: Electronic, synth-pop, krautrockПродолжительность: 02:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC6CD1C9D1352C645A8EED5D343F7F128B1F5F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140983   (653987) от 08.06.2017
-
-VA - Nothing But - Electronica I (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Elyzimila - Earthvibes (Original Mix)  5:37
-02.  Falck - Lacking Soul (Original Mix)  8:05
-03.  John Blast & Purecloud5 - To Fly (Purecloud5 Remix)  4:30
-04.  Max SunRise - Russian Venice (Original Mix)  4:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EF869BE5A5C201F28316CEB88F88F7154EF42F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140892   (653988) от 08.06.2017
-
-VA - Naked Ibiza Vol.1 (Pure Fresh Balearic Summer Chill Tunes) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Wilton de Grey - Premadhara The Stream Of Love (Extended Orchestral Version)  4:22
-02.  Kai French - Balearic Dreams  3:05
-03.  Zer - Riding The Yellow  4:47
-04.  Breezz Studio - Dancing Butterfly (Remix 2017)  4:38(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F50742F703751C12384AC5FD0597F8692342E65D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140902   (653992) от 08.06.2017
-
-Astrobiologia - Астробиология (2017) [MP3|320 Kbps] <Trance, Breaks, House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moongravity (07:01)
-02. Астробиология (06:08)
-03. Terra Futura (07:28)
-04. Персефона (06:19)(   Читать дальше...   )Жанр: Trance, Breaks, HouseПродолжительность: 01:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A5610ED659FEAAA4C5E46AA3E71476AC3948364
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140897   (654015) от 08.06.2017
-
-VA - Balearic Dinner Vol.1: Island Chill Dream Dinner Tunes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Luc Forlorn - Take Me Home  4:28
-02.  Zeequencha - So Alive  7:15
-03.  Taste Of Dream - Sweet Falling  5:28
-04.  Tonica Rara - Como Antes  4:41(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B01F35B090479B4584E80CC4BE981FB6DA26FC39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140987   (654017) от 08.06.2017
-
-VA - Throwback EDM Tracks (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meltdown – Free 03:53
-02. 2 Steps Up – Finally 03:51
-03. Conscious Funk – Infinity 03:59
-04. Underground Spell – Born Slippy 05:21(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:897C773B2F6C708F40D116C2647061F41EEE61BE
 ```
 
 

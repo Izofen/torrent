@@ -1,3 +1,30 @@
+###  Публикация: 1510438   (790800) от 17.11.2021
+
+VA - Memories Of Summer (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790800.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ariana Bell - Sing My Way
+002. Slayyyter - Clouds
+003. Ava Max - Who's Laughing Now
+004. Laid Back - Sunshine Reggae(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995C129A7BB7ADB4C71BD0BF3668FA6AF094FB62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202158   (790945) от 27.01.2018
 
 VA - De Top 100 Aller Tijden 1979 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
@@ -668,33 +695,6 @@ VA - 100 Greatest 00s Pop Hits (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13BA672502C2D894F6A39E6B6BA65BAB7672660A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386030   (795874) от 27.05.2020
-
-VA - Midnight Rhythm Disco: New Generation (2020) [MP3|320 Kbps] <Disco, Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795874.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andy Bach - In The Night
-002. Dita Ishita - Knock
-003. Right Direction - Midnight Rhythm
-004. The Morning After - Get It(   Читать дальше...   )Жанр: Disco, Dance, PopПродолжительность: 11:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:363C6D26A866B2F8496B8936E21D3E26078D1E55
 ```
 
 

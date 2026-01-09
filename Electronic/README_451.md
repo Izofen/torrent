@@ -1,3 +1,163 @@
+###  Публикация: 1107243   (868342) от 22.02.2017
+
+Her Critters - Seconds Of Harmony (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868342.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sound Of The Road (02:59)
+2. Drivin' Your Way (03:01)
+3. Crossroads Of Your Soul (02:51)
+4. Power For That Cash (03:37)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C542BF26A93126BC59649B59C1A420542A673E56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998690   (868389) от 20.03.2016
+
+VA - Serious Beats 83 [Mixed by Ar-Tee] (4CD) (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive House, Drum and Bass, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868389.jpg" />
+</div>
+
+
+###  Подробнее
+
+DISC 1
+01. Netsky feat. Digital Farm Animals - Work It Out (3:15)
+02. Sigala feat. Bryn Christopher - Sweet Lovin' (Extended Mix) (4:57)
+03. Sigma & Rita Ora - Coming Home (3:31)(   Читать дальше...   )Жанр: House, Progressive House, Drum and Bass, Electro HouseПродолжительность: 04:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB7CC8D1C9FA8FABD62CB5426B5836F496D5515
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997862   (868576) от 20.03.2016
+
+VA - We Love Deep Vol. 1 (2016) [MP3|320 кб/с] <Tech House, Indie Dance, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phunk Investigation - Cadillac Man (Radio Edit)
+ 02. Mart - Hollywood (Short Edit)Жанр: Tech House, Indie Dance, Nu DiscoПродолжительность: 01:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A80DA118C937C9420C2A9B83BB93CF1224D9A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998911   (868583) от 20.03.2016
+
+Aythar - Astronautica (2016) [MP3|320 кб/с] <Ambient, Space>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astronautica (Space Version) (08:46)
+ 02. Mystical Clouds (10:15)
+ 03. Alien Worlds, Pt. 1 (09:18)
+ 04. Alien Worlds, Pt. 2 (11:14)(   Читать дальше...   )Жанр: Ambient, SpaceПродолжительность: 01:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C90AA2B5DB88E40B5C02B634762CF8378A80512
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998826   (868585) от 20.03.2016
+
+VA - Telrae Mixed By Salz Vol. 5 (2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stefan Gubatz - Cologne (11:59)
+02. OVC - Sortavala (08:21)
+03. Cio D'or - And On (06:56)
+04. Taster Peter - Dub inquieta (Salz Remix) (06:21)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 02:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6755C1EBA7F479549B17EEC3B5DBE72AEDF2A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998612   (868590) от 20.03.2016
+
+Flash Cartel - Elevate (2012) [MP3|320 кб/с] <Progressive House, Drum & Bass, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elevate (Original Mix) [05:56]
+02. Elevate (Three20 Remix) [05:36]
+03. Breakaway (Original Mix) [06:46]
+04. Boulevard (Original Mix) [04:12]Жанр: Progressive House, Drum & Bass, Electro HouseПродолжительность: 00:22:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29DA6534A3453BAC43455A286C2D2E78615E565D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997855   (868643) от 20.03.2016
 
 VA - Various Artists - Horenswert Vol. 10 (2016) [MP3|320 кб/с] <Tech House>
@@ -528,168 +688,6 @@ The Gnome - Pleasant Sounds For Unpleasant Times (2020) Ant-Zen [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:388AAD338942CECE44E59943D99C5C4BA750335A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374920   (871199) от 11.04.2020
-
-Paolo Lucchi - The Dusk Sessions (2019) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Void (03:31)
- 02. Warmer (05:25)
- 03. Notch (07:50)
- 04. Worms (03:03)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FD5EBDEF3183EDBD13DE37B9391A5C7D57DB89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496734   (871404) от 18.09.2021
-
-Tiesto - Formula 1 Grand Prix Circuit Zandvoort, Netherlands (2021-09-05) [MP3|320 Kbps] <Dance, Electro Pop, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto - The Business
-02. Tiësto & Sevenn - BOOM
-03. Tiësto - Grapevine
-04. Tiësto & The Chainsmokers - Split (Only U)(   Читать дальше...   )Жанр: Dance, Electro Pop, Big RoomПродолжительность: 01:02:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0371A637151EC03CC87BB88739F3D01D724AE479
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496494   (871413) от 18.09.2021
-
-VA - Black Hole Trance Music 09-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BT & April Bender - Windows (Omnia Extended Remix) [4:19]
-02. Spada - Ibiza '89 (Extended Mix) [5:54]
-03. Daniel Wanrooy & Cari - Heading South (Extended Mix) [4:57]
-04. Cold Blue - Sunbird (Extended Mix) [8:06](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F47956555DF6E094D15E45F078205EADA7F7DD08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496717   (871546) от 18.09.2021
-
-Lane 8 - Fall 2021 Mixtape (2021-09-15) [MP3|320 Kbps] <Progressive House, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anyma & Janus Rasmussen feat. Delhia De France - Claire
-02. Sultan + Shepard - ID
-03. Leaving Laurel - Winter In The Woods
-04. Parvenu - Captured (Tagavaka Remix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 02:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE370EF15DC137E594B2C5F783DC17B3F824D9E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106571   (871562) от 20.02.2017
-
-VA - Melodic Progressive House Vol.09 (2017) [MP3|320 Kbps] <House, Progressive Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Eleven.five & Arielle Maren - Remember (Original Mix)  4:34
-02.  LTN - Whispers In The Night (Original Mix)  6:44
-03.  Matt Lange - Resonate (Original Mix)  7:32
-04.  Dan Sieg - Horizons (Blugazer Remix)  7:56(   Читать дальше...   )Жанр: House, Progressive TranceПродолжительность: 02:18:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009652929FDF87281C904899D92EB5C9265553CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997933   (871632) от 18.03.2016
-
-AstroPilot & Friends - Soul Surfers (2016) [FLAC|Lossless|WEB-DL] <Psybient, Downtempo, Ambient, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AstroPilot - The Bliss Of Now [24] (7:49)
-02. AstroPilot and Lab's Cloud - Numen [24] (8:43)
-03. AstroPilot and Suduaya - Soul Surfers [24] (8:21)
-04. AstroPilot and Trylon - Entering Godmode [24] (8:42)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 01:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECD89EF23AA2AC8916CF582663FCE2A176AD582B
 ```
 
 

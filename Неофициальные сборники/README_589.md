@@ -1,3 +1,30 @@
+###  Публикация: 1102799   (889353) от 10.02.2017
+
+VA - Underwater The Shadow Of Life (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889353.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2Step - New Island (Alluna Remix) 05:01
+002. Tafubar - The Wicked Thoughts Of You (Lemongrass Snowflake Mix) 05:06
+003. Adrian Shepherd - Eronika (Original Mix) 04:31
+004. Oscar Stringz - Time For A Break 06:18(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47C82429D678126AF75DE080E58F255344E44A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102662   (889355) от 10.02.2017
 
 VA - На волне позитива. Русский сборник (2017) [MP3|256 Kbps] <Pop>
@@ -674,33 +701,6 @@ VA - Музыка для двоих (2016) [MP3|192-320 кб/с] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECD58C8A9B7DA529D1F5582219AF40D844258F4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102312   (891417) от 09.02.2017
-
-VA - Beatport Trance Pack (09.02.) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cold Blue & Johnny Yono - Fall Into Dusk (Original Mix)  6:49
-02.  Mark Van Gear - Mary My Lovely Pandita (Original Mix)  7:32
-03.  UDM - Tornado (Original Mix)  6:37
-04.  Oberon - Visions (Original Mix)  7:39(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 06:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:434E0D71E3BA8121190D9135A6650939349F8D25
 ```
 
 

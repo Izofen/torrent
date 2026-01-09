@@ -1,3 +1,30 @@
+###  Публикация: 1198981   (802849) от 14.01.2018
+
+VA - Record Super Chart #519 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dankann  -  How Deep Is Your Love  2:55
+02.  Mark Sixma & Emma Hewitt  -  Missing (Andrew Rayel & Mark Sixma Remix)  4:32
+03.  Stadiumx & Metrush  -  Spacebird  3:53
+04.  Tom Crusher  -  Higher  3:51(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5EDD777A8723DCEDC533325B0BA130E59C1C332
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505545   (802861) от 28.10.2021
 
 VA - Beatport Drum And Bass: Sound Pack #359 (2021) [MP3|320 Kbps] <D&B, Bassline, Dubstep>
@@ -669,33 +696,6 @@ VA - Trance Collection vol.42 (2016) [MP3|320 кб/с] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25415E76132B317EA0191DACA4835DD4B73E1002
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384315   (804370) от 19.05.2020
-
-VA - Beatport Big Room House: Sound Pack #85 (2020) [MP3|320 Kbps] <Club, Dance House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804370.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brockman - 1 A.M.
-002. Black Cat - Listen (Original Mix)
-003. Knockwell - Night Howler
-004. Hanger And Lostdrop - Karma(   Читать дальше...   )Жанр: Club, Dance House, ElectroПродолжительность: 09:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE5118F3CDD46803F99824B68626663BB39F9A1
 ```
 
 

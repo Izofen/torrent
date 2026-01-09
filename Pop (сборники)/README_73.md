@@ -1,3 +1,30 @@
+###  Публикация: 1143422   (636942) от 17.06.2017
+
+VA - German Top 100 Single Charts 16.06.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636942.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luis Fonsi - Despacito (feat. Daddy Yankee)
+002. Robin Schulz - OK (feat. James Blunt)
+003. David Guetta - 2U (feat. Justin Bieber)
+004. Imagine Dragons - Thunder(   Читать дальше...   )Жанр: PopПродолжительность: 05:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF2DDA578ECD8215EA9D7EC167A1F4F6B9BC28B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293309   (637134) от 03.04.2019
 
 VA - Capriccio All’italiana: Italian Hit Parade Vol.01-30 (2017) [MP3|320 Kbps] <Pop>
@@ -683,33 +710,6 @@ VA - Stars Dance 2 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AA5E5C9CE79EA527A8872D84558D9098656D29D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292845   (643303) от 31.03.2019
-
-VA - Top 50 Party Schlager Charts 01.04.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Berg - Mosaik
-02. Kerstin Ott - Regenbogenfarben
-03. Maite Kelly - Heute Nacht für immer
-04. Roland Kaiser - Stark(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F539AB26A3921B207B2FE4477C91AE05AB1BF57F
 ```
 
 

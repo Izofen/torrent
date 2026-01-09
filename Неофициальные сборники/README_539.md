@@ -1,3 +1,30 @@
+###  Публикация: 1383578   (810236) от 16.05.2020
+
+VA - The Official UK Top 40 Singles Chart 15.05.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dababy - Rockstar (Feat. Roddy Ricch) 3:02
+02. Drake - Toosie Slide 4:07
+03. Doja Cat - Say So 3:56
+04. Ariana Grande & Justin Bieber - Stuck With U 3:49(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBDF53DA2897ACE3127A7C1F7D36492033FF75F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504592   (810335) от 24.10.2021
 
 VA - Music News vol.143 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -668,33 +695,6 @@ VA - Весенний Хаус Калейдоскоп Топ 50 (Compiled by Zeb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECA5F72A89FD886A3100A96B36641ECBBBCAC7A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383294   (811725) от 15.05.2020
-
-VA - Nu Metal Heaven (2020) [MP3|320 Kbps] <Metal, Nu-Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papa Roach - Top Of The World 3:54
-02. Linkin Park - Numb 3:06
-03. Evanescence - Wasted On You 4:23
-04. Slipknot - Wait And Bleed 2:28(   Читать дальше...   )Жанр: Metal, Nu-MetalПродолжительность: 03:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC4996967B01F0AAF89AF11AB5C367B43EF24EC
 ```
 
 

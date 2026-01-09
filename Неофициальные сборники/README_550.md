@@ -1,3 +1,30 @@
+###  Публикация: 1381025   (829186) от 05.05.2020
+
+Joe Cocker and friends - Isolation (2020) [MP3|320 Kbps] <Blues,Soul,Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Joe Cocker  -  Isolation  (03:50)
+02.  Bee Gees  -  How Deep Is Your Love (04:00)
+03.  Elton John  -  Blue Eyes (03:26)
+04.  Michael Buble  -  Feeling Good  (03:57)(   Читать дальше...   )Жанр: Blues,Soul,RockПродолжительность: 05:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4512300E681DCE317D923B3F0B28FEC06A097E29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006307   (829191) от 11.04.2016
 
 VA - EDM Signature Series Deejay (2016) [MP3|236-320 кб/с] <Italo-Disco, Hands Up, Funky, DanceCore, Progressive, Club>
@@ -668,33 +695,6 @@ VA - Lifestyle Jazz Vintage Sound (2016) [MP3|320 кб/с] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CBEB78CF2C635D0FB924F65DC0AF85B191EC79B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380690   (830848) от 04.05.2020
-
-VA - Vocal Dance House (2020) [MP3|320 Kbps] <Vocal House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830848.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sйbastien & Boy Tedson - Music In You
-002. Tensnake & Fiora - Automatic
-003. Papik - Notes Of The Past
-004. Cocco Barocco - This Is A First Time(   Читать дальше...   )Жанр: Vocal House, Dance, ClubПродолжительность: 09:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:569EF92F06E9CFD714B51FD1298E242DD84DB7AC
 ```
 
 

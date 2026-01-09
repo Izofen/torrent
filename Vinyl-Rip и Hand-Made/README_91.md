@@ -1,3 +1,30 @@
+###  Публикация: 1273436   (799731) от 02.01.2019
+
+Tina Turner - Twenty Four Seven (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799731.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Whatever You Need
+A2 All The Woman
+A3 When The Heartache Is Over
+A4 Absolutely Nothing's Changed(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:038B0E144940142EC43CE5A263CC3D512A3093BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273388   (799785) от 02.01.2019
 
 Emmylou Harris - Profile / Best Of Emmylou Harris (1978) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Country Rock>
@@ -674,33 +701,6 @@ A3 Living For The City(   Читать дальше...   )Жанр: Pop Rock, So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2906884ADBF37668CA2AD34CEE6069019342E8EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196121   (825797) от 01.01.2018
-
-VA - Песни Виктора Дорохина и Любови Воропаевой - Девочка Моя Синеглазая (1989) [DSD2.0|5,64MHz/1bit|image+.cue|Vinyl-Rip] <Pop, Dance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825797.jpg" />
-</div>
-
-
-###  Подробнее
-
-[6:18] 01. Евгений Белоусов - Девочка моя синеглазая
-[4:55] 02. Екатерина Семенова - Мужчина, который спешит
-[4:00] 03. Евгений Белоусов - Алушта
-[4:11] 04. Екатерина Семенова - На минутку(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBA940BC928DDC3F906FF8072977DFBCCC6CAFCB
 ```
 
 

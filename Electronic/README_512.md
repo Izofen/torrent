@@ -1,3 +1,165 @@
+###  Публикация: 1118236   (1025865) от 17.03.2021
+
+Grad_U (Re_Grad) - Discography 32 Releases (2010-2021) Redscale, Greyscale [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Biomechanics (06:45)
+ 02. Pawasaris Uzh Lango (04:41)
+ 03. Earth's Core (06:42)
+ 04. Bounce 06 (12:16)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Dub Techno, Ambient, Techno, Minimal •Продолжительность: 21:38:38 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A2C08DB402A4C8FAE579E82D1C58576C655C78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017980   (1025876) от 17.03.2021
+
+Funki Porcini - Discography 40 Releases (1995-2021) Ninja Tune [FLAC|Lossless|tracks+.cue, tracks] <Downtempo, Breaks, Future Jazz, Trip Hop, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Serious Understanding of the Gearbox (07:41)
+ 02. Motorway Lullaby (08:17)
+ 03. Overtaking Everything (07:20)
+ 04. Motorway Mindmash (07:23)Жанр: Ambient/Future JazzПродолжительность: 23:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD61406099EEF49E43797A69F78704B3378BA56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455072   (1025949) от 17.03.2021
+
+Dense - Reflux Compressor (2021) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Psychill, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spreading Resistance (07:21)
+ 02. Altitude Control (05:18)
+ 03. Reflux Compressor (06:02)
+ 04. Overwhelming Spring (06:36)(   Читать дальше...   )Жанр: Psybient, Downtempo, Psychill, AmbientПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B008ED6047CBF04D1A5E200E0E02782663C985
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455108   (1025992) от 17.03.2021
+
+VA - Dub Techno (2021) ONESUN Yellow [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno, Tech House, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavenchord - The Future (06:48)
+ 02. Mielafon - Truba (08:21)
+ 03. Malkov & Kaygo Soul - Raw Rolling (Dub Mix) (07:06)
+ 04. Andrey P. - Forest dances (07:15)(   Читать дальше...   )Жанр: Dub Techno, Techno, Tech House, AmbientПродолжительность: 02:10:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FA709FFCF358B89626AE378D0E40239D8C91F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454875   (1025995) от 17.03.2021
+
+Mono Peninsula - Archangelsk (2021) ROHS! Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Dub>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Archangelsk (12:36)
+ 02. Longyearbyen (06:07)
+ 03. Malyje (04:18)
+ 04. Eisbrecher (09:00)(   Читать дальше...   )Жанр: Dub Techno, Ambient, DubПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16C8BF8884E379C86D37FFB14BF4001AB10849CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454728   (1026110) от 16.03.2021
+
+dISHARMONY - Resonance (2021) Aliens Production [FLAC 2.0|44.1/24|tracks|WEB-DL] <Industrial, IDM, Dark Electro, EBM, Ambient>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evacuation (01:37)
+02. Frozen Faces (Edit) (06:10)
+03. I'll Find The Way (03:27)
+04. Mantra (01:40)(   Читать дальше...   )Жанр: Industrial, IDM, Dark Electro, EBM, AmbientПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07512CCF33860E41FDD41CEF1CA8F0C431009644
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454661   (1026133) от 16.03.2021
 
 Synth Elements - Fifth Element (2017) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
@@ -533,165 +695,6 @@ Gabriel & Dresden - AFTR:HRS SESSIONS 03 (2021-03-11) [MP3|320 Kbps] <Deep House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A0F713C1A0B3CD71AC3D895DE663AFBFD752B27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453893   (1026745) от 12.03.2021
-
-BlutEngel - Fountain of Destiny (2021) [MP3|320 Kbps] <Darkwave, Synth-pop>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wild Boys
-02. Forever Young
-03. Hymn
-04. Down in the Park(   Читать дальше...   )Жанр: Darkwave, Synth-popПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE68BB09744F10C7541A36D4C4ABF2E725E2E765
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453686   (1026746) от 12.03.2021
-
-Marvel83' - Metropolis (2021) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Retrowave, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metropolis (4:10)
-02. So This Is for You (2:59)
-03. Drift Division (4:26)
-04. Brooklyn Rain (3:53)(   Читать дальше...   )Жанр: Dreamwave, Retrowave, SynthwaveПродолжительность: 00:35:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33BB09FE1D0955EA12F06B2ED69B0167CB366CCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453381   (1026747) от 12.03.2021
-
-Yotto - A Very Cold DJ Set, Lapland, Finland (2021-03-06) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026747.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Yotto - The Valley
-2. Yotto & Cassian-Grains w/ SØNIN vs. Yotto - Nothing Like You (Acappella)
-3. Yotto - Nova (Joseph Ray Remix)
-4. SOHMI - Closer(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:24:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F7FD0A2F2CF9B1E1A26CBD2F967EC863244043
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453742   (1026761) от 12.03.2021
-
-M A D - Slow Mo (2016) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Darkwave, Dream Pop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All There Is To It (07:30)
- 02. Never To Late (04:00)
- 03. The Door (05:52)
- 04. Reverse (05:40)(   Читать дальше...   )Жанр: Trip Hop, Darkwave, Dream PopПродолжительность: 00:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3CBF43A21016CB53A7BA65F4F11E53B1D558CF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453796   (1026766) от 12.03.2021
-
-T & Sugah & Voicians - Days Away (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T & Sugah, Voicians - Days Away (03:53)
-02. T & Sugah - French Fries (04:24)
-03. T & Sugah - Days Away (Instrumental) (03:53)Жанр: Drum & BassПродолжительность: 00:12:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2532B35A1BFAF569D0A61167CAF429EFDBB89641
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453859   (1026771) от 12.03.2021
-
-Mark Vera - Singles (2020-2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Retrowave, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Android People (Full Battery Mix) (5:54)
-02. Android People (Low Battery Mix) (4:05)Жанр: Spacesynth, Retrowave, SynthwaveПродолжительность: 01:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BCAD34701D5343CBEC570CFF54020C4960452ED
 ```
 
 

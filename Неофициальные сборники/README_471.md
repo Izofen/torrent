@@ -1,3 +1,30 @@
+###  Публикация: 1524804   (742245) от 17.01.2022
+
+L.A. Guns - Kiss Of Death (2022) 2xCD, Japanese Edition, Compilation [MP3|320 Kbps] <Hard Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742245.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Killing Machine
+02. Kiss Of Death
+03. One More Reason(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 01:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96ABCCEE38CD628C8D85EBCE84F68E2650285E9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217485   (742261) от 05.04.2018
 
 VA - De Top 100 Aller Tijden 1986 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Synth-pop, Disco, World>
@@ -670,33 +697,6 @@ VA - Romantico Latino (2016) [MP3|320 кб/с] <Latin Pop, Dance, Bachata>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76E4F1EC2837D418AF58DA8B6445948DF5F66106
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020743   (743585) от 27.05.2016
-
-VA - Отдыхай на любимой волне (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Анна Седокова - О Тебе
-02. Dj Roshka Feat. Farid Aqa - Onun O
-03. Juan Magan Feat. Paulina Rubio & Dcs - Vuelve
-04. Андрей Орельский - Вованчик(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6390ACDDE7405FAC5D227370D3282392049849
 ```
 
 

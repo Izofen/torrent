@@ -1,3 +1,165 @@
+###  Публикация: 1101013   (898085) от 05.02.2017
+
+VA - Chill Out Love Collection Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jocelyn Brown - It's You
+02. Hardage - Hysterical Years
+03. Electrokingdom - Big Time - VB Acoustic Mix
+04. Mamayo - Born to Love(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:07:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A819DD7845F96CB3DBC85EFF49A7F4522024EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101043   (898091) от 05.02.2017
+
+VA - Chill Out Love Collection Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cooley - Imagination Land
+02. Sansura - This is India - O.W.G Mix
+03. Luca Elle - U - Original Mix
+04. Hardage - So Bright(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:11:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A933C40DD66DBBCB27F13553A363B27BAA96F5D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100849   (898096) от 05.02.2017
+
+VA - The Garden Coffee Shop. Lounge Selection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - In Silencio
+02. Enrico Donner - Side Chain Reactions
+03. Cane Garden Quartet - Love Goddess
+04. Baghira - Way Too Long(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C9F5EFF5162E8CEE7A2787D26C1A8683941FEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100923   (898100) от 05.02.2017
+
+VA - Ibiza Chillout Movement (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lamar Ensemble - Zero Hour
+02. Sweetadelic - Elevon
+03. Aqua Mundi - Mezcal Shadows
+04. The Sura Quintet - Keep Me Company(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2DBC2633BB2100A710D99D2CD60A19C000C651
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101068   (898109) от 05.02.2017
+
+VA - Chillout Lounge A Fine Selection Of Chillout & Ambient Moods (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  James Bright - Hidden Harbours (Original Mix)  5:18
+02.  Sweed - Finally (Original Mix)  5:21
+03.  Makkeroni - Never Without You (Original Mix)  5:25
+04.  Be.Lanuit - En El Aire (Original Mix)  4:52(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85BD30487AFE5CF2C293F24E1D448D5C250B33DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110715   (898359) от 26.03.2020
+
+Alexander Ananyev (Beautumn, Sleepy Town Manufacture, Dirty Owl) - Discography (2004-2017) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Ambient, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Owl Intro (00:16)
+ 02. Scrappy (04:20)
+ 03. Bill Gilbert Was Here (03:17)
+ 04. Way Back (04:37)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Downtempo, Ambient, Minimal, Experimental •Продолжительность: 14:05:33 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E72441F48C2780B57146337E1DF9337DBB36CAF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370309   (898460) от 26.03.2020
 
 The Orb - Abolition of the Royal Familia (2020) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Dub, Ambient, Abstract>
@@ -533,168 +695,6 @@ Sufjan Stevens and Lowell Brams - Aporia (2020) [FLAC|Lossless|WEB-DL|tracks] <E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1CC22F33B1A6D3DCBC0372731DFF862E69EEDA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991391   (900611) от 02.03.2016
-
-Depeche Mode - Some Great Reward (1984) remastered 2006, collectors edition, CD+DVD [FLAC|Lossless|image + .cue] <New Vawe,  Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something to Do (3:48)
-02. Lie to Me (5:04)
-03. People Are People (3:52)
-04. It Doesn't Matter (4:45)(   Читать дальше...   )Жанр: New Vawe,  Synth-popПродолжительность: 00:29:21(фильм) 00:40:33(альбом)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:258F5FD05186F68E71C1858B97B82FCFE1E56E72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992345   (900922) от 02.03.2016
-
-VA - Serenity Sexy Lounge & Chill out Pearls Vol 3 (2016) [MP3|320 кб/с] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steven Pearce - Don't Let the Sun Go Down on Me (05:12)
-02. Mary J. - Sailing (04:47)
-03. Jessica Hathaway - Frozen (05:39)
-04. Michael Korg - 1973 (04:44)(   Читать дальше...   )Производство: White Isle RecordingsЖанр: Downtempo, Lounge, Chill OutПродолжительность: 01:25:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3E9E5BDC8D0511F435E7C48D0CC85E298249C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100038   (900965) от 03.02.2017
-
-Dance With The Dead - B-Sides: Volume 1 (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Out (2:36)
- 02. Banshee (5:25)
- 03. That House (4:46)
- 04. Stoic (3:40)(   Читать дальше...   )Жанр: Synthwave, RockПродолжительность: 01:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E9964E0FF00A9C85F7AF4973E5C6E63F9CC186
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992486   (901015) от 02.03.2016
-
-VA - Потанцуем ? (2000) S&V #03/2000 [FLAC|Lossless|tracks + .cue] <Euro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901015.jpg" />
-</div>
-
-
-###  Подробнее
-
-4
-01. DJ BoBo - Together (3:41)
-02. Ann Lee - 2 Times (3:50)
-03. DJ Jean - The Launch (3:39)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76AD2485023A80A894C9043B6C20E923F6FF6F52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100148   (901422) от 03.02.2017
-
-Colombo - iBreaks 12th Anniversary Series (2017) [MP3|320 Kbps] <Breaks>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summit (Original Mix) (7:43)
-02. EveryBody (Original Mix) (7:18)
-03. Clap Yah Hands (Original Mix) (6:41)
-04. CousCous (Original Mix) (7:16)(   Читать дальше...   )Жанр: BreaksПродолжительность: 01:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9AD79EA2D62115BB73AC7002FAC7B1894A844C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369558   (901517) от 24.03.2020
-
-Infected Mushroom - More than Just a Name (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance, Dubstep>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901517.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Infected Mushroom; WHITENO1SE - More of Just the Same (7:09)
-2. Only Solutions (5:21)
-3. Infected Mushroom; Bliss - Ani Mevushal (8:51)
-4. Symphonatic (Infected Mushroom & Astrix Remix) (8:26)(   Читать дальше...   )Жанр: Psy/Goa Trance, DubstepПродолжительность: 00:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:281F6FDCA9DFD00B53CBF51F6D16AB5428070B30
 ```
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1217984   (724733) от 08.04.2018
+
+ZODIAC - Reload (2017) Remix [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724733.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Reload
+2. DJ YASTREB
+3. Up MusicЖанр: Electro HouseПродолжительность: 00:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C3155BF67BD19387A904A002C243585BAB0C58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285012   (724770) от 24.02.2019
 
 VA - Stelllar Atmosphere Of Trance (2019) [MP3|320 Kbps] <Trance, Electro>
@@ -675,33 +701,6 @@ VA - The Official UK Top 40 Singles Chart 31.07.2020 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89E93458BB4E216DCE4AB2A80FFB96CA28C4F667
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399700   (725159) от 02.08.2020
-
-VA - German Top 100 Single Charts 31.07.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apache 207 - Unterwegs
-02. Capital Bra x Clueso x KC Rebell - Andere Welt
-03. UFO361 & Sonus030 - Shit Changed
-04. Apache 207 - Bläulich(   Читать дальше...   )Жанр: PopПродолжительность: 05:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1059C6B1D12F98D6DC5465A59AFEA04F06DFC296
 ```
 
 

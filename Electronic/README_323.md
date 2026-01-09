@@ -1,3 +1,165 @@
+###  Публикация: 1293153   (639197) от 02.04.2019
+
+VA - The Fire This Time (2002) Hidden Art [FLAC|Lossless|WEB-DL|tracks+.cue] <IDM, Techno, Field Recording, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Stearns - From The Cradle… (03:48)
+ 02. The Higher Intelligence Agency - Lines In The Sand (05:40)
+ 03. Soma - Get Thee Behind Me (05:23)
+ 04. Orbital - The Box (Re-Mixed by Bump 'n' Grind) (05:42)(   Читать дальше...   )Тип издания: CDЖанр: IDM, Techno, Field Recording, Ambient •Продолжительность: 01:17:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CED39030AC21EDF737821255222F4566AB41187
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142989   (639214) от 16.06.2017
+
+Way Out West - Tuesday Maybe (2017) [FLAC|Lossless|WEB|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running Away (feat. Eli & Fur) (5:00)
+02. Set My Mind (3:42)
+03. Oceans (feat. Liu Bei) (5:00)
+04. Lullaby Horizon (5:13)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9ACBB96D3519DCD98A6B960CF7E0230BC49A1F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142984   (639340) от 16.06.2017
+
+DJ Sports - Modern Species (2017) [MP3|320 Kbps] <House, Jungle, Ambient>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World A
+02. Stellar Clusters
+03. Fertile Crescent
+04. Entry Mode(   Читать дальше...   )Жанр: House, Jungle, AmbientПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E54FCE9E3BAE08E7CE9983F58FDB2976A5D219B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143072   (639345) от 16.06.2017
+
+VA - Ibiza Chill House Sensations (2017) [MP3|320 Kbps] <Deep House, Chillhouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Desaparecidos - Ibiza (Mirko Boni, Benny Camaro & Frankie Gada Remix)  5:48
+02.  C.A.P. - Dragostea Din Tei (Lounge Harlem Mix)  3:48
+03.  Giuseppe Magnatti - Around You (Original Mix)  7:03
+04.  Nogun - Cloud Child (Lanfranchi & Farina Original Mix)  5:32(   Читать дальше...   )Жанр: Deep House, ChillhouseПродолжительность: 03:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E54FFE37AEF31151063800CCC6580DBC51115BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228136   (639396) от 30.05.2018
+
+VA - Trance Euphoria Vol.1 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tranc Eye - Sunset in Your Eyes (Radio Edit)
+02. Litagoria - The First Step (Avalona Radio Edit)
+03. Changer - Sunrise Breeze (Mike Oceanic Emotional Remix Edit)
+04. Etania - Warriors of Love (Radio Edit)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 02:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC17453F121F92FC9A4D0E116730C99005523E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228081   (639403) от 30.05.2018
+
+Orjan Nilsen - Prism (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swoosh (Intro Extended Mix)
+02. That One Night (Extended Mix)
+03. Hi There Radio (Been Too Long) (Feat. Mike James)
+04. Iconic (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A5B14F8073918620CA1D4477D294B702BDE320
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228089   (639407) от 30.05.2018
 
 VA - Trance Runner - Episode Six (2018) [MP3|320 Kbps] <Trance>
@@ -533,168 +695,6 @@ VA - Maxxx Power Tunes Vol 1 (Maximum Music for Maximum Power) (2017) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15D6566850869126EB5137571F10F230904C6C86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142637   (641178) от 15.06.2017
-
-VA - Relaxing Vol.1 not Only Chill Out (2017) [MP3|320 Kbps] <Downtempo, Lounge, Pop Dance>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shaman DJ - Oriental Emotions - Original mix
-02. DJ Memory - No Coke - Slow Mix
-03. Sostanza Tossica - Stanotte Ci 6 Solo Tu - ft. Stephkill
-04. Dayna - Love Me Tender Feat. Dayna - Remake (Prod. by Shlomi Levi)(   Читать дальше...   )Жанр: Downtempo, Lounge, Pop DanceПродолжительность: 01:29:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFEA4369B766402DBFBC7EA418297D8BEDEEB682
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142529   (641181) от 15.06.2017
-
-VA - Cooked Vol.1 (Fine Selection Of Smooth Electronic Jazz) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Florito - A La Playa  5:29
-02.  Urban Phunk Society - Night Train  3:21
-03.  Svendaq - La Chill Fusion  3:47
-04.  Roberto Sol - My Decision (Extended Mix)  5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:20:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DFBF32AFE81E346630735F2B29D72EC4966E26D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142614   (641186) от 15.06.2017
-
-VA - Organica Lounge Grooves (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Martin Schmid - It Is So Close (Club Mix)  8:26
-02.  Elli Uda - Got What It Takes (Radio Edit)  3:52
-03.  Akjela - Der Moment  5:31
-04.  Acoustic Novels - Everybody's Got To Learn Sometime  3:54(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F7F06AC7EAF73AFC520E8AA50BC3B6C1F122A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142776   (641188) от 15.06.2017
-
-VA - Stay In Ibiza 2017 [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.O.N.S. - You Used To Hold Me (Feat Terri B. - Avicii Remix) 06:33
-02. Seal De Green - Licky (Original Mix) 03:34
-03. Danev - Shaggy (Extended Mix) 05:20
-04. Diego Quintero - No Wars (Club Mix) 06:45(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:24:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58F29DA01169C67AE9E615726DA4362ACB346EC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228056   (641203) от 29.05.2018
-
-VA - Cathy Burton - Best Of Vocal Trance (The Radio Edits) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance,Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Beat Service & Cathy Burton - Love Is Your Home (Radio Edit)
-02 Aurosonic & Cathy Burton & AxelPolo - Loving Overflow (Radio Edit)
-03 Cathy Burton & Omnia - Hearts Connected (Radio Edit)
-04 4 Strings & Cathy Burton - Safe In The Storm (Radio Edit)(   Читать дальше...   )Жанр: Trance,Uplifting Trance,Vocal TranceПродолжительность: 01:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C242258359EFBACE451496020C51178F67D10AAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228051   (641204) от 29.05.2018
-
-VA - High Contrast: Ibiza Trance (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Beyond Vision - Mesmerized (Ibiza Trance 2018 Exclusive)
-02 Dj K-Mixx - Nocturnal Bliss (Ibiza Trance 2018 Exclusive)
-03 Marcel Woods - Lemon Tree (Daxson Remix) (Ibiza Trance 2018 Exclusive)
-04 Spark, Shade - Not Even Close (Tony Day Remix) (Ibiza Trance 2018 Exclusive)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A8916A0A26EDDF79F02B583F545DFC51A8D6721
 ```
 
 

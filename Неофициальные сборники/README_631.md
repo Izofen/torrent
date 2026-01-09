@@ -1,3 +1,30 @@
+###  Публикация: 1088908   (953739) от 02.01.2017
+
+VA - On The Wave Of My Memory: Hit 70-80s (2016) [MP3|320 Kbps] <Pop Rock, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953739.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Abc - Poison Arrow (Jazz Remix) 6:55
+002. Alphaville - Sounds Like A Melody (Special Long Version) 7:43
+003. Cock Robin - The Promise You Made (Extended Version) 6:34
+004. Cyndi Lauper - Girls Just Want To Have Fun (Extended Version) 6:03(   Читать дальше...   )Жанр: Pop Rock, ElectronicПродолжительность: 14:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2FA5336CA1CE2DA86893410BFE5C7CD9008F3E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361538   (953748) от 20.02.2020
 
 VA - Listen Life: Neo Classical Collection (2020) [MP3|320 Kbps] <Neo Classical, Instrumental>
@@ -671,33 +698,6 @@ VA - Caola: Rythm And Blues Mix (2020) [MP3|320 Kbps] <R&B, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C47DD745234014D3BF6D97265C9DEA6A5D8D40F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361542   (954199) от 20.02.2020
-
-VA - American Country Session (2020) [MP3|320 Kbps] <Country, Folk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michaela Anne - One Heart
-02. Jamestown Revival - Crazy World
-03. Justin Moore - Why We Drink
-04. Doug Seegers - Give It Away(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 04:27:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE798175DA07E48374AFE85E8EA14B9C7E1A7907
 ```
 
 

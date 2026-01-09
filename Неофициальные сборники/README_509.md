@@ -1,3 +1,30 @@
+###  Публикация: 1204537   (784672) от 06.02.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0015 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twins - Tonight ( Long Version 1993 )
+02. Boris Zhivago - Sovjet D'Amour ( 2016 )
+03. George Aaron - Heaven ( L-Ectro Vox Mix 2008 )
+04. Etienne Tulet - Boy ( 1991 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F868466746452191D03E5BFB2284FF870EB6376
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204530   (784673) от 06.02.2018
 
 VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0013 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
@@ -667,33 +694,6 @@ VA - Весенний хит русского шансона. Версия № 4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01F08D23CEABD754BFE3EA8B65ACA0D69C7DD340
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124487   (785647) от 12.04.2017
-
-VA - Популярные весенние новинки. Сборник № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785647.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Yolla - Не Отпускай 3:11
-002. Полина Гагарина - Драмы Больше Нет 3:14
-003. Татьяна Буланова - Плачь Любовь 3:40
-004. Паша Панамо - Слишком Красивая 3:11(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13147F5F94A91F74F709A081331855D79269A066
 ```
 
 

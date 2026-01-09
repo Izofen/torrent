@@ -1,3 +1,57 @@
+###  Публикация: 1482253   (1007758) от 07.07.2021
+
+Bob Welch (ex. Fleetwood Mac) - 6 Albums (1977-1983) CD Collection [MP3|320 Kbps] <Rock, Pop Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боб Уэлч - американский гитарист, автор и аранжировщик (1945-2012г). Начав с освоения кларнета, в подростковом возрасте Боб переключился на гитару, причем проявлял одинаковый интерес к джазу, ритм-энд-блюзу и рок-музыке. Первой группой Уэлча стала "Seven souls", с которой он выступал в ночных клубах Америки. Сменив несколько второсортных команд, в 1971 (   Читать дальше...   )Список альбомов:
+1977 - French Kiss
+1979 - The Other One
+1979 - Three Hearts(   Читать дальше...   )Жанр: Rock, Pop Rock, Soft RockПродолжительность: 03:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC77B13FE3D75711D4416657F838313DA94F0846
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482004   (1007904) от 06.07.2021
+
+Brian Bennett Band - Rock Dreams (1977) [MP3|320 Kbps] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Dreams (Introduction) (1:18)
+02. Rock & Roll Dreamer (4:14)
+03. Banja Booga (2:46)
+04. Rave On (2:49)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A92737CCEE839C7501F52A1192F08A6E3094B86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481702   (1008164) от 04.07.2021
 
 Paul Weller - Fat Pop, Volume 1 (2021) Limited Deluxe 3CD Edition [MP3|320 Kbps] <Rock>
@@ -642,60 +696,6 @@ Billy F Gibbons - Hardware (2021) [MP3|320 Kbps] <Southern Rock, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0D367CCEBF5A0C32AF216EF6F0E0CFC494E1CD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474522   (1013077) от 02.06.2021
-
-Rest in Haste - 3 Albums (2014-2021) [MP3|320 Kbps] <Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking City [00:02:45]
-02. Waltz Me Away [00:02:09]
-03. Immaterial News [00:04:28]
-04. Content Farm [00:03:03](   Читать дальше...   )Жанр: Stoner RockПродолжительность: 3CD, 01:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2841B9C90CD8EA671884C755FA800EA2462B369A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473978   (1013324) от 31.05.2021
-
-VA - Hair, Glam & Hard Rock - 100 Hits (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damn Yankees - Coming of Age
-02. Ratt - I Want a Woman
-03. Skid Row - Youth Gone Wild
-04. BulletBoys - Smooth up In Ya(   Читать дальше...   )Жанр: RockПродолжительность: 06:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F93B869AC586CA6632D0E51CF5987EDB27D7BEA
 ```
 
 

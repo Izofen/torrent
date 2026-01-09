@@ -1,3 +1,30 @@
+###  Публикация: 1134955   (685084) от 17.05.2017
+
+Неба Жители - Посланники Пространств (2017) [MP3|320 Kbps] <Electronic, Downtempo, Drum & Bass, Drumfunk>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  1961 (С Голосом Первого Космонавта Планеты Земля)  12:24
+02.  Выше Всех Звёзд  4:37
+03.  Танец на Небесном Балконе  4:21
+04.  Вслед Грибному Ливню  3:35(   Читать дальше...   )Жанр: Electronic, Downtempo, Drum & Bass, DrumfunkПродолжительность: 01:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A2A2A04F4B2337965218D4766A1B53B37E4B0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222427   (685170) от 29.04.2018
 
 VA - German Top 50 Official Dance Charts 27.04.2018 (2018) [MP3|320 Kbps] <Dance>
@@ -678,33 +705,6 @@ VA - The Best Of Trap & Trapstep II [Compiled by ZeByte] (2018-2019) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA1A3D4BD522A96FD762B163984FE9249B043A6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403881   (686586) от 22.08.2020
-
-VA - German Top 100 Single Charts 21.08.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jawsh 685 & Jason Derulo - Savage Love (Laxed - Siren Beat)
-02. KitschKrieg & Jamule - Unterwegs
-03. UFO361 & Sonus030 - Playlist
-04. Apache 207 - Bläulich(   Читать дальше...   )Жанр: PopПродолжительность: 05:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1656F0504A4C4ADEBE110EBD6E779DA70988955D
 ```
 
 

@@ -1,3 +1,246 @@
+###  Публикация: 1033406   (638232) от 11.07.2016
+
+Cellars - Phases (2016) [MP3|320 Kbps] <80's Retro Pop, Synth Pop, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stircrazy
+02. Do You Miss Me?
+03. Real Good Day
+04. Still in Love(   Читать дальше...   )Жанр: 80's Retro Pop, Synth Pop, Female VocalПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ECD544BAE06B47D9BA9C06D2C55C53C4529B0FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293232   (638927) от 02.04.2019
+
+Дискотека Авария - Новогодний ТрЭш (2019) Live [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638927.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Х.Х.Х.И.Р.Н.Р. (Live)
+2. Опа! (Live)
+3. Труба зовёт (Live)
+4. Ноги-ноги (Live)(   Читать дальше...   )Жанр: PopПродолжительность: 01:25:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D09167726F67F0CAD17B774AB3A493B164D7F5C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142950   (639083) от 16.06.2017
+
+Виктор Рыбин и Наталья Сенчукова - Замечательно (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639083.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кусочек сладкого пломбира
+2. Битва за любовь
+3. Уезжаю
+4. Несерьёзно(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63AF2DB78B379B7E8BE8A8602CD5A1929A47BD2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542263   (639107) от 06.04.2022
+
+Quango & Sparky - Disco (1980) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. San Fran Jubilee (3:16)
+02. Do The Boogaloo (3:12)
+03. Do The Boogaloo (Instrumental) (3:13)
+04. The Disco Rock (3:29)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF47EC241FB029882ECE92E9317F962B7278BC84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143038   (639221) от 16.06.2017
+
+Estimado - Escape To Heaven (2017) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Dancing on My Own
+02. Faster
+03. Believe in Me
+04. I Want You Heaven(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:843ECD339BA90048B779E5876E6C9D304AED01FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228042   (639272) от 30.05.2018
+
+VA - Dino Maxi Tops Vol. 1-5 (2001-2006) 10 CD, Compilation, Limited Edition [MP3|320 Kbps] <Italo-Disco, Europop, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639272.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Pet Shop Boys - It's A Sin (Disco Mix) (7:40)
+02. Samantha Fox - Touch Me (I Want Your Body) (5:18)
+03. David Hasselhoff - Je T'Aime Means I Love You (5:45)(   Читать дальше...   )Жанр: Italo-Disco, Europop, Synth-popПродолжительность: 12:57:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B03D1E00C7646CD71D85463FD3A03C755E1E44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228104   (639397) от 30.05.2018
+
+VA - Pop Remixes Mixed By Christian Bartasek (2018) [MP3|320 Kbps] <Dancecore, Hands Up, Hard Dance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christian Bartasek - Pop Remixes Megamix (Continuous Mix)
+02. Toxic Outbreak - All Of Me (Sunny Dee And Dreaming Canon Remix Edit)
+03. Orangez - I Gotta Feeling (B-Tastic Remix Edit)
+04. Phat Bomb - Bad (Sunny Dee Remix Edit)(   Читать дальше...   )Жанр: Dancecore, Hands Up, Hard Dance, PopПродолжительность: 02:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7765ED87907BAC2DD6DC2682D362EDA4DE6BA5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907167   (639645) от 11.06.2015
+
+VA - KuschelRock The Most Beautiful Duets (2015) 2CD [MP3|320 кб/с]<Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George Michael Duet With Elton John - Don t Let The Sun Go Down On Me
+02. Phil Collins & Marylin Martin - Separate Lives
+03. Bill Medley & Jennifer Warnes - (I ve Had) The Time Of My Life
+04. Joe Cocker & Jennifer Warnes - Up Where We Belong (An Officer And A Gentleman-Soundtrack(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 02:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D5DFFC34095F597DE4BDDAE0B1D879FE76EB2B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907337   (639729) от 11.06.2015
+
+MIKA - No Place in Heaven (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talk About You (CD Version)
+ 02. All She Wants
+ 03. Last Party
+ 04. Good Guys(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC4706170B4D4B3C2B4C142D0CA8F1645DD39FDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907369   (639737) от 11.06.2015
 
 Татьяна Котова - Ты Один (2015) [MP3|320 кб/с]<Pop>
@@ -460,249 +703,6 @@ VA - Best Of The Best (1995) 2CD[FLAC|image +.cue]<Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9454BD99C95A6F2EA7C3C3FD64B5BC2DFB32CC0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906976   (641476) от 10.06.2015
-
-Rick Astley - The Best Of (2014) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Gonna Give You Up
-02. Whenever You Need Somebody (Radio Edit)
-03. When I Fall In Love
-04. My Arms Keep Missing You(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F17E5BFE9E8F2A58FB70424974BB96AB8956A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905846   (641520) от 10.06.2015
-
-Tom Jones - Delilah (2015) [FLAC|tracks+.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delilah
-02. Help Yourself
-03. She's A Lady
-04. What's New Pussycat(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29F6BAAF62C249BD93E450365DE54E004D516E44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907016   (641619) от 10.06.2015
-
-Юлия Ковальчук - JK2015 (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В дым...
-02. Стать чужими
-03. В заметки
-04. Шоколад(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F2FB87FE8B018F19F4A4300CA3706A2D3D13BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906303   (641623) от 10.06.2015
-
-The Supremes - At The Copa: Expanded Edition (2012) 2CD [FLAC|Lossless]<Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641623.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-ORIGINAL STEREO LP (1965)
-1. Opening Introduction
-2. Put On A Happy Face(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 02:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C56DFA77C95BBBED1FCAC309C38D00816C5E7CCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905800   (641698) от 10.06.2015
-
-Ульяна КаракоZ - New Angels (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Angels
- 02. Каждый по себе
- 03. Стефаниада
- 04. Русалка(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94B7196C858F2246EE305EA03CA6A3381677887B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906877   (641699) от 10.06.2015
-
-QED - Animal Magic (1984) [OGG|475-526 кб/с]<Electronic, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Solo And More	03:30
-02.	Sayonara	04:26
-03.	Barbie Doll	04:45
-04.	This One	03:51(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C3EE94D1B5FC4FE0CF74BEC79E8DA64DC534D8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032730   (641902) от 09.07.2016
-
-Shura - Nothing's Real (2016) [FLAC|Lossless|WEB-DL|tracks] <80's Synthpop, Indietronica, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (i)
-02. Nothing's Real
-03. What's It Gonna Be?
-04. Touch(   Читать дальше...   )Жанр: 80's Synthpop, Indietronica, Female VocalПродолжительность: 00:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1AC73824F65761388CF6A79EBA771DF78AFA2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032812   (641903) от 09.07.2016
-
-Русский стилль - Ты позови меня... (2012) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Снег во дворе [04:46]
-02. А в саду ромашки [04:20]
-03. Уезжаешь [04:38]
-04. Ты позови меня (с Олегом Пахомовым) [03:50](   Читать дальше...   )Жанр: PopПродолжительность: 01:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0D240ED1CF4B84475948A955795A82BCC4F00A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032876   (641915) от 09.07.2016
-
-Shura - Nothing's Real (2016) [MP3|320 Kbps] <80's Synthpop, Indietronica, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (i)
-02. Nothing's Real
-03. What's It Gonna Be?
-04. Touch(   Читать дальше...   )Жанр: 80's Synthpop, Indietronica, Female VocalПродолжительность: 00:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:953E409F6C8E32B9D47F37D390ECC68A55ABE5B4
 ```
 
 

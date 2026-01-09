@@ -1,3 +1,246 @@
+###  Публикация: 1506004   (801443) от 29.10.2021
+
+Ed Sheeran - = [Equals] (2021) Asylum Records [MP3|320 Kbps|Web-DL] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tides (3:16)
+ 02. Shivers (3:28)
+ 03. First Times (3:06)
+ 04. Bad Habits (3:51)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50EFBC69EB51C21E7D7BEAC5E053A27EBF17511E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506093   (801515) от 29.10.2021
+
+Beast In Black - Dark Connection (2021) [FLAC|Lossless|WEB-DL|tracks] <Disco, Power Metal>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blade Runner
+02. Bella Donna
+03. Highway To Mars
+04. Hardcore(   Читать дальше...   )Жанр: Disco, Power MetalПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:597F3583B7D7AC2B7B160D40EFE8DA82AEF2ABBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505989   (801519) от 29.10.2021
+
+Олег Газманов - Юбилейный альбом (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801519.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. А я девушек люблю
+2. Дождись
+3. Единственная
+4. Есаул(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98202D066250D24ECD79BE8891FEF266628F7BFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506050   (801568) от 29.10.2021
+
+DATA - Opera Electronica (серия "Другие восьмидесятые") (1981) CD, Album, Remastered, 2017, Angel Air Records [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cuckooland
+02. I Want to Know
+03. Fallout
+04. Fever of Love(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F30468249A66247934D9D10F15B0C3A68D1A12A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505889   (801730) от 29.10.2021
+
+Engelbert Humperdinck - In Time (1972) [MP3|320 Kbps] <Pop, Folk, World, & Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801730.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Baby I'm A Want You
+A2 Day After Day
+A3 Too Beautiful To Last
+A4 (They Long To Be) Close To You(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 00:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1FE48C1E7B273AF1354E940F292FEFF72D471CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505997   (801819) от 29.10.2021
+
+Dami Im - My Reality (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pray (00:03:53)
+02 - Scared to Talk To You (00:03:09)
+03 - Lonely Cactus (00:03:11)
+04 - Marching On (00:03:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6664DD5763864228703DCF004DBEB857A4D16E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120640   (801883) от 31.03.2017
+
+Michael Jackson - Xscape (2014) Deluxe Edition [FLAC|Lossless|image + .cue] <Pop, Dance, Funk, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Never Felt So Good (3:55)
+02. Chicago (4:05)
+03. Loving You (3:16)
+04. A Place With No Name (5:35)(   Читать дальше...   )Жанр: Pop, Dance, Funk, SoulПродолжительность: 01:13:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8115C3C8A96798FE09C93453B88953B2239E924B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 774563   (801982) от 25.04.2016
+
+VA - We Love Italo Dance (3CD) (2013-2015) [MP3|320 кб/с]<Euro Dance, Pop Dance, Eurodisco>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Hyo - Mr. Dj (Radio Edit) (03:06)
+02. Miani - Tu Vivi Nell Aria 2k13 (Dance Rocker Remix Edit) (03:36)
+03. Italoproducerz - Ancora Ti Amo (Dami Tanz Concept) (05:46)
+04. Carmixer And Francy M - Senza Te (Original Mix) (04:23)(   Читать дальше...   )Жанр: Euro Dance, Pop Dance, EurodiscoПродолжительность: 08:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D53DDF3DF6FD0D669162BAB801973CEA09DC599
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010709   (802136) от 25.04.2016
+
+Beyonce - Lemonade (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pray You Catch Me (3:16)
+02. Hold Up (3:41)
+03. Don't Hurt Yourself (feat. Jack White) (3:54)
+04. Sorry (3:53)(   Читать дальше...   )Жанр: Pop, Electronic, Funk & Soul, R&B, Soul, Neo Soul, ElectroПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17EDA400AB0A31EE91C6B10502F9412B7F5BABCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010725   (802160) от 25.04.2016
 
 VA - Eurovision Song Contest Stockholm 2016: Come Together (2016) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Folk Pop, Pop Rock, Vocal>
@@ -452,251 +695,6 @@ Vanessa Mai - Regenbogen (Gold Edition) (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B040C59EEB45167820E066A331C5F76A177E1440
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198870   (804511) от 13.01.2018
-
-Morning, Noon & Night - Morning, Noon & Night (1977) LP [MP3|320 Kbps] <Funk-Soul, Disco, R&B>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Thought of Love (6:37)
-02. Bite Your Granny (3:45)
-03. Feelin' Strong (5:45)
-04. Movin' on Down the Line (4:27)(   Читать дальше...   )Жанр: Funk-Soul, Disco, R&BПродолжительность: 00:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F848232EB1AA8DF20F8DA5D99BA4A789CD807EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 318570   (805153) от 04.04.2011
-
-Duran Duran - Greatest (1998) [FLAC|Lossless]<Pop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is There Something I Should Know
-02. The Reflex
-03. A View To A Kill
-04. Ordinary World(   Читать дальше...   )Жанр: Pop, New WaveПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119660   (805365) от 29.03.2017
-
-Baby's Gang - Challenger (2016) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Challenger (05:18)
-02. Jamin (05:58)
-03. Happy Birthday (To My Mammy) (04:57)
-04. Happy Song (Remix) (05:38)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:12:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB39570A0F9885EA958661296552C857B40127F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119906   (805484) от 29.03.2017
-
-VA - Sports Megamix 2017.1 (2017) 3CD [MP3|320 Kbps] <Dance, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805484.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Robin Schulz feat. Akon - Heatwave (Muzzaik Remix) (2:11)
-002. Crew 7 - Last Night A DJ Saved My Life (Club Mix) (1:48)
-003. Marco Tolo feat. Jean Pearl - Would I Lie To You (Baby) (Extended Mix) (1:48)
-004. Propulsive & Robin Embrace - Give Me Tonight (Extended Mix) (1:36)(   Читать дальше...   )Жанр: Dance, ElectronicПродолжительность: 03:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A1A5FAF10E1DF334E26C016785899DC909F9894
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009975   (805564) от 23.04.2016
-
-VA - Radio 538 Hitzone 77 (2016) 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный Нидерландский лейбл Радио 538 продолжает в этом году свою серию двухдисковым сетом новинок популярной музыки. Довольно регулярно на трекере публикуются эти новинки. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию.CD1:
-01. Dua Lipa - Be The One  (3:24)
-02. Coldplay -  Hymn For The Weekend  (4:21)
-03. Fifth Harmony feat. Ty Dolla Sign - Work From Home  (3:38)(   Читать дальше...   )Жанр: Top 40, Pop, RockПродолжительность: 02:31:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD27BB68E39FCFDFCF08699ABE1BFE4DCB98C91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548435   (805683) от 26.10.2021
-
-Michael Jackson - Bad (1987) 2012, 25th Anniversary Deluxe Edition, 3CD [FLAC|Lossless] <Pop, R&B, Funk, Dance, Rock, Dubstep>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный релиз состоит из трёх CD-дисков из нового Коллекционного издания в формате Бокс Сета, состоящего из 3-х СD-дисков (и 1-го DVD, в этой раздаче отсутствует).
-
-Диск 1 - ремастеринговые хиты основного альбома (01. Bad (4:08)
-02. The Way You Make Me Feel (4:59)
-03. Speed Demon (4:05)
-04. Liberian Girl (3:50)(   Читать дальше...   )Жанр: Pop, R&B, Funk, Dance, Rock, DubstepПродолжительность: 03:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E82C0398F650ADDF86FE4472D6378CA51BBD37B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120028   (805766) от 29.03.2017
-
-Christie Allen - Magic Rhythm (1979) Reissue, 1997, Mushroom [MP3|320 Kbps] <Pop, Disco, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic Rhythm
-02. All Australian Female
-03. Only Yes Will Do
-04. Goose Bumps(   Читать дальше...   )Жанр: Pop, Disco, Pop RockПродолжительность: 00:33:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2041CE7215765843DA2EF2AC8917CB4F9582E91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010074   (806099) от 23.04.2016
-
-Katy B - Honey (2016) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honey
-02. Who Am I (feat. Craig David & Major Lazer)
-03. So Far Away
-04. Chase Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52BE712D09ED253C4C8369981BF819945B6BDE56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504809   (806150) от 26.10.2021
-
-Cerrone - The Classics (Best of Instrumentals) (2021) [FLAC 2.0|44,1/24|WEB-DL|tracks] <Disco>
-
->>Pop
->>Eurodance, Disco (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cerrone's Paradise (Long Version Instrumental) (16:59)
-02. Je suis Music (Long Version Instrumental) (07:47)
-03. Give Me Love (Long Version Instrumental) (07:21)
-04. Midnite Lady (Long Version Instrumental) (07:30)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4881F2D1C3C9C5ACCA6A178B173FBDB0B0759D57
 ```
 
 

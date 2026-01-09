@@ -1,3 +1,30 @@
+###  Публикация: 1133928   (691405) от 14.05.2017
+
+VA - Record Super Chart #486 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Matt Nash - Know My Love  4:23
+02.  Martin Garrix & Brooks - Byte  4:45
+03.  KSHMR & Crossnaders feat. Micky Blue - Back To Me  2:59
+04.  Bougenvilla & LZRZ - No Sleep  4:26(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46566370739C6775DF79D94C38AB18E6EB059955
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133917   (691407) от 14.05.2017
 
 VA - Hotline Reggaeton: Master DJ Mix (2017) [MP3|320 Kbps] <Reggaeton, Latino Hip>
@@ -672,33 +699,6 @@ magnet:?xt=urn:btih:36212E8E078FE17CF6A7E1430B8FACF4C423A246
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26FBD0D02826F9277C5B323985A9090207E8CB5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028106   (692876) от 21.06.2016
-
-Corr Sharon - Дискография (2010-2013) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raindrops.
-02. Take a minute.
-03. We could be lovers.
-04. Upon an ocean.(   Читать дальше...   )Жанр: PopПродолжительность: 01:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5343DC7C4AC40DB1D46DDC64F4FE0F60FDA055E7
 ```
 
 

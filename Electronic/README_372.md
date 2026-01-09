@@ -1,3 +1,165 @@
+###  Публикация: 1397272   (741371) от 19.07.2020
+
+Phil Stroud - Australiana (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Deep House, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Australiana (07:50)
+ 02. Zamia Trail (06:02)
+ 03. Morning Breeze (07:16)
+ 04. Eucalyptus (08:36)(   Читать дальше...   )Жанр: Ambient, Deep House, Dub TechnoПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90220EFAA5E8E1F57B0380D304B640AADC6ACC44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217647   (742265) от 05.04.2018
+
+VA - Dash Berlin @ Ultra Music Festival Miami (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dua Lipa - Homesick (Dash Berlin Rework)
+02.Clean Bandit ft. Zara Larsson - Symphony (Dash Berlin Remix)
+03.Dash Berlin ft. Jonathan Mendelsohn - Locked Out Of Heaven
+04.Above & Beyond ft. Richard Bedford - Sun & Moon (Dash Berlin Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F902A18C72035115D9B79EAE19354F30D6E28E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021134   (742308) от 28.05.2016
+
+DAVI - Metanoia EP (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metanoia (07:28)
+02. Ordinary Nightmares (07:11)
+03. Metanoia (Club Mix) (06:53)
+04. Illusion (06:58)Жанр: Deep House, Tech HouseПродолжительность: 00:28:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ECAB92B313E2AA89868ED64C07F0467B6E37886
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021199   (742315) от 28.05.2016
+
+DAVI - Metropolis EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metropolis (05:59)
+02. Change Your Life (06:51)
+03. None of Us (07:05)
+04. Change Your Life (Part. 2) (07:06)Жанр: Deep House, Tech HouseПродолжительность: 00:27:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:980F097B17060C4B9F34665F110C7F0E76C9F898
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021063   (742319) от 28.05.2016
+
+VA - Ethno Dreams Vol.1 Chilling Ethno Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunyata Project - Mystic Adventures
+02. Michael E - That Night Last Summer
+03. Roberto Sol - Oceanic
+04. Buddha - Female Buddha Prayer(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B700ADB49BFFEFCB765F6154DECC3FED12835B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282906   (742338) от 14.02.2019
+
+BlutEngel - Un:Gott (2019) 2CD [MP3|320 Kbps] <Darkwave, Synth-pop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742338.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Together as One
+2. Into the Void
+3. König
+4. Praise the Lord(   Читать дальше...   )Жанр: Darkwave, Synth-popПродолжительность: 01:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2806652EDA1790D565ED90B3D22FBEEF1799F786
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217536   (742397) от 05.04.2018
 
 VA - Aly & Fila - Future Sound of Egypt 542 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -527,168 +689,6 @@ VA - Armin van Buuren - A State Of Trance 900 (Part 3) (2019) [MP3|320 Kbps] <Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:133C722E94E8452F4D7E6FF28F6ABB8B92DDB117
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282599   (743745) от 13.02.2019
-
-Not Waving - Futuro (Music For The Waldorf Project) (2019) Ecstatic [FLAC|Lossless|WEB-DL|tracks] <Ambient, Abstract, Experimental, Soundtrack>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emotion 1.7 Cleanse (06:54)
- 02. Emotion 1.4 Decontamination (05:21)
- 03. Transitions 2/3 Alarm Sound (05:20)
- 04. Blue (06:20)(   Читать дальше...   )Жанр: Ambient, Abstract, Experimental, SoundtrackПродолжительность: 01:09:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D13C6DCF7BB5E9DDB64921C6245AE9142210CF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282772   (743746) от 13.02.2019
-
-VA - Damaged 100 (Mixed by Jordan Suckley & Alex Di Stefano) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chester Cat – The People (Intro Mix)
-02. Iain M – Stem Cell (Extended Mix)
-03. Sygma – Magnetic (Original Mix)
-04. Jordan Suckley – Moskva (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:23:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D740516CDA548A2CF53E7594477BDB1884D214
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282567   (743749) от 13.02.2019
-
-Ed Lynam - Live @ Gallery At Ministry Of Sound London (2019-02-01) (Classics Set)[MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pink Floyd vs. Underworld - Brown Acid (A Side Mix)
-02. Sinead O'Connor - Troy (Push Remix)
-03. Sister Bliss - Sister Sister
-04. Aurora - Hear You Calling (Dark Moon Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F31FA779FB588FBDF823D4A0CB23DEA914B2583
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282766   (743843) от 13.02.2019
-
-Hi_Tack - Say Say Say (Waiting 4 U) (2006) Enhanced [MP3|~245 Kbps (V0)] <House, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say Say Say (Wayting 4 U) (2:50)
-02. Oh la la (feat. Morandi) (6:12)
-03. Love Sensation (feat. Loleatta Holloway) (3:01)
-04. Somebodys Watching Me (feat. Beatfreakz) (2:44)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:14:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ACB76FA9465303266D36E4DC07E8BA3CFB74201
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396873   (744009) от 17.07.2020
-
-VA - Goa Trance, Vol. 43 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744009.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Orisma - Travel Beyond (8:00)
-2. Formula None - From Within (6:31)
-3. Estefano Haze; Multiphase - A New Paradigm (7:53)
-4. Serenity Flux - Yallah (7:08)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:15:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6A303E168B83CA0C656222CACED3F62A05C1ADD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396792   (744086) от 17.07.2020
-
-Cult48 - Catalog 1 (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, IDM, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Calls To Deep (02:16)
- 02. August 84 (05:32)
- 03. Dusk (01:08)
- 04. 251070 (01:51)(   Читать дальше...   )Жанр: Ambient, IDM, DowntempoПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D09D776A78C1E48210AF41ABB5C4D2A945FCB197
 ```
 
 

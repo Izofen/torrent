@@ -1,3 +1,30 @@
+###  Публикация: 971290   (987660) от 02.01.2016
+
+VA - Suenos de California Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ladale - Unfulfilled [05:13]
+02. Laurent de Paris - Pianoes [05:08]
+03. Andrew Hoek - Reversum [02:49]
+04. Bikini Beats - Diamond Heart [04:30](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD791C1CDD8679AFFFAE65E796371034BD750A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354406   (988010) от 22.01.2020
 
 VA - Angel In My Soul (2020) [MP3|320 Kbps] <Country, Folk, Blues>
@@ -725,33 +752,6 @@ VA - Drum and Bass Pro v.1 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67115FD23A61DDADCFB8FA81837D775E0E7F8356
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353773   (990547) от 19.01.2020
-
-VA - 100 Greatest 90s Rock Hits (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990547.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nirvana - Smells Like Teen Spirit
-002. Rage Against the Machine - Killing In The Name
-003. Green Day - Basket Case
-004. Red Hot Chili Peppers - Under the Bridge(   Читать дальше...   )Жанр: RockПродолжительность: 07:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5C1E5837208ACF9AB7C6495DA235506778F9220
 ```
 
 

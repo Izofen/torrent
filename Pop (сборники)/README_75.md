@@ -1,3 +1,30 @@
+###  Публикация: 1292274   (646548) от 29.03.2019
+
+VA - 80s Music Hits (2019) [MP3|320 Kbps] <Disco, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646548.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Patrick Cowley - Megatron Man
+002. Oscar - It's My Life
+003. London Boys - London Nights
+004. Latin Lover - Laser Light(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 13:15:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B5C267BC671795B234827489FAE2A9CA920643C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227380   (646583) от 26.05.2018
 
 VA - Зарубежные Хиты-Май 2018 [MP3|320 Kbps] <Pop, Dance>
@@ -692,33 +719,6 @@ VA - Детский шансон (Сборник) (2016) [MP3|128-320 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:519BE26F29D3F28D873C9B03C6AF1A2295C71F50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031797   (649672) от 05.07.2016
-
-VA - I Love Summer - Ministry of Sound (2016)(3CD)[MP3|256 Kbps] <Pop, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649672.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-Пpодолжительность: 01:11:56
-
- 1. Sigala Feat. John Newman & Nile Rodgers – Give Me Your Love(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 03:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80316CF43FDE8681CB79008562A3FCB94BB950AA
 ```
 
 

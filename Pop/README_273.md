@@ -1,3 +1,246 @@
+###  Публикация: 1016659   (769500) от 15.05.2016
+
+Bee Gees - In The Mood Of Love (2015) [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769500.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. To Love Somebody (3:01)
+2. Massachusetts (2:24)
+3. Words (3:16)
+4. I've Gotta Get A Message To You (3:04)(   Читать дальше...   )Жанр: Pop, Pop Rock, DiscoПродолжительность: 01:14:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:690C646FB4EC07CD2049F96CE54CDCF8A86BC31E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017050   (769510) от 15.05.2016
+
+Бумбокс - Люди (2016) EP [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Люди
+02. Мала
+03. Выход
+04. Рок-н-рол(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DAF3DE2DCBFB3D3B3B4C6265F3990E6CC20A500
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016637   (769514) от 15.05.2016
+
+Kygo - Cloud Nine (2016) [MP3|320 кб/с] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (02:09)
+02. Stole The Show (feat. Parson James) (03:43)
+03. Fiction (feat. Tom Odell) (04:05)
+04. Ringing (feat. Kodaline) (03:45)(   Читать дальше...   )Производство: Kygo MusicЖанр: Pop, DanceПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153406205055BF0A5C61379D6D00697C68566B0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392131   (769845) от 24.06.2020
+
+Carly Rae Jepsen - Dedicated Side B (2020) Japan Exclusive [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Love Isn't Crazy (03:53)
+02. Window (03:18)
+03. Felt This Way (03:37)
+04. Stay Away (03:37)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:694991712B38887581B2DC18E3B7A0070C7FAF21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392035   (769847) от 24.06.2020
+
+Linda Jo Rizzo - Magic Moments-My 35th Anniversary (2020) Singles Collection [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Volcano Project feat. Linda Jo Rizzo - More To Love (03:32)
+ 02. Linda Jo Rizzo - Paradise Island Amor (03:08)
+ 03. Linda Jo Rizzo & Ken Laszlo - Different Kind Of Magic (04:30)
+ 04. Linda Jo Rizzo - Policeman (04:06)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D234226F311C8EDDEED58279C5C621F5FE5175
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391960   (769877) от 24.06.2020
+
+Phoebe Bridgers - Punisher (2020) [MP3|320 Kbps] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DVD Menu (01:10)
+ 02. Garden Song (03:40)
+ 03. Kyoto (03:05)
+ 04. Punisher (03:10)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A7ABCBAFD87C1210FFD456BA10187579BDAC372
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016603   (770157) от 14.05.2016
+
+Валерий Сюткин & Light Jazz - Олимпийка (2016) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Валерий Сюткин совместно со старой гвардией музыкантов отечественного джаза "Light Jazz" представляют песни Александры Пахмутовой, Николая Добронравова и Сергея Гребенникова в новом альбоме "Олимпийка".1. Герои спорта
+2. Трус не играет в хоккей
+3. Темп
+4. Мяч и шайба(   Читать дальше...   )Жанр: PopПродолжительность: 00:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:481F8F60E23F10B784EDB80B17660CB8EFCEDC9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016388   (770230) от 14.05.2016
+
+Ирина Салтыкова - Ранее не изданное (2016) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бай-бай (Remix)
+02. Голубые глазки (Remix 2008)
+03. Дни-облака
+04. Сделай шаг(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:475ACC4D0672C0FA93BADB57E4772983B51C4AE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016074   (771064) от 13.05.2016
+
+VA - Первый дачный, Vol.2 (2016) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MONATIK - Выходной
+02. IOWA - Бьёт бит
+03. Нюша - Целуй
+04. Доминик Джокер - Такая одна(   Читать дальше...   )Жанр: PopПродолжительность: 02:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5466773B66A2C86ED02BD3DB130FD4261DF5002
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 779118   (771219) от 22.04.2014
 
 VA - 538 Hitzone 69 (2014) 2CD [FLAC|Lossless]<Top 40, Pop Compilation>
@@ -444,249 +687,6 @@ Gürcan Erdem - Discography (2006-2008) [MP3|256-320 кб/с]<Disco, EuroDisco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFB3F6B4BE88179E41CAC4EE0B799CF5FE76DB63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125062   (773311) от 13.04.2017
-
-Jamiroquai - Automaton (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Acid-jazz, funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shake It On
-02. Automaton
-03. Cloud 9
-04. Superfresh(   Читать дальше...   )Жанр: Acid-Jazz, FunkПродолжительность: 01:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517D734BCDB4290814E1AABC410D8BEEAE262E32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124373   (773320) от 13.04.2017
-
-Paul Anka - The Real... Paul Anka (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Diana
-2. Love Me Warm and Tender
-3. Put Your Head on My Shoulder(   Читать дальше...   )Жанр: PopПродолжительность: 02:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A691CECEE7867CF61576B74E12954E0E13887D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213044   (773354) от 15.03.2018
-
-VA - Robot Is Systematic (2009) EP (Franco Rago & Gigi Farina feat. 'Lectric Workers) [MP3|320 Kbps] <Electronic, Italo-Disco, Electro>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'Lectric Workers - Robot Is Systematic (8:59)
-02. 'Lectric Workers - The Garden (6:56)
-03. Pleasure Discipline - For Hours Now (Remix) (7:01)
-04. Expansives - Life With You .... (6:56)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, ElectroПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFA4A390BABB8C9DB002C7521595377F6F925928
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124831   (773538) от 13.04.2017
-
-VA - Singers & Songwriters: Classics (2010) [MP3|320 Kbps] <Pop/Rock ,Country ,R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buffalo Springfield - For What It's Worth (2:39)
-02. Gordon Lightfoot - Sundown (3:34)
-03. Nilsson - Everybody's Talkin' (2:44)
-04. Loggins And Messina - Your Mama Don't Dance (2:49)(   Читать дальше...   )Жанр: Pop/Rock ,Country ,R&BПродолжительность: 01:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245B203F65E50557B77EE1E7D77FC59C233D6D38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015725   (774054) от 11.05.2016
-
-Вячеслав Добрынин - И это всё Доктор Шлягер! (2004) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774054.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Спасатель (3:31)
-2. Синий туман (3:54)
-3. Не сыпь мне соль на рану (4:49)
-4. Казино (4:10)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C2BB181D9ECDB10B02D5216110C4A63AA81426
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278024   (774095) от 23.01.2019
-
-Марк Бернес - Песня Посвящается Моя... (1995) Мелодия, записи 1957, 1964-1976 [FLAC|Lossless|image + .cue] <Pop, Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песня Посвящается Моя
-02. Песенка Фронтового Шофера
-03. Шаланды, из к/ф ''Два Бойца''
-04. Тучи Над Городомб из к/ф ''Человек с ружьём''(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:10:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D4D715A11BB04CDCAC8FE142CC41D8AEB79738
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277393   (774227) от 23.01.2019
-
-Julio Iglesias - Best Collection vol.3 (1995) Unofficial Release [FLAC|Lossless|image + .cue] <Pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nathalie
-02. Momentos
-03. La Paloma
-04. Las Cosas Que Tiene La Vida(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 01:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E38D3F4988DE5F5AF4CA0A01EFB6F12F4165A64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277943   (774240) от 23.01.2019
-
-VA - Radio Italia Love (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774240.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Maneskin - Torna a casa
-02. Eros Ramazzotti - Vita ce n'e
-03. Fedez - Prima di ogni cosa(   Читать дальше...   )Жанр: PopПродолжительность: 01:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB5FD1157A72A85272612D1208C9252C58935659
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277968   (774242) от 23.01.2019
-
-VA - WOW Hits 2019 (2018) Deluxe Edition [MP3|320 Kbps] <Hip Hop, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774242.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. MercyMe-Grace Got You
-02. Zach Williams-Fear Is a Liar
-03. Hillsong Worship-Who You Say I Am(   Читать дальше...   )Жанр: Hip Hop, Rock, PopПродолжительность: 02:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F23BECF5F39AC83AEFB005303B56DE040FE7DF45
 ```
 
 

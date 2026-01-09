@@ -1,3 +1,165 @@
+###  Публикация: 1101987   (892839) от 08.02.2017
+
+VA - The Best of 2016 (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medway - Trauma (Donatello Remix) 06:42
+02. Imran Khan - Buenos Aires (Original Mix) 08:43
+03. DP-6 - Reload (Rick Pier O'Neil Remix) 06:36
+04. Alfonso Muchacho - Until the End (Original Mix) 09:35(   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, ProgressiveПродолжительность: 07:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CB7B7D2467BE13FA40F4E316CF402E99BB4CB49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101818   (892893) от 08.02.2017
+
+Aurosonic - Yearmix 2015-2016 (2016) [MP3|320 Kbps] <Progressive Trance, Melodic Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892893.jpg" />
+</div>
+
+
+###  Подробнее
+
+1) Aurosonic & Sue McLaren - Captured By Gravity (Intro Mix)
+2) Raz Nitzan feat. Jess Morgan - Not Like Everyone (Aurosonic progressive mix)
+3) Arctic Lake - Limits (Aurosonic progressive mix)
+4) Headstrong & Aurosonic ft. Stine Grove - I Wont Fall (original mix)(   Читать дальше...   )Жанр: Progressive Trance, Melodic TranceПродолжительность: 01:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D469822F56D6128826CF9627DCE42A2D3056FE5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101973   (893133) от 08.02.2017
+
+VA - Dash Deep Harsh Crazy 2015.02 (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fernando Sayago - Hey Dance with Me 09:28
+02. Gianluca Calabrese - Bah 08:11
+03. Afterboy - Forever Alone 06:27
+04. Traveltech - Demons (Sergi Mauri Remix) 06:27(   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, ProgressiveПродолжительность: 03:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE0AA5F93D2C34F0C8DEEA9E21AA3C888579DC44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102077   (893140) от 08.02.2017
+
+Makia Blue - Sweet Melancholy (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lost Memories (05:05)
+02.  Empty Hopes (03:35)
+03.  Shamans Cave (03:37)
+04.  Sweet Melancholy (05:45)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A99B27B21A69F0225D3C622E8FE6838A5D4257
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993475   (893455) от 06.03.2016
+
+Etienne De Crecy - Super Discount 3 (2015) [FLAC|Lossless|tracks + .cue] <Electro, House, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night (Cut The Crap) (5:23)
+02. You (with Madeline Follin) (3:34)
+03. WTF (with Pos & Dave) (3:34)
+04. Hashtag My Ass (3:12)(   Читать дальше...   )Жанр: Electro, House, DiscoПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1948673A4F094C373A70DAF83FEDC781D1F83AB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993681   (893490) от 06.03.2016
+
+Robert Miles - Dreamland (The Winter Edition) (1996) Unofficial Release [FLAC|Lossless|image + .cue] <Electronic, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.One & One (Radio Edit) 03:52
+02.Children 6:50
+03.Fable (Message Version) 06:25
+04.Fantasya 05:41(   Читать дальше...   )Жанр: Electronic, TranceПродолжительность: 01:12:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8800DFE27D9C95D54C5EA097145543BFB73CAE0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371061   (893539) от 29.03.2020
 
 Sasha - Airdrawndagger (2002) 2CD, Mixed, Limited Edition [FLAC|Lossless|tracks + .cue] <Progressive House, Breaks, Progressive Trance, Ambient>
@@ -536,174 +698,6 @@ Dj Arthur Project - Лето Уйдёт (2006) [MP3|192 Kbps] <House, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6487F02FCEEF6870BF011F2B807D0CB740AEB2A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370710   (895201) от 28.03.2020
-
-Craig Connelly - Trance Classics Golden Years Mix (1997-2002) 2020-03-23 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Chicane feat. Maire Brennan of Clannad - Saltwater
-02.Energy 52 - Cafe Del Mar (Three N One 2002 Update)
-03.Holden and Thompson - Nothing (93 Returning Mix)
-04.Underworld - Dark And Long(   Читать дальше...   )Жанр: TranceПродолжительность: 02:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940325B129C68D411257F4B80ED1DF5EE5AB65A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370572   (895207) от 28.03.2020
-
-In'R'Voice - Infinite Sunset (2018) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Progressive Chill, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eclectricity (7:42)
-02. Infinite Sunset (6:45)
-03. Rays of Light (9:01)
-04. Sand In The Wind (7:45)(   Читать дальше...   )Жанр: Psychill, Progressive Chill, DowntempoПродолжительность: 01:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9834A2959F31B798223A0CB9EF2177CF36E8F15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636479   (895235) от 03.04.2013
-
-Various Artists - Underground Sound Of Miami Series 2 (2013) [MP3|320 кб/с]<Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stelios Vassiloudis - Underground Sound Of Miami Series 2 (Continuous Mixed Version)
-02. Guy J - Twenty 11
-03. Stelios Vassiloudis - Panda Keys
-04. Robert Babicz - It Just So Happens
-05. Phonogenic - Laine
-06. Ian O'Donovan - Crimson Flare
-07. Rob Hes - Simplicity
-08. Elio Riso & Tomas Wahl - Default In Your Mind
-09. Pig&Dan - The Sudden Rush
-10. Eagles & Butterflies - Pharoah(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 02:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6351AD64295868AB3E2C35CE553BF040CD2F93D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370747   (895237) от 28.03.2020
-
-Giulio Aldinucci - Shards Of Distant Times (2020) Karlrecords [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phoenix (07:42)
- 02. Fractal Tears (05:08)
- 03. Every Forgotten Word (06:49)
- 04. The Overturned Abacus (06:15)(   Читать дальше...   )Жанр: Ambient, Drone, ExperimentalПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C819CEEF313AC47304C4B4CD0AE5E4D767F9C27C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993159   (895270) от 05.03.2016
-
-Kadebostany - Pop Collection (2013) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking With a Ghost (3:09)
-02. Invisible Man (3:52)
-03. Castle In The Snow (3:46)
-04. Jolan (3:52)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C25BAADAFF1007CEAAC45EF14482D8F0E995B23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370615   (895289) от 28.03.2020
-
-Headkube - Live in Turin (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895289.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Modular Intro (Live Mix) (5:02)
-2. CC Message (Live Mix) (4:30)
-3. Emme (Live Mix) (4:30)
-4. Void (Live Mix) (7:00)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:584C9F8F7EB7C58FA4FEEA99A905FF9DFDDDF7DD
 ```
 
 

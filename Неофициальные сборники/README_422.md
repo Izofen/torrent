@@ -1,3 +1,36 @@
+###  Публикация: 507623   (676513) от 11.06.2012
+
+VA - Инструментальная музыка (2012) vol. № 70 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. М.Таривердиев - Вокзал прощания
+02. Agua Loca Project - Bahia Blanca
+03. Kumpusch & Seelos - California Sunset
+04. D.Luca - Звуки Днепра
+05. G.Marradi - Tears
+06. Space - Magic Fly
+07. S.Atan - Berkorban Apa Saja
+08. Б.Шереметев - Я вас любил
+09. Waldo De Los Rios Orchestra - Everybody's Talkin'
+10. Chris Spheeris - Slow Dance(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49343A18CD0ADCC6CFC8BEE4B3BC33154E5EBDA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030128   (676525) от 29.06.2016
 
 VA - Зарубежная Дискотека ХХ Века - 27 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
@@ -683,33 +716,6 @@ VA-DubStep Pro Vol.1-35 from AGR (2012-2013) [MP3|320 Kbps] <DubStep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDF94042460A57637CAC1A9C1A913B2AEEDFF9F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290496   (678238) от 20.03.2019
-
-VA - YR Best Chillout Vol.38 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB - Feel Like Me (R.I.B & Soty Chillout Version) 1:35
-02. FATE - Black Magic (Original Mix) 3:00
-03. Katy Perry - Rise (Acoustic Version) (Ali Brustofski Сover) 3:16
-04. Ana Criado - Vulnerable (Nowhere To Hide) (Mark Otten Downtempo Remix) 5:02(   Читать дальше...   )Жанр: Chillout, Downtempo, Lounge, Trap, AmbientПродолжительность: 06:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:323DA300B372035F1942E7ADFC8715397C37696B
 ```
 
 

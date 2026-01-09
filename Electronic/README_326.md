@@ -1,3 +1,165 @@
+###  Публикация: 344431   (645204) от 05.06.2011
+
+GusGus - Arabian Horse (2011) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_645204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Selfoss
+02. Be With Me
+03. Deep Inside
+04. Over(   Читать дальше...   )Жанр: House, Downtempo, Tech HouseПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292706   (645281) от 30.03.2019
+
+Chris van Buren - Hope and Destiny (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Limits of Our Frontier (5:40)
+02. Destination Mars (6:40)
+03. Spirit (6:11)
+04. Opportunity (6:00)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE6D258EF585C489944CCB75E581AE461C69BF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292545   (645287) от 30.03.2019
+
+H1987 - ODYSSEY (2018) [FLAC|Lossless|Web-DL|tracks] <Ambient, Downtempo, Trip Hop, Chillwave>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I (3:24)
+02. II (5:00)
+03. III (4:38)
+04. IV (4:31)(   Читать дальше...   )Жанр: Ambient, Downtempo, Trip Hop, ChillwaveПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32FEF58E2C5985CC988F7294DC90A666B36B4802
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906367   (645539) от 08.06.2015
+
+VA - Ibiza Deep House Vol 1 (2015) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert Reston - I'm Sending You (03:36)
+02. Blackman - Everybody (Nu York Lights Mix) (03:36)
+03. Don Major - At Sunset (03:35)
+04. Frank Scozzi - Unconsciousness Without Limits (03:33)(   Читать дальше...   )Производство: Liquid Lounge RecordingsЖанр: Deep HouseПродолжительность: 01:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE2B509E8B78F5FFB620D8D7FD9A09AD9E892DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032041   (645693) от 07.07.2016
+
+Chiptune Radio - 8-bit tribute to The Offspring (2015) [FLAC|Lossless|tracks] <8bit, Punk, Rock>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pretty Fly
+02. Self Esteem
+03. Come Out and Play
+04. Genocide(   Читать дальше...   )Жанр: 8bit, Punk, RockПродолжительность: 01:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41AD4CD631AD0F2BE99EB8292F8A0914F87E558
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032091   (645950) от 07.07.2016
+
+VA - Progressive Goa Trance Vol. 2 (2016) [MP3|320 Kbps] <Trance, Psy Trance, Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monolock -  Proggy Froggy 9:02
+02. Flucturion 2.0 -  Paper-layered Panorama 6:46
+03. Inkel -  Pulsating Vibe 7:06
+04. Nature & Norma Project -  Digital Age 7:29(   Читать дальше...   )Жанр: Trance, Psy Trance, Goa TranceПродолжительность: 02:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE7CB681515AE10F3AFB90A9F0929A3462A7CD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032132   (645955) от 07.07.2016
 
 VA - Wake up Tunes (2016) [MP3|320 Kbps] <House>
@@ -533,166 +695,6 @@ VA - Suanda Miami 2019 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3997BE5DFC972842C9838AC6313C4418C118334
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141777   (646840) от 12.06.2017
-
-VA - Chill Out Selectionc Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Paul Spectre - Comfort Zone  7:01
-02.  Gabriel Thomas - Velvet Boulevard  3:32
-03.  Nikolay Mikryukov - Summer Is Coming  7:25
-04.  Radar Detector - When We Were Still Together  6:31(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA6E2BC41E7601874D34BB22AA092D572D3D711
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142095   (646841) от 12.06.2017
-
-VA - Beats For Life Vol.1 20 Deep-House Daiqueries (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Umbria Style - Groove Junkie
-02. NJ Producer - Hold Love - Portugal Mix
-03. Orlando Johnson - It's Time To Get Together - Main Mix
-04. Nicola Minella - Esperando El Sexy Cha Cha - Club Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8125EF0CF942610435E9B494C6BCFED7889660A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141950   (646843) от 12.06.2017
-
-VA - Chillout Summer Tunes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  STJ - Eco Ballad (Aaron The Baron Fantasy Mix)  5:33
-02.  Eternal Dreamer - Kiss Me (Dreamstep Mix)  5:03
-03.  Max Denoise - Forgive You (Chill Around Mix)  5:43
-04.  X-ite project - The Sound Of Goodbye (Extended Version)  3:57(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:16:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4223F63151095BFD5B58598C550C457641B208F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541388   (646853) от 02.04.2022
-
-Nickolay Fedorenko - Коллекция (2013-2022) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spacedisco, Dance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance Planet (3:03)
-02. Interstellar Flight (3:37)
-03. Dynamic Motion (3:47)
-04. Winter Dance (3:26)(   Читать дальше...   )Жанр: Spacesynth, Spacedisco, DanceПродолжительность: 04:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A2E3A4F9B50B69D9CB4D4B6256651FF6BC364F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541159   (646859) от 02.04.2022
-
-Наукоград - Дискография (2018-2021) [FLAC|Lossless|WEB-DL|tracks] <Chillwave, New Wave, Lo-Fi>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Апрель (3:28)
-02. Время (4:14)Жанр: Sovietwave, Chillwave, New Wave, Lo-FiПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104AC3C715C8E5DBB7C7C9619558DE47FC707B7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292363   (646907) от 29.03.2019
-
-VA - Trancespotting Vol.8 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mindsoundscapes - Grasping Life (Radio Cut) 3:19
-02. Con Phillips - Varanasi (Radio Cut) 3:51
-03. Unit Of Trance - Reserve (Radio Edit) 3:28
-04. Brent Rix - Desert Sun (Original Mix) 3:41(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF2A5583C0393F55B6DDE969147656B615E5A66B
 ```
 
 

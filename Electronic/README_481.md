@@ -1,3 +1,165 @@
+###  Публикация: 1091273   (944966) от 08.01.2017
+
+Michael E - Heaven Sent (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful (04:27)
+ 02. She’s Heavenly (04:56)
+ 03. Hathor’s Theme (06:38)
+ 04. Make Our World a Better Place (04:45)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73149DCA248051504EA8A0D8DCEAD16C46444AFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090871   (945014) от 08.01.2017
+
+VA - Absolute Love for Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweetadelic - Elevon
+02. Chillelektro - Kap Arkona
+03. Azeotrop - Aftermath
+04. Chiffre 100 - Jolly(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:387F76E683168C58629EA4F16DDE4D37E680F2BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983033   (945228) от 05.02.2016
+
+Tiesto - Elements Of Life (Remixed - Extended Mixes) (2016) [MP3|320 кб/с] <Trance, Progressive Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiesto - Ten Seconds Before Sunrise (First State Remix) (7:57)
+02. Tiesto feat. JES - Everything (Cosmic Gate Remix) (8:48)
+03. Tiesto feat. Julie Thompson - Do You Feel Me (Roger Martinez Remix) (7:09)
+04. Tiesto - Carpe Noctum (Fire Element Mix) (7:15)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 03:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07812DC4A4221A0734C30DC8F1E4BBF4D723CE13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983151   (945548) от 05.02.2016
+
+John Dahlback - Saga (2016) [MP3|320 кб/с] <Electro House, Progressive House, Future House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saga Intro (01:27)
+02. Into You (03:28)
+03. Sycophant (03:42)
+04. Raven (03:13)(   Читать дальше...   )Жанр: Electro House, Progressive House, Future HouseПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C3705A6A698E6155BBBEC3D750A2F7400B5C993
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983002   (945595) от 05.02.2016
+
+VA - Seductive Lounge Music (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945595.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Baghira - A Thrill of Anticipation [05:37]
+002. Stiopa & Angel Falls - Heartbeat [06:03]
+003. Cafe Royale - Lounge Addict [04:27]
+004. King Hookiss - Forever [04:35](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF8A39C0D3A4B374912D6FF2836E61218CEBBCAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090654   (945979) от 07.01.2017
+
+VA - Goa Vol.62 (Compiled by Champa) (2017) [MP3|320 Kbps] <Trance, Goa Trance, Psychedelic>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Champa & Aquila - Chaquila (Original Mix)  7:46
+02.  Reality Test - Go! (Original Mix)  6:29
+03.  Sub6 & Jah Natan - The Clash (Omiki Remix)  7:29
+04.  Vini Vici - Namaste (Static Movement & Off Limits Remix)  8:01(   Читать дальше...   )Жанр: Trance, Goa Trance, PsychedelicПродолжительность: 02:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F0C27BE3717475A32D3024D116C731B34F16C26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090694   (946093) от 07.01.2017
 
 VA - Winter 2017: Best Of Inception (2017) [MP3|320 Kbps] <Progressive House>
@@ -524,168 +686,6 @@ Krisma - Cathode Mamma (Remastered) (1980) 2007, Polydor [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B66A63D43595CB1198378A2B398259C95FD3CC2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090407   (947531) от 06.01.2017
-
-VA - Vocal Trance Classics 001 (2017) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz feat. CeCe Peniston - Make You Fall 04:31
-02. Dash Berlin feat. Kate Walsh - When You Were Around 02:59
-03. Alex M.O.R.P.H. feat. Sylvia Tosun - Antara (The Circle) (Den Rize Remix) 03:45
-04. MaRLo feat. Sarah Swagger - Always Be Around 03:57(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 01:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0615B328DC0FE778B4171032DF61CB43B583CEEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090520   (947535) от 06.01.2017
-
-VA - Milano Fashion Week (Deep House Selection) (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Submantra - I Know (From P60 the Headloop Remix) 5:46
-02.  DJ Umbi - Sonidos (Instrumental Mix) 7:39
-03.  Anthony Mea - Datto (DJ Umbi Remix) 6:13
-04.  Portofino-Sunrise - Morning Breeze 6:00(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDEC58571CB0EE20E47FADDA6D499213C946E21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090337   (947600) от 06.01.2017
-
-VA - Re-Fresh The 90s: Club Classics (2017) [MP3|320 Kbps] <House, Euro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lovestation - Teardrops (Flava 12' Mix) 6:31
-02.  Strike - U Sure Do (Guest List 12' Mix) 7:23
-03.  Serious Danger - Deeper (Pt. 1) 6:37
-04.  Mr Roy - Something About U 7:37(   Читать дальше...   )Жанр: House, Euro HouseПродолжительность: 06:23:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B27C2C0CA350B1586E49D5FD852A7ADE10EFEE07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090178   (947602) от 06.01.2017
-
-VA - Essential Happy Hour Ibiza Lounge & Chillout Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sean Woodby - Acoustic Mood 4:01
-02.  Ashley Scott - Don't Give Up 7:03
-03.  Chris Wilson - Back Seat 3:40
-04.  Cary Summer - You Can Do It 4:54(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A874EA093CBA187BAE2E486A976DCDE69827530
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090252   (947608) от 06.01.2017
-
-VA - Midnight Lounge Vol.24 The Piano (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Riccardo Ascani - Playa Arcobaleno 3:45
-02.  Riccardo Ascani - Fiesta En El Mar (No Theme) 3:19
-03.  Deep Space - To Save Love 7:19
-04.  Riccardo Ascani - Nostalgia 4:10(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AC61BAAA36B64A8237B596BAFF3A389076F15B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090358   (947684) от 06.01.2017
-
-VA - Trance Up In A Dream (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dario Synth - Without You (Michael D remix) (06:43)
-02. Sancho - Domi9 (06:01)
-03. Ilya Goryachev - Gold Waters (06:23)
-04. Veselin Tasev - Don't Kill The Love (extended mix) (07:00)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D29763D2D1123346F019ED0326F33CF07AB75D5
 ```
 
 

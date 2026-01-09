@@ -1,3 +1,30 @@
+###  Публикация: 1106432   (871797) от 20.02.2017
+
+VA - Trance Elegance On This Year 010 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Oliver Smith - Endorphin  3:55
+02.  Jam Da Bass & DJ TH vs. Hanna Finsen - Save The Day (Seawayz And Sollito Remix)  6:09
+03.  Andy Tau & Sean Mathews ft. Max Millian - Shadows And Light  7:03
+04.  STA - Orbit  7:13(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 02:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D76DA258570F3A282A008A95EADA29F11D300002
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106496   (871800) от 20.02.2017
 
 VA - Музыкальное зимнее настроение выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - Hard Punk Review (2021) [MP3|320 Kbps] <Punk, Rock Punk, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:413E5E3CB6C0E4CC08E1FE4C1E69FE012788A4E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496435   (872865) от 17.09.2021
-
-VA - Rock In The City (Vol.02) (2021) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872865.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Blutengel - Hymn
-002. Fame On Fire - It's Okay
-003. Redhook - Kamikaze
-004. Slaves - Like I Do(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC3A2341EBC2F690EB4CCEC3A80CB6520105B770
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1134308   (688885) от 15.05.2017
+
+Armin Van Buuren - The Best Of Armin Only (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive Trance, Progressive House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Overture (I Imagine)  2:26
+02.  Overture (II Mirage)  2:08
+03.  Overture (III Sail)  1:00
+04.  Overture (feat. Eric Vloeimans) (IV Embrace)  4:48(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 02:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E8B155742993F7CB5095A26B8AB891BE4FF8784
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222144   (689306) от 27.04.2018
+
+Tangerine Dream - Quantum Gate / Quantum Key (2018) Kscope [FLAC|Lossless|WEB-DL|tracks] <Ambient, Berlin-School>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sensing Elements (13:33)
+02. Roll the Seven Twice (6:25)
+03. Granular Blankets (5:03)
+04. It is Time to Leave When Everyone is Dancing (6:36)(   Читать дальше...   )Жанр: Ambient, Berlin-SchoolПродолжительность: 01:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F36B7F19E151B72620D75A022B1868D2F0AAAC48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221903   (689555) от 27.04.2018
+
+Hypnosis - Hypnosis (1991) Reissue, 2001, ZYX Music [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop, Space-Synth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Droid (5:47)
+02. Inesi (1:14)
+03. Windland (4:48)
+04. Argonauts (4:44)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Space-SynthПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:615B42EB07BE00DA253E1BB8D36EA848BBBF61A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221958   (689672) от 27.04.2018
+
+Goldmund - Occasus (2018) Western Vinyl [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before (03:25)
+ 02. Above (02:36)
+ 03. Bounded (03:10)
+ 04. Breaking (03:06)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE614C2B775D777B9C44D9F08CA9A8D72ECBC058
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221956   (689675) от 27.04.2018
+
+1954 - A Part of Me (2018) Project: Mooncircle [FLAC|Lossless|WEB-DL|tracks] <Leftfield, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flowers of the Dead Man (03:09)
+ 02. It Was Love (03:18)
+ 03. Hermann's Dream (02:59)
+ 04. Colored Lies (03:41)(   Читать дальше...   )Жанр: Leftfield, DowntempoПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99ABC9C7F4D421ADC959A7D3A69D2EC1D3934095
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221913   (689676) от 27.04.2018
+
+Sven Laux - Schachmatt (2018) Whitelabrecs [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kramnik (11:17)
+ 02. Karjakin (05:15)
+ 03. Carlsen (09:05)
+ 04. Fisher (04:21)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37832F40AACF44BEC2D956AC48D0D999441AF567
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 659783   (690201) от 04.03.2022
 
 Bomfunk MC's - 2 Альбома (1999 - 2005) [FLAC|Lossless]<Breakbeat, House, Drum & Bass, Hip Hop>
@@ -531,168 +693,6 @@ VA - Clouds Over - Havana Vol.1: 30 Fantastic Chill Out Tunes (2017) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A10FC46D2DB7CEFD9168487D5EAFD9C3647E2885
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402851   (691931) от 19.08.2020
-
-VA - Goa Culture - Season 4 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691931.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. One Function - Values of Love (3:49)
-2. Thusgaard & Bierlich - Algea Rhythm (7:17)
-3. Atmos - Soundglider (Yestermorrow Remix) (9:29)
-4. Flowjob - Reverse Vacation (7:39)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:14:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:636E7FED34C74E981F313C6A79EBC49AE22340EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351016   (691933) от 19.08.2020
-
-Fatum - All In Radio 001-017 (2020) [MP3|192 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691933.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. RUFUS DU SOL - Treat You Better (Purple Disco Machine Remix)
-2. Andrew Cash - Deeptrak
-3. Jon Hopkins & Kelly Lee Owens - Luminous Spaces
-4. ARTBAT feat. WhoMadeWho - Closer(   Читать дальше...   )Жанр: TranceПродолжительность: 14:22:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A5F16D31D92AD8FB2712A25AC84CBB3D6B50DE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288849   (691958) от 13.03.2019
-
-Mr.Kitty - EPHEMERAL (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wait (4:22)
- 02. From Liquid (3:45)
- 03. My Weak Side (3:56)
- 04. Disconnect Lover (4:23)(   Читать дальше...   )Жанр: Electronic, Synthwave, DarkwaveПродолжительность: 01:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6885CCB6D8409B8EA2003B734FDA768C8B9F34C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288935   (691964) от 13.03.2019
-
-VA - Armin van Buuren - A State Of Trance Festival 900 - (Madrid) (2019) [MP3|320 Kbps] <Trance, Progressive Trance, Vocal Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ilan Bluestone & Maor Levi – Everybody (Ilan Bluestone & Maor Levi Club Mix)
-02. Maor Levi & OTIOT – Bandana
-03. Maor Levi & OTIOT ft. Ashley Tomberlin – Turn Out The Lights
-04. Ilan Bluestone & Maor Levi ft. El Waves – Will We Remain?(   Читать дальше...   )Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 07:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F2D0758F5A395BB852F54BC786EFE57167AEC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288841   (691974) от 13.03.2019
-
-VA - Yoga & Meditation Selections Vol.06 (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexander Tarasov - October (Original Mix) 6:19
-02. Dan Wack - A Beginning (Original Mix) 5:37
-03. Kirsty Hawkshaw & Sam Hyder - Thecosomata (Original Mix) 2:53
-04. Johannes Fischer - Farewell (Piano Version) 4:43(   Читать дальше...   )Жанр: Downtempo, ChillOut, Ambient, Meditation, NewAge, Relax, ElectronicaПродолжительность: 02:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C71E1C3064CB5B1F93060AACE8C328913E4122
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288876   (692096) от 13.03.2019
-
-VA - Cool Girls: Urban Dance Downtempo Music (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Lo-Fi>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luli Mana - Runaway With Me (Summer Party Mix) 3:59
-02. Anna & Tamma - Any Day With You (Original Mix) 4:44
-03. Karma Mika - We Feel It (Original Mix) 5:27
-04. Creminolima - I Want You (Original Mix) 5:11(   Читать дальше...   )Жанр: Downtempo, ChillOut, Lo-Fi, ElectronicaПродолжительность: 02:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5818D738296CB169FFB50A401233B83BDC1FF24
 ```
 
 

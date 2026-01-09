@@ -1,3 +1,161 @@
+###  Публикация: 1110079   (855758) от 01.03.2017
+
+VA - Canary Islands Chillout Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855758.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ocean Mind - Culture Flow 5:13
+002. Schwarz & Funk - Hollywood Affair - Remastered 6:49
+003. Bahia de Roses - Quem Sera 2:48
+004. Joxephad - Desire to Dream 5:24(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1AABF19C190A3DD323DA4C66E42B7097B78E5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592502   (855865) от 23.04.2013
+
+VA - ATB - The DJ 1 - 6 In The Mix (2004 - 2010) [FLAC|Lossless]<Trance , Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855865.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - ATB - The DJ 1 - 6 In The Mix (2004 - 2010)
+Год: 2004 - 2010
+Жанр: Trance , Progressive Trance(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 875708   (856351) от 07.03.2015
+
+VA - Acoustic Lounge Essentials Vol 1-3 (2014-2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dinah Eastwood - Back in Black [03:46]
+02. Sound Behaviour - Call Me [02:58]
+03. Rever Sound - That's All [04:31]
+04. Stereo Dub - Who Can It Be Now? (feat. Karen Souza) [03:19](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:071D6D962D01A2749F0085F817019DF9F7F2F415
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 850633   (856567) от 19.04.2020
+
+Natalia Zamilska - Discography 10 Releases (2014-2020) Mik.Musik.!., Untuned Records [FLAC|Lossless|WEB-DL|tracks]<Techno, Industrial, Glitch, Tribal, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue Live (03:25)Тип издания: WEBЖанр: Techno/IndustrialПродолжительность: 00:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:019D7D224F22F65C753E2D3EF7709F7E2046CD76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034805   (856674) от 19.04.2020
+
+Justin Gain - Techno Ebola (2016) [FLAC|Lossless|image + .cue] <Techno, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aney F. - Something In The Room With Me
+02. E.T.H (Italy) - Reesha
+03. Orlando Tosi, Niccolo Borgi - Bilaterale
+04. Aney F. - Turn It On(   Читать дальше...   )Жанр: Techno, Deep HouseПродолжительность: 01:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5312019892D891D25AECB2E5EE1108DC78FEBD54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376851   (856774) от 19.04.2020
+
+VA - Erotic Chill (2020) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856774.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.THP - The Time Is Coming (4:57)
+2.Lost Dreams - Supreme Gil (3:48)
+3.L D V Project - Gonna Fly Now (6:29)
+4.Connor Evans - Antidax (5:21)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5BD671B73C22F74A2942C29C93DF82DECD277D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376798   (856895) от 19.04.2020
 
 Backstage Gurus - Mediterranean Odyssey (2020) Liquid Sound Design [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Tribal, Ambient>
@@ -533,168 +691,6 @@ VA - Universal Language (Lounge Anthems) Vol.2 (2017) [MP3|320 Kbps] <Downtempo,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EE950619AF4B0583DF162F0D621295436F26B74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109597   (857460) от 28.02.2017
-
-VA - Re Confirmed: Deep House Selection Vol.2 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857460.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bunched - Ame?lie's Symphony - Fabian Schumann Remix 6:32
-002. Joe Pycasso - Feel Love - Original Mix 8:21
-003. James Rod - Lipstick 78 - Schwarz 100 Remix 5:40
-004. Q Narongwate - Local Talk - Original Mix 5:42(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB91B2645C9C1677390A2A9F4F27077F6ABF0C23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109556   (857483) от 28.02.2017
-
-VA - Boutique Lounge Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857483.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Omaya - Fanatically - Original Mix 3:26
-002. Mowree - Expanse - Original Mix 5:33
-003. Felipe Gonzalez - No Hablas Espagnol - Original Mix 4:56
-004. Mathieu & Florzinho - Eternal Now - Original Mix 5:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB4E82DDA758AF7961359F71ABE1626F342BEAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109677   (857484) от 28.02.2017
-
-VA - Natural Born Chillas, Vol. 7 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857484.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. York - Interlude 0:59
-002. 351 Lake Shore Drive - Day Of Light 2:19
-003. Simon Le Grec - Forbidden Love 3 (radio mix) 4:25
-004. Project Blue Sun - Ad Astra Per Aspera 5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B308646340322B9662864DBD9CE7B38EC9FB85E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109674   (857485) от 28.02.2017
-
-VA - Eivissa Chill Vol.1 (Balearic Island Chill) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  E-Motive - Street Waves  4:11
-02.  Roberto Sol - Te Amo (feat. Ines Prados)  4:40
-03.  Rinat KaaS - Inside Emotions  4:36
-04.  Sunyata Project - Mystic Adventures (Oriental Chill Mix)  3:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A9E964ABA76E5811576EB78ACB6A16FC8F24565
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109552   (857486) от 28.02.2017
-
-VA - All Good In The Hood Vol.2: 20 Groove Monsters (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857486.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Frank Richmond - Mirror Of Truth 3:09
-002. Gee Lovers - Cops And Robbers 3:24
-003. Jonathan Goldman - Outside The Lines 3:13
-004. 6th Floor Groove Ensemble - Party Girls 2:55(   Читать дальше...   )Жанр: HouseПродолжительность: 01:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C9C8CC27E49B8CEB8E4F36FFC33F067DA0C7BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109684   (857487) от 28.02.2017
-
-VA - Let's Get Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Gorda Project - Mild And Quiet  6:47
-02.  Enrico Donner - Sensual Education  5:57
-03.  Cane Garden Quartet - Flying With No Wings  5:54
-04.  Baghira - A Thrill Of Anticipation  5:36(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7636730A87BFBB592D0A79A52EE4697AC780D949
 ```
 
 

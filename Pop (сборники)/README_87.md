@@ -1,3 +1,30 @@
+###  Публикация: 1533139   (706571) от 23.02.2022
+
+VA - Good Feeling 80s (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruce Springsteen - Dancing In the Dark
+02. Lionel Richie - Dancing On The Ceiling
+03. George Michael - Faith (Remastered)
+04. Fleetwood Mac - Everywhere (2017 Remaster)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:917E909521AC0218E2EB92D84BE4B366D18E4479
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1533142   (706933) от 23.02.2022
 
 VA - Good Feeling 90s (2022) [MP3|320 Kbps] <Pop, Dance>
@@ -665,33 +692,6 @@ VA - Экспресс русских хитов на Hit FM (7) (2018) [MP3|256 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B8208FC8A9A2DA4C51070A9A8FE51EE66549E30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131153   (710661) от 04.05.2017
-
-Mark Ashley - Mp3 Play (2017) [MP3|320 Kbps] <EuroDisco, Synthpop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Valerie
-02. Lover Why
-03. Stay
-04. It's All Over(   Читать дальше...   )Жанр: EuroDisco, SynthpopПродолжительность: 04:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2AE4CB1494819203E2F8E4AA49E75CA3F211CBC
 ```
 
 

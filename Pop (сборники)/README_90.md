@@ -1,3 +1,30 @@
+###  Публикация: 1129247   (722512) от 28.04.2017
+
+VA - Лучший весенний хит. Часть № 12 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722512.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ustinova - Ночь Поет 3:16
+002. Света Корцман - Небо-Купол 3:18
+003. Graal - На Куски 3:16
+004. Vikki - Сама Виновата 3:16(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADFAB1A54E9594BB2FF4879E80680DB70AD6EBD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285278   (722771) от 25.02.2019
 
 VA - German Top 100 Single Charts 04.03.2019 [MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - German Top 100 Single Charts 31.07.2020 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1059C6B1D12F98D6DC5465A59AFEA04F06DFC296
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218167   (725204) от 08.04.2018
-
-VA - German Top 100 Single Charts 09.04.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725204.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marshmello & Anne-Marie - FRIENDS
-002. Olexesh - Magisch (feat. Edin)
-003. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)
-004. Drake - God's Plan(   Читать дальше...   )Жанр: PopПродолжительность: 05:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:725F9018E1D545CE02A8D2287773E6B8FA6A05A6
 ```
 
 

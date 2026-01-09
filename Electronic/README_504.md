@@ -1,3 +1,165 @@
+###  Публикация: 1474322   (1013066) от 02.06.2021
+
+Gambusia - Artist Series: Gambusia (2021) Superordinate Dub Waves [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaster (05:50)
+ 02. Heron (04:42)
+ 03. Perch (05:41)
+ 04. Koel (05:52)(   Читать дальше...   )Жанр: Dub Techno, Ambient, Deep TechnoПродолжительность: 00:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F91790EB87703A2ECD14FD48530F52FA18C4E151
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474167   (1013227) от 01.06.2021
+
+GusGus - Mobile Home (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Tech House, Synthpop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay The Ride
+02. Higher (feat. Vök)
+03. Simple Tuesday
+04. Love Is Alone (feat. John Grant)(   Читать дальше...   )Жанр: House, Tech House, SynthpopПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:809C48E2E20BD82F736598053381A8207C396E5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473533   (1013531) от 30.05.2021
+
+Penelope Trappes - Penelope Three (2021) [MP3|320 Kbps] <Dark Ambient, Shoegaze>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Veil
+02. Nervous
+03. Forest
+04. Fur & Feather(   Читать дальше...   )Жанр: Dark Ambient, Shoegaze, Trip-HopПродолжительность: 00:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5710403F141F7AA95F2DAA3EAD319BDD20F1A90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473597   (1013557) от 30.05.2021
+
+Penelope Trappes - 5 CD (2017-2021) [FLAC|Lossless|WEB-DL|tracks] <Dark-Ambient, Shoegaze, Trip-Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Veil [00:01:44]
+02. Nervous [00:04:24]
+03. Forest [00:04:51]
+04. Fur & Feather [00:03:04](   Читать дальше...   )Жанр: Dark-Ambient, Shoegaze, Trip-HopПродолжительность: 5 CD, 02:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DA8BB58FC902243A74CD246DD6BA5699C5F3118
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473394   (1013678) от 29.05.2021
+
+VA - Maretimo Chillhouse Flight, Vol. 1 - Join This Spheric Lounge Trip (2021) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pascal Dubois - House on the Beach (Chillers Mix)
+02. Airstream - Night Affair (1 AM Remastered Mix)
+03. The Smooth Commander - Nightflight to New York (5th Avenue Remastered Cut)
+04. Adriatic Grooves - Ibiza Overflight (Vibes & Bytes Mix)(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 01:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2E0EF88426FE60E510445BCB63C1AD439BA1F91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473423   (1013727) от 29.05.2021
+
+Lårry (Larry) - Nines (2021) Awkwardly Social [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno, IDM, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Hard To Leave This Place (05:29)
+ 02. Emshen (04:23)
+ 03. Nines (04:41)
+ 04. What Can Be Done When Nothing Can Be Done (04:43)Жанр: Electro, Techno, IDM, AmbientПродолжительность: 00:19:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D5F268E027926EE61DD1CE50169D6E4C2751FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473227   (1013825) от 28.05.2021
 
 Solomun - Nobody Is Not Loved (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Tech House, Deep House>
@@ -533,168 +695,6 @@ VA - Kontor Festival Sounds 2021.01 - The Awakening (2021) [MP3|320 Kbps] <House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:868F21F316820F6075C44715181F10F30B558C69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469200   (1016430) от 12.05.2021
-
-VA - Hardstyle XXL Megamix 2021 [MP3|320 Kbps] <House, Club House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Headhunterz & Jdx - Transcendence
-02. Ran-D & Leprince - Fight Fire With Fire (Radio Edit)
-03. Killshot - Horrorshow (Radio Edit)
-04. Adaro & Kronos & Nikki Milou - The Life (Radio Edit)(   Читать дальше...   )Жанр: House, Club House, ProgressiveПродолжительность: 03:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4986899E54F8533D378130D050AD7B0BEF0F5DE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469043   (1016572) от 11.05.2021
-
-Korolova - Live @ Kamianets - Podilskyi, Ukraine(2021-05-07) [MP3|320 Kbps] <Progressive House, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Böhmer & Panama - Weightless
-02. Noidor & Whoriskey - Embrace
-03. Jean Vayat & Evelynka - Your Rain (Moonwalk Remix)
-04. Innellea - Haveli(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A45202C425CCB948EACE9D967DFF22D8B105C83D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469328   (1016582) от 11.05.2021
-
-VA - Relaxing Afternoon: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patiotic - First Leaves (2:38)
-02. Beamy - Utopia (3:25)
-03. Marga Sol, Leo de la Rosa - Esta Noche - Leo de la Rosa Sensual Mix (5:50)
-04. Matej Blanusa - Beginning (Medani Pieck) (3:58)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:08:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E2A01EE14AE9D4D1E5F927E8413D90269BC44E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469320   (1016583) от 11.05.2021
-
-VA - Calming Sea: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Can Summer Last Forever - Original Mix (5:05)
-02. Finland & Aaskoven - The Mountains & Peaks (6:04)
-03. Mission Brown - Watching Clouds - Original Mix (6:02)
-04. Weathertunes - Follow Your Heart (4:20)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:20:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D0834B0262A340E9D5ACE827284C5B1ADC06B34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469038   (1016586) от 11.05.2021
-
-SPINNIN' - Best of Tiesto (2021-05-09) [MP3|320 Kbps] <Big Room, Future House, Dance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016586.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tiësto & The Chainsmokers - Split (Only U)
-2. Tiësto & Oliver Heldens - Wombass
-3. Tiësto - The Business
-4. Tiësto & Sevenn - BOOM(   Читать дальше...   )Жанр: Big Room, Future House, DanceПродолжительность: 01:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3DE620DCCC05D7B72F5E6DEFAA49A161754460
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468912   (1016915) от 09.05.2021
-
-BCee & Charlotte Haining - Life As We Knew It (2021) [FLAC|Lossless|Web-DL|tracks] <Drum'n'Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. History (Technimatic Remix) (5:19)
-02. Wanderer (Mitekiss Remix) (5:15)
-03. Could Have Been Us (Winslow Remix) (5:08)
-04. Little Bit Lighter feat. Etherwood (Pola & Bryson Remix) (3:55)(   Читать дальше...   )Производство: Spearhead Records - SPEAR148Жанр: Drum'n'BassПродолжительность: 01:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A8E44B362AA2089A28233E5D11051312D56F5C
 ```
 
 

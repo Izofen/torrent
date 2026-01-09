@@ -600,6 +600,39 @@ magnet:?xt=urn:btih:9ED35B50EB42155811AF43202CB7EBBAA65C8957
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 117407   (596866) от 24.07.2012
+
+Deadmau5 - It Sounds Like (2009) [MP3|320kbps]<House / Progressive House / Tech House / Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_596866.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01] alone with you_original mix [08:12]
+[02] arguru_edxs 5un5hine remix [07:11]
+[03] bye friend_original mix [05:40]
+[04] clockwork_original mix [06:41]
+[05] complications_original mix [09:51]
+[06] everything after_original mix [06:07]
+[07] everything before_original mix [06:35]
+[08] faxing berlin_original mix [08:38]
+[09] ghosts n stuff_original mix [06:10]
+[10] hi friend feat mc flipside_instrumental mix [06:34](   Читать дальше...   )Жанр: House / Progressive House / Tech House / Electro HouseПродолжительность: 02:29:10
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914457   (597560) от 02.07.2015
 
 Dance With the Dead - Out of Body (2013) [MP3|320 кб/с]<Electronic, Retro Wave, Dreamwave .>
@@ -676,32 +709,6 @@ Simon Le Grec - Unique 3 (2016) [MP3|320 Kbps] <Downtempo, Chill Out, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76576421C6C947F81F75A85BC0C46E75F2D1D377
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094450   (597728) от 12.07.2017
-
-Ori Uplift - Uplifting Only 201 - 230 (2016 - 2017) [MP3 | 320 кб/с] < Melodic / Uplifting / Emotional Trance > (Обновлён: 12-07-2017)
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ori Uplift
-
-01. [00:00:33]: Andy Blueman - Time To RestЖанр: Melodic Trance / Epic Trance / Euphoric Trance / Progressive Trance / ProgLift / Vocal Trance / Uplifting Trance / Emotional Trance / ChillOutПродолжительность: 02:12:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C00051EA28E23E096443980A1C105FF0445A24
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1206681   (781738) от 15.02.2018
+
+Ekke - Klangfarbenmodular (2018) Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <IDM, Electro, Glitch, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imitatsioonid (03:46)
+ 02. Matter (09:31)
+ 03. Nukud Ja Tootemid (01:30)
+ 04. Rahn (06:48)(   Читать дальше...   )Жанр: IDM, Electro, Glitch, AmbientПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A594CC85171771E4324514886D063212EF27F9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206655   (781740) от 15.02.2018
+
+VA - Territories (2017) 79Ancestors [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Telefon Tel Aviv - Something Akin to Lust (6:37)
+02. Deru - The Roar and the Dust (3:45)
+03. Before Tigers - Backwards Rituals (5:55)
+04. Rafael Anton Irisarri - Certainty (5:43)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A4C06B0C6E552B303E9757D3C6D080C977E905F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206768   (781742) от 15.02.2018
+
+Fluida - Branches (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Branches (3:32)
+ 02. Ahead (4:10)
+ 03. Awaken (3:33)
+ 04. Branches (Extended Mix) (5:28)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1892F0C1F164C37E5973FF9DD6EF8D88A2D1A02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390951   (781813) от 18.06.2020
+
+VA - Universal Frequencies, Vol.1-10 (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781813.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Atacama; Jakaan - Complete Awakening (Original) (7:43)
+2. Jakaan - Nefertiti (Original) (8:34)
+3. Genesia; Akron - Imagination Beyond Reality (Original) (8:26)
+4. Genesia - Across Time (original) (8:24)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 29:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B881468F0DB04ABE662A07FB8EFC32B6EC79A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391080   (781880) от 18.06.2020
+
+Trancetorn - Sonic Experience (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781880.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sarva Mangala (9:32)
+2. Solar System (10:09)
+3. Heaven (9:53)
+4. Acid Exxe (8:35)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CED025CC7E13EF6B34906F2A480182A9EB98091
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391078   (781884) от 18.06.2020
+
+Tângela (Tangela) - Dolphin Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781884.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Special Flowers (5:56)
+2. Dolphin Mind (6:44)
+3. Lusy (6:38)
+4. Odyssee of Noises - Firedance (The Sunrise) (Tangela Remix) (5:44)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26908E2FAFF17CAF9BF81E6D2FCA4C72CE170AF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206406   (782101) от 14.02.2018
 
 Faithless - Forever Faithless: The Greatest Hits (2005) Limited Edition [FLAC|Lossless|tracks + .cue] <Progressive House, Downtempo, Hip-Hop>
@@ -533,168 +695,6 @@ Min-Y-Llan - Snagged (2020) Min-Y-LlanMusic [FLAC|Lossless|WEB-DL|tracks] <IDM, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9935C195AD3D9A76DA3FE9D86CE4A360F2D1E60F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205813   (782362) от 13.02.2018
-
-Andromeda - 2 Albums (2004-2005) [APE|Lossless|image + .cue] <Psy-Trance, Progressive Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sensations 06:49
-02. Bling Blings 08:24
-03. Twisted Sister 07:32
-04. The Dreamer 07:45(   Читать дальше...   )Жанр: Psy-Trance, Progressive TranceПродолжительность: 02:26:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BB83DFD75FB3BB3A31412A17071E635E56D23F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099722   (782486) от 13.02.2018
-
-Brume Records - Label-Pack 26 Releases (2001-2015) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Rhythmic Noise, Industrial, EBM, Ambient, Experimental>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782486.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Parasitic (05:57)
- 02. Burn (04:50)
- 03. Fury Of The Tempest (Whirlwind Remix) (04:18)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM, Rhythmic Noise, Industrial, EBM, Ambient, Experimental •Продолжительность: 00:57:00+00:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5319A54DE8536027C3BE06EECAE28917A4AEA21D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206161   (782498) от 13.02.2018
-
-Ferry Corsten - Blueprint (Remixed) (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive Trance, Vocal Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blueprint (Ciaran McAuley Extended Remix)  6:36
-02.  Your Face (feat. Eric Lumiere) (Duncan La Barre Rendition)  3:24
-03.  Something To Believe In (feat. Eric Lumiere) (Saad Ayub Extended Remix)  5:53
-04.  Waiting (feat. Niels Geusebroek) (DIM3NSION Extended Remix)  6:01(   Читать дальше...   )Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 01:30:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B5BEC8DB9AA8FB2EEFF47828F0E646BFB18104E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206083   (782516) от 13.02.2018
-
-Cube - Can Can In The Garden (1983) 2017, Ltd, Num, RE, RM [FLAC|Lossless|tracks + .cue] <Synthpop, Italo-Disco, 80's>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Young Pretender (5:42)
- 02. Love And Protect (4:15)
- 03. Can Can In The Garden (3:46)
- 04. Two Heads Are Better Than One (Remix) (3:59)(   Читать дальше...   )Жанр: Synthpop, Italo-Disco, 80'sПродолжительность: 01:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DAFFDDE5435E2CA0A227667EC54D6F27E0175FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206156   (782535) от 13.02.2018
-
-Ferry Corsten - Blueprint (Remixed) (2018) [MP3|320 Kbps] <Trance, Progressive Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blueprint (Ciaran McAuley Extended Remix)  6:36
-02.  Your Face (feat. Eric Lumiere) (Duncan La Barre Rendition)  3:24
-03.  Something To Believe In (feat. Eric Lumiere) (Saad Ayub Extended Remix)  5:53
-04.  Waiting (feat. Niels Geusebroek) (DIM3NSION Extended Remix)  6:01(   Читать дальше...   )Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 01:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:076A3D61A6AEFD6446F626E99D5074509C135D53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206260   (782542) от 13.02.2018
-
-Laurent Colson - Emptiness (2018) [MP3|320 Kbps] <Downtempo, Electronica>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Emptiness (Chapter I)  3:18
-02.  Ceremony  4:49
-03.  Frozen World  5:28
-04.  The Key Of Time  5:33(   Читать дальше...   )Жанр: Downtempo, ElectronicaПродолжительность: 01:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4AC950D3BF179B13920B3948E6DD88BC2EB9317
 ```
 
 

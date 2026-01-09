@@ -1,3 +1,30 @@
+###  Публикация: 1103837   (883638) от 13.02.2017
+
+VA - Музыкальное зимнее настроение. Русский сборник (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883638.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Андрей Ковалев - Ты Моя Любовь Сумасшедшая 3:02
+002. Iowa - Мои Стихи Твоя Гитара 3:14
+003. Карина - Мой Мир 2:31
+004. Галина Боб - Только С Тобой 3:48(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A148B84D2EE3B7944DD346ED30971F08631D0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103842   (883639) от 13.02.2017
 
 VA - Зимняя русская радиоволна (2017) [MP3|256 Kbps] <Pop>
@@ -673,33 +700,6 @@ VA - Empire Records - Club Hit 9 (2017) [MP3|320 Kbps] <Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F815DDA9BA132A35A52DD986518B76F17EE67BC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103566   (885966) от 12.02.2017
-
-VA - Empire Records - Dancenudisco 8 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nami, Taspin, Diaz - Closing Time (Andrey Keyton Remix)
-02. Michael Gray - The Weekend (Extended Vocal Mix)
-03. Sandy Rivera - So Good
-04. Oliver Koletzki, Nord - After All (Claptone Remix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 02:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAD2FF81B7FEECD518AA52947103F839DC60CF01
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1204909   (783801) от 09.02.2018
+
+James Haskell - James Haskell's Back Row Beats Workout (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Haskell - James Haskell's Back Row Beats Workout (continuous DJ mix 1) (01:08:21)
+02. James Haskell - James Haskell's Back Row Beats Workout (continuous DJ mix 2) (01:07:36)
+03. Cristoph - Slowly Burning (feat Jem Cooke) (07:05)
+04. Dario D'Attis & Sven Tasnadi - I Need (07:21)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C359F5010B7AEB2296F0402D0C3B445CC6BF30B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205011   (783802) от 09.02.2018
+
+VA - Chilhouse Room (Deep Selection) (2018) [MP3|320 Kbps] <Chillhouse, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alpha Carpet  -  Megabytes (Red Zone Mix)  2:33
+02.  Jin Tonique  -  Not Easy (Mark Kay's Deep Mix)  2:45
+03.  Diamond Marquees  -  Nightshadows (Frank Tee's Night Beats Mix)  2:47
+04.  Johnny Divine  -  Noises (Dean Franklin's Royce Mix)  3:21(   Читать дальше...   )Жанр: Chillhouse, Deep HouseПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257EC21F6E82A477380419815F846488CCCAB8F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205215   (783803) от 09.02.2018
+
+VA - A Taste Of Kandi Summer (2008) [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Aaron Ross feat. Gia Mellish - Love Potion (4:03)
+02.Wez Clarke & Maxime Hardcastle feat. The Lovely Laura on Sax - Another Chance (Richard Earnshaw Mix) (5:03)
+03.Notus feat. Shena - Still in Love (Original Club Mix) (5:17)
+04.Steve Haines - Be with You (5:38)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8C0EC2C87C98256C45391977B3DD3BA21782E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204984   (783805) от 09.02.2018
+
+VA - Contemporary Chillhouse (A Journey Into Deephouse Music) (2018) [MP3|320 Kbps] <Chillhouse, Deep House, Downtempo>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sixth Sector  -  Reverse Server (Deep & City Mix)  2:40
+02.  Salina  -  Lost Angels (South London Mix)  2:48
+03.  Rox Waltford  -  Red Clouds (Deephouse Mix)  2:50
+04.  Electronique 44  -  Robot 151 (High Soul Mix)  2:44(   Читать дальше...   )Жанр: Chillhouse, Deep House, DowntempoПродолжительность: 01:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9A727B3A6DCFF744548260817F92F0760222D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204969   (783806) от 09.02.2018
+
+VA - James Haskell's Back Row Beats Workout (Mixed by James Haskell) (2018) [MP3|320 Kbps] <Progressive House, Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  James Haskell  -  James Haskell's Back Row Beats Workout (Continuous DJ Mix 1)  1:08:22
+02.  James Haskell  -  James Haskell's Back Row Beats Workout (Continuous DJ Mix 2)  1:07:36
+03.  Cristoph & Jem Cooke  -  Slowly Burning (Original Mix)  7:06
+04.  Dario D'Attis & Sven Tasnadi  -  I Need (Original Mix)  7:21(   Читать дальше...   )Жанр: Progressive House, Deep House, Tech HouseПродолжительность: 05:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE4A429F243B54FC46FDD375FC2B554C01877D29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204999   (783808) от 09.02.2018
+
+VA - Dudes Of House (30 Groovy House Tunes) Vol.1 (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sean Sines  -  It Ain't Right (Apollo & Les Afrique Remix)  5:15
+02.  Miss Luna  -  Daytona Race (Paul Lomax Mix)  8:08
+03.  Oz & Edmond Dantes  -  No Way Back (Vocal Mix)  7:43
+04.  Muzzaik  -  Work It (Alexey Romeo & Julia Luna Remix)  7:09(   Читать дальше...   )Жанр: HouseПродолжительность: 03:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A71A5E08B04D0B55FAF975AD33B24A2999A597A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205282   (783809) от 09.02.2018
 
 VA - We Love House - Winter Edition (2018) [MP3|320 Kbps] <House, Tech House>
@@ -532,168 +694,6 @@ VA - Futuresque - The Future House Collection Vol.7 (2018) [MP3|320 Kbps] <House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19884D5492D396325D4A7E184D2D682B429A50B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389257   (784583) от 10.06.2020
-
-Maks Henning - Spring Dub 2 (2020) 7th Cloud [FLAC|Lossless|WEB-DL|tracks] <Techno, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Witness (06:42)
- 02. Forest Firefly (06:39)
- 03. Night Forest Creature (06:32)
- 04. Surface (05:46)Жанр: Techno, Dub TechnoПродолжительность: 00:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0425E5A415A84380613A56339963EDC43FA65D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204472   (784634) от 06.02.2018
-
-VA - Lounge Acoustic Covers (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Naydet Cross - I Want to Break Free
-02. Ashala Kirn - All You Need is Love
-03. Solo Kaola - Sunny
-04. Ashala Kirn - I Get the Sweetest Feeling(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5E17CE6049ED35E97B2DF52EDF5EF9EC285FAB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204666   (784639) от 06.02.2018
-
-Lyktum - Human (2018) [MP3|320 Kbps] <Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_784639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lyktum – Divine Enchantment (Original Mix)
-02. Lyktum & Aho – Spirit Guide (Original Mix)
-03. Lyktum – Symmetry (Original Mix)
-04. Lyktum – Water (Original Mix)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E142BC3F2B75C0410D33331E24197953EDAB88B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204464   (784663) от 06.02.2018
-
-VA - Kontor Festival Sounds 2018 The Beginning (2018) 3CD [MP3|320 Kbps] <House, Trance Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784663.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Martin Garrix & Matisse & Sadko  -  Forever  3:38
-02.  Eastblock Bitches & Niels Van Gogh  -  Get Money  3:33
-03.  DubVision & Afrojack  -  New Memories  3:35(   Читать дальше...   )Жанр: House, Trance DanceПродолжительность: 01:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:405D09BA32D2B2479B108F8DE7012548CE9CDE0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204473   (784667) от 06.02.2018
-
-Kai Engel - caeli (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Neoclassical>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. aspirato (3:11)
- 02. soli (3:19)
- 03. coelum (2:35)
- 04. visum (3:08)(   Читать дальше...   )Жанр: Ambient, IDM, NeoclassicalПродолжительность: 00:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69DDC5EC9D7B1FB80355A69655A8B0802066677E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204463   (784669) от 06.02.2018
-
-Kai Engel - The Run (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Neoclassical>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seeker (4:37)
- 02. Run (4:02)
- 03. Harbor (4:00)
- 04. Imminence (2:40)(   Читать дальше...   )Жанр: Ambient, IDM, NeoclassicalПродолжительность: 00:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E2C219137FB5D66E58E5F69E7AF7A5577460CD6
 ```
 
 

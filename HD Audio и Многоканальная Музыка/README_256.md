@@ -1,3 +1,30 @@
+###  Публикация: 986813   (928780) от 15.02.2016
+
+Оркестр Поля Мориа - Бабье лето (1981) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Romantic, Ballad>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_928780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Бразильский карнавал · Brasilia Carnaval  2:44
+2. Бабье лето · L'ete Indien «Africa»  3:30
+3. Мелиза · Melisa  2:56(   Читать дальше...   )Жанр: Romantic, BalladПродолжительность: 00:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25EBD896D2DE870517140CC1B3FE3CB6487D3C98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093948   (930129) от 17.01.2017
 
 VA - RETROспектива, часть VIII: Эстрадные оркестры VIII (1930-1966) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
@@ -664,33 +691,6 @@ A4. I Wish It Would Rain Down (5:26)(   Читать дальше...   )Жанр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A83C0E242383563370901987D24639BC1F65DDE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090476   (947206) от 06.01.2017
-
-Annie Lennox - Diva (1992) Unofficial Release [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947206.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Why (4:54)
-A2. Walking on Broken Glass (4:13)
-A3. Precious (5:10)
-A4. Stay by Me (6:26)(   Читать дальше...   )Производство: Not On Label - ДRT 1008Жанр: PopПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F90EFB35DE2E7ADE63B7B4637B29FD79445BDAA
 ```
 
 

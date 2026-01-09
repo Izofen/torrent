@@ -1,3 +1,165 @@
+###  Публикация: 1522790   (756769) от 08.01.2022
+
+AM 1984 (Maurizio Avossa) - 3 Albums (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mansion Ghost (4:05)
+02. Mr. Jones (4:15)
+03. Miami Beach (4:36)
+04. The Music's Got Me (4:33)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C75C75CDCCDC7FA7F3BC26031464E75E0DA08EB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 793353   (756840) от 05.02.2019
+
+Antigen Shift - Discography 7 Releases (2002-2014) [FLAC|Lossless|tracks+.cue, tracks]<Industrial, Rhythmic Noise, IDM, Illbient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forced (05:49)
+ 02. The Games We Played As Children (04:16)
+ 03. Angry Pillbox (05:09)
+ 04. Legion (06:50)(   Читать дальше...   )Тип издания: CD, WebЖанр: Rhythmic Noise, IDM, Illbient, Industrial •Продолжительность: 01:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302BB773B60DEB93BD0E3954095475F823EB1D2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280854   (756972) от 05.02.2019
+
+Tarena - Suncatcher (2019) [MP3|320 Kbps] <Ambient, Relax Electronic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big in Japan
+02. Dreamy Day
+03. Giving
+04. Shambulaya(   Читать дальше...   )Жанр: Ambient, Relax Electronic, DowntempoПродолжительность: 03:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF7475485249DE4999643C045FFA67AC7A45611
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280877   (756975) от 05.02.2019
+
+Downscope - Sojourn in Canaan (2019) alternating.bit music [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sojourn Initium (32:39)
+02. Sojourn Consummavi (23:13)
+03. Sojourn Ultimo (29:43)
+04. Sojourn Deinde (24:34)(   Читать дальше...   )Жанр: Dub Techno, Ambient, TechnoПродолжительность: 02:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E56A8E122D1D70FBFCBC2375EC8E69756F791B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280874   (756978) от 05.02.2019
+
+VA - Jeju 濟州 (2019) Oslated [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyme – Biyangdo 비양도 (08:00)
+02. Earthen Sea – Seolmundae 설문대할망 (07:49)
+03. Asymmetric – The Rain & The Storm (07:53)
+04. Alume – Hy'naku (06:23)(   Читать дальше...   )Жанр: Ambient, TechnoПродолжительность: 02:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24493A2C80CF6818E554847362C20B455432AF5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522754   (757025) от 08.01.2022
+
+Laidback Luke - Yearmix 2021 (2021-12-16) [MP3|320 Kbps] <Electro Pop, Tech House, Bass House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleepnet - Unravel
+02. Shouse - Love Tonight (Vintage Culture & Kiko Franco Remix)
+03. SHM. vs. BBE. - Lifetime (DJs From Mars Mashup)
+04. BLVD & Laidback Luke - Cielo w/DaBaby, Roddy Ricch - Rockstar (Acappella)(   Читать дальше...   )Жанр: Electro Pop, Tech House, Bass HouseПродолжительность: 00:59:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FB41D55BACC1C75DA15754C67176CDDB564703
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395154   (757118) от 09.07.2020
 
 Monolock - Best Of RELOOPED (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
@@ -533,168 +695,6 @@ VA - Armin Van Buuren - A State of Trance 900 (Part 1) (2019) [MP3|320 Kbps] <Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C71494309BF10B4E9DB0CB193E4EEAFC6FDD0C51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280832   (758637) от 04.02.2019
-
-VA - Armin Van Buuren - A State of Trance Episode 900 (Part 2) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARTY – Save Me Tonight
-02. Above & Beyond ft. Marty Longstaff – Flying by Candlelight (Above & Beyond Club Mix)
-03. Estiva – Little Planet (Matt Fax Remix)
-04. Jason Ross ft. Dimibo – The Gorge(   Читать дальше...   )Жанр: TranceПродолжительность: 02:02:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE6B9220303E8BC8D81B3CB24ED68EBA1823742
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522438   (758652) от 07.01.2022
-
-David Guetta - Live @ New Year's Eve Livestream, Louvre Abu Dhabi, United Arab Emirates (2021-12-31) [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & MORTEN - Soundstorm
-02. Fabrication - Hot Foot
-03. David Guetta ft. Sia - Titanium (David Guetta & MORTEN Future Rave Remix)
-04. Shouse - Love Tonight (David Guetta Remix)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 01:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70181225694513879225E93984FA66784836F89E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522453   (758656) от 07.01.2022
-
-Markus Schulz - Global DJ Broadcast New Year's Rehab (2022-01-06) [MP3|320 Kbps] <Progressive House, Trance, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nora En Pure - Aquatic
-02. French 79 - Diamond Veins (VER:WEST Remix)
-03. Corren Cavini featuring The Ultraverse - Close Enough
-04. Rexwake - Curve(   Читать дальше...   )Жанр: Progressive House, Trance, Deep HouseПродолжительность: 02:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DFCE5F6CAFE68F0BA52342B043E573E17305145
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280823   (758727) от 04.02.2019
-
-VA - Trans Emotional Bundle Winter-Edition (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angelica S presents Other Side - Echoes (Original Mix)
-02. Anyosel - Our Blue World (Original Mix)
-03. B O M I A - Blind (Original Mix)
-04. Calvin O'commor - Charm Of Love (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:402D29E40CA7E0F87E0ED035A36068AB6187DCA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280730   (758732) от 04.02.2019
-
-Freunde Der Technik - Maximal Minimal (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop, EBM>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grüß Dich (3:30)
- 02. Ping Pong (4:44)
- 03. Bitte Bitte Mit Zucker Oben Drauf (3:38)
- 04. APM (4:53)(   Читать дальше...   )Жанр: Electronic, Synthpop, EBMПродолжительность: 01:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5023688B70E05821D70740F68DB9D48BAE9B9572
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394917   (758744) от 08.07.2020
-
-Depeche Mode - Live Spirits Soundtrack (2020) [MP3|320 Kbps] <Alt.Rock, Synth Pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (02:31)
- 02. Going Backwards (06:12)
- 03. It's No Good (04:57)
- 04. A Pain That I'm Used To (04:29)(   Читать дальше...   )Жанр: Alt.Rock, Synth PopПродолжительность: 01:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:586A39AE1E680DCF7DFF96C4ABC1FC9E0C0EE507
 ```
 
 

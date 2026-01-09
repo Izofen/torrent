@@ -1,3 +1,30 @@
+###  Публикация: 1094534   (929382) от 18.01.2017
+
+VA - Winter Fitness Hits Times (2017) [MP3|217-320 Kbps] <Club, Vocal, Nu Disco, Progressive, Bigroom, Funky>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulsedriver, Chris Deelay & Brooklyn Bounce - Past, Present, Future (Festival Mix) 04:43
+02. Stonebridge, Crystal Waters - Be Kind (Club Dub) 05:56
+03. Nick & Vincent - Am I Wrong (Bbop & Roksteadi Extended) 05:20
+04. Xenia Ghali Feat. Katt Rockell - Broken (Extended) 04:51(   Читать дальше...   )Жанр: Club, Vocal, Nu Disco, Progressive, Bigroom, FunkyПродолжительность: 08:20:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:368A8C11E3AAC3939CA6D233CFD61079D1C26D23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094052   (929384) от 18.01.2017
 
 VA - Зимний шансон года. Версия № 5 (2016) [MP3|256 Kbps] <Шансон>
@@ -675,33 +702,6 @@ VA - Шансон: состояние души 74 (2013) [MP3|256 кб/с] <Ша
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9D2B6A1CAF848550F4E1887240594025E100E6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862011   (931367) от 22.01.2015
-
-VA - Дискотека 80-90 годов по - новому от Виталия 72 - Часть- 4 (2015) [MP3|313 - 320 кб/с]<Eurodance, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Ashley - Touch By Touch
-02. Dieter Bohlen - Love Me On The Rocks (Dj Alex Dolce Remix )
-03. Disco Service - Come And Dance
-04. A-Ha - Early Morning (DJ Amure Remix )(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:29:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44ECC9D23F7F7B29FBAF8D3C77C32165BA742DA6
 ```
 
 

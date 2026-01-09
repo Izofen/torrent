@@ -1,3 +1,165 @@
+###  Публикация: 1098085   (910508) от 29.01.2017
+
+Camouflage - Sensor (2003) [FLAC|Lossless|image + .cue] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me and You (4:40)
+ 02. Perfect (4:54)
+ 03. Harmful (4:29)
+ 04. Here She Comes (4:38)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD23EA50A644FFFC5D6C25019D128A2629DFD614
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491190   (910569) от 25.08.2021
+
+VA - Trance 100 (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910569.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren - Euthymia
+002. i_o - Castles In The Sky
+003. Above & Beyond - Crash
+004. Gareth Emery feat. Annabel - You'll Be OK (Giuseppe Ottaviani Remix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 05:56:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F764DE41FBFBF29ED71A65D4C94A54DC316578B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097898   (910763) от 29.01.2017
+
+VA - Melodica Electronica Vol.3 (2017) [FLAC|Lossless|tracks] <Deep House, Tech House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aki Bergen & Richter - Nimitta (Original Mix) [07:00]
+02. I am Frost - Dead End (Original Mix) [08:10]
+03. Marius Lehnert & Arno Mueller - Dagoo (Giorgia Angiuli Remix)[06:22]
+04. Boss Axis - Golden Hour (Sebastian Boldt & Emka Remix) [06:18](   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 02:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB56D27662F6E5B37F37A3BE40789638E9AE1E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098244   (910774) от 29.01.2017
+
+VA - Nu Lounge 2017 Vol 1 (Finest Chilled New Beats) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Sol - Nube De Agua (Feat Ines Prados - Extended Mix) 04:54
+02. Svendaq - Eternal Sunshine 06:45
+03. Sunyata Project - The Journey Begins (Extended Mix) 03:55
+04. After Sunrise - Sunny October 07:35(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36335EF843B63D47B872C6F15F9E10B2CBC995A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368426   (910854) от 19.03.2020
+
+Roger Eno and Brian Eno - Mixing Colours (2020) Deutsche Grammophon [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spring Frost (04:07)
+02. Burnt Umber (04:15)
+03. Celeste (04:22)
+04. Wintergreen (04:10)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 01:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1154396A0716D1C65D65BDB7AA0A2E48BDE07A0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098106   (910904) от 29.01.2017
+
+VA - Commemoration 3 Years (2017) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soft Machine – Made In Brooklyn (06:15)
+02. Hoover’s – People (06:40)
+03. Edu Marks & Audioactive – Alive (06:09)
+04. Danilo Milani & Society Haus – Dirty Minds (06:45)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9941594DA37D4FEDC6D813B0FB8297E901A5E044
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368436   (911049) от 19.03.2020
 
 Etapp Kyle - Nolove (2020) Ostgut Ton [FLAC|Lossless|WEB-DL|tracks] <Techno, Leftfield>
@@ -527,165 +689,6 @@ VA - Cycles 8 (Mixed By Max Graham) (2017) [FLAC|Lossless|WEB|tracks|image] <Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F83AD40CD8B387BCE764B82D7EF149073E40EB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097858   (912631) от 28.01.2017
-
-VA - Steyoyoke Black Onyx Vol.2 (2017) [MP3|320 Kbps] <Techno, Tech House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Devon - Metis (8:19)
-02. Mallone - The Flowing Moon (8:22)
-03. Binaryh - Encode (7:55)
-04. David Granha - Tessitura (7:03)(   Читать дальше...   )Жанр: Techno, Tech House, Progressive HouseПродолжительность: 01:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B623F75BBB64F01F52A1CB5DD3D2B9906EDF8A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097810   (912670) от 28.01.2017
-
-VA - Ibiza Opening Party (2016) [MP3|320 Kbps] <Progressive House, Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Eve Belle & Brian Laruso - Solace (M-22 Remix)  4:43
-02.  Myon & Shane 54 with Haley - Round We Go (SNR Remix)  5:15
-03.  WSTLNDR & Fisher - Save Me (Bolier Remix)  4:14
-04.  Nerq ft Floor Cry - Song  4:40(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E70FEC62F4148A18D7F73D25BBDD7FC6F2585B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990155   (913495) от 24.02.2016
-
-em:t records - Label-Pack (28 Releases) emit (1994-2006) [FLAC|Lossless|image+.cue] <Ambient, Experimental, Downtempo, Tribal, IDM, Field Recording>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beatsystem - Tibet (08:02)
- 02. Gas - Oxygen (08:04)
- 03. Undark - Rain In Our Room (10:29)
- 04. Woob - Mould (06:50)(   Читать дальше...   )Тип издания: CDЖанр: Ambient, Experimental, Downtempo, Tribal, IDM, Field Recording |Продолжительность: 01:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A309CAE4377BA47940C24B687A87CB6A53E8A874
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989047   (913531) от 24.02.2016
-
-VA - Fantastic Muscle, Vol. 2 (20 Workout Tracks For A Professional Training) (2016) [MP3|320 кб/с] <Funky, Club, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sl Curtiz - Drop That Sound 06:45
-02. Sebastian Fleischer - Would I (Eric Kanzler Remix) 07:19
-03. Frankox - Sotto 06:37
-04. Dumb Dan - I Found Love (Dub Mix) 07:44(   Читать дальше...   )Жанр: Funky, Club, HouseПродолжительность: 02:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158159EC827A6D556AF3021B4E1481E0B39E8284
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989365   (913662) от 24.02.2016
-
-Dj Antonio - XIII - Deja Vu. 1 Year Together (2007) [FLAC|Lossless|tracks + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Not AvailableЖанр: HouseПродолжительность: 01:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B66C8EDE3005C3192ADB022979FA339BDFEA463D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989390   (913672) от 24.02.2016
-
-VA - V.I.P (Chillhouse Edition) (2016) [MP3|320 кб/с] <Deep House, Chill House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yovann Blue - Feel so High (Blue Area Mix) (03:37)
-02. Thomas Walbrunnen - Can Not Keep Me Down (North Light Mix) (03:39)
-03. Ruadh Munro - Joe Sax (03:13)
-04. Tolly Brody - Azul (03:02)(   Читать дальше...   )Производство: North Town RecordsЖанр: Deep House, Chill House, ElectronicПродолжительность: 01:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C50F40580CE805181FC65932384312E6391B9D45
 ```
 
 

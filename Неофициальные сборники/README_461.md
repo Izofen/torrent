@@ -1,3 +1,30 @@
+###  Публикация: 1530956   (726583) от 13.02.2022
+
+VA - Record Super Chart 12.02.2022 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. OWNBOSS, Sevek - Move Your Body (2:37)
+02. Alis Shuka - Not About Us (2:09)
+03. Filatov Karas, Busy Reno - Au Revoir (2:44)
+04. Alok - It Don't Matter (Feat. Sofi Tukker, Inna) (2:53)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB0014F0D4BDF9E6BD1F0D34963BA63738DDF799
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530922   (726605) от 13.02.2022
 
 VA - Chillout Melodic Mixtape (2022) [MP3|320 Kbps] <Chillout, Relax, Downtempo>
@@ -668,33 +695,6 @@ VA - Chill Out XSTATION Complete (2016) [MP3|320 кб/с] <ChillOut, Ambient, Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D9820D41635876F733FDD7A6FB1275A539F9C76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530754   (727826) от 12.02.2022
-
-VA - Happy Pop Dance Party (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727826.jpg" />
-</div>
-
-
-###  Подробнее
-
-В некоторой степени несерьезный и легкомысленный сборничек, где собраны заводные популярные поп-мелодии со всего света. Мелодии, которые непринуждённо "застревают" в голове, но тем не менее не вызывают дискомфорта.001. Jts & Tatsunoshin - Afterlife
-002. Stayc - I'll Be There
-003. Urban Cookie Collective - Champagne Supernova
-004. Ariana Bell - Your Touch(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59B0D411770D75998C853E68D4048B0837E80DB3
 ```
 
 

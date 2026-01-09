@@ -1,3 +1,55 @@
+###  Публикация: 1380469   (832936) от 03.05.2020
+
+Deep Purple - Man Alive (2020) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Purple - Man Alive
+02. Deep Purple - Throw My BonesЖанр: RockПродолжительность: 00:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19A1EA375A6FCE7CB7AC18FA725EBCCB55FCA7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380522   (833046) от 03.05.2020
+
+VA - Rock Classics Rock Anthems Rock Hit Rock Legends (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_833046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Company - Can't Get Enough (2015 Remaster)
+02. ZZ Top - La Grange (2005 Remaster)
+03. Foreigner - Cold As Ice (2008 Remaster)
+04. Yes - Owner Of A Lonely Heart(   Читать дальше...   )Жанр: RockПродолжительность: 02:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4ACD9A80051332E604D35ECD82C21E9840897A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380497   (833176) от 03.05.2020
 
 VA - 70s Rock Originals (2020) [MP3|320 Kbps] <Rock>
@@ -638,60 +690,6 @@ magnet:?xt=urn:btih:8568A15358E445A554477B80DC65807BC63E21B5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD6F850A25D879DA3C44D2E1784B19D489288911
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377599   (851822) от 22.04.2020
-
-Kozak System - Закохані злодії (2020) [MP3|320 kbps] <Ethno Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Повінь (03:06)
-02. Закохані злодії (03:35)
-03. Досить сумних пісень (03:34)
-04. Така, як літо (02:51)(   Читать дальше...   )Жанр: Ethno Rock, Folk RockПродолжительность: 00:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCC7C64E48F03E2BBC8147BE17A6A82A55428D7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377547   (851834) от 22.04.2020
-
-VA - Guitar Heroes (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yngwie Malmsteen - C'est La Vie 5:18
-02. Foghat - Drivin' Wheel (Single Version) 4:29
-03. Little Feat - Rat Faced Dog (From Sessions For 'little Feat') 4:53
-04. Zz Top - Just Got Paid 4:27(   Читать дальше...   )Жанр: RockПродолжительность: 01:28:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:282C2E162D90C5561760243AD138E8B0C45790D3
 ```
 
 

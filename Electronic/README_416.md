@@ -1,3 +1,162 @@
+###  Публикация: 1012227   (794809) от 30.04.2016
+
+VA - Melodic Trance Vol. 1 (2016) [MP3|320 кб/с] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer -  Lights (Matt Bukovski Remix) (feat. Emma Lock)  6:19
+02. NoMosk -  From Sunrise To Sunset (Original Mix)  6:37
+03. Ark Planet -  Midnight Way (Original Mix)  8:09
+04. Feel -  If You Feel Love (Feel Up Mix)  7:53(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A2B3E1692419F2B0DFE84B5CC8DD1F7032F8DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968165   (794905) от 22.01.2018
+
+Mu Cephei - Sidera Et Sonos (2012) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, IDM, Trip Hop, Tribal>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cygni (04:53)
+02. Inner Mira A (03:43)
+03. Beyond Canis M (06:08)
+04. Perseus (06:05)(   Читать дальше...   )Жанр: Downtempo, IDM, Trip Hop, TribalПродолжительность: 00:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A93884F6C354F1FBF31BA393969F0B907446816
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156137   (794930) от 05.01.2019
+
+Radius - Discography 7 Releases (2017-2018) echospace [detroit] [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interpolation Tapes 0.1Тип издания: CD, Web, VinylЖанр: Ambient/Dub TechnoПродолжительность: 01:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D100A0BAE17E0FF76A580ACB2EAD81B736E73308
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274092   (794933) от 05.01.2019
+
+Infected Mushroom - Head of NASA and the 2 Amish Boys (2018) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Dubstep, Electro>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bliss On Mushrooms (feat. Miyavi)
+02. Guitarmass
+03. Head Of NASA
+04. Chenchen Barvaz(   Читать дальше...   )Жанр: Psy-Trance, Dubstep, ElectroПродолжительность: 00:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E94E40CA1182647A9C749FCFE8F6E2D12BF6BE03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509370   (794941) от 12.11.2021
+
+Activa - Origins (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Activa - For Emily (Album Mix) (03:38)
+02. Activa & Lo - Leave A Light On (Album Mix) (06:25)
+03. Activa & Rolo Green feat. Julie Harrington - Reach Out (Album Mix) (06:03)
+04. Activa - Z21 (Activa's 'Origins' Album Mix) (05:05)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D857AE90DEEC366DBA4FB8C0938BD12F50907A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200891   (794966) от 22.01.2018
+
+Jens Buchert - Best Of (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Downbeat, Chillout, Trip Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Euphorbia (5:08)
+ 02. Habitatmodul (4:38)
+ 03. Aerosol (5:18)
+ 04. Reflections (6:10)(   Читать дальше...   )Жанр: Electronic, Ambient, Downbeat, Chillout, Trip HopПродолжительность: 03:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A293F917DE07F78B67BD852A47F04289DA47E9C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200735   (794976) от 22.01.2018
 
 Lunar Testing Lab - Discography 11 Releases (2008-2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Drone, Downtempo, Experimental>
@@ -528,168 +687,6 @@ Matthias Meyer - Watergate 20 (2016) [FLAC|Lossless|tracks + .cue] <Deep House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC25229C14A2D7CC30608426BDA4FD70180982E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011935   (795502) от 29.04.2016
-
-VA - club.bit! (mixed by DJ Suhov) (2003) Promotional CD [FLAC|Lossless|tracks + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795502.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dino Lenny vs. The Housemartins - Change the World |06:46|
-2. Ceballos & DJ Chus - Afrika |07:15|
-3. DJ Chus & David Penn feat. Caterina - Baila |05:03|
-4. Niquid - Saxaphobia E.P. |04:44|(   Читать дальше...   )Жанр: HouseПродолжительность: 01:09:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BCDE48CFADB2FB5F61CB34FDDBD8AAC6BCA4BF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012053   (795567) от 29.04.2016
-
-Omauha - Omauha (Remixed) (2016) [MP3|320 кб/с] <Breaks>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florida (Cullen Remix) (6:33)
-02. Antananarivo (Platunoff Breaks Remix) (6:43)
-03. The White Nights (Stardesign Remix) (8:38)
-04. Victoria (Rick Tedesco Remix) (7:15)(   Читать дальше...   )Жанр: BreaksПродолжительность: 01:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D927FCC8C709ACCFA5C7301C6D094741FAFC3D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200561   (795595) от 21.01.2018
-
-VA - Global DJ Broadcast: Top 20 January (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Markus Schulz & Dakota  -  The Spirit Of The Warrior (Transmission 2017 Theme) (Extended Mix)  6:22
-02.  Dennis Sheperd  -  Copenhagen (Extended Mix)  6:30
-03.  Ayla  -  Ayla (Ben Nicky & Luke Bond Remix)  4:23
-04.  Gabriel & Dresden feat. Sub Teal  -  White Walls (Extended Mix)  6:37(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F56C8E0FD2299FB139B9243789137F554C7AB545
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200734   (795599) от 21.01.2018
-
-VA - DJ Зорькин - Приключения Электроника (1998) Gagarin Music [FLAC|Lossless|image+.cue] <Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unknown Artist - Intro: Otmychka (01:16)
- 02. Dr. Rockit - Worm In My Food (02:54)
- 03. R.A.C. - Continua (02:32)
- 04. Bomb the Bass - Absorber (Jedi Knights remix) (03:02)(   Читать дальше...   )Жанр: ElectroПродолжительность: 00:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD90E93E32BFFC804DA9BA6DC8F86AAFEAD834CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011798   (795636) от 29.04.2016
-
-Forteba - Space Between Us (2007) [APE|Lossless|image + .cue] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfect Present
-02. Space Between Us
-03. Relax (feat. From P60 & Virag)
-04. Thinkin About(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6104A61135EA7E0B0CF91E46168FA4F0D664F172
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200607   (795659) от 21.01.2018
-
-Laliya - The Middle Way (2017) [MP3|320 Kbps] <Lounge, New Age>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dragonfly (6:04)
-02. Breathe (4:38)
-03. Weave (4:04)
-04. Mind Finding Form (3:42)(   Читать дальше...   )Жанр: Lounge, New AgeПродолжительность: 00:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F86CF719E4F4171BD363233DA5106963CE79775
 ```
 
 

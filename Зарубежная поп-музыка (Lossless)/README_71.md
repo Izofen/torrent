@@ -1,3 +1,30 @@
+###  Публикация: 1391737   (772797) от 21.06.2020
+
+VA - NOW 100 Hits Summer (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772797.jpg" />
+</div>
+
+
+###  Подробнее
+
+На машине будущего перенеситесь на несколько дней вперед - в 26 июня 2020 года. Именно тогда состоится релиз от известного лейбла NOW! Это те треки, которые будут вас сопровождать всё лето (а оно уже наступило). Слушайте хорошую музыку каждый день!001. Dua Lipa - Don't Start Now  (3:03)
+002. Doja Cat - Say So  (3:58)
+003. Justin Timberlake - CAN'T STOP THE FEELING! (from TROLLS)  (3:56)
+004. Shakira feat. Wyclef Jean - Hips Don't Lie  (3:37)(   Читать дальше...   )Тип издания: 5CD (пока вэб-релиз)Релиз состоялся: 26 июня 2020 годаЖанр: Pop, Rock, DanceПродолжительность: 06:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84875F42AAB1F6DD1222D93CEBD7BF11ECCFC47A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277957   (773166) от 24.01.2019
 
 Shakira - Laundry Service (2001) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -668,33 +695,6 @@ Club 8 - Golden Island (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Female V
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:934695FB15525297626ED67764FCF3593DA2BBE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207602   (780546) от 18.02.2018
-
-Eros Ramazzotti - Duets (2017) Compilation [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eros Ramazzotti feat. Tina Turner - Cose Della Vita (Can't Stop Thinking Of You) 4:50
-02. Eros Ramazzotti feat. Nicole Scherzinger - Fino All'estasi 3:46
-03. Eros Ramazzotti feat. Giorgia - Inevitabile 3:56
-04. Eros Ramazzotti feat. Anastacia - I Belong To You (Il Ritmo Della Passione) 4:26(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B3237C933BC43E6328A7E7ECFE07673E60CC813
 ```
 
 

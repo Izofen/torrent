@@ -1,3 +1,247 @@
+###  Публикация: 1291286   (672460) от 23.03.2019
+
+VA - Miami Heat (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discotron - Cut The Music (Original Mix)
+02. Audio Jacker - I Believe (Original Mix)
+03. Serial Thrilla - Waitin' (Original Mix)
+04. Discotron - Head Nod Ish (Original Mix)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C67CD9FF1C5F98D0991E7055D2A4368798ADDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536351   (672555) от 13.03.2022
+
+Люся Чеботина - The End (2021) [FLAC|Lossless|WEB-DL|tracks] <Europop, Ballad, RnB, Swing, Dance-pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Солнце Монако
+02 - Амур (ft. DJ Daveed)
+03 - 8
+04 - Your Kiss(   Читать дальше...   )Жанр: Europop, Ballad, RnB, Swing, Dance-popПродолжительность: 00:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7679B9C8AB660C6A234652FDC8128884A29148A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536278   (672657) от 13.03.2022
+
+Bryan Adams - So Happy It Hurts (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Happy It Hurts (3:35)
+02. Never Gonna Rain (3:18)
+03. You Lift Me Up (3:08)
+04. I've Been Looking For You (2:01)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75D1D6AEA2800F9CFC5AE768FDAAFAE2D423D499
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223578   (673308) от 05.05.2018
+
+Pattie Brooks - Love Shook & Our Ms Brooks (2009) 2 Albums (1977, 1978), Reissue CD, Funky Town Grooves [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два диско-альбома Pattie Brooks, продюсером которых был не безызвестный Simon Soussan.01. Girl Don't Make Me Wait (10:47)
+02. Love Shook (8:34)
+03. Let's Make Love To The Music (8:46)
+04. Pop Collage Medley - Popcorn, Black Is Black, Na Na Hey Hey Kiss Him Goodbye (9:18)Жанр: Electronic, DiscoПродолжительность: 01:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7AF50E43ED06B54EB1668EC73D59CA9E9623734
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223614   (673457) от 05.05.2018
+
+The Simon Orchestra - Mr. Big Shot (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Big Shot (7:59)
+02. Love Is Comin' On (9:15)
+03. Don't Give Up (8:37)
+04. I Close My Eyes And Count To Ten, Dancing Suite (8:20)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985439CDACF8A552E05DB7F60F935E810632DE7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223409   (673459) от 05.05.2018
+
+VA - Dreamers Lounge (Easy Listening And Adult Casual Songs) (2018) [MP3|320 Kbps] <Pop, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mandi See - Crow Maiden
+02. Angela Predhomme - Just Like Magic
+03. Patrick Joseph - Foot In The Door
+04. Larry Warren - You Can Change The World(   Читать дальше...   )Жанр: Pop, DowntempoПродолжительность: 02:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09233C727C345746C2D196992FDC1FEFC89014CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 337654   (673957) от 16.05.2011
+
+Сергей Пенкин - Duets (Дуэты) (2011) [APE|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_673957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Как жаль / Дуэт с Лолитой
+02. Я больше не хочу тебя терять / Дуэт с Ириной Аллегровой
+03. Любовь настала / Дуэт с Розой Рымбаевой
+04. Половинка / Дуэт с Ани Лорак(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:36
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290991   (674196) от 22.03.2019
+
+Юлианна Караулова - Быть сильными (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кто ты? (Intro)
+02. Ариведерчи
+03. Обнажая
+04. Танцы на нервах(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7069D0C668B697F4026E10D4169C30E2A0F99BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030436   (674297) от 30.06.2016
+
+Vivien Vee - 3 Albums (1979-1983) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянская исполнительница "Диско" и модель,  дебютировала в 1979 году как электронный диско - проект, подготовленный Клаудио Симонетти и Джанкарло МЭО.
+Ее песня "Give Me A Break  " стала весьма популярной в американских танцевальных чартах, а песня "Higher" достигла № 36 - в итальянском чарте. Последний сингл вышел в 1989 году.01. Give Me A Break (8:57)
+02. It's Too Soon (9:13)
+03. Come Back (9:42)
+04. Finally Alone (6:26)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE7971D1F654593695BA924C1862085C951EC05E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290763   (674328) от 22.03.2019
 
 Alice Merton - Mint (2019) [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop>
@@ -455,246 +699,6 @@ VA - N'Dance Vol. 1 (2004) [MP3|320 Kbps] <Eurodance, Euro-House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9857005E4D5F762DAB0AAC8AAC14E999ED47D879
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290668   (676301) от 21.03.2019
-
-VA - N'Dance Vol. 2 (2005) [MP3|320 Kbps] <Eurodance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Global Deejays - What A Feeling (Short Progressive Mix) (3:18)
-02. Heiko & Maiko - Glucklich (Russian Mix) (5:10)
-03. Potatoheadz - Narcotic (Royal Gigolos Mix) (4:21)
-04. Felix Da Housecat - Ready 2 Wear (Benny Benassi Remix) (4:58)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71CB3523C17000940C34145DA48C1DB9309BC61A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508777   (676358) от 11.06.2012
-
-VA - Старая танцплощадка (2008) 2 выпуска 4 CD[MP3|320 кб/с]<Oldies>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676358.jpg" />
-</div>
-
-
-###  Подробнее
-
-2008Жанр: OldiesПродолжительность: 05:05:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F428B3838253D5FD61BF79CB24B2232635E940C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029671   (676407) от 29.06.2016
-
-VA - Super Eurobeat Vol.239 - Extended Version (2016) [MP3|320 Kbps] <Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dave Rodgers - Restarted Tonight
-02. Lolita - Made for Love
-03. Dejo & Chai - We Rock'em All
-04. Seastar - Made out of Fire(   Читать дальше...   )Жанр: EurobeatПродолжительность: 01:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F55870D7D4893D8659A991B69EE73EEA1250064
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290531   (676459) от 21.03.2019
-
-VA - Canzoni - 48 Canti D'Emotioni (Unknown) Box Set, 3CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Piccola E Fragile / Drupi (4:02)
-02. Angelo Blu / Gepy & Gepy (3:20)
-03. Ma Che Bella Storia D´ Amore / Jo Chiarello (5:01)(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 03:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C0C8D55C19D7CACF8DD8B93C7EAE6D379C7D4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290553   (676460) от 21.03.2019
-
-Dennis Parker - Like An Eagle (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like An Eagle (6:26)
-02. New York By Night (5:04)
-03. High Life (6:25)
-04. Why Don't You Boogie / I'm A Dancer (9:53)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4556034FCAD5DEBEFF5D03D8AE9FCDA1B3467705
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290673   (676580) от 21.03.2019
-
-VA - Turbo Disco International Vol. 1-2 (2004) [MP3|320 Kbps] <Pop, Dance, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gibson Brothers - Cue Sera Mi Vida (2:54)
-02. Jairo Pereira - Pais Tropical (3:00)
-03. Supermax - African Blood (5:45)
-04. Ricchi & Poveri - Acapulco (3:43)(   Читать дальше...   )Жанр: Pop, Dance, Pop RockПродолжительность: 02:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072BF0212090A1425A16A55DB032855A0750FA45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290494   (676584) от 21.03.2019
-
-Maren Morris - Girl (2019) [FLAC|Lossless|tracks + .cue] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girl (04:10)
-02. The Feels (03:07)
-03. All My Favorite People (feat. Brothers Osborne) (03:19)
-04. A Song for Everything (03:14)(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C37ABB7AF9265267C8271352FD3569AEEB0251
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290678   (676589) от 21.03.2019
-
-S.E.X. Appeal - Sexy Boy... Best Of 1999-2018 (2018) [MP3|320 Kbps] <Eurodance, Electro>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peeping Tom
-02. Fragile Love
-03. Hanky Spanky
-04. Manga Maniac(   Читать дальше...   )Жанр: Eurodance, ElectroПродолжительность: 01:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DF813651BF85A986491AB7CEE7F179E46F2691A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136231   (676840) от 21.05.2017
-
-Dschinghis Khan - Non-Stop Best Hits (2001) Compilation, Mixed [APE|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dschinghis Khan 03:16
-02. Hadschi Halef Omar 03:09
-03. Rocking Son Of Dschinghis Khan 02:58
-04. Der Verrater 03:23(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:12:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9328BEEA30C39FD5BB12EFF679D013329062E8EF
 ```
 
 

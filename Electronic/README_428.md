@@ -1,3 +1,165 @@
+###  Публикация: 1009415   (810168) от 21.04.2016
+
+VA - EDM Club Tracks Part 3 (2016) [MP3|320 кб/с] <House, Progressive House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Combo - Party Hard (Stephan F Remix) (feat. MC Duro) 05:21
+02. Tosch - DJ Banger (Club Version) 06:47
+03. Afrochuck - The Dirty Workout Plan (Extended Cardio Mix) 04:48
+04. Nastyz - Tonight 04:55(   Читать дальше...   )Жанр: House, Progressive House, Electro HouseПродолжительность: 02:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:601E124C43A670B867893620C5098A1E585B9C32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198080   (810250) от 10.01.2018
+
+VA - Progressive House Winter Essentials (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Marsh  -  Face To Face (Airdraw Intro Remix)  5:42
+02.  LTN  -  Wondering Soul (Original Mix)  5:15
+03.  Blugazer & The Cynic Project  -  Queenscapes (Original Mix)  7:26
+04.  Shingo Nakamura & RNX  -  Oregon (RNX Mix)  5:30(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:710A40D3A5FCE895E0EAB1999C0A3B35C8D183B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198274   (810255) от 10.01.2018
+
+Billow Observatory - II: Plains/Patterns (2017) Azure Vista Records [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulsus (08:21)
+02. Kercheval (08:26)
+03. Nulstil (05:33)
+04. Plains (09:53)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31EA11761A6C16B202D1E96E27A994995E67DAAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198277   (810256) от 10.01.2018
+
+Angel 1 - Terra Nova (2017) Constellation Tatsu [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speed (10:18)
+02. Volunteering (07:04)
+03. The German Idea of Freedom (06:32)
+04. Apple-tini (08:47)(   Читать дальше...   )Жанр: Ambient, Downtempo, ExperimentalПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E968D999F5A9FBF711C36FBEA3914522CA3408
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198269   (810265) от 10.01.2018
+
+Acronym - Malm (2017) Field Records [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paranoia (09:48)
+02. Inner Conflict (05:55)
+03. The Final Decision (07:26)
+04. Rails (06:02)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:874169611615CE39B4A58DF5C50976A27BD70533
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009351   (810295) от 21.04.2016
+
+VA - Venera Music Vol.5 (2016) [MP3|320 кб/с] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filek - All Be O.K. 06:11
+02. FreshwaveZ - Time of Happiness 04:33
+03. Highland Bird - Far 04:09
+04. J.A. Project - Can't Go Back in Time 04:08(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6762316DCCAA3C16A9FED3E610B03ABE1875A6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197996   (810368) от 10.01.2018
 
 VA - Best of Nuevadark 2017 (2018) [MP3|320 Kbps] <Progressive House>
@@ -533,168 +695,6 @@ VA - Miroslav Vrlik - Best Of 2017 (2018) [MP3|320 Kbps] <Trance, Progressive Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1626A8BE21678BCEEF83810F2A9C7314502FC771
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197379   (812022) от 09.01.2018
-
-VA - Lounge Cocktails Vol.3 (Delicious Grooves For Cafe Bar And Hotel Suites) (2014) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Smooth Deluxe  -  Wonderful Micronesia (Original Mix)  5:37
-02.  351 Lake Shore Drive  -  Velvet Beach (feat. Alex Love) (Original Mix)  5:58
-03.  Mirage Of Deep  -  Urban Forest (Original Mix)  7:11
-04.  Albert St.Barth  -  Cafe Au Lait (feat. Lady Janet) (Original Mix)  5:52(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:21:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCFE4502F3C4C1095A8E988F0C8FEFA366315A31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197799   (812023) от 09.01.2018
-
-VA - Inner Balance: Chillout Your Soul 5 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gabriel Florea & Dirk M. Schumacher  -  Mindful Listening  13:58
-02.  Nova Casa  -  You Get Me (Instrumental) (feat. Nathalia)  3:57
-03.  Relaxea  -  Lotus Eater  8:09
-04.  Harmonium  -  Dew (Short Edit)  4:35(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33001A87822BBB50FED17EEF3C2504BFA3450E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197497   (812027) от 09.01.2018
-
-Aurora B.Polaris - Nostalgia (2017) [MP3|320 Kbps] <Chillstep, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812027.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Oceans Apart (5:53)
-2. Above the Sky (4:30)
-3. Hazy Eyes & Lost Souls (3:10)
-4. Silent Screams of Solitude (5:06)(   Читать дальше...   )Жанр: Chillstep, DowntempoПродолжительность: 00:20:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D706A0E910C07CD5BBB0AEE7FEE7FA8A762ED9E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504575   (812105) от 23.10.2021
-
-VA - Trance Classics Collection (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812105.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Talla 2XLC - The Spring Is My Love (Club Mix) (6:03)
-02. Markus Schulz feat. Airwave - Ballymena (Original Mix) (7:05)
-03. DJ Sakin & Friends - Little Paradise (Radio Mix) (3:56)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18EBD4AD3C62072184208F1D1879C9338D1A6EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197688   (812130) от 09.01.2018
-
-VA - The Best Of Levitated Music 2017 (2018) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sergey Lagutin  -  Lazure (Original Mix)  6:23
-02.  Dachs  -  Flower Master (Original Mix)  6:10
-03.  Mart Sine  -  Atlantis (Original Mix)  6:05
-04.  Braulio Stefield  -  Chain Of Memories (Original Mix)  7:39(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:23:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:198C6BABE9C8C97F22E3E3A93EE179BE2EA922C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197927   (812131) от 09.01.2018
-
-Luke Terry - Supersonic (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luke Terry - Prelude (Original Mix)
-02. Luke Terry - Minerva (Original Mix)
-03. Luke Terry - Eternal (Original Mix)
-04. Luke Terry - Skylab (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B07ECBF45CCB940836925D6492FDF2AD148E13
 ```
 
 

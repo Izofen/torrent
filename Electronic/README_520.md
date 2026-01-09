@@ -1,3 +1,160 @@
+###  Публикация: 1620376   (1032330) от 19.03.2023
+
+Kx5 & deadmau5 & Kaskade - Kx5 (2023) [FLAC|Lossless|WEB-DL|tracks] <EDM, Club House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alive (ft. The Moth & The Flame) (5:09)
+ 02. Sacrifice (ft. Sofi Tukker) (4:40)
+ 03. Escape (ft. Hayla) (4:00)
+ 04. Bright Lights (ft. AR/CO) (3:23)(   Читать дальше...   )Жанр: EDM, Club House, TechnoПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FCB04CBAF3184AF907BC77975BCD203AD89C582
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620200   (1032356) от 19.03.2023
+
+Beborn Beton - Darkness Falls Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Monstrosity [00:06:16]
+02. Dancer In The Dark [00:05:22]
+03. Last Chance [00:04:29]
+04. Trockenfallen Lassen [00:05:30](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9864A0AEF5DFDABC85CB9BFFCFFC8865EF1ECF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126472   (1032459) от 10.02.2021
+
+Donato Dozzy | Voices From The Lake - Discography 53 Releases (2004-2020) Spectrum Spools, Further, Spazio Disponibile [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, Experimental, Minimal ...
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Volo 1 (06:59)
+ 02. Volo 2 (07:22)Тип издания: CD, Web, VinylЖанр: Techno, Ambient, Experimental, Acid, Minimal •Продолжительность: 24:24:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A4311D429504AF19CCE948B667EE9B28353BD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446827   (1032463) от 10.02.2021
+
+Low Khey - Never Trust A Cyborg (2021) Comic Sans Records [FLAC|Lossless|WEB-DL|tracks] <Broken Beat, Dub, IDM, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Trust A Cyborg (01:37)
+ 02. Control X (03:22)
+ 03. Huta Vibz (03:58)
+ 04. Click Of Death (03:38)(   Читать дальше...   )Жанр: Broken Beat, Dub, IDM, ExperimentalПродолжительность: 00:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A10D1651DABC6BDB2CFE67F177F291E9E3AD322F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279798   (1032470) от 10.02.2021
+
+Reid W. Dunn (Wisp, RWD, Dwaallicht, Entsounds) - Discography 11 Releases (2005-2020) Rephlex, Sublight Records [FLAC|Lossless|tracks+.cue, tracks] <IDM, Breakcore, Electro, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. remember5 (03:56)Тип издания: CD, Web, VinylЖанр: IDM, Breakcore, Electro, Ambient •Продолжительность: 08:14:54 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63F02F680A985E1BC1B55BD74E6AACB01AC01909
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620056   (1032536) от 18.03.2023
+
+Sovereign - Rewired (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Cyber Metal>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To The Stars [00:03:27]
+02. Uncharted World [00:04:31]
+03. Robot Party [00:02:49]
+04. Monkey Island [00:03:46](   Читать дальше...   )Жанр: Instrumental Cyber MetalПродолжительность: 00:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A64175E854A50EDE05B374484C84B4C7656666B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619971   (1032537) от 18.03.2023
 
 VA - Space Odyssey - Trip Two: First Human In Space (2017) [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
@@ -524,157 +681,6 @@ VA - Balearic Lounge & Chill out Classics (2021) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:120BB554B61BD9703075C1ABE8F3B8FA284D76F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446260   (1033032) от 08.02.2021
-
-VA - Premium Chillout Lounge (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chilhouette - The Meaning 4:43
-02. Goulding - Too Much (Chillout Terrace Sunrise Instrumental Mix) 5:29
-03. Click Here - Set Me Free (Smooth Vocal Flair Mix) 4:21
-04. Sweetest Devotion - You Shouldn't Told Me 5:06(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA56298297FE569F588B8C048223A8FFDD77F1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446346   (1033043) от 08.02.2021
-
-Ruutu Poiss - Palav Aed (2021) Wake Dream [FLAC|Lossless|WEB-DL|tracks] <Leftfield, Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiirend (02:00)
- 02. Enne (04:29)
- 03. Murded (06:03)
- 04. August (05:57)(   Читать дальше...   )Жанр: Leftfield, Ambient, ExperimentalПродолжительность: 00:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8BA5A3CB3A12603271020114C1F044ACD267F41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446176   (1033053) от 08.02.2021
-
-Tim Schaufert - Over This (feat. Yosie) (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over This (feat. Yosie) (03:53)Жанр: AmbientПродолжительность: 00:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE678DB06BA67395D30AF76D8C3F5D0A1F36F38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446353   (1033058) от 08.02.2021
-
-Gunmen - The Sound / Messed Up (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Jungle>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Messed Up (04:32)
-02. The Sound (04:17)Жанр: Drum & Bass, JungleПродолжительность: 00:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D717B4E108BA29D1030B94802C2B544DC15CA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446179   (1033059) от 08.02.2021
-
-Tim Schaufert - Under You (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under You (03:17)Жанр: AmbientПродолжительность: 00:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBCE530A57B4A51DDB21986734C4B7C27B69579F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446174   (1033060) от 08.02.2021
-
-Tim Schaufert - Once Moved Too Slow (feat. Yosie) (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Moved Too Slow (feat. Yosie) (03:34)Жанр: AmbientПродолжительность: 00:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1EDCCC289E9C41F7C87B353D2D8D77BF312B35
 ```
 
 

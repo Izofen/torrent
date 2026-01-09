@@ -1,3 +1,169 @@
+###  Публикация: 614510   (976894) от 09.02.2013
+
+B'utiza - B'utiza (2013) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S'momondiya
+02. Baphuma Ezulwini
+03. Somandla (Original Mix)
+04. Mshini Wam (Chris Sen Remix)
+05. Emaweni
+06. Ungi'shaya Ngaphakathi
+07. Uthando Lwakho
+08. Zinhle Intombi
+09. Idlozi
+10. Ziyawa (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B9A70730EEC0830BF7F27A28C2A44C31ADA7E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346561   (977835) от 31.01.2020
+
+Stefan & Dimitri Van Elsen (Brain Pilot, Trans-4M, Groove Mercenary) - Collection 9 Releases (1992-2019) Nova Zembla, Buzz [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Techno, Downtemp ...
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sound Mercenary - Dilemma (05:26)
+ 02. Groove Mercenary - Switch (Techno Mix) (05:33)Тип издания: CD, WebЖанр: Techno/House/BreakbeatПродолжительность: 06:55:39 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1BD5A764224511654854C9FBD5F72BEF03D76EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356728   (977942) от 31.01.2020
+
+Jogging House - Lure (2019) Seil Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tulip (05:32)
+ 02. Weavings (04:59)
+ 03. Reeds (06:58)
+ 04. Fountains (05:18)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743EDAFD60493476A14B03FBBEBDC10AA6DAF24C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356663   (978000) от 31.01.2020
+
+Maryam Sirvan - Songs of an Empty Room (2019) Past Inside the Present [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Drone, Experimental, Noise>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Departure (12:00)
+ 02. White Room (12:40)
+ 03. Your Face Disappearing (07:24)
+ 04. Here, Nowhere Black (10:04)(   Читать дальше...   )Жанр: Dark Ambient, Drone, Experimental, NoiseПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:919873DD32AF6BA2B87DF25374C979ACA119250F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973434   (978064) от 10.01.2016
+
+Depeche Mode - Ultra / Rejoined (1998) [FLAC|Lossless|tracks + .cue] <Progressive House, Synth-pop, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barrel Of A Gun (Underworld Hard Mix) (9:37)
+ 02. It's No Good (Speedy J Mix) (5:02)
+ 03. Home (LFO - Meant To Be) (4:26)
+ 04. Useless (The Kruder & Dorfmeister Session) (9:08)(   Читать дальше...   )Жанр: Progressive House, Synth-pop, ElectronicПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B377042C52FF5928E3ADBF67861AADBF9D7D66C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973542   (978151) от 10.01.2016
+
+Simple Minds - New Gold Dream (81-82-83-84) (1982) SACD, 2003 Virgin [FLAC|Lossless|tracks + .cue] <New Wave, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someone Somewhere in Summertime (4:36)
+02. Colours Fly and Catherine Wheel (3:49)
+03. Promised You a Miracle (4:28)
+04. Big Sleep (5:00)(   Читать дальше...   )Жанр: New Wave, Synth-popПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51CD08E8FF72058B43420CF72A162B4C0F657AA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974010   (978179) от 10.01.2016
 
 VA - The Sounds Of The Night (2016) [MP3|320 кб/с] <Club, Future House, Electro>
@@ -533,168 +699,6 @@ Gunter - Pleasureman (2004) 2005 Танцевальный Рай [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FDDAA2312DB8517095A7E31FCC09BD2786E11EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973056   (980680) от 07.01.2016
-
-VA - Acoustic Covers Album (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Sugar (03:56)
-02. Alice Lamb - How Deep Is Your Love (03:11)
-03. Chris Pomeroy - The Man Who Can't Be Moved (03:46)
-04. Chloe Le Page - Radioactive (03:30)(   Читать дальше...   )Производство: Lark RecordingsЖанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:01:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D43D0B4A230CC5D309916BFE60905A866EF3A84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972329   (980706) от 07.01.2016
-
-Jazzra - Soulounge (2009) [MP3|320 кб/с] <Lo-Fi, Nu-Jazz>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980706.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:38] 01. Feel Like A Stranger
-[05:43] 02. Heart Beater
-[05:38] 03. Love After Midnight
-[03:04] 04. Love And Lost(   Читать дальше...   )Жанр: Lounge, Downtempo, New JazzПродолжительность: 00:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B2C60EA1D6A1FDDF6C859110813C62792F04826
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116885   (980751) от 28.01.2020
-
-eilean rec. - Label-Pack 100 Releases (2014-2019) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental, Modern Classical, Neofolk, Acoustic>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aaron Martin - A Lost Heart Beats (02:02)
- 02. Ian Nyquist - Land (feat. Jack Sheehan) (05:19)
- 03. Bamboo Stilts - Porthole (04:07)
- 04. Seabuckthorn - After Image (03:44)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Ambient, Experimental, Abstract, Drone, Modern Classical, Neofolk, Acoustic •Продолжительность: 87:24:58 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02636784F71EB5BEB7908F646CEB41ADA88CEEB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972659   (980765) от 07.01.2016
-
-Bob Sinclar - Born In 69 (2009) [FLAC|Lossless|tracks + .cue] <Hip-House, Euro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bob Sinclar feat. The Sugarhill Gang - Lala Song (3:33)
-02. Bob Sinclar feat. Roland Clark - Give Me Some More (3:18)
-03. Bob Sinclar feat. Shabba Ranks - Love You No More (4:22)
-04. Bob Sinclar feat. Vybrate, Queen Ifrica & Makedah - New New New (5:26)(   Читать дальше...   )Жанр: Hip-House, Euro HouseПродолжительность: 00:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7664996A78233CBB18295E5CB98C0983FAF61E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972743   (980767) от 07.01.2016
-
-VA - Get up with Best Chillout Music (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shivana faction - Refined
-02. El Nicoya - Minutos de Oro
-03. Delfina Deines - Einhorn Phantasien
-04. Cesar Martinez Ensemble - Little Drops of Love(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5E503373F96D0F2DC53907120B7C9B71CB2F36B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356015   (981105) от 28.01.2020
-
-The New Division - Hidden Memories (2020) [FLAC|Lossless|WEB-DL|tracks] <Synth, New Wave, Indie Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clear (04:51)
-02. Fascination (04:31)
-03. Lost Life (04:42)
-04. Modus (04:29)(   Читать дальше...   )Жанр: Synth, New Wave, Indie PopПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF6DF317EDD125DD1907F5389AC67C9B425DE686
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1285408   (720863) от 26.02.2019
+
+VA - A State Of Trance 900 (The Official Album) - Extended Versions (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - Lifting You Higher (ASOT 900 Anthem) (Extended Mix)
+02. Above & Beyond - Rocket Science (Original Mix)
+03. Cosmic Gate & Jason Ross - Awaken (Extended Mix)
+04. Marlo feat Emma Chatt - Here We Are (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2BB9E97406DBC6AD94CE5D5C3F6B45493FD088F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218710   (721275) от 10.04.2018
+
+Balazs Ferenc - Register (1985) LP [MP3|320 Kbps] <Electronic, Experimental, Ambient>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giulietta (4:44)
+02. Claire (4:43)
+03. Electra A Lany, Akire Szerelemmel Nezhetek (3:53)
+04. Szonja (3:15)(   Читать дальше...   )Жанр: Electronic, Experimental, AmbientПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B6940663DAE5D51A84E820BDCF61093EFCFD25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218680   (721724) от 10.04.2018
+
+VA - Summer Nu Disco (Deephouse Selection) (2018) [MP3|320 Kbps] <Deep, Funky, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roger Ky - Music Login (Playa Mix) 3:46
+02. Black Jag - Bad Year (Special Deep Mix) 3:16
+03. K Groove - Epic Wait (Miami Deep Mix) 3:30
+04. Sensation 24 - Paleface (Apero Deep Mix) 3:39(   Читать дальше...   )Жанр: Deep, Funky, Tech HouseПродолжительность: 01:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:194C672884E1C02C277D1E27060BBB78CE76A451
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218602   (721728) от 10.04.2018
+
+VA - HTE Hard Trance Europe (Mixed by Space Raven & Nick The Kid) (2018) [MP3|320 Kbps] <Trance,Hard Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phutek - 1307 Dimension
+02. Neuroma Seroma - Opening (Original Dub Mix)
+03. Space Raven - Leaving Trains & Goodbyes
+04. Space Raven & S5 - Dream State(   Читать дальше...   )Жанр: Trance,Hard TranceПродолжительность: 05:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA1EF2FA9F4E808FA8EFCA8A91BD5B0587BC8960
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218607   (721735) от 10.04.2018
+
+VA - Dark Sessions 044 (Mixed by Chris Hampshire) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G8 - Boom And I Knock Them Out (Original Mix)
+02. John Askew - Battery Acid (Ellez Ria Arkam Reborn)
+03. Peter Plaznik - Outlaw (Cenk Basaran Remix)
+04. Rodas - Uplifted Dream (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACF0B28E62F39B9E14793156008E71CB9B8AE90A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218733   (721739) от 10.04.2018
+
+Cløtur (Clotur) - Levels of Consciousness (2017) Warok Music [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Connecting With The Spirit (06:21)
+02. The Healing Energy (08:49)
+03. Mindfulness (07:30)
+04. Clarity (05:50)Жанр: TechnoПродолжительность: 00:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5EEECABD4FD37FCF7AD1E4DA5372EDC503F3717
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023863   (722029) от 06.06.2016
 
 VA - NRJ Dance Hits 2016 (2016) 2CD [MP3|320 кб/с] <Dance, Electronic, House>
@@ -532,168 +694,6 @@ VA - Nothing But. Total Trance Selections Vol. 02 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C57BBF998C26429993328D30C5546875440F8182
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218434   (723408) от 09.04.2018
-
-VA - Interfered Vol.I (Mixed by Enlusion) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enlusion - Interfered Volume I (continuous DJ mix)
-02. Neil Soun - Bending Light (intro mix)
-03. Aquya - Ataraxia (radio edit)
-04. Vitaly Shturm - Sensoria (radio edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:586EE965B2790E82696C87B3B30A95274E997413
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284974   (724066) от 24.02.2019
-
-DJ Skydreamer - Наш Ответ!!! ATB (2005) [MP3|320 Kbps] <House, Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legend Of Dreamy (4:35)
-02. Light Fantasy (5:20)
-03. Back To The Universe (3:52)
-04. Relieve (4:01)(   Читать дальше...   )Жанр: House, TranceПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C65112EAAA268BCB58DF7E533B47E5901182AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243242   (724194) от 24.02.2019
-
-Nina (Nina Boldt) - 8 Releases (2011-2018) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me Away (Radio Edit) (3:24)
-02. Take Me Away (Extended Club Mix) (5:16)
-03. Take Me Away (TNTT Remix) (4:32)
-04. Take Me Away (Disco Damage Remix) (3:56)(   Читать дальше...   )Жанр: Synth-pop, SynthwaveПродолжительность: 03:33:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F2A3DF9F4B8FF539FA5FADACE5F29E8CC7A2483
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023391   (724255) от 05.06.2016
-
-Phaeleh - All That Remains (2016) EP [MP3|320 кб/с] <Tech House, Ambient, Modern >
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mountain (5:21)
-02. Acceptance (1:24)
-03. Remember (4:51)
-04. Trails of Light (4:48)(   Читать дальше...   )Жанр: Tech House, Ambient, ModernПродолжительность: 00:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627F600F499A8EEA983FB46D8258C8DC2F7D6ED5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026905   (724354) от 27.04.2017
-
-Pogo - 2 альбома (2015,2016) [MP3|320 kbps] <house, chill electronic, idm>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giving (02:46)
-02. Cupboard Shaker (03:23)
-03. There You Are (03:37)
-04. Data & Picard (03:05)(   Читать дальше...   )Жанр: house, chill electronic, hip-hop, idmПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:536A82DFDFCFCC9EE44DC3455E1D9A35DD291555
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129167   (724361) от 27.04.2017
-
-VA - Tiesto - In Search Of Sunrise 5: Los Angeles (2006) [MP3|320 Kbps] <Trance, Progressive Trance,House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conil - Malibu Beach (02:24)
-02. Mark Norman pres. Celine - Colour My Eyes (06:24)
-03. Late Night Alumni - Empty Streets (Haji & Emanuel Remix) (05:40)
-04. Electro-Prompt - Beside Me (Gothek D.C. Remix) (05:16)(   Читать дальше...   )Жанр: Trance, Progressive Trance,HouseПродолжительность: 02:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:258DF30BDA46BB3CF35BA02708298B0BC7E4EA04
 ```
 
 

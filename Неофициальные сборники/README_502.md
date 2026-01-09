@@ -1,3 +1,30 @@
+###  Публикация: 1210470   (778695) от 03.03.2018
+
+VA - Rock Kaleidoscope 2 (2018) [MP3|320 Kbps] <Classic Rock, Rock & Roll, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778695.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 The Byrds – Turn! Turn! Turn!
+002 The Hollies - The Air That I Breathe
+003 The Alan Parsons Project - Don't Answer Me
+004 Nazareth - Love Hurts(   Читать дальше...   )Жанр: Classic Rock, Rock & Roll, Blues RockПродолжительность: 03:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C161042EFD835FB818E7CA4EDBEC809447BFE20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210425   (778716) от 03.03.2018
 
 VA - Empire Records - Sound Clinic 10 (2017) [MP3|320 Kbps] <House>
@@ -668,33 +695,6 @@ Part 1 (Discoteka)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41F6BB46BBADAEAA89507FC53D6BC8DAC966C034
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209098   (779484) от 25.02.2018
-
-VA - Русский Металл - Коллекция (2018) [MP3|320 Kbps] <Rock, Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779484.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Арктида - Орлиное сердце (Stratovarius cover)
-002. Артур Беркут - Право Дано
-003. Гран-Куражъ - Кто Есть Кто
-004. Крылья - Дух Рок-Н-Ролла(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 16:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D9F230FADB1504C519CD5156123E758FAC35E3E
 ```
 
 

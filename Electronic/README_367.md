@@ -1,3 +1,165 @@
+###  Публикация: 1127693   (731042) от 22.04.2017
+
+Sуntec - Тhе Веginning (2016) [FLAC|Lossless|image + .cue] <SynthPop, ElectroPop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back To The Beginning
+02. Catch My Fall (feat. Blind Passenger)
+03. Devil In Heaven
+04. I Don't Want To Lie Anymore(   Читать дальше...   )Жанр: SynthPop, ElectroPopПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED25FA6CA1AAE20A5EFA1C11C46C623EB51C499
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283933   (731046) от 19.02.2019
+
+VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arkham Knights - First Light (World Premiere)
+02. Marcus Santoro - Give it All
+03. Above & Beyond - Distorted Truth
+04. Emme & Rodrigo Deem - Black Mamba(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA425E48326BC1544913739A7034D767408C60A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283907   (731050) от 19.02.2019
+
+VA - Ultra Jogging Anthems 2019 Session [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D'rockmasters - Light That Fire (Fitness Version 128 Bpm) 3:51
+02. One Nation - Personal Jesus (Fitness Version 128 Bpm) 3:45
+03. Lady Shelly - Live Love Dance (Fitness Version 128 Bpm) 4:00
+04. Magdaleine - Suddenly (Fitness Version 128 Bpm) 3:45(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCAC55EF3659D68A6AFE3D8DE4F4F8660CA7F3E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127699   (731141) от 22.04.2017
+
+IooN-Cosmic Downtempo - Masters Of The Universe (2017) [MP3|320 Kbps] <Ambient, Drone>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731141.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Passing Horizontal 16:04
+2.Nanomeditative Submersion 08:42
+3.Ascending To Master Stillness 07:11
+4.Masters Of Universal Equilibrium 08:07(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED67F9263A6C68F92190D6AE50FAD600EE7C0708
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127455   (731142) от 22.04.2017
+
+VA - Ferry Corsten Presents Corstenas Countdown April (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ferry Corsten presents Gouryella - Venera (Vee's Theme)  3:08
+02.  DIM3NSION - Voorpret  7:02
+03.  Dan Dobson - Black Magic (Extended Mix)  6:15
+04.  Venaccio - Apollo (Extended Mix)  6:20(   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:543A69E9715615088B7649693533B2594FB519D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127685   (731143) от 22.04.2017
+
+VA - Living Room’s Just Good Mood (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Worldtraveller - Deep Ocean Dive [00:03:38]
+02. Art Stoner - Breakwater [00:07:35]
+03. Living Room - Living Jazz [00:04:22]
+04. Omegaman - Paradiso [00:04:15](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD826ECB632F0F31EADB602171875AAED41A8D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127577   (731148) от 22.04.2017
 
 VA - Black Hole House Music 04-17 (2017) [MP3|320 Kbps] <House>
@@ -533,167 +695,6 @@ Geotronika - Stardust (2021) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Ambient, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C03019D6CDFB41B0E4F273F6275578102F5C54BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372817   (732837) от 01.08.2020
-
-VA - The Sound Of Psy-Trance, Vol.1-4 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732837.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Jarvith Bhaut Perz - Baby (6:29)
-2. Magnetic Resonance - Fraction Of A Point (Radio Edit) (5:03)
-3. Atype - Sleeping Illusion (6:35)
-4. Stepper - Open To Mistikan (7:37)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 03:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47920A6C185B44CC8F4DE92334C9E2AFE792492E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399652   (732875) от 01.08.2020
-
-Goasia - Landed On Wrong Planet LP (2020) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outer Space Formant (06:09)
-02. Alien's Ultimatum (08:09)
-03. Back To Space (07:00)
-04. Hybrids (07:09)(   Читать дальше...   )Жанр: Goa TranceПродолжительность: 01:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC8B9E84D3DC761D30ADF4FC0685813101BF468
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399655   (732899) от 01.08.2020
-
-E-Mantra - 15 Years Of Music Special Release Vol 1 (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liquid Frequency 2003 (08:02)
- 02. Neural Vertex 2005 (09:37)
- 03. Poltergeist Activity 2002 (09:57)
- 04. Radiant Vision 2003 (12:28)(   Читать дальше...   )Жанр: Goa TranceПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574BFFCCB4AB2DE08B677DC6EBD7891CAA24BAA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399559   (732902) от 01.08.2020
-
-VA - Above & Beyond - Anjunabeats Volume 15 (2020) 2CD, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House, Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ALPHA 9 – Time Traveller (03:39)
-02. Above & Beyond – I Saw Good (03:44)
-03. Above & Beyond – Reverie (feat. Zoë Johnston)Жанр: Electronic, Progressive House, Progressive TranceПродолжительность: 02:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:868B4C263F30DED8C1A30A1CFC9348D5E9D8CD4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399594   (732943) от 01.08.2020
-
-VA - Pure Body Workout Hits 2020 [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732943.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Housecream - I Don't Wanna Live Forever (Fitness Version 128 Bpm) (4:52)
-2. Patty Dart - Lover (Fitness Version 128 Bpm) (6:06)
-3. D'Mixmasters - In My Feelings (Fitness Version 128 Bpm) (3:52)
-4. One Nation - Rescue Me (Fitness Version 128 Bpm) (5:21)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DCB2D884F73A59BF0A9DD4B34D1DCD47B4545F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529095   (733120) от 05.02.2022
-
-VA - Vocal Trance Hits (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Doppler Effect feat. Carol Lee - Beauty Hides In The Deep (John O'Callaghan Edit) (3:46)
-02. Talla 2XLC & Naama Hillman - No Inbetween (John O'Callaghan Edit) (3:45)
-03. Ronski Speed & Sir Adrian - The Space We Are (John O'Callaghan Edit) (3:40)
-04. Jared Knapp & Patrick De Vere with Neev Kennedy - Night Moves (Daniel Kandi's Emotional Edit) (3:11)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E04DA4FC8CEBF4FD4A2D3DA824793FA062305273
 ```
 
 

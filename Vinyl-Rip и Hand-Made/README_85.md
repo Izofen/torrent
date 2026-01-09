@@ -1,3 +1,30 @@
+###  Публикация: 798239   (671197) от 21.06.2014
+
+Генрик Шеринг - Л. Бетховен (Концерт для скрипки с оркестром) (1987) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Allegro Ma Non Troppo  25:22
+Сторона 2
+1. Larghetto. Rondo, Allegro  20:02Жанр: ClassicalПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B6AC8E01730AFBF2D1C1B0635D232EEF54676C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290726   (672115) от 23.03.2019
 
 VA - Dance Hits Collection (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Disco, Euro House, Hip Hop>
@@ -685,33 +712,6 @@ A4 All Those Years Ago(   Читать дальше...   )Жанр: Pop Rock, Cl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05B1F8F64BFB391086913FC53E92A74495250133
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151830   (694127) от 02.03.2022
-
-Shy - Excess All Areas (1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694127.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Emergency
-A2 Can't Fight The Nights
-A3 Young Heart
-A4 Just Love Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFEBED8B5EB0AAA6D219FDB7F9D961E29262A747
 ```
 
 

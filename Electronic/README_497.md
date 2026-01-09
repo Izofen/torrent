@@ -1,3 +1,165 @@
+###  Публикация: 1485836   (1005100) от 28.07.2021
+
+Tentura - Theme Patcher (Remixes) (2014) Uxmal Records [FLAC|Lossless|WEB-DL|tracks] <Breaks, Progressive Trance, Psychill>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme Patcher (07:51)
+ 02. Theme Patcher (Unusual Cosmic Process Remix) (07:33)
+ 03. Theme Patcher (Phantom Sentinel Remix) (08:39)
+ 04. Theme Patcher (Magobee Remix) (08:29)(   Читать дальше...   )Жанр: Breaks, Progressive Trance, PsychillПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427DFBAF7D925F730A42F10CF6311C8F1C267702
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485684   (1005197) от 27.07.2021
+
+Komarebi - After Effects (2020) Touched Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Electro, Ambient>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drift (04:55)
+ 02. Between Zones (04:47)
+ 03. Alpha (07:42)
+ 04. Hypher (04:28)(   Читать дальше...   )Жанр: IDM, Electro, AmbientПродолжительность: 01:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D532F59C905F2DD95C10FBA1C6437448B7C42A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485686   (1005199) от 27.07.2021
+
+bvdub - Hard Times, Hard Hearts (2021) AY [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Downtempo, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Blue Waters (10:30)
+02. On Petrified Skies (09:16)
+03. Over Invisible Walls (19:01)
+04. Inside Infinite Machines (09:25)(   Читать дальше...   )Жанр: Ambient, Downtempo, ExperimentalПродолжительность: 02:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4BC96E8F9271F6DE83B77869E6069A42E0A464
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485679   (1005209) от 27.07.2021
+
+Komarebi - Nebulous (2021) Ping Disc [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Breaks, Downtempo, Ambient>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreams (05:40)
+ 02. From Darkness (04:50)
+ 03. Glacial Shift (05:36)
+ 04. Altered Senses (04:45)(   Читать дальше...   )Жанр: IDM, Breaks, Downtempo, AmbientПродолжительность: 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4084DEE729EAF375B278222C574F451B2444146
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485824   (1005213) от 27.07.2021
+
+Underwater Sleep Orchestra - The Night and Other Sunken Dreams (2021) Cryo Chamber [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dark Ambient, Field Recording, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Sinkhole (05:15)
+ 02. A Sullen Slumber (06:04)
+ 03. Worms Within (03:46)
+ 04. The Gnawing (05:31)(   Читать дальше...   )Жанр: Ambient, Dark Ambient, Field Recording, DroneПродолжительность: 01:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78FB6CECACC1B808B524F8501DA61253D975165C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485759   (1005216) от 27.07.2021
+
+Aviv Stern - Half Mind (2021) Point Source Electronic Arts [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Glitch, Experimental, Bass>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thick (04:07)
+ 02. Herb (04:50)
+ 03. Desert (03:04)
+ 04. Medicine (04:38)Жанр: IDM, Glitch, Experimental, BassПродолжительность: 00:16:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EDF249FC2607BE8074308A234A733C589256A76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1485820   (1005218) от 27.07.2021
 
 C-Land - Contactee’s Journal (2021) Microcosmos Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Acoustic>
@@ -529,166 +691,6 @@ Jon Hassell - Seeing Through Sound (Pentimento Volume Two) (2020) Ndeya [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92EF7CBC1116D599ECAAD48314E1519770B65B75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484068   (1006285) от 18.07.2021
-
-Blutengel - Erlosung - The Victory of Light (2021) 2CD, Deluxe Edition [MP3|320 Kbps] <Darkwave, Gothic Rock, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Herrschaft [00:05:04]
-02. Freak Out [00:04:38]
-03. She's Not a Saint [00:04:17]
-04. Purple Sky [00:04:19](   Читать дальше...   )Жанр: Darkwave, Gothic Rock, IndustrialПродолжительность: 2 CD, 01:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA94DF39FBFAE959FC948E486B13AFAF7F357EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484239   (1006286) от 18.07.2021
-
-Inhmost - The Meaning Of...... (2021) re:st [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunrise Meditation (04:47)
- 02. Healing Hand (05:32)
- 03. Outer Thoughts Dub (06:59)
- 04. Outside Space (04:56)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D4246E3B77BB0DFF033F620981A3A9C7D3DC056
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189483   (1006356) от 17.07.2021
-
-Emancipator - Discography 37 Releases (2006-2021) Loci Records [FLAC|Lossless|tracks+.cue, tracks] <Downtempo, Trip Hop, Instrumental>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thumper (02:17)
- 02. Lemon Lime (03:53)
- 03. Jade (04:22)
- 04. Tea Sprinkles (04:05)(   Читать дальше...   )Тип издания: CD, WEB, VinylЖанр: Downtempo, Trip Hop, Instrumental •Продолжительность: 17:45:54 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B70A5FED9FEA892E377396227EBF6D8F478873
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483579   (1006415) от 17.07.2021
-
-Stillhead - Iceberg (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006415.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Stillhead - Sunset Over Estonia 03:28
-2. Stillhead - Knife Edge 03:46
-3. Stillhead - Stillhead feat. Mu Vonz - Maybe We Aint Dead 03:53
-4. Stillhead - Breathe Me Out 04:24(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40A23E86803727ED4E47A415C43157B5B4B14914
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388785   (1006462) от 16.07.2021
-
-laaps - Label-Pack 13 Releases (2020-2021) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Contemporary, Experimental, Minimal, Acoustic>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Signals In The Sky (06:53)
- 02. Lying Dormant And Forgotten (06:20)
- 03. Never Walk Home Alone At Night (06:11)
- 04. Exoplanet (05:19)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Ambient, Contemporary, Experimental, Minimal, Acoustic •Продолжительность: 08:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130F6CC3ED2A558D1C31AB2AF827CAFEF1CAE3B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426526   (1006470) от 16.07.2021
-
-The Chikara Project - Label-Pack 19 Releases (2017-2021) [FLAC|Lossless|tracks] <Drum n Bass, Jungle, Halftime, Ambient>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Can Help Each Other (04:33)
- 02. Rest Assured (feat. Elysia Grace) (05:06)Тип издания: WEBЖанр: Drum n Bass, Jungle, Halftime, Ambient •Продолжительность: 07:55:16 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:252B88352004264ACDE15391406AF4266E1692B9
 ```
 
 

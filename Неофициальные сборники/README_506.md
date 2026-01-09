@@ -1,3 +1,30 @@
+###  Публикация: 1298500   (782623) от 16.06.2020
+
+Doug MacLeod - The Blues Is Made With Soul (1984-2017) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. $50 Wig
+02. (If You Going To The) Dog House
+03. A Broken Dream In A Broken Room
+04. A Little Sin(   Читать дальше...   )Жанр: BluesПродолжительность: 04:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4988C3A74286D4454DD3C053B84933E2C73BB31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390523   (782662) от 16.06.2020
 
 VA - Suspended Dreams: Weekend Picks Deep House (2020) [MP3|320 Kbps] <Deep House>
@@ -668,33 +695,6 @@ VA - The Official UK Top 40 Singles Chart 09.02.2018 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEEAD53DDA7E44ADBD75FDDFB0F66DFF1D7EA74B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389942   (783565) от 13.06.2020
-
-VA - Music News vol.19 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783565.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Вера Брежнева - Хорошие Новости (KM & Alex Davia Remake) (02:46)
- 002. 6ix9ine feat. Nicki Minaj - Trollz (03:23)
- 003. 24kGoldn - Valentino (Imanbek Remix) (02:58)
- 004. 410 - Мотылек (03:00)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 11:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A893AD9B4553E83F7345BBA6244AC57BFE49EA75
 ```
 
 

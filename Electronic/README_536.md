@@ -1,3 +1,165 @@
+###  Публикация: 1839454   (1046667) от 29.11.2025
+
+VA - Trance Fusion, Vol. 15 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Dolphin - Dreams (Original Mix) [6:17]
+02. DJ Prozac - Beautiful Stranger (Original Mix) [7:17]
+03. Matt Pincer - Wave Of Emotion (Original Mix) [9:29]
+04. ATA - Blue Skies (Original Mix) [6:48](   Читать дальше...   )Жанр: TranceПродолжительность: 03:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:331F855DF26D2EBFD8E3A4A130EE2C5F3E7EDF2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839638   (1046695) от 29.11.2025
+
+VA - Autumn Lounge (Deep Strips) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. N.E.O.N - On Repeat (2:59)
+02. Johny Luv - Kiss the Sky (3:58)
+03. Sharapov - Keep On Rising (5:25)
+04. Johny Luv - Crossroads (3:46)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A30D26A9B8F44A44CF606EC181AEA8E392AD3BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839797   (1046769) от 30.11.2025
+
+VA - House Clubhits Megamix 2026 (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P!mp The D!sko - Show (3:16)
+02. Damir Pushkar - Smell on Your Skin (2:48)
+03. Les Bisous - Reach Out (2:44)
+04. Hawk - Black Betty (2:35)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 04:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6711780BF4EF721887A10D435A76FDB4E4B3258E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839714   (1046837) от 30.11.2025
+
+V.A. - Autumn Lounge Mix (2025) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Trip-Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Soundscapes - Tangled Up In Blue
+02. Mia Olsen - On Your Mind
+03. DJ Style - All I Know Is Love
+04. Kisses at Dawn - Kisses at Dawn - Blue Skies(   Читать дальше...   )Жанр: Downtempo, Lounge, Trip-HopПродолжительность: 00:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F946A839A5A1E933754CBE511BA9A1C6C90A8B67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839647   (1046841) от 30.11.2025
+
+Tiësto - Live @ The Dream Stage, Dreamstate SoCal, Queen Mary Waterfront, United States (2025-11-22) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto & FORS - Bring Me To Life
+02. Tiësto - Lost In The Ocean
+03. Worakls - Lueur (Tiësto Remix)
+04. Tiësto - Tears In My Blood(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC600DC106BF420EB923FF56AAE80CD783B30904
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839866   (1046874) от 01.12.2025
+
+VA - Deep Reflections: Winter Edition 2025 (2025) [MP3|320 Kbps] <Deep House, Organic House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lester Isaac & M-Sol DEEP - Keep Knocking (Original Mix) [6:02]
+02. TEO (SL) & M-Sol DEEP - Spirit Bloom (Original Mix) [7:35]
+03. Random Thoughts & M-Sol DEEP - Malt (Original Mix) [5:03]
+04. Will Flint & M-Sol DEEP - Twilight (Original Mix) [5:49](   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 01:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F7B855F8A8DF7B73055CD10A713FE90841DE156
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839933   (1046967) от 02.12.2025
 
 VA - Redux Selection, Vol. 12 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -533,168 +695,6 @@ Andrew Rayel – Find Your Harmony 474 (GUEST MIX: Nifra & Tensteps)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74F87B9C1C13DFE1D0BC8A608B076F9626B832F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840945   (1047687) от 08.12.2025
-
-Thompson Twins - Industry & Seduction : A Thompson Twins Collection (2025) 3 x CD, Compilation, Limited Edition, Remastered, BMG [FLAC|Lossless|image + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Industry & Seduction - это всеоблемющий сборник, охватывающий всю карьеру Thompson Twins, отражающий их путь от аутсайдеров пост-панка до мировых икон синти-попа. За свою карьеру Thompson Twins записали семь хитов, вошедших в американский Топ-40, и были в авангарде второго вторжения британских исполнителей в США, в которое также входили The Police, Duran Duran, (   Читать дальше...   )Disc One - The Hits (Remastered):
-01. Hold Me Now (2024 Remaster) (4:46)
-02. If You Were Here (2025 Remaster) (2:56)
-03. Doctor! Doctor! (2024 Remaster) (4:38)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 03:53:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2FB8528E3C9CF612A5E9308C7623D9AD9262C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841082   (1047723) от 09.12.2025
-
-VA - The Orient Collective: Sands Of Time (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania - Soul of the Universe (5:26)
-02. Tibetania - Solace (6:24)
-03. Gumale - Scenery (7:11)
-04. Tibetania - Road to Mombasa (Evan Mars Remix) (7:26)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:27:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8F6FC8D9C8A4E90E0E7A80FB5DD48906A107B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841076   (1047736) от 08.12.2025
-
-Schwarz & Funk - 25 Years (Chillhouse) (2025) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Downtempo, Chill House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Waves of Peace (Chillhouse Mix Extended Version) (04:00)
- 02 - Good Times (Beach House Mix) (06:30)
- 03 - Remy (Beach House Mix) (05:59)
- 04 - Nice (Beach House Mix) (04:43)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Chill HouseПродолжительность: 02:23:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C99C71347BF54EAB2BC2549DC642D220E7D6D40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841038   (1047739) от 08.12.2025
-
-VA - The Best Releases 2025 of Endlessky Audio (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iberian - Trust Me (Betibwe Remix) [6:48]
-02. D.J.G. & M.I.K! vs. DJ MacX - Indian Spring (POINoir Remix) [7:08]
-03. Grande Piano - Adrenalin (Original Mix) [7:34]
-04. Jef Karlen - Illariy (Original Mix) [6:30](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8061EB0C02995B6A523BA6FE0F2DF3865B1AC85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841220   (1047844) от 09.12.2025
-
-VA - 100% Ibiza (The Late Night Club Closings 2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francesco Diaz - Frequencies (Video) (2:58)
-02. Steen Thottrup - Dreamers (Stefano Martiago Remix) (5:03)
-03. Kornpluck - Tincture (Vocal Mix) (5:23)
-04. Jacob Ireng - Contemplation (2:37)(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A1D65E6DBFFA7A3A960A9EE2C861745707BEFE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841201   (1047858) от 09.12.2025
-
-VA - Best of FSOE 2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daxson - Perpetuity (Extended Mix) [7:26]
-02. Aly & Fila with Ferry Tayle - Take Me Higher (Extended Mix) [7:31]
-03. Doppenberg - Worlds Apart (Extended Mix) [6:43]
-04. Allen Watts & Will Rees - Pendulum (Extended Mix) [6:41](   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB115244DAD01A971DD02C9697D53088079FF9A7
 ```
 
 

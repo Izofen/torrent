@@ -1,3 +1,30 @@
+###  Публикация: 974348   (975796) от 12.01.2016
+
+Dolcenera - Le stelle non tremano (2015) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Niente al mondo
+02. Immenso
+03. Un peccato
+04. Figli del caos(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52FF320B2A8FB4E6810428D4CF1C057F1366DB49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 166043   (975976) от 15.01.2010
 
 Sarah McLachlan - Closer: The Best Of Sarah McLachlan (2008) Deluxe Edition, 2 CD [FLAC|Lossless]<Pop, Folk Rock>
@@ -720,33 +747,6 @@ VA - Radio 538 Hitzone Christmas 2015 (2015) [FLAC|Lossless|image+.cue] <Pop, Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA5816155FB79A721D743941B086B01CCAE8838B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970801   (988477) от 01.01.2016
-
-Sandra - The Art Of Love (2007) [FLAC|Lossless|image + .cue] <Pop, Electro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What D'Ya Think Of Me [04:34]
-02. The Way I Am [03:31]
-03. The Art Of Love [04:14]
-04. What Is It About Me [03:54](   Читать дальше...   )Жанр: Pop, ElectroПродолжительность: 00:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB45FAEAB22CDB38866E7DC56228A5479E0BF20C
 ```
 
 

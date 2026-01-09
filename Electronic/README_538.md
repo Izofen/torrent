@@ -1,3 +1,165 @@
+###  Публикация: 1843049   (1048952) от 18.12.2025
+
+VA - Black Hole Recordings - Best Of 2025 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate & James French - I'm On Fire 03:52
+02. Markus Schulz & Dakota - Faultline 03:40
+03. Ciaran McAuley & Shelby Merry - The Party 03:39
+04. Christina Novelli & Peter Steele - Moment In Time 03:47(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77F775A9719755D0FD4E6F29112E5DF2B0EE886B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843128   (1049156) от 18.12.2025
+
+VA - Redux Presents: The Finest Selection 2025 Mixed by DJ Jayel (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1049156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Xsacaman - Celestial (Extended Mix) 07:39
+02. Christopher Maison - No Way Home (Extended Mix) 06:47
+03. Angels&Tilove - Venus (Extended Mix) 05:05
+04. Paul Gallagher - Distant Echo (Extended Mix) 06:49(   Читать дальше...   )Жанр: TranceПродолжительность: 05:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB6D8798172F5AF55D69541E6D7A4288B08E6877
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843347   (1049219) от 19.12.2025
+
+Calibre - Rudy (2023) [FLAC|Lossless|tracks + .cue] <Drum'n'Bass, Liquid Funk, Ambient>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1049219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stunted (5:17)
+02. More Fool Me (Calibre & Cimone) (4:58)
+03. The Game (4:53)
+04. Heaven (4:56)(   Читать дальше...   )Жанр: Drum'n'Bass, Liquid Funk, Dubstep, AmbientПродолжительность: 01:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09FE6EC5E3EC032D53C273C2FAE32D6FCE53D29F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843342   (1049221) от 19.12.2025
+
+Calibre - they want you (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum'n'Bass, Liquid Funk, Dubstep>
+
+>>Electronic
+>>Drum'n'Bass, Breakbeat (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1049221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. living is truth (5:07)
+02. don't feel for me (5:11)
+03. tame (5:50)
+04. possession dub (5:31)(   Читать дальше...   )Жанр: Drum'n'Bass, Liquid Funk, Dubstep, AmbientПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C951299A0A538957E5DDE236FBCA8656F072AFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843274   (1049225) от 19.12.2025
+
+VA - Armada Music Year Mix 2025 (2025) Extended Versions [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1049225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juan Magan, Brando & Eleni Foureira – Truth or Dare (Extended Mix) (03:12)
+02. Nadia Ali, Iro & Summer Is Calling – Almost Home (Extended Mix) (04:55)
+03. Audien, Shallou & Rosie Darling – Bittersweet feat. Rosie Darling (Extended Mix) (03:48)
+04. Edward Maya, Valentino Indy & Klavdia – Back To BlueЖанр: Dance, Club, House, ElectronicПродолжительность: 08:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71420EEDCE3830CE63D05BDAA96296A8D49043CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843212   (1049243) от 19.12.2025
+
+VA - Armin van Buuren - A State Of Trance 1256 (Top 50 Of 2025) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1049243.jpg" />
+</div>
+
+
+###  Подробнее
+
+50. Andrew Bayer – I Don’t Want You
+49. David Forbes – Techno Is My Only Drug
+48. Chicane & Ben Nicky & ARTY – Oxygen
+47. 7 Skies – All The Things(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6473BE1622A6DE2EBEFEA2372489ED297715BDBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843219   (1049244) от 19.12.2025
 
 VA - Ori Uplift - Uplifting Only Episode 671 (Ori’s Top 50 Instrumental Uplifters of 2025 [Part 2]) (2025) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -530,168 +692,6 @@ VA - The Best of TRM 2024-2025 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DB02694B619EEC783427851ABB2E3E90DA201BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844638   (1050424) от 28.12.2025
-
-VA - The Best Releases 2025 of Voice of Our Hearts (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iberian - Maria (Spanish Vocal Mix) [6:59]
-02. Andre Wildenhues & Stacey Jay - Hold On To Hope (Original Mix) [6:24]
-03. Masaru Hinaiji & Kayumai - Think Of My Angel (Original Mix) [7:13]
-04. Sam Fletcher vs. Andre Wildenhues vs. Iberian feat. Poetry Maiden - Space Hideaway (DreamSkies Mashup) [6:01](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6595353EE397AD8EDD9C686D3391E16C1FA2C5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844518   (1050425) от 28.12.2025
-
-VA - Best Of Tidy Two 2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yusef Kifah - Pumpin' 03:43
-02. Rob Tissera - Uncontrollable Joy 03:57
-03. Technikal & Brad Thatcher - Centauri 04:01
-04. K-Series - Say Goodbye 03:51(   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5AE1ACA68CF6CA020F3BED54E2AF1E3A08DD1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845152   (1050483) от 30.12.2025
-
-VA - 235 DJ Loaded - World Good Times (2025) [MP3|320 Kbps] <Afrobeat, Dancehall, Other>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050483.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ariana Grande - Hampstead (Dj Caplay Bachata Remix) 125bpm (03:28)
- 002. Twice - Strategy (Dj Caplay Bachata Remix) 110bpm (03:23)
- 003. Dj Caplay Ft Bachata Club - Duele (Dj Caplay Single Edition) 125bpm (03:59)
- 004. Jisoo - Your Love (Dj Caplay Bachata Remix) 115bpm (03:26)(   Читать дальше...   )Жанр: Afrobeat, Dancehall, OtherПродолжительность: 19:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99F9ACE24A32A330440B069B26B4C3C0EBA8517
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845100   (1050513) от 29.12.2025
-
-VA - Winter Lounge Selection (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elegant Ape - Desert Bloom (3:09)
-02. Johny Luv - She Likes (3:28)
-03. N.E.O.N - Obsession (Radio Edit) (3:06)
-04. Elegant Ape - Sunset Echoes (3:39)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9051A7343E74917619724FDC5BC91A7D5F77859
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845149   (1050596) от 30.12.2025
-
-VA - Progressive Vibes Music 2025 (2025) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Hillfire - Soulfire (Radio Edit) 03:52
-02. Matte Plane - Mar Don Hills 04:00
-03. K.O.V.I. Project - Forgiven (Radio Edit) 03:34
-04. Mekci - Playing With Fire 03:48(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B93311B2F911FD049F7224495EF437D63E410C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845160   (1050597) от 30.12.2025
-
-VA - Progressive Vibes Dark 2025 (2025) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Speckmann - The Redemption (Radio Edit) 03:37
-02. Robinito - Everlasting (Radio Edit) 05:01
-03. Domundo - Intermission (Radio Edit) 03:11
-04. Ahmad Shams Music(TM) - Marionette (Original Mix) 04:03(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 00:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0FDF1021CADDDAD795715559C39D914ABD686F1
 ```
 
 

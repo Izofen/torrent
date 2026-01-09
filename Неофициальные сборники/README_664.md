@@ -1,3 +1,30 @@
+###  Публикация: 1468298   (1017202) от 07.05.2021
+
+VA - Soft Pop Hits 1 (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Arthur, Anne-Marie - Rewrite The Stars (3:38)
+02. Hozier - Take Me to Church (4:01)
+03. Avril Lavigne - Head Above Water (3:40)
+04. John Mayer - Waiting On the World to Change (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 04:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38DB1D9E0FF17DD47B1D52C68EA0DCA8EC06451F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467456   (1017648) от 04.05.2021
 
 VA - Shazam & Apple Music Chart (Россия Топ 100 Апрель) (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -665,33 +692,6 @@ VA - House of the Spirit NA (2020) [MP3|320 Kbps] <Native American, New age, Wor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E59453CB13CD311C1A13D8E4B4D7BA385DFA9C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465883   (1018792) от 28.04.2021
-
-VA - Melodic Chill House (2021) [MP3|320 Kbps] <Chill, Deep House, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018792.jpg" />
-</div>
-
-
-###  Подробнее
-
-С чего начинается утро? Конечно, с чашечки ароматного кофе и мягкой, неспешной музыки вдохновляющей тебя на позитив грядущего дня. Под такую утреннюю атмосферу можно спланировать предстоящие дела на день. И не имеет значения выходной это день или рабочие будни.001. Msolnusic - Beautiful
-002. Lotche - Memories
-003. Into The Ether - Maya
-004. Laurence Guy - Certain(   Читать дальше...   )Жанр: Chill, Deep House, ChilloutПродолжительность: 12:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:474AC59531D9720E987C24137E450B23EAEE660D
 ```
 
 

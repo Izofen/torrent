@@ -1,3 +1,84 @@
+###  Публикация: 1379932   (833164) от 03.05.2020
+
+Chad Lawson - Home Sweet Home: The 2018 Lore Variations (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Home Sweet Home (6:25)
+ 02. Knock, Knock (1:42)
+ 03. The Good Neighbor (5:26)
+ 04. A Visit Not Worthy of Attention (8:00)(   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 00:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28BEBD75AE7F4CBD00C232DB0257D9AC3907724
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114338   (833297) от 14.03.2017
+
+Luciano Pavarotti - Los Mayores Tenor Vivo en el Escenario (Live) (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ah, inseparabile ... E'Il sol dell'anima
+02. Un di, se ben rammentomi ... Bella figlia dell'amor
+03. Lunga da lei ... Dei miei bollenti spirit
+04. Che gelida manina(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D282533420B34312269191C6461729BBFDEDAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501276   (833639) от 11.10.2021
+
+VA - Beautiful Piano (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lang Lang - Suite bergamasque, L. 75: 3. Clair de lune (06:47)
+02. Yiruma - Berrylands Rd. (03:43)
+03. Stephan Moccio - Le Temps Qui Passe (03:27)
+04. Sophie Hutchings - Your Heart (05:23)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70CF81984E73841686D6C935483FE86926F58640
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004997   (834160) от 08.04.2016
 
 Narciso Yepes, Melos Quartett - Luigi Boccherini: 3 Gitarren-Quintette (1971) 1990, Deutsche Grammophon [FLAC|Lossless|tracks] <Classical>
@@ -614,84 +695,6 @@ Suite No. 1 in A major - in A-Dur - en la majeur(   Читать дальше...
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4841958D7110F4D8AB6F9D83A95F3BC9ED30DB26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378439   (846532) от 25.04.2020
-
-Sophie Hutchings - Scattered On The Wind (2020) [FLAC 2.0|96/24|tracks|WEB-DL] <Modern Classical, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scattered On The Wind (Pt. 1) [4:54]
- 02. Scattered On The Wind (Pt. 2) [2:32]
- 03. Your Heart [5:24]
- 04. Orange Glow [6:49](   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80AD740C6FA89FB2D4C59D8C1C253232FEBD170C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 192139   (847916) от 14.04.2010
-
-VA - Masters of Classical Music (2008) 10CD [FLAC|Lossless]<Classic>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicПродолжительность: 10:30:42
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002319   (848529) от 31.03.2016
-
-Frederic Chopin - The Complete Works (2008) 16CD, Compilation [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Sonata No 1 in C minor Op 4 [24'46]
-1. Allegro maestoso [8'30]
-2. Menuetto [4'50]
-3. Larghetto [4'41](   Читать дальше...   )Жанр: ClassicalПродолжительность: 19:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D7E42C22F8AF0C4D69956919E854D6ECA9172AC
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1130606   (714328) от 02.05.2017
+
+VA - Synthwave Drive (4CD) от DON Music (2017) [MP3|320 Kbps] <Synthwave, Electronic, Synthpop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance With The Dead - Venom (03:56)
+02. Carpenter Brut - L.A. Venice Bitch 80's (04:11)
+03. Perturbator - Disco Inferno (05:13)
+04. Scandroid - Neo-Tokyo (Dance With The Dead Remix) (05:47)(   Читать дальше...   )Жанр: Synthwave, Electronic, SynthpopПродолжительность: 04:29:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38FF8C69DDABE8A6B2CEFC84AF178A307B95AA2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286120   (714364) от 01.03.2019
 
 VA - Дискотека 2019 Dance Club Vol. 188 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
@@ -666,33 +693,6 @@ VA - Душевный шансон в хорошей компании (4) (2018)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D578409DF6FFDCDD94526380F44E503744F593B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219308   (715729) от 13.04.2018
-
-VA - Экспресс русских хитов на Hit FM (6) (2018) [MP3|256 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715729.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дарья Ануфриева - В Твоих Глазах
-002. Edgar - Я Люблю Твои Глаза
-003. Doggy Doggy - Енот
-004. Паша Панамо - Наши Выходные(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBACD7E2BFA522769C7C02AFFF688A48A4824381
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1091963   (941426) от 10.01.2017
+
+VA - Дискотека зимних дорог. Русские хиты (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941426.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анжелика Варум - Голос 4:43
+002. Sha Man - Я Люблю Ее 3:44
+003. Полиграф Шарикoff (Серега) - Гелик Вани 3:08
+004. Яков Самодуров - Стану Первым 3:42(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2AFDB3DD2381AD2D830055EE8E7A8B7D8A99D8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091641   (941511) от 10.01.2017
 
 VA - LUXEmusic: Dance Super Chart Vol.101 (2017) [MP3|320 Kbps] <House, Mash Up, Club, Dance>
@@ -674,33 +701,6 @@ VA - Атака танцевальной клубной музыки (2013) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8834B9A956853FC1F4036BE994BA89C4DB9902CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091509   (942805) от 09.01.2017
-
-VA - Empire Records - New Age (2016) [MP3|320 Kbps] <New Age, Relax>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barclay & Cream - Loving You (Alexander Metzger Mix)
-02. Vyacheslav Sketch - My Guitar
-03. Anthya - Karma
-04. Ledzh - Down to Cold(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B74AF20A8339CF13D4C61615B39E7EAF95BE2C1
 ```
 
 

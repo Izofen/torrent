@@ -1,3 +1,165 @@
+###  Публикация: 1226153   (657075) от 19.05.2018
+
+VA - Black Hole Trance Music 05-18 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christina Novelli & HAKA - Worlds Collide (Extended Mix)
+02. Clef & Canberra - Wonder Years (Extended Mix)
+03. Marcus Santoro - Whispers (Extended Mix)
+04. Dennis Sheperd & DIM3NSION - Amigos (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E061AB79944B5C43B1B1D972579699325C8A67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226246   (657086) от 19.05.2018
+
+VA - Trance Favorites Episode 013 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dominik Von Francois - 100 States Of Trance (Cosmic Heaven Remix)
+02. Samvel - Arctic Echoes (Mosahar Remix)
+03. AQUADREAMR - Existential (Original Mix)
+04. Noize Compressor - Black & Chrome (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA8B6FFC69AB6353AE5A0278BF740CB261C5543
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226262   (657136) от 19.05.2018
+
+Veselin Tasev - My Universe (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Land Of The Proto-Bulgarians (Original Mix)
+02. My Universe (Original Mix)
+03. Eleven Years (Original Mix)
+04. Fly Of Six Chords (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89CBA2929E6B2083F8ECEFC8A837A7F45B15384B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226187   (657137) от 19.05.2018
+
+DiNT - Hooker (2018) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hooker (05:45)
+ 02. Shovel (05:45)
+ 03. Skewer (10:09)
+ 04. Shovel (Ontal Remix) (04:49)(   Читать дальше...   )Жанр: Techno, Industrial, ExperimentalПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D79D7E400EA573C843699C80341ABC12460D7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539487   (657210) от 26.03.2022
+
+VA - Sports Megamix 2022 [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Spencer - Let It Go (Extended Mix) 4:14
+02. The Disco Boys - Funk Decision (Extended Mix) 4:33
+03. Coca Dillaz - Show Me (Radio Edit) 3:11
+04. Skeeter - Fresh (Original Mix) 5:15(   Читать дальше...   )Жанр: House, DanceПродолжительность: 04:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F0FFA7492D8E48A754C5C8C4E8321FCEEF3C80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539554   (657212) от 26.03.2022
+
+VA - Vocal Trance Hits 2022 Vol 1 [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & Sam Gray - Human Touch (Extended Club Mix) (4:13)
+02. Roger Shah & Sian Evans - Hide U (Jerome Isma-Ae Extended 2022 Remix) (7:48)
+03. AVIRA feat. Sam Martin - Change My World (Extended Mix) (6:46)
+04. Chicane - Sailing (Back Pedal Brakes Extended Remix) (4:15)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:09:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D5F6241DFAB7E124CF3CA6EF0A242CF880988F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539711   (657218) от 26.03.2022
 
 Nickolay Fedorenko - Magic Multiverse: Best of 2011-2017 (2022) [MP3|320 Kbps] <Spacesynth, Spacedisco>
@@ -542,168 +704,6 @@ VA - Endless Music - Balearic Ibiza Grooves Vol.2 (Compiled By Paul Lomax) (2017
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DEDE6973BF019D5D55384FA856C9077C1856141
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139995   (658276) от 04.06.2017
-
-VA - Lounge System Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Acqua Panna - Too Much Heaven 4:12
-02.  Oscar Walker - Reflex (Beach Edit) 3:12
-03.  Richie Alverez - One More Time 5:30
-04.  Jack Funk - Best Love 11:33(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:14:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F65B350CC108A25399FA1437F36F73C8D40F509
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140163   (658277) от 04.06.2017
-
-VA - Strong Stuff (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Following Light - Intention (Michael A Remix) 06:29
-02. Magnetic Brothers - Morning Feelings (K Nass Remix) 07:03
-03. Ewan Rill - Scanners 06:32
-04. Platunoff - Secret 07:09(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2D90A49FBCEF789A7FB01FDF54F1060A0A8AF8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225687   (658828) от 17.05.2018
-
-VA - Best Of Series: Miroslav Vrlik Vol.01 (2018) [MP3|320 Kbps] <Progressive House, House,Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miroslav Vrlik - Another Night (Mark & Lukas Remix)
-02. Miroslav Vrlik - Words Mean Nothing (Original Mix)
-03. Miroslav Vrlik - Pathfinder (Original Mix)
-04. Miroslav Vrlik - Find You (Original Mix)(   Читать дальше...   )Жанр: Progressive House, House,TranceПродолжительность: 01:13:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:112713D3394B7905619DDC02B19B4FC1D6559AD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225679   (658835) от 17.05.2018
-
-VA - Spring Collective 01 (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ametrine - Axyridia (Original Mix)
-02. Anlaya Project - Baltica (Original Mix)
-03. Asioto - Downhearted (Original Mix)
-04. Axxound and Z8phyR - Storybrooke (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:07:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:078070D53CD7AE30A9790D34E3173876ED38CFE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139716   (659004) от 03.06.2017
-
-Teddy Killerz - Nightmare Street (2017) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teddy's Song
-02. Unbelievable
-03. Wasteland (feat. The Qemists)
-04. Bounce(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB8DE4CC4E0E2F842533D080A2D10E6EFD92C20D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139647   (659007) от 03.06.2017
-
-DJ Smash - Smash World (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Intro Robin Bad Theme 2:46
-02.  Love & Pride (feat. Vengerov) 2:55
-03.  Lovers 2 Lovers (feat. Ridley) 2:52
-04.  Cosmos 3:07(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 00:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21BCB5843BC9E39F02133B12243E50B51065B839
 ```
 
 

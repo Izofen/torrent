@@ -1,3 +1,300 @@
+###  Публикация: 1126599   (764330) от 19.04.2017
+
+Blonker - Fantasia (1980) Remastered, 1994 [FLAC|Lossless|image + .cue] <New Age, Ambient, Rock>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aranjuez (4:48)
+ 02. Sidewalk Cafe (3:16)
+ 03. Pavane (4:05)
+ 04. Anak (4:36)(   Читать дальше...   )Жанр: New Age, Ambient, RockПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE5916A2D96AEDF1BC7CB426B352FBF0088ECA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126635   (764479) от 19.04.2017
+
+The Essence - Enigma Lounge (2003) [FLAC|Lossless|tracks + .cue] <Enigmatic, New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wholeness Of The Essence (04:38)
+02. True Sensuality (05:02)
+03. Essence (04:02)
+04. La Vie Rouge (04:04)(   Читать дальше...   )Жанр: Enigmatic, New ageПродолжительность: 01:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C57950BAC6E7E800C0950B1FA8B126BA41D81B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279729   (764544) от 31.01.2019
+
+Ulver - Svidd Neger (Original Motion Picture Soundtrack) (2003) [FLAC|Lossless|tracks + .cue] <Electronic, Soundtrack, Modern Classical>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preface (1:42)
+02. Ante Andante (0:53)
+03. Comedown (2:19)
+04. Surface (3:17)(   Читать дальше...   )Производство: Jester Records – TRICK030Жанр: Electronic, Soundtrack, Modern Classical, Score, AmbientПродолжительность: 00:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133A35C1E4AE0C925F4557605C541C2B9FB80E62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393560   (765432) от 03.07.2020
+
+Jim Brickman - Piano Tributes: Songs Of Carole King (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You've Got A Friend
+02. So Far Away
+03. Up On The Roof
+04. Tapestry(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7228FA7FEF5299D855635BB0B3F51D80EC78D35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125948   (765533) от 18.04.2017
+
+Vin Downes - When The Sea Lets Go (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entwined and Lost
+02. Evening in Berkeley
+03. Morning Red
+04. Dust and Drag(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA9651B332D174ABC779767E1BF2C87A6BBD270
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125453   (765535) от 18.04.2017
+
+The Gordon Brothers - Yoga Planet (2008) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765535.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Gliding In Azure (7:22)
+2.  Cante Libre (5:35)
+3.  Dream Wave (6:06)
+4.  Asana Lounge (8:13)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D676ABAA85425254983F4772E49C49DDF53EDAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521266   (766079) от 01.01.2022
+
+VA - Евгенич (2021) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766079.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Евгенич - Евгенич
+2. Ольга Бузова/Евгенич - Делай как Бузова
+3. Евгенич/Игорь Акинфеев - Акинфей
+4. Евгенич - Миша Галустян(   Читать дальше...   )Жанр: OSTПродолжительность: 00:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2282AEC7337523035E54B7AB7AA3998F65CE2D22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125931   (766387) от 17.04.2017
+
+Макс Эллар Фартушный - Gamers Soundtracks Vol. 2 (2017) Авторская раздача [OGG|~320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В перекрестье прицела [1:58]
+02. Эхо битвы [1:36]
+03. Призыв в бой [1:43]
+04. Фраг мой [2:57](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA8C0707154760955874F6D757761C070094A38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213994   (766545) от 19.03.2018
+
+Хелависа - Люцифераза (2018) [MP3|320 Kbps] <Folk, Folk Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766545.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кракатук
+2. Поверь
+3. Шей
+4. Дорога в огонь(   Читать дальше...   )Жанр: Folk, Folk RockПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CAE6DE14976B955080AF11C215E43F6A24681F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213783   (766556) от 19.03.2018
+
+Richard Clayderman - Ballade pour Adeline (2012) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballade pour Adeline
+02. Couleur tendresse
+03. Les larmes de joie
+04. Pour avoir trop reve(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:497E4C7D79F086A73D2D02F996A111E265E9A755
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279245   (766813) от 28.01.2019
+
+John K. - Romantic Guitar II (2001) [FLAC|Lossless|image + .cue] <Instrumental, GUitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoke Gets In Your Eyes
+02. Unforgettable
+03. Tonight I Celebrate My Love
+04. From The Distant(   Читать дальше...   )Жанр: Instrumental, GUitarПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB0CA91D8C7B39BDAD0BCE0CEFA4CB78E631B91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278824   (766932) от 28.01.2019
 
 c h a p e l s - Repertoire (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
@@ -398,303 +695,6 @@ bethel music - starlight (live) (2017) [MP3|320 Kbps] <Christians, worship>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E9DB40AAB982B00BF26AF48A5B1FBEB59BA3A1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125154   (768807) от 14.04.2017
-
-Sambodhi Prem - Circle of Light (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweetness 07:27
-02. Into the empty sky 05:21
-03. Arohanui - Call me with the Light of Love 05:45
-04. Offering to the Waves 07:12(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7938F3F90826419A0DB66B0546AC04965E4E3783
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125272   (768808) от 14.04.2017
-
-Caroline Reese and the Drifting Fifth - Tenderfoot (2017) [FLAC|Lossless|tracks] <Country,Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Unlocked (3:48)
-02 - Airshow (3:35)
-03 - New Tricks (2:31)
-04 - Snake Eyes (3:06)(   Читать дальше...   )Жанр: Country,FolkПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F5447EAFF0C709E1DA3525325FD2CDABDC509A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392124   (769371) от 25.06.2020
-
-Khruangbin - Mordechai (2020) [FLAC|Lossless|tracks + .cue] <Reggae, Funk, Neo-psychedelia, World>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Class (04:47)
-02. Time (You And I) (05:42)
-03. Connaissais De Face (04:21)
-04. Father Bird, Mother Bird (03:05)(   Читать дальше...   )Жанр: Reggae, Funk, Neo-psychedelia, WorldПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E6F4C3F2B78E37D13A06E5C2F225C3DE080FFB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016565   (769637) от 15.05.2016
-
-Nadama - Waves of Love (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ocean Breeze     05:05
-02. Upon the Water     05:20
-03. Carefree     05:22
-04. Offering of Love     06:08(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 00:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1284F39925C436E563572C3528F3B21F060B6A81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 778903   (769755) от 24.06.2020
-
-David Arkenstone - Frontier (2000) [FLAC|Lossless]<New Age, Soundtrack>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Theme (2:01)
-02. Rogers' Rangers (2:32)
-03. Indian Attack (5:28)
-04. Tippecanoe (2:51)(   Читать дальше...   )Жанр: New Age, SoundtrackПродолжительность: 01:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9864AEA8E9F58AC5908A4A09BF54246066DB032C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 779960   (770202) от 23.04.2014
-
-VA - The Best Tango Album In The World...Ever! (2014) [FLAC|Lossless]<Tango>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Florindo Sassone & His Traditional Orchestra -  Caminito  (2:37)
-02.  Carlos Garcia & His Orchestra -  Mi Buenos Aires Querido  (2:51)
-03.   Iyri Pashali -  Espuma de Champagne   (3:26)
-04.  Alfredo De Angelis & His Orchestra -  El Choclo  (2:31)(   Читать дальше...   )Жанр: TangoПродолжительность: 01:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAEB06B77EACB9D3C90FF79F6667BB93662B9556
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016626   (770336) от 14.05.2016
-
-Greg Maroney - Quiet Piano Improvisations, Vol. 1 (2016) [MP3|320 кб/с] <Instrumental, New Age, Piano solo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waterfall
-02. Spirit Within
-03. Cathedral
-04. Quiet Reverie(   Читать дальше...   )Жанр: Instrumental, New Age, Piano soloПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56BD5E3BA7B6297D3F46A1761F931A979B86849C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277195   (771707) от 25.01.2019
-
-James Last - My Favourites. Die Schonsten Pop-Titel Aus Den Jahren 1989-1993 (1993) [FLAC|Lossless|image + .cue] <Pop, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Living Years
-02. (Everything I Do) I Do It For You
-03. Sacrifice
-04. Careless Whisper(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCECBF6388BD2C1E176B87F34AD981C7CA0F9BF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213037   (771743) от 16.03.2018
-
-VA - Great Melodies From Great Musicals (1999) [MP3|320 Kbps] <Instrumental, Classical, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771743.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The King And I Medely: Getting To Know You/I Whistle A Happy Tune/I Have Dreamed/Shall We Dance? (7:50)
-2. As If We Never Said Goodbye/With One Look From Sunset Boulevard (4:14)
-3. How Are Things in Glocca Morra? From Finian's Rainbow (3:45)
-4. I'm Still Here From Follies (2:54)(   Читать дальше...   )Жанр: Instrumental, Classical, Easy ListeningПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:543E41273136D37CE89EB1051B979B8DAFA6EAC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213070   (771762) от 16.03.2018
-
-The Gino Marinello Orchestra - Guitar Masterpieces (2000) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Private Investigations
-02.Samba Pa Ti
-03.Apache
-04.Telstar(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B37C8E006F961F5DB95495170191317664D732F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278533   (771835) от 25.01.2019
-
-Hilmar Orn Hilmarsson & Sigur Ros - Englar Alheimsins (2001) [FLAC|Lossless|tracks + .cue] <Modern Classical, Score, Post Rock, Minimal, Ambient>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hilmar Örn Hilmarsson - Aðflug / Draumur (03:07)
-02. Hilmar Örn Hilmarsson - Minning (01:56)
-03. Hilmar Örn Hilmarsson - Svarti Hundurinn Og Skoska Leikritið (01:23)
-04. Hilmar Örn Hilmarsson - Niðurlæging (01:19)(   Читать дальше...   )Жанр: Modern Classical, Score, Post Rock, Minimal, AmbientПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C471921BE1BB1B87EE9C15E3B48AD55C88C9625
 ```
 
 

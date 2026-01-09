@@ -1,3 +1,297 @@
+###  Публикация: 1023997   (720303) от 07.06.2016
+
+John Ottman - X-Men: Apocalypse / Люди Икс: Апокалипсис (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apocalypse (03:43)
+02. The Transference (03:50)
+03. Pyramid Collapse / Main Titles (02:25)
+04. Eric's New Life (01:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0357E92259386C875748C50A943E4B6026C136A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129235   (720326) от 29.04.2017
+
+Conjure One [Fake Enigma] - Sleep (2003) [APE|Lossless|image + .cue] <New Age, Downtempo, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damascus 1:59
+02. Center Of The Sun 5:06
+03. Tears From The Moon 4:18
+04. Tidal Pool 6:51(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:19:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBE16ABB3B499C60364A9648F89CE1AF79DCABDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129654   (720439) от 29.04.2017
+
+Deuter - Immortelle (2016) [FLAC|Lossless|tracks] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720439.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Monarda
+ 2. Sonnenbraut
+ 3. Traubensilberkerze
+ 4. Lily of the Valley(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F802343E703FDC1BFD7257E6653BB79D8499E883
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531702   (720540) от 16.02.2022
+
+At The Movies - The Soundtrack Of Your Life - Vol.1 (2020) Reissue, 2022, Atomic Fire [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. No Easy Way Out (Robert Tepper cover From "Rocky IV")
+03. Maniac (Michael Sembello cover From "Flashdance")
+04. St. Elmo's Fire (Man In Motion) (John Parr cover From "St. Elmo's Fire")(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40B19E0FDBCE5B7EE70E0F3F5DDE99421ABF2CF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024032   (720546) от 07.06.2016
+
+Isaac Shepard - Mosaic (2015) [FLAC|Lossless|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sad Romantic [00:04:38]
+02. Forest [00:04:26]
+03. Letting Go [00:02:57]
+04. Hope [00:03:57](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BFFBDBDF77AA83D94D4F978D0C3E5C87E6845BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128936   (720714) от 29.04.2017
+
+Dagda - Celtic Trance (2002) [APE|Lossless|image + .cue] <Tribal, Ambient, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am Celt (Introduction) (1:01)
+02. Oroshay (3:00)
+03. The Primal Gods (2:27)
+04. Celtic Trance (3:55)(   Читать дальше...   )Жанр: Tribal, Ambient, CelticПродолжительность: 00:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64561BE10B804F3D32B99446BAB195CCE861967
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 261497   (720732) от 04.08.2020
+
+VA - Saxophone Hits (3CD Box) (2007) [FLAC|Lossless]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 02:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C29A94DCCD646FCBF50601A66C20C8CB983DAEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 199459   (720740) от 04.08.2020
+
+VA - Ballroom Nights vol.1-2 (4 CD) (2006, 2009) [MP3|256, 320 kbps] <Dance>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Don't Close Your Eyes		(04:24)
+02 - Three Times A Lady			(03:10)
+03 - Stronger Every Minute		(03:24)
+04 - Believe In Miracles		(04:44)(   Читать дальше...   )Жанр: DanceПродолжительность: 04:11:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456B8085FEBD9220A93D0D5CD2B5D64CF0FDC63D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 177414   (720743) от 04.08.2020
+
+Santana - The Best Instrumentals (1995) [APE|Lossless|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samba Pa Ti (C. Santana) (04:36)
+02. Aqua Marine (D. C. Santana - A. Pasqua) (05:31)
+03. Bella (C. Santana - C. Thompson - S. Crew) (04:31)
+04. Flor D'luna (Moonflower) (T. Coaster). (04:50)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F359BDA10C8070A374BF5CD13AADE38F1EF364D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129541   (720783) от 29.04.2017
+
+Jeronimo Jonas - Inner Journey to the Real (2017) [MP3|320 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Being Resonances
+02. Beyond Shapes
+03. The Silence and the Guitar
+04. Automatic Cosmos(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26465500B9DB1D80EE2CBDC64D5186EF51A710F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 258033   (720820) от 04.08.2020
+
+Ottmar Liebert + Luna Negra XL - Little Wing (2001) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agua Fria (Cold Water)	(04:02)
+02. Little Wing			(04:49)
+03. The Girl From Ipanema	(06:31)
+04. Interlude #1: Longing	(01:10)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91FAED298740D8FE93E2FE75A6D9FA01B727816E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 234819   (720826) от 04.08.2020
 
 Pepe & Celin Romero - Famous Spanish Dances (1982) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar Concertos>
@@ -392,300 +686,6 @@ VA - 50 Mindful Sessions Turkish Massage Treatment (2017) [MP3|320 Kbps] <New Ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6501A2E1B1CECBC064578C6C4C2AE5FE63155C64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284589   (724458) от 24.02.2019
-
-Lady Gaga, Bradley Cooper - A Star Is Born Soundtrack (2018) Explicit [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724458.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cast – Intro (00:20)
-2. Bradley Cooper – Black Eyes (03:03)
-3. Cast – Somewhere Over the Rainbow (Dialogue) (00:42)
-4. Cast – Fabulous French (Dialogue) (00:19)(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 01:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8298C227D49AA01FD9263B6F06E2F8043264AA05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023231   (724545) от 05.06.2016
-
-Kyle Landry - 4 альбома (2009-2014) [MP3|196-320 kbps] <Solo piano, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Passion to Sorrow (07:33)
-02 - Lonely (04:40)
-03 - Cheerfulness (01:18)
-04 - Island of Dreams (06:19)(   Читать дальше...   )Жанр: Solo piano, New AgeПродолжительность: 04:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF126D80015DE1F03F025E152AC85AC35B390998
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284987   (724600) от 24.02.2019
-
-VA - Image d'Amour (2001) [MP3|320 Kbps] <Instrumental, Classical>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ennio Morricone - Cinema Paradiso (Love Theme) (3:14)
-02. Taro Hakase - Between Calm and Passion (5:18)
-03. Jazztronik feat. Jadranka - Moon River (3:53)
-04. Utollo Teshikai feat. Miyamoto Fumiaki - Dream (5:14)(   Читать дальше...   )Жанр: Instrumental, ClassicalПродолжительность: 01:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F0A8D4DAA83BCA419D261CCF74F20A4307272D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218261   (724897) от 08.04.2018
-
-Такси 5 / Taxi 5 (2018) [MP3|320 Kbps] <OST, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'Algerino - Va Bene
-02. Ninho - Boite Auto
-03. Lartiste - Attache Ta Ceinture (feat. Naza)
-04. Hamza - Cash(   Читать дальше...   )Жанр: OST, SoundtrackПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FB71DF0DF580579A7DB02B63B04F1F5DB2D22E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399593   (724996) от 02.08.2020
-
-The Royal Philharmonic Orchestra - ABBA Classic (1991) [FLAC|Lossless|tracks + .cue]<Easy Listening, Instrumental Pop>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abbature (4:03)
-02. S.O.S. (4:08)
-03. Mamma Mia (2:27)
-04. Eagle (4:06)(   Читать дальше...   )Жанр: Easy Listening, Instrumental, PopПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F78D970581562511A4FCFFF447032A9D63BABF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218186   (725089) от 08.04.2018
-
-VA - Classical Is Sexy A Rousing Collection Of Homophonic Melodies Vol.1 (2018) [MP3|320 Kbps] <New Age, Classical>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sir Alan Cosmono - Violin Concerto In A Minor 4:27
-02. Trina Marquez - Concerto For Violin in D major op. 61 9:43
-03. Gordon Matsumoto - Brandenburg Concerto 3:24
-04. Lima Musica - Suite In F 3:36(   Читать дальше...   )Жанр: New Age, ClassicalПродолжительность: 02:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB98814C82ADE7344FA842B7E423C97A3AA36CF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667829   (725526) от 14.06.2013
-
-Mike Oldfield - Tubular Bells  (1973) 25th Anniversary Edition, Remaster 2001 [APE|Lossless]<New Age, Progressive Rock>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_725526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New Age, Progressive Rock, Ambient, Art RockПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023023   (725727) от 04.06.2016
-
-Steve Jablonsky - Teenage Mutant Ninja Turtles: Out of the Shadows / Черепашки-ниндзя 2 (Music from the Motion Picture) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Squirrel Formation (03:02)
-02. Shredder (03:38)
-03. Tartaruga Brothers (03:00)
-04. Baxter Stockman (02:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:122837101E08B08A365D33AB4B527A92A306FE12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023012   (726072) от 04.06.2016
-
-Steve Jablonsky - Teenage Mutant Ninja Turtles: Out of the Shadows (Music from the Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Squirrel Formation (03:02)
-02. Shredder (03:38)
-03. Tartaruga Brothers (03:00)
-04. Baxter Stockman (02:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A6DBB8F52BF45108E2088CA6E29C8F0881199A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023199   (726104) от 04.06.2016
-
-Yanni - The Dream Concert: Live from the Great Pyramids of Egypt (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Man's Dream
-02. For All Seasons
-03. Yanni Welcome
-04. Felitsa(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A019B44CDD7A877C3006D08229A4EC6A80D8733
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022993   (726164) от 04.06.2016
-
-Ramin Djawadi - Варкрафт / Warcraft (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warcraft (01:58)
-02. The Horde (03:17)
-03. Medivh (02:43)
-04. Honor (04:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB3161AED7FD40DD1C14B1DD2AC5771E66D4941
 ```
 
 

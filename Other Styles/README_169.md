@@ -1,3 +1,312 @@
+###  Публикация: 286098   (930572) от 24.01.2011
+
+Enrique Ugarte - 2 albums (2001, 2005) [MP3|320 kbps]<Instrumental / Accordeon>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. When Mademoiselle Dich Kubt		    (02:43)
+02. Sauvageonne				    (03:35)
+03. Indiferente				    (03:37)
+04. Valse violette			    (03:34)
+05. Le val joli				    (03:51)
+06. Retour des cirendelles		    (04:14)
+07. Die Prinzession des Akkordeons	    (02:58)
+08. Corinne				    (04:02)
+09. Germaine				    (03:26)
+10. Petite Musette			    (03:07)(   Читать дальше...   )Жанр: Instrumental / AccordeonПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02DE49A2CA350A138EAB38111B7EB0D22AF9F49B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365567   (930679) от 07.03.2020
+
+a noend of mine - Green Sketches (2017) EP [FLAC|Lossless|Web-DL|tracks] <Instrumental, Ambient, Acoustic, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viridian (7:06)
+02. Emerald (4:40)
+03. Ao (3:42)
+04. Midnight Green (5:32)Жанр: Instrumental, Ambient, Acoustic, Piano, Progressive RockПродолжительность: 00:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F3365334683CC04475EBA5268A4B2BDEBC16030
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986467   (930938) от 14.02.2016
+
+Oliver Scheffner - Sunlight Dreams (2015) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Sunshine
+02. Dreams Of Sunbeams
+03. Sunlights On The Calm Lake
+04. Sundown Magic(   Читать дальше...   )Жанр: New Age, ChilloutПродолжительность: 01:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6923982CCA5C05F2C191F700CD3F9FA14C330611
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986634   (931000) от 14.02.2016
+
+John Adorney - The Essential John Adorney (2016) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Potter's Gift
+02. Yilowe
+03. Even in Your Darkest Hour
+04. Dance of the Moon and Stars(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7819CB8D95A44340A82D2162DBBE59529C4F73DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986672   (931010) от 14.02.2016
+
+Mauro Usai and friends - Ethnico (my wind instruments) (2016) [MP3|320 кб/с] <New Age, World, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dijieridoo
+02. Non e semplice
+03. La voce del vento
+04. Tundu(   Читать дальше...   )Жанр: New Age, World, EthnicПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:966B815154842A769D874AA8FBFAA525CF80414B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986480   (931011) от 14.02.2016
+
+MIDIval Punditz - Light (2015) [MP3|320 кб/с] <New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run
+02. Baanwarey
+03. Nadia
+04. Rushing(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C04094EAAEAB9A053EA5C3609F68B06931A1C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 629481   (931349) от 13.03.2013
+
+Tomb Raider 1-5 - Music PS collection +Bonus (1996-2000) [MP3|320 кб/с]<GameRip,Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: GameRip,SoundtrackПродолжительность: 01:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF586AAB92584B6358986A1172ACC0538D2C256C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 754518   (931511) от 08.02.2014
+
+Troika (David Arkenstone) - Kingdom of the Sun (2003) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. The Chariot (6:24)
+02. Sister of the Sun (5:07)
+03. The Messenger (5:58)
+04. Goddess of Love (4:45)
+05. The Warrior (5:08)
+06. The Giant (5:04)
+07. The Emperor (5:08)
+08. The Blue Titan (5:25)
+09. God of the Sea (4:50)
+10. God of the Shadows (5:33)Жанр: New AgeПродолжительность: 00:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00EF78907F4A3E28AB9FC619EA9E9AA22E1E60A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 629451   (931555) от 13.03.2013
+
+Jesper Kyd - Darksiders 2 (2CD) (2012) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: OSTПродолжительность: 01:23:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCEB4ACC354874A8EC52B6BB2B7CFE18AB351A52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 629761   (931913) от 13.03.2013
+
+Wolfsheart - The Call of the Canyons (2010) [MP3|320 кб/с]<New Age, Native American, Instrumental, Flute>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(5:23) 01. The Call of the Canyons
+(4:56) 02. Southwest Skies
+(5:41) 03. Monument Valley Shadows
+(4:37) 04. Dancing Rocks
+(5:51) 05. Kokopelli Dreams
+(4:12) 06. Saguaro Sunset
+(4:52) 07. Eagles Challenge
+(5:07) 08. Rainbow Over Canyon
+(5:40) 09. My Crow Heart (Whispering Winds of Love)
+(5:05) 10. Sunrise at Four Corners(   Читать дальше...   )Жанр: New Age, Native American, Instrumental, FluteПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA02B55D354751F094D1B5BE92ADE98443691C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364755   (931971) от 06.03.2020
+
+Fly Project - 50 Indian Spirit (2015) [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sioux
+02. South America's Dream
+03. Toro Seduto
+04. Terra del fuoco(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 03:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D40885C0E2DE8E1F3BA8A1D53F1BD3A994B14C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 175887   (932044) от 20.02.2010
 
 VA - Дорогой Джон / Dear John (Original Motion Picture Soundtrack) (2010) [MP3|320 kbps]<Soundtrack>
@@ -436,326 +745,6 @@ Ben Chasny (Six Organs of Admittance, Comets on Fire) - Discography (37 albums) 
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284905   (933643) от 22.01.2011
-
-VA - Рапунцель: Запутанная история / Tangled (2010) [MP3|192-320 kbps]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: OSTПродолжительность: 00:55:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D336CA46544616EB2C77BC9C29F6C071A0C33E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628968   (933657) от 12.03.2013
-
-Cliff Martinez - Solaris (2002) [MP3|192 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-[02:48] 01.Is That What Everybody Else Wants
-[02:52] 02.First Sleep
-[01:44] 03.Can I Sit Next To You
-[05:00] 04.Will She Come Back
-[02:09] 05.Death Shall Have Nno Dominion
-[03:50] 06.maybe you're my puppet
-[03:34] 07.Don't Blow It
-[10:51] 08.hi energy proton accelerator
-[03:10] 09.Wear Your Seat Belt
-[04:33] 10.wormhole(   Читать дальше...   )Жанр: OSTПродолжительность: 00:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AAD1EAEA8C05CA0C7314A9E0AD01BDD1C8DAC39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285039   (933783) от 22.01.2011
-
-VA - Swing Accordion (2008) [MP3|320 kbps]<Swing>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Clifton Chenier - Bogalusa boogie
-02. Clifton Chenier - Choo choo ch-boogie
-03. Bruno Lorenzoni - Cool en cadence
-04. Clifton Chenier - Cotton-Picker blues
-05. Roland Cedermark - Creol jazz
-06. Richard Galliano - Fou rire
-07. Jan Holland - Guter mound du gehst so stille
-08. Борис Тихонов - Интермеццо
-09. Hector Delfosse - Joyeux accordeoniste
-10. Raul Barboza, Daniel Colin - Moulin a cafe(   Читать дальше...   )Жанр: SwingПродолжительность: 01:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7018CAB04AE30258EE7F976089E652EA9028325
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093165   (933897) от 15.01.2017
-
-Chinmaya Dunster - Gaia's Garden (2017) [MP3|320 Kbps] <World, Instrumental, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ocean Emotions
-02. Rainstorm
-03. Blessing from the Ancient Trees
-04. Springing from the Mountains(   Читать дальше...   )Жанр: World, Instrumental, New AgeПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B1FA8F73C60A24305308C1D5FA7A3671233E99F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984916   (934092) от 12.02.2016
-
-VA - Lo Mejor Del Folklore Canario (2008) [FLAC|Lossless|tracks + .cue] <Folklore, Latino>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tasaigo - Coplas Pal Vino (4:50)
-02. Los Sabandenos - Tanganillo de Estevanez (2:11)
-03. Tasaigo - Andres (3:00)
-04. Achaman - Polca Envenenada (5:33)(   Читать дальше...   )Жанр: Folklore, LatinoПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B6C8A1DB9AC02A9D5A4457E816BB4A5F17F5A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 233622   (934182) от 20.01.2015
-
-Prem Joshua - 18 альбомов (1991 - 2014) [MP3|160-320 kbps]<World, New age, Ethnic, Fusion>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-
-2014 - Kashi. Songs From the India Within (with Chintan) --- добавлен 18.01.2015
-2010 - Luminous Secrets (with Band)
-2008 - In Concert (with Band)
-2006 - Taranga
-2006 - Ahir (with Chintan)
-2005 - Yatri - Mystics of Sound
-2003 - Water Down the Ganges (with Manish Vyas)
-2003 - Shiva Moon (Remixed by Maneesh De Moor)(   Читать дальше...   )Жанр: World, New age, Ethnic, FusionПродолжительность: 17:26:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB1091317CB88BBEEE2A7B584D1820F8A1A6DD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 658275   (934484) от 20.01.2015
-
-Timothy Wenzel - 4 альбома (2011-2014) [MP3|320 кб/с]<New age, Relax, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-
-2011 - A Coalescence of Dreams
-2012 - Mountains Take Wing
-2013 - River Serene
-2014 - Summon The Wind - добавлен 18.01.2015Жанр: New age, Relax, CelticПродолжительность: 03:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38509A32A7EE3FC48ACA66F2F470AC8882E11C13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860903   (934637) от 20.01.2015
-
-The Secret Sisters - Put Your Needle Down (2014) [FLAC|Lossless]<Country, Pop-Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Rattle My Bones - 03:41
-02. Iuka - 04:42
-03. Dirty Lie - 02:55
-04. The Pocket Knife - 04:34
-05. Let There Be Lonely - 03:10
-06. Black And Blue - 03:31
-07. Lonely Island - 02:32
-08. I Cannot Find A Way - 03:13
-09. If I Don't - 03:53
-10. Good Luck, Good Night, Goodbye - 03:34(   Читать дальше...   )Жанр: Country, Pop-RockПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B3A3D62C4527E359E7ECC852DB3BE2283F0F209
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 176555   (934721) от 18.02.2010
-
-Lawerence Fritts - Blues Backing Tracks (2006) [MP3|192 kbps]<Blues>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Blues
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 861140   (934758) от 20.01.2015
-
-Samaya - Loka Samasta (2015) [MP3|320 кб/с]<New age, Mantras, Vocal>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(03:23) 01. Sarva Mangala Mangalye
-(02:52) 02. Saishvaraya Vidmahe
-(05:46) 03. Om Sri Jesuse
-(05:02) 04. Om Sri Durgaye Namaha
-(04:33) 05. Om Shreem Hreem Kleem
-(04:42) 06. Om Kaaram Bindu
-(04:02) 07. Oh Sweetest Lord Sai
-(02:39) 08. Oh Mata
-(04:09) 09. Oh Ma
-(05:57) 10. Loka Samasta(   Читать дальше...   )Жанр: New age, Mantras, VocalПродолжительность: 01:00:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81299435CC0FE4B4CB4DE81FB3F69A15E6032B73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753899   (934759) от 06.02.2014
-
-Move D - The Silent Orbiter (2014) [FLAC|Lossless]<Ambient, Experimental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. The Silent Orbiter (54:06)Жанр: Ambient, ExperimentalПродолжительность: 00:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFFD7E156CD4E2F12DC543B06FC0C08FC5408316
 ```
 
 

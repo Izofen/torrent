@@ -1,3 +1,30 @@
+###  Публикация: 1289331   (686623) от 16.03.2019
+
+Bonnie Tyler - Between The Earth And The Stars (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold On
+02. Battle Of The Sexes (Duet with Rod Stewart)
+03. Slow Walk
+04. Seven Waves Away(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE10FA71B2FD3C64681B025547881515BD2531F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289433   (686626) от 16.03.2019
 
 Rozalén - Cerrando Puntos Suspensivos (2018) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
@@ -670,33 +697,6 @@ VA - 100% Hits Vol. 1 (2016) Box Set [FLAC|Lossless|tracks + .cue] <Pop, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E43E1F2E32F0B59314AA36FA1C783FA2826A3E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 895299   (701015) от 05.05.2015
-
-Lara Fabian - Essential (2015) [FLAC|Lossless]<Pop, Classical Crossover>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voce
-02. Tu t’en vas
-03. Tout
-04. Je t’aime(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5558150FCD5F39D76529CFE0FE42D5BB35A1D857
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1011613   (796400) от 28.04.2016
+
+VA - Top 40 Hits Music April Work (2016) [MP3|320 кб/с] <Electro, Bigroom, Bounce, Bassline, Moombahton>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pexot Pey - Are You Ready (Original Mix) 03:41
+02. Ummet Ozcan - Spacecats (Extended Mix) 04:30
+03. Hardwell & Kura - Calavera (Extended Mix) 03:50
+04. Team Bastian & Jake Tarry - Chainsaw (Original Mix) 05:20(   Читать дальше...   )Жанр: Electro, Bigroom, Bounce, Bassline, MoombahtonПродолжительность: 03:22:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8993A78B987ACF83CFCF09DD34763E716DD2D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200481   (796425) от 20.01.2018
 
 VA - The Official UK Top 40 Singles Chart 19.01.2018 [MP3|320 Kbps] <Electropop, Alternative, Other>
@@ -668,33 +695,6 @@ VA - BacauHouseMafia vol.12 (2016) [MP3|128-320 кб/с] <House, Trance, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EB65513B0B9E8173FE55CBF821E40855B75EB8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011289   (797020) от 27.04.2016
-
-VA - Romantic Flight In A Dream (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kenny Dickenson - Goldenflower
-02. Florito - Funny Valentine
-03. Nova Casa - You Get Me (feat. Nathalia)
-04. Jan Liesefeld - Americana(   Читать дальше...   )Жанр: Downtempo, Chillout, Lounge, RelaxПродолжительность: 03:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9FAC07987CDA5C3CE4FB590D0EF7EE3A9CC7FB5
 ```
 
 

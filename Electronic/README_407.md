@@ -1,3 +1,165 @@
+###  Публикация: 1276479   (788192) от 16.01.2019
+
+VA - Winter Sessions 2019 (Mixed by Milk and Sugar) (2019) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasing Kurt - Let It Run (Organ Version)
+02. Arco - Touch The Sun (Original Mix)
+03. D'al Senio - A Thought In Your Mind (Vocals By Jammaroots)
+04. Francesco Poggi Feat Ida Flo - I Need Your Lovin (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C942268741B97F8AD4068B42EE5E0BB36BC7FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276196   (788198) от 16.01.2019
+
+VA - Drinks at Sunset, Vol. 3 (2019) [MP3|320 Kbps] <Electro, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Hammock - Speak Of The Mind
+02. Spoq - Scratch
+03. Dub Mars - No Time To Lose
+04. Stuce The Sketch - Resonating Love(   Читать дальше...   )Жанр: Electro, DowntempoПродолжительность: 02:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39E4898F9978E7C637E3EF35AC7F93D20949C705
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203430   (788207) от 02.02.2018
+
+VA - Arabian Shisha Lounge Vol.3 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Christos Fourkis  -  Summer Escape (Original Mix)  6:44
+02.  Dormidontov  -  Love You (Original Mix)  7:10
+03.  Dany Cohiba  -  Afro Civilization (Original Mix)  5:56
+04.  Urban Phunk Society  -  Night Train (Original Mix)  3:21(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC20E7C37303D5D2CCA7E23B9492168AF345C34B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203453   (788211) от 02.02.2018
+
+VA - Markus Schulz - Global DJ Broadcast 2 Hour Mix (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elevation presents Elara - Meridian (World Premiere)
+02. Markus Schulz presents Dakota - Cafe Del Mar
+03. Stoneface & Terminal - Covenant
+04. Giuseppe Ottaviani - Till the Sunrise (Global Selection)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8179E870BB0496E6141C5389920D90201B306C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203405   (788217) от 02.02.2018
+
+VA - Big Party: EDM Anthems (2018) [MP3|320 Kbps] <House, Melbourne Bounce, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Turbotronic  -  JOA (Original Mix)  4:30
+02.  Maarten Van Larsen, Harlie & Charper  -  Woodoorave (Extended Mix)  4:24
+03.  DJ MNS vs. E-Maxx  -  Night Train (Harlie & Charper Remix)  3:48
+04.  Turbotronic  -  Show Me The Money (Original Mix)  4:13(   Читать дальше...   )Жанр: House, Melbourne Bounce, ClubПродолжительность: 02:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52BBA4124C9C61FDD70136447BA963C291B389F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276592   (788221) от 16.01.2019
+
+VA - Markus Schulz - Global DJ Broadcast - New Year's Rehab (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tim Green - Her Future Ghost
+02. Tonal Axis - Rainfall (Monoverse Remix)
+03. Louis Botella - Sueno Latino (Paradise Slave Mix)
+04. Hernan Cattaneo & Lonya - Confession(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5390D1CC956E686A832D9AB180A3E36A44A35659
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276610   (788223) от 16.01.2019
 
 VA - Best Of Trancer 2018 (Mixed by Nick Turner) (2018) [MP3|320 Kbps] <Trance>
@@ -533,168 +695,6 @@ Rational Youth - канадская синти-поп группа, была с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1895973BE49113CC3B8E16922642915E3B3C4A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202593   (789025) от 31.01.2018
-
-Cj Rcm - Vol.1 Legends Of Chillout Music (2018) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Autumn (Original Mix)  4:44
-02.  Chronicle (Chillout Mix)  4:18
-03.  Lullaby For The Sun (Original Mix)  6:17
-04.  Ai-Ai Bopem Chillout Remix  6:44(   Читать дальше...   )Жанр: Downtempo, Chillout, ElectronicПродолжительность: 01:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96F17E654E9D977A4DFD8A7D72F7D11FA7BD02E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203048   (789030) от 31.01.2018
-
-Tor - Blue Book (2016) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Trip Hop, Chillstep>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:05)
- 02. Two Suns (04:34)
- 03. Loop Theory (03:33)
- 04. Days Gone (04:26)(   Читать дальше...   )Жанр: Downtempo, Trip Hop, ChillstepПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1767C0869E8616EDE0C38118F8B3CB8877DC723
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276178   (789039) от 14.01.2019
-
-VA - Mama Thresl, Vol.1: Urban Soul meets the Alps (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downbeat>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endless Mountain - Deep Intro (feat Malou) [01:13]
-02. Satori - Days Without You (feat Miou Amadee - Crussen remix)[11:25]
-03. Escenda - Out Of Moves [05:08]
-04. Terranova - Prayer (feat Nicolette Krebitz & Udo Kier - Gui Boratto mix)[06:48](   Читать дальше...   )Жанр: Deep House, Tech House, DownbeatПродолжительность: 02:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D44BC8ED1B71DBC4B6BE3E334EF0C76B1471DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275941   (789043) от 14.01.2019
-
-Ross From Friends - Family Portrait (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Lo-Fi, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Birthday Nick
-02. Thank God I'm A Lizard
-03. Wear Me Down
-04. The Knife(   Читать дальше...   )Жанр: House, Deep House, Lo-Fi, Tech HouseПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A32C711E3DF7379C410554488CC96E27A9601D40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276071   (789048) от 14.01.2019
-
-VA - Dance Mix Vol.1 (2019) [MP3|320 Kbps] <House, Deep House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dynamic David feat. Livrer - Summer Breeze (Original Mix) 5:26
-02. Urban Trip - Last Days Of Summer (Original Mix) 5:43
-03. Shurik - Eternity (Original Vip Mix) 5:31
-04. A.M.X - Hot Summer (Original Groove Mix) 5:36(   Читать дальше...   )Жанр: House, Deep House, Progressive HouseПродолжительность: 02:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670BED82D79A2FAD71CDD911679192D4530DE99D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276126   (789049) от 14.01.2019
-
-VA - Dance Mix Vol 3 (2019) [MP3|320 Kbps] <House, Dance, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Royal Music Paris - See What You Show Me (Original Mix) 6:45
-02. Davit Barqaia - F k What U Heard (Original Mix) 4:17
-03. Kevi Anavi - What's Up (Original Mix) 5:43
-04. Mimmo Menga - Say What (Original Mix) 6:23(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5CA830A2B0E7A7F8C733903F7B609D0A3411A00
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1498631   (852733) от 29.09.2021
+
+Charlotte de Witte b2b Enrico Sangiuliano - The Age Of Love Stream (2021-08-12) [MP3|320 Kbps] <Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christian Andersen - A Storm Is Coming
+02. Luca Agnelli - Blow
+03. Other Form - Further Still
+04. Mattia Saviolo - Sentinella Meccania(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E625205F294B43E0FA01AC89662FFD178F58AEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498930   (852746) от 29.09.2021
+
+VA - Before Sunset: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Hiska - Sandy (feat Michael Moses) (4:48)
+02. Dacosta - Sunset Boulevard (4:16)
+03. Matej Blanusa - Beginning (Medani Pieck) (3:58)
+04. Digby Jones - El Corazon (3:44)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C09F29BB3D314D734E4EA843C457DE9ED9BE344
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377227   (853278) от 21.04.2020
+
+Peter Pearson - Under the Spell (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853278.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. In My Dreams	06:00
+2. Tripping with the Stars	04:13
+3. To the Hills	04:36
+4. Seasons Change	05:22(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6824E8407F27C37DD3F6E13F9867A2B22F6EE868
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377229   (853563) от 21.04.2020
+
+VA - Goa Culture - Season 3 (Compiled by Magnifico) (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853563.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. One Function - Yantra (8:17)
+2. Stayos - Gaya (8:11)
+3. Tristate - Nevermore (8:59)
+4. Space Hypnose; Atacama - Zodiac (8:00)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A385A962AAE8F04942B1F75DF34F07CBD4DE7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376865   (853565) от 21.04.2020
+
+Cyan - Transmission (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853565.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Space Cadet (5:58)
+2. Nibiru (8:17)
+3. Galactica (7:32)
+4. Another Level (8:10)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38BE617C4BBBA509DECFCF382C6BCACAC8966CAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377286   (853663) от 21.04.2020
+
+VA - Workout in Da House (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anderblast - Systema
+02. Anderblast and Dark Drake - Elements
+03. Anderblast and Nari and Milani - Fire
+04. Anderblast - Proton(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:21:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E729A839911B1BEB724ED801DE5C8238AD6FF21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001446   (853697) от 28.03.2016
 
 Jan Blomqvist - Remote Control (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House>
@@ -533,164 +695,6 @@ VA - Espace au Jardin: Edition Bleu. Mixed By Kolibri Musique (2017) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FECF3DDE9CD7DAAEFFCF9D146F00F26BD59F033E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110079   (855758) от 01.03.2017
-
-VA - Canary Islands Chillout Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855758.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ocean Mind - Culture Flow 5:13
-002. Schwarz & Funk - Hollywood Affair - Remastered 6:49
-003. Bahia de Roses - Quem Sera 2:48
-004. Joxephad - Desire to Dream 5:24(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1AABF19C190A3DD323DA4C66E42B7097B78E5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592502   (855865) от 23.04.2013
-
-VA - ATB - The DJ 1 - 6 In The Mix (2004 - 2010) [FLAC|Lossless]<Trance , Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855865.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - ATB - The DJ 1 - 6 In The Mix (2004 - 2010)
-Год: 2004 - 2010
-Жанр: Trance , Progressive Trance(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875708   (856351) от 07.03.2015
-
-VA - Acoustic Lounge Essentials Vol 1-3 (2014-2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dinah Eastwood - Back in Black [03:46]
-02. Sound Behaviour - Call Me [02:58]
-03. Rever Sound - That's All [04:31]
-04. Stereo Dub - Who Can It Be Now? (feat. Karen Souza) [03:19](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:071D6D962D01A2749F0085F817019DF9F7F2F415
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 850633   (856567) от 19.04.2020
-
-Natalia Zamilska - Discography 10 Releases (2014-2020) Mik.Musik.!., Untuned Records [FLAC|Lossless|WEB-DL|tracks]<Techno, Industrial, Glitch, Tribal, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue Live (03:25)Тип издания: WEBЖанр: Techno/IndustrialПродолжительность: 00:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:019D7D224F22F65C753E2D3EF7709F7E2046CD76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034805   (856674) от 19.04.2020
-
-Justin Gain - Techno Ebola (2016) [FLAC|Lossless|image + .cue] <Techno, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aney F. - Something In The Room With Me
-02. E.T.H (Italy) - Reesha
-03. Orlando Tosi, Niccolo Borgi - Bilaterale
-04. Aney F. - Turn It On(   Читать дальше...   )Жанр: Techno, Deep HouseПродолжительность: 01:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5312019892D891D25AECB2E5EE1108DC78FEBD54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376851   (856774) от 19.04.2020
-
-VA - Erotic Chill (2020) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856774.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.THP - The Time Is Coming (4:57)
-2.Lost Dreams - Supreme Gil (3:48)
-3.L D V Project - Gonna Fly Now (6:29)
-4.Connor Evans - Antidax (5:21)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5BD671B73C22F74A2942C29C93DF82DECD277D7
 ```
 
 

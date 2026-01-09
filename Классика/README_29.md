@@ -347,6 +347,63 @@ magnet:?xt=urn:btih:7CA48CF96444CE9C26F465ECDEA6ED56E1664253
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 220894   (612757) от 25.07.2010
+
+Tomazzo Albinoni - Музыка, неподвластная времени (2007) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_612757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicalПродолжительность: 01:10:01
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524302   (612930) от 18.07.2012
+
+Jon Lord - Durham Concerto (2007) [WavPack|Lossless]<Classical, Contemporary>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_612930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1: Morning
+1 The Cathedral At Dawn [11:31]
+2 Durham Awakes [08:25]
+
+Part 2: Afternoon
+3 The Road From Lindisfarne [07:18]
+4 From Prebends Bridge [08:27]
+
+Part 3: Evening
+5 Rags & Galas [08:25](   Читать дальше...   )Жанр: Classical, ContemporaryПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 524179   (613053) от 18.07.2012
 
 Wolfgang Amadeus Mozart – Gran Partita K.361, Wind Pieces K.484b, K.410, K.411, K.580a, K.487: Nachtmusique solo clarinet Eric Hoeprich (2001)/2011, Glossa/[FLAC|Lossless]<Chamber>
@@ -657,60 +714,6 @@ Hesperion XXI, Jordi Savall, Manfredo Kraemer, Rolf Lislevand, Michael Behringer
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4670EFADCEAA58F0D7AEDE27D6C001058192D890
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036896   (617063) от 22.07.2016
-
-Barry Wordsworth & Capella Istropolitana - Mozart: Overtures (1988) Naxos, 1989 [APE|Lossless|image + .cue] <Classical, Orchestral>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apollo Et Hyacinthus K.38    03:11
-02. Bastien und Bastienne K.50    02:04
-03. Mitridate, re di Ponto K.87, Allegro    02:16
-04. Mitridate, re di Ponto K.87, Andante Grazioso    01:58(   Читать дальше...   )Жанр: Classical, OrchestralПродолжительность: 01:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BFBC1DF51D597A24C3E6589E7AFB97EF9779416
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911471   (617679) от 22.06.2015
-
-Johann Sebastian Bach - Cafe Zimmermann vol. I-VI, autentic, 6CD (2001-2011) [WavPack|ISO.wv]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский ансамбль старинной музыки, основан в 1998 году, во Франции (France). Скрипачем и концертмейстером Пабло Валетти, аргентинцем по происхождению, и французской исполнительницей на клавесине - Селин Фриш.01. Ouverture No. 4 en Re Majeur, BWV 1069; I. Ouverture (11:12)
-02. II. Bourree I & II (02:56)
-03. III. Gavotte (01:46)
-04. IV. Menuet I & II (03:21)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 06:17:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA7624B01555F7F4E1B58453BACB5152413415D
 ```
 
 

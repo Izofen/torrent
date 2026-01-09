@@ -1,3 +1,251 @@
+###  Публикация: 1541151   (646852) от 02.04.2022
+
+Britney Spears - Circus (2008) Deluxe Version [FLAC 2.0|44.1/24|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Womanizer
+02. Circus
+03. Out From Under
+04. Kill The Lights(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CAEEDE1C98C1897368BAE0B6894A1A02A8DB7EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540874   (646857) от 02.04.2022
+
+Mad Show Boys - Чудо из ниоткуда (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Омерзительный сосед (4:08)
+02.Фея лени (3:01)
+03.Люблю ролевика (3:49)
+04.Оптимистюшки (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2450D3C8F90307813E3114402DF0E8437B9287E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517161   (646860) от 01.07.2012
+
+Владимир Пресняков - Лучшая Коллекция (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Стюардесса по имени Жанна
+ 02.Ночкой темной
+ 03.Курочка Ряба
+ 04.Ночной звонок
+ 05.Ты скажи
+ 06.Недотрога
+ 07.Падший ангел
+ 08.Острова
+ 09.Дождь
+ 10.Ты сделана из огня(   Читать дальше...   )Жанр: PopПродолжительность: 02:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009CB2478A5EF00F570649CA78D93ED581442902
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292458   (646920) от 29.03.2019
+
+Amy Correia - Christmas in L.A. (2000) Single [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christmas in L.A. (feat. The Tinseltown Tabernacle Choir) (4:15)Жанр: PopПродолжительность: 00:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AEFDE6CA5AFE1F41EFCD6BFC457C5CB071053B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541291   (646938) от 02.04.2022
+
+Famous Groupies - Rehearsing The Multiverse (2019) 2020,  ATOZ [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Bury Me 3:55
+02. Wouldn't That Be Lovely 1:39
+03. We All Fall Down 2:22
+04. Tonight 0:31(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:614713B4DDD67011F3659F9F16752A5B6FF7D621
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516946   (647145) от 01.07.2012
+
+Ранетки - Верните Ранеток!!! (2012) [MP3|320 kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ревность (03:28)
+02. Кукла (04:25)
+03. Верните наш рок-н-ролл (02:30)
+04. Я тебя найду (03:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80C5B40F1910CA54FF23BBDCD0E6B3518B605235
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517524   (647147) от 01.07.2012
+
+Flo Rida - Wild Ones (2012) [MP3|320 кб/с]<Pop, Dance, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whistle
+02. Wild Ones (feat. Sia)
+03. Let It Roll
+04. Good Feeling
+05. In My Mind, Pt. 2 (feat. Georgi Kay)
+06. Sweet Spot (feat. Jennifer Lopez)
+07. Thinking Of You
+08. I Cry
+09. Run (feat. RedFoo of LMFAO)Жанр: Pop, Dance, R&BПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13306F1CB388651C3B0C310D5FCE42A9FA244C75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032142   (647374) от 06.07.2016
+
+VA - Disco Хиты 80 - 90. Выпуск 3 (2008) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Технология / Полчаса [3:22]
+02 - Комбинация / American Boy [4:43]
+03 - Рома Жуков / Млечный путь [4:28]
+04 - Мираж / Скорость [4:20](   Читать дальше...   )Жанр: PopПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D888A8B3E8C008AB9D3CC60BF1D240F8B18BF07E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516957   (647397) от 01.07.2012
+
+Donna Summer - Memorial Mix Bootleg (2012) [MP3|320 кб/с]<Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647397.jpg" />
+</div>
+
+
+###  Подробнее
+
+N/AЖанр: DiscoПродолжительность: 01:19:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:500B33858116CBFC52B41373FBDDE98327014D55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032111   (647524) от 06.07.2016
 
 Фристайл - И новое и лучшее (1994) [FLAC|Lossless|image + .cue] <Pop>
@@ -470,246 +718,6 @@ magnet:?xt=urn:btih:5676F4B9E2A5243FF51B123A5F4527CF71CDB8CD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEE276E87666349CCE0D0EEC3381A085476CD209
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292169   (648623) от 28.03.2019
-
-The Palladium Singers - 100 Hits from the Musicals (2007) Box Set, 5CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Cover, Stage & Screen>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Cover, Stage & ScreenПродолжительность: 05:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B5814B873FC469B8181553C458393A2F97C43D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292071   (648628) от 28.03.2019
-
-VA - 100 Greatest Sad Songs (2019) [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648628.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Clean Bandit feat. Julia Michaels - I Miss You (Acoustic)
-002. Gnash feat. Olivia O'Brien - i hate u, i love u
-003. All Saints - Never Ever
-004. Coldplay, Seeb - Fix You(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 06:29:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87EC59F48E4344851A07201FD6B2D2E079B73F58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292231   (648741) от 28.03.2019
-
-Barbra Streisand - I Can Get It for You Wholesale (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Funny Thing Happened
-02. A Gift Today
-03. Ballad of the Garment Trade
-04. Eat a Little Something(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:702F4558046930B09A295544D214EFFD74B86656
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292050   (648746) от 28.03.2019
-
-VA - Après Ski Top 100 (2019) 4CD [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648746.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Armin Van Buuren - Blah Blah Blah
-02. De Alpenzusjes - Naar Voren, Naar Achter (Tu Tu Song)
-03. Gebroeders Ko - Schatje Mag Ik Je Foto_(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 05:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18CCE8915073E359E61EE9D44F2F7D070DB6BBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292255   (648755) от 28.03.2019
-
-VA - Les Inrockuptibles: La bande-son du printemps 2019 (2019) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malik Djoudi - Epouser la nuit [3:37]
-02. Fontaines D.C. - Roy's tune [3:00]
-03. These new puritans - Into the fire [3:42]
-04. The psychotic monks - Closure [3:49](   Читать дальше...   )Жанр: PopПродолжительность: 01:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0444D29082C6E72618F887E33E789704ECFF776
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291913   (648843) от 28.03.2019
-
-B. Fleischmann - Stop Making Fans (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Comes The A Train
-02. You're The Spring
-03. We've Heard The Talking Heads Talking
-04. There Is A Head(   Читать дальше...   )Жанр: Electronic, Pop, Indie PopПродолжительность: 01:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A99464265331D8BFBED0B99E0BD1B9AF7BC6C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292155   (648848) от 28.03.2019
-
-VA - Dancefloor Annual (2019) Explicit [MP3|320 Kbps] <Electropop, Dance, Futurepop, Tropical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648848.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01- Alesso - Remedy
-02- Sean Paul And David Guetta Feat. Becky G - Mad Love
-03- Zedd And Elley Duhe - Happy Now(   Читать дальше...   )Жанр: Electropop, Dance, Futurepop, TropicalПродолжительность: 02:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:431EF4A89CD1C110068AF3E8CBFAA74F3A59AE4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032012   (649121) от 05.07.2016
-
-Натали - О, Боже, какой мужчина! (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Володя
-02. Замуж за лето
-03. Платье на бретелях
-04. Шахерезада(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8809C5510774C8059F513D65F3C124314FE22F02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032015   (649325) от 05.07.2016
-
-Натали - О, Боже, какой мужчина! (2016) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Володя
-02. Замуж за лето
-03. Платье на бретелях
-04. Шахерезада(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B13376EF8FDF2EC7950C1E3FBA78FC30D7E86C
 ```
 
 

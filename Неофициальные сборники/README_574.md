@@ -1,3 +1,30 @@
+###  Публикация: 1107679   (866479) от 23.02.2017
+
+VA - I Love Music! - Experimental Edition Vol. 10 (2017) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866479.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Airform - Dream (Chillout Mix) 6:39
+002. AOXA - Floating Memories (Original Mix) 3:54
+003. AOXA - Shining Aurora (Original Mix) 3:34
+004. Belle, Krono - We Are So Animal (feat. Belle) (Original Mix) 2:49(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:384A5BE220B3C5FDF7CE213F5DEC81C38E107B9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107537   (866480) от 23.02.2017
 
 VA - Лучший русский шансон. Выпуск № 2 (2017) [MP3|256 Kbps] <Шансон>
@@ -674,33 +701,6 @@ VA - Flight Of The Soul Vol.52 (2016) [MP3|320 кб/с] <Chillout, Downtempo, Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:962D47AFA2AE8F5ABA96CF84CAFB93B0DC967001
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997837   (868442) от 20.03.2016
-
-VA - The Very Best of Latin Jazz (2016) [MP3|320 кб/с] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quincy Jones- Soul Bossa Nova
-02. Herbie Hancock- Watermelon Man
-03. Joao Gilberto- Um Abraco no Bonfa
-04. Luiz Bonfa- Samba de Duas Notas(   Читать дальше...   )Жанр: JazzПродолжительность: 03:16:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99BD297AC6A95DD52F53E60162A86EC9A9A0DC92
 ```
 
 

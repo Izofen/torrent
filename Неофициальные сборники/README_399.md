@@ -1,3 +1,30 @@
+###  Публикация: 1141723   (647936) от 11.06.2017
+
+VA - Massive Summer Dance Hit (2017) [MP3|256-320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647936.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Club Tuner - Get The Bass Louder (Club Mix)
+002. DJ Gollum feat. DJ Cap vs. 89ers - Heart Ahead (Easter Rave Hymn 2017)
+003. Funky Choad - Tuesday (Bonkerz Remix)
+004. Mario Lopez - Sadness (G Gabriel Black Remix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 08:27:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB8BFDF3D5D654B4F9CEF7EB02F2D2EC0A63F0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032173   (648015) от 06.07.2016
 
 VA - Зарубежная Дискотека ХХ Века - 64 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
@@ -671,33 +698,6 @@ VA - Chill Acoustic Playlist 3 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Pia
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43FE25623B3C565D5A372A94D644AD76F207A3A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905747   (649602) от 06.06.2015
-
-VA - Resident Advisor Top 50 Charted Tracks For May (2015) [MP3|320 кб/с]<House, Funky, Deep, Electronica, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KiNK - Cloud Generator (Original Mix) [07:11]
-02. Stephan Bodzin - Singularity [07:02]
-03. Trulyors - Expeditions (Grandmoms Hands Remix) [06:36]
-04. Recondite - Serak (Original Mix) [07:28](   Читать дальше...   )Жанр: House, Funky, Deep, Electronica, MinimalПродолжительность: 06:10:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE2360A37FA409EA208E8AC8A9921A8094FDC9C4
 ```
 
 

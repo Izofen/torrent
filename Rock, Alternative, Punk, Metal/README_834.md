@@ -1,3 +1,30 @@
+###  Публикация: 1041931   (580528) от 11.08.2016
+
+Parom - Hromovladca (2016) [MP3|320 Kbps] <Folk Metal, Pagan Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580528.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pohanský Duch
+2. Na Bojovom Poli
+3. Zem Slovenov
+4. Pôda A Krv(   Читать дальше...   )Жанр: Folk Metal, Pagan MetalПродолжительность: 00:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF61E1F8104981B8BEBAF7AB9342BA0CAF37CF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042075   (580531) от 11.08.2016
 
 1 (Один) - Конец (2015) [MP3|192-320 Kbps] <Rock, Alternative>
@@ -681,33 +708,6 @@ magnet:?xt=urn:btih:5682CA81082294BFF16118A7328B1AB3FB4279FF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46AEF314BDF23AC6957607B8500761AFA19C5A0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553662   (581882) от 26.05.2022
-
-Michael Schenker Group - Universal (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emergency (feat. Barry Sparks & Simon Phillips) (3:49)
-02. Under Attack (4:37)
-03. Calling Baal (feat. Tony Carey) (0:39)
-04. A King Has Gone (feat. Michael Kiske, Bobby Rondinelli, Bob Daisley & Tony Carey) (4:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE4EE17E6DCECF6EEA6FA12E4D4F148D4F44DB3
 ```
 
 

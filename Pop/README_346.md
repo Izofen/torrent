@@ -1,3 +1,246 @@
+###  Публикация: 1474932   (1012727) от 04.06.2021
+
+VA - At My Worst - Chilled Pop (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pink Sweat$ - At My Worst (2:50)
+02. Joel Corry, MNEK - Head & Heart - Acoustic Version (3:38)
+03. Charlie Puth, Selena Gomez - We Don't Talk Anymore (3:37)
+04. Griff - Good Stuff (3:13)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 02:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D1C87CE01D0D7830D8DF4B52D977BB78514980
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474639   (1012881) от 03.06.2021
+
+Michael Jackson - Classic-The Universal Masters Collection (2001) [FLAC|Lossless|tracks+.cue] <Pop, Funk, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Day In Your Life (4:17)
+02. Rockin Robin (2:33)
+03. People Make The World Go Round (3:14)
+04. HappyЖанр: Pop, Funk, SoulПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D6C120CAF5BF182D7CCB110C46A26EC208B54D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474718   (1012890) от 03.06.2021
+
+Matia Bazar - The Best Platinum Collection(18 Successi Originali) (2007) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stasera Che Sera (3:23)
+02. Per Un'Ora D'Amore (3:59)
+03. Cavallo Bianco (4:57)
+04. Ma Perche' (3:25)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF27F4033AF25894D1C56352B5E9589A467D04C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474093   (1013205) от 01.06.2021
+
+Boys Don't Cry - All the Very Best (серия "Другие восьмидесятые") (2020) Compilation [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cities On Fire
+02. Lipstick
+03. I Wanna Be A Cowboy
+04. Josephine(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 01:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A05AD15B61639462A21A23922552A8E62264EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474287   (1013216) от 01.06.2021
+
+VA - ZYX Italo Disco History 1982 (2021) 2CD, Compilation [MP3|~245 Kbps (V0)] <Italo-Disco, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klein & MBO - Dirty Talk (European Connection Mix) (8:26)
+02. Sylvi Foster - Hookey (6:29)
+03. Sun La Shan - Catch (Vocal Version) (6:54)
+04. Koto - Chinese Revenge (Maxi Version) (6:19)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 02:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15BA0C44A650EA81894D07B379FD7DA176037EB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474128   (1013222) от 01.06.2021
+
+VA - Fresh Pop Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Perfect (4:23)
+02. Lianne La Havas - Paper Thin (4:58)
+03. Wiz Khalifa; Charlie Puth - See You Again (3:49)
+04. Paul Rey - Talking In My Sleep (2:58)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 01:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:859F002CD72CE6819046123A33AD120E4F4E6DDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473952   (1013382) от 31.05.2021
+
+VA - Billboard - Hot Dance & Electronic Songs (08-May-2021) [MP3|320 Kbps] <Pop, Dance, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Travis Scott, HVME - Goosebumps (Remix)
+02. Tiesto - The Business
+03. SAINt JHN - Roses (Imanbek Remix)
+04. Regard, Troye Sivan, Tate McRae - You(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 02:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A31F1C3F21C401B067085E96D43F5BC297F0D2B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473733   (1013533) от 30.05.2021
+
+VA - Megahits Sommer 2021 (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riton x Nightcrawlers - Friday (feat. Mufasa & Hypeman)
+02. Coldplay - Higher Power
+03. Nathan Evans, 220 Kid & Billen Ted - Wellerman (Sea Shanty 220 KID x Billen Ted Remix)
+04. The Weeknd - Save Your Tears(   Читать дальше...   )Жанр: PopПродолжительность: 01:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B9E18D864A03B6960C32CC7139A65930935FD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473435   (1013680) от 29.05.2021
+
+Леонид Агутин - Включите свет (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013680.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Включите свет
+2. Счастье не вешает нос
+3. Сочи (feat. Jimmy Rosenberg)
+4. Цветы(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FAF7124CD58EA41E8ACD341299151F5C08789D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473502   (1013681) от 29.05.2021
 
 Fancy - I'm Still A Fool (2021) Single [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
@@ -448,249 +691,6 @@ VA - American Acoustic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC16A188607A1D2C232783262D4E7AEE134EDBAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471998   (1014667) от 23.05.2021
-
-Zolita - Evil Angel (Deluxe) (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bedspell (00:02:49)
-02. Loveline (00:02:32)
-03. Somebody I Fucked Once (00:03:07)
-04. Shut Up And Cry (00:03:15)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B433DD79A5F6DCB005996D089E20EFF5664676B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471752   (1014784) от 22.05.2021
-
-VA - Созвездие хитов. Застольные песни 1. (2004) [FLAC|Lossless|tracks + .cue]<Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А. Джигарханян - ...щас спою! ( из М/ф )
-02. В. Девятов - Коробейники
-03. О. Воронец - Ромашки спрятались
-04. А. Литвиненко и Т. Мушта - Огней так много золотых(   Читать дальше...   )Жанр: РетроПродолжительность: 01:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB28D9702236708668F9BA7242E5123A63A89CEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471753   (1014800) от 22.05.2021
-
-VA - Мужские песни (2003) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А. Маршал - Журавли, журавли...
-02. А. Днепров - Милая
-03. Самоцветы - Колоколенка
-04. Рядовой Дарин - На свадьбе(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:474E5E4B7400D7AD4A15488CD181A7C4677E536C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471461   (1014803) от 22.05.2021
-
-VA - Hit Music (лето 2021) от Мяу (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014803.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Walker feat. Conor Maynard - Believers
-002. Jack Savoretti feat. Nile Rodgers - Who's Hurting Who
-003. DaBro - На Часах Ноль-Ноль
-004. BeatItPunk & SICKOTOY feat. Yoelle - Hollywood(   Читать дальше...   )Жанр: PopПродолжительность: 18:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DAE61F49A151435B88BF3F7A12C6971C63A414C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471507   (1014961) от 21.05.2021
-
-Денис Клявер - Тебя удача найдёт (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014961.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Тебя удача найдёт
-2. Брачный кортеж
-3. Ответ
-4. Кто, если не я(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:008FED3D73158897F934A8F4557187F2443A521B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471425   (1015125) от 20.05.2021
-
-St. Vincent - Daddy's Home (2021) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pay Your Way In Pain [03:03]
-02. Down And Out Downtown [03:42]
-03. Daddy's Home [03:19]
-04. Live In The Dream [06:29](   Читать дальше...   )Жанр: Alternative Rock, Indie PopПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBCDC010D87F94244EA442430F9482F2FC33EE5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471318   (1015135) от 20.05.2021
-
-Гоша Куценко - "GOSHANOVA" антистресс (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015135.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Скорая (feat. Юлия Пак)
-2. Опьянев
-3. Созвездие любви
-4. Голая(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0335C4054D2146F67B9C585288624F950D3DB7F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471201   (1015296) от 19.05.2021
-
-AlimkhanOV A. - Right Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right Time (Album Version) (5:24)
-02. Eyes Of Delight (Album Version) (5:55)
-03. Lonely (Album Version) (6:05)
-04. Hot Nights In The City (Album Version) (7:00)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831EB4ED7D483ECA994A5E333E3E7BCDC960891E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471189   (1015297) от 19.05.2021
-
-Latex - Random Love (1995) [FLAC|Lossless|tracks + .cue] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015297.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Random Love (House Mix) 6:02
-2. Random Love (Maxi Mix) 6:31
-3. Random Love (Progressive Mix) 7:48
-4. Random Love (Radio Mix) 4:00Жанр: Euro HouseПродолжительность: 00:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1E2D450E99ADAFFDE5CAFC1531F53A1C1D4F2A
 ```
 
 

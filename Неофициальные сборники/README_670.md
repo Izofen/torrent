@@ -1,3 +1,30 @@
+###  Публикация: 1458962   (1023522) от 31.03.2021
+
+VA - HGM: March Electro Dance Chart (2021) [MP3|320 Kbps] <EDM, Dance, House, Club, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои современных танцполов, покорители самых топовых чартов планеты, здесь и сейчас в новом релизе от HGM. Сборник представляет собой подборку клубно - танцевальной музыки в формате нон-стоп, которая так популярна в наше время среди молодёжи.001. Fred Summers - Are You Ready (Original Mix)
+002. Di Carlo - Bella Ciao
+003. Innervisions feat Maria Duque - No One Like You
+004. Bassregion - Ocean Drive (Club Mix)(   Читать дальше...   )Жанр: EDM, Dance, House, Club, Tech HouseПродолжительность: 11:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F1B0A65769530D144AD55CA422FFB60511B74A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458947   (1023523) от 31.03.2021
 
 VA - Ecologica (2021) [MP3|320 Kbps] <Chillout, Relax, Lounge>
@@ -670,33 +697,6 @@ VA - Beatport Hypnotic Trance: Sound Pack #261 (2021) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C86C15EEB382B8A8C45246CE54F63DF5599AC7F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456784   (1024660) от 24.03.2021
-
-VA - Best Remixes of Popular Songs (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024660.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ARTY, Cimo Frankel, Felon - Daydreams (Felon Remix) (3:15)
-002. Bazzi vs., SWACQ - Paradise (Bazzi vs. SWACQ Remix) (2:40)
-003. Breathe Carolina, Asketa & Natan Chaim, Rama Duke, GATTUSO - Get Away (GATTUSO Remix) (2:43)
-004. Dua Lipa, Kungs - Don't Start Now (Kungs Remix) (3:36)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:30:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70367AF848A631B5E6E57318C66E3A825833B91E
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1359982   (963264) от 13.02.2020
+
+Tennis - Swimmer (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Haunt You (02:32)
+02. Need Your Love (03:51)
+03. How to Forgive (03:36)
+04. Runner (03:36)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8AEF7031E4B985FCC0015299CA50F949166B4A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978316   (963341) от 23.01.2016
 
 a-ha - Scoundrel Days (1986) 2CD, Deluxe Edition, Remastered, 2010, Warner Bros [FLAC|Lossless|image + .cue] <Pop, Synthpop>
@@ -696,33 +723,6 @@ Zdravko Colic - 39 Hitova (2008) [FLAC|Lossless]<Pop, Pop-Rock, Pop-Folk, Balkan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:167F5DF3F9078960BAEED61DAD4287B525B85B6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975967   (970804) от 16.01.2016
-
-VA - Top Latino 2000 (2000) [FLAC|Lossless|tracks + .cue] <Latin, Merengue, Afro-Cuban>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gloria Estefan - No me dejes de querer (3:27)
-02. Chayanne - Boom boom (4:25)
-03. Ricky Martin - La diosa del carnaval (Spanish Eyes) (4:04)
-04. Azucar Moreno - Mamma mía (4:16)(   Читать дальше...   )Жанр: Latin, Merengue, Afro-Cuban, Europop, Salsa, BalladПродолжительность: 00:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D238F66DABF2A9D6A156E174DE0AAA8B46550AB1
 ```
 
 

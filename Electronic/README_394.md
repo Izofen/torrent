@@ -1,3 +1,165 @@
+###  Публикация: 1209111   (779539) от 25.02.2018
+
+Makia Blue - Dreams In The Twilight: Psychedelic Chillout (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voyage to Farland 03:03
+ 02. Siberian Steppe 03:43
+ 03. Heal Me 03:42
+ 04. Shamans Flight 03:03(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:57:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C76D7DC337BD7B3993F1FFB09D4B771BA519612
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208940   (779660) от 24.02.2018
+
+Debbie Tebbs - Chrome (2018) [FLAC|Lossless|WEB-DL|tracks] <Electro, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Petit Clavier Metallique (05:08)
+02. Fantome (03:33)
+03. Stereophonique (03:21)
+04. Analogie Synthetique (04:02)(   Читать дальше...   )Жанр: Electro, SynthpopПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92581903EAAE2E75E4E48E0FBC507E26A24F6DBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209040   (779675) от 24.02.2018
+
+Merovingian - Prøv å Forstå (The Remixes) (2018) Drift Deeper Recordings [FLAC|Lossless|tracks+.cue] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dovahkiin (Deepkomplekt Remix) (07:04)
+ 02. Dovahkiin (Metzler Remix) (05:57)
+ 03. Dovahkiin (Overcast Sound Remix) (07:58)
+ 04. Dovahkiin (Rich Weller Remix) (05:42)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D39DE1254F0F0E8605D624FCFFAFC53424179E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208883   (779680) от 24.02.2018
+
+VA - Hidden Places Chillout And Ambient 7 (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Florito  -  Konja Tokyo De (feat. Anna Y.)  5:33
+02.  L'Art Mystique  -  Underwater Twilight  4:27
+03.  Maksim Biserov  -  Rumination  6:28
+04.  Madhukar  -  When Love Rules  5:04(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 03:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1067442C442051109C7BC591FA6B455C82F7883
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208666   (779791) от 23.02.2018
+
+GusGus - Lies Are More Flexible (2018) Oroom [FLAC|Lossless|WEB-DL|tracks] <House, Leftfield, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Featherlight (05:17)
+ 02. Don't Know How to Love (05:12)
+ 03. Fireworks (04:56)
+ 04. Lifetime (05:49)(   Читать дальше...   )Жанр: House, Leftfield, Progressive HouseПродолжительность: 00:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F8548D86EB39E3DE4C10EECC2BD4421AC2671FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208612   (779810) от 23.02.2018
+
+VA - Sexy Miami Beach, Vol. 2 (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afrikano - Sundance
+02. Da Angerboyz - Infinity
+03. Dippu - Magnificent Space
+04. DJ Luciano - DJ Make It Rain(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E184E55F4E7C7CE2819E12CD1C9CF4DB9504488
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208674   (779817) от 23.02.2018
 
 Von Grall - Infinitum (2018) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -533,168 +695,6 @@ Autumn of Communion - Streams (2018) ...txt [FLAC 2.0|44.1/24|tracks|WEB-DL] <Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6625DFF448A6755FE43CDA75DB2AB6AB0A3EFE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207136   (780418) от 19.02.2018
-
-VA - Future Vocal Trance Vol.1 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Adam Sobiech feat. Angel Falls  -  Disillusion (Original Mix)  5:58
-02.  DJ Schillings  -  I Remember The 90s (Original Mix)  3:26
-03.  Rheligie  -  Ardent Fever (Adip Kiyoi Remix)  5:38
-04.  Iris Dee Jay & Robert Holland feat. Erin  -  Faster (Original Mix)  6:23(   Читать дальше...   )Жанр: TranceПродолжительность: 02:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E83221E1790655608169B24428E2BE7DAFD312
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207634   (780419) от 19.02.2018
-
-VA - Vocal House Traxx Vol. 1 (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj-Chart – Oh My Friend My Brother 3:27
-02. Martin Meister – When Do I Get To Sing My Way (Stranger Things Mix) 3:59
-03. Cysco Fiore And Joan Alasta – Never Ever 3:46
-04. Vindicci – Suddenly (Remix) 4:38(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:05:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B69DFE0802FF023C8069BFF2C0290E126FB6219E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207006   (780423) от 19.02.2018
-
-VA - Black Hole Trance Music 02-18 (2018) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Late Night Alumni  -  Montage (Mitiska Extended Signature Mix)  5:46
-02.  Cosmic Gate & Emma Hewitt  -  Tonight (Fatum Remix)  2:54
-03.  Omair Mirza feat. Avari  -  Beautiful Mystery (Sodality Extended Remix)  5:02
-04.  Andy Moor & Somna feat. Diana Leah  -  There Is Light (Extended Mix)  6:51(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting TranceПродолжительность: 02:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8484CC35A415717E0197DF1373343D63C6C054F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206999   (780427) от 19.02.2018
-
-VA - Melodic Trance Vol.3 (2018) [MP3|320 Kbps] <Uplifting Trance, Melodic Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer  -  Lost (Extended Mix)  6:20
-02.  Attila Syah & LTN  -  B29 (Extended Mix)  7:03
-03.  Vadim Spark & Cari  -  Beat Of My Heart (UDM Extended Remix)  5:55
-04.  NoMosk  -  Duel (Original Mix)  6:23(   Читать дальше...   )Жанр: Uplifting Trance, Melodic TranceПродолжительность: 02:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97B830FDAAFE48E182AA54C5DFF6BBB3185A661D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206987   (780602) от 18.02.2018
-
-VA - Global DJ Broadcast - Top 20 February (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jam & Spoon  -  Odyssey To Anyoona (Markus Schulz vs. Jam El Mar Remix)  4:16
-02.  Aly & Fila vs. Ferry Corsten  -  Camellia (Extended Mix)  6:43
-03.  Kyau & Albert  -  Wanderlust (Extended Mix)  5:16
-04.  Ben Bohmer  -  After Earth (Original Mix)  7:37(   Читать дальше...   )Жанр: TranceПродолжительность: 02:21:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6460E47489308D893E6A39501A9B983D3BF4BBB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207427   (780606) от 18.02.2018
-
-Lane 8 - Little By Little (2018) This Never Happened [FLAC|Lossless|tracks+.cue] <Deep House, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daya (06:21)
- 02. No Captain (feat. Poliça) (05:18)
- 03. Atlas (05:52)
- 04. Clarify (feat. Fractures) (04:02)(   Читать дальше...   )Жанр: Deep House, HouseПродолжительность: 00:55:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098194B75D1ADC8A386F7B0C01D220415915E175
 ```
 
 

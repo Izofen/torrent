@@ -1,3 +1,246 @@
+###  Публикация: 1350264   (1003518) от 05.01.2020
+
+Lucio Dalla - Lucio Dalla 40th Legacy Edition (2019) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'ultima luna - 05:40
+02. Stella di mare - 05:54
+03. La Signora - 03:55
+04. Milano - 03:29(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040BE5272C480DE1F78C83B3EA723CB4CF5F39DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487372   (1003608) от 05.08.2021
+
+Купе - The Best (1994) [FLAC|Lossless|image + .cue] <Ballad, Schlager, Vocal>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Королева Двора (4:11)
+02. Журавли (5:04)
+03. Взгляд Во Тьме (3:08)
+04. Слёзы (3:42)(   Читать дальше...   )Жанр: Ballad, Schlager, VocalПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:978428142F09E20AA6B5D94F7EE75030E56C1C0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350056   (1003689) от 04.01.2020
+
+Modern Talking - Back For Gold: The New Versions (2017) [FLAC|Lossless|image + .cue] <Eurodance, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brother Louie (New Version 2017)
+02. You're My Heart You're My Soul (New Version 2017)
+03. Cheri Cheri Lady (New Version 2017)
+04. You Can Win If You Want (New Version 2017)(   Читать дальше...   )Жанр: Eurodance, Euro-DiscoПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:008E07872E0C9F8F3B3ECE2BAF904030A639B892
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349926   (1003722) от 04.01.2020
+
+Стас Михайлов - Лучшие песни (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Там (3:40)
+ 02. Без тебя (4:20)
+ 03. Ну, вот и всё (4:05)
+ 04. Всё для тебя (3:54)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 04:02:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C3FD6072070938C601605214CBED8ADC6CAA63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350072   (1003734) от 04.01.2020
+
+Кай Метов - Position 2 (2013) [FLAC|Lossless|WEB-DL|tracks] <Pop, Euro House>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Position 2 (4:13)
+ 02. Я тебе не верю (3:32)
+ 03. Мне хорошо с тобой (5:21)
+ 04. Мама! Я хочу быть пионером (2:35)(   Читать дальше...   )Жанр: Pop, Euro HouseПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47AF44010EC2872806DE2973D28A120DCE223F59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350026   (1003760) от 04.01.2020
+
+Sally Shapiro - Remix Romance Vol. 1 (2008) [FLAC|Lossless|image + .cue] <Italo-Disco, Downtempo, House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003760.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 I'll Be By Your Side (Tensnake Remix) 7:38
+2 I Know You're My Love (Juan MacLean Remix) 8:00
+3 Find My Soul (Holy Fuck Remix) 4:23
+4 Anorak Christmas (Woodhands Remix) 5:20(   Читать дальше...   )Жанр: Italo-Disco, Downtempo, HouseПродолжительность: 01:01:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E74C219C6CE2D4E842E957E89ABA467C640535F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350028   (1003763) от 04.01.2020
+
+Joy Winter - Frantic Romantic (1990) [FLAC|Lossless|image + .cue] <Hi NRG, Freestyle>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003763.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 In Time You'll See 4:34
+2 How Can I Be Sure 4:56
+3 Day And Night 3:42
+4 Why Can't We Be Lovers 5:11(   Читать дальше...   )Жанр: Hi NRG, FreestyleПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A79E379186E147B700EA64ACBED10252FAD3004
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487201   (1003827) от 04.08.2021
+
+VA - ZYX Italo Disco Spacesynth Collection 7 (2021) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Spacesynth, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmix - Space Trooper (5:43)
+02. Spacehawk - Time Travel (4:05)
+03. Digitalo - Golden Ten (Instrumental Spacesynth) (4:51)
+04. Entropy - All The Stars (Extended Version) (6:43)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, SynthpopПродолжительность: 02:28:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D011F69F3301754582012580A70626FF4D378A61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349873   (1003991) от 03.01.2020
+
+VA - Disco Hits Exclusive Collection (1989) [FLAC|Lossless|image + .cue] <Euro-Disco, Eurobeat, Hi NRG>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Gail Berry My Miracle Is Love (Dance Mix) 6:06
+02 – Ken Laszlo Everybody Is Dancing 7:15
+03 – Pat & Bel Without You (Dance Mix) 6:13
+04 – Francesco Salvi Esatto! (Mix Version) 5:32(   Читать дальше...   )Жанр: Euro-Disco, Eurobeat, Hi NRGПродолжительность: 01:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D6004944AB040D60EEB46D812F041963579FAF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349849   (1004060) от 03.01.2020
 
 Chyp-Notic - Nothing Compares 2 U (1990) [FLAC|Lossless|image + .cue] <Euro House>
@@ -451,250 +694,6 @@ Bebe Rexha - Better Mistakes (2021) [FLAC|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B70F5718B576FA6E73490D435C3181EBFA6BE5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484592   (1005938) от 21.07.2021
-
-VA - Summer Body Fitness Hits (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riley Simpson - Paradise (02:50)
-02. Nicholas Carr - Circles (03:35)
-03. Alan Jensen - Ride It (02:40)
-04. Callum Hunt - Hot Girl Bummer (03:05)(   Читать дальше...   )Жанр: PopПродолжительность: 02:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1871A8E54EE9AE2E6FF1AA5B223854D7122A5B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484470   (1006142) от 19.07.2021
-
-VA - Sweaty Workout Hits (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lenox Hills - WITHOUT YOU (02:41)
-02. Winston Ross - Heather (03:15)
-03. Warren Campbell - Golden (03:29)
-04. Thomas Leroux - Lonely (02:30)(   Читать дальше...   )Жанр: PopПродолжительность: 02:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B533F4BAAF8DCC5F2E6F49B4CC2D37241B46A57B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484131   (1006295) от 18.07.2021
-
-Tina Turner - Foreign Affair (1989) 4CD, Remaster, Capitol Records, 2021 [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best (Live in Barcelona 1990; 2021 Remaster) [00:05:47]
-02. I Don’t Wanna Lose You (Live in Barcelona 1990; 2021 Remaster) [00:05:45]
-03. What's Love Got To Do With It (Live in Barcelona 1990; 2021 Remaster) [00:06:33]
-04. Let's Stay Together (Live in Barcelona 1990; 2021 Remaster) [00:07:27](   Читать дальше...   )Жанр: PopПродолжительность: 4CD, 03:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63DB9F0FB0CA1BAA9E66B3E58E3AF98663D9DAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483954   (1006482) от 16.07.2021
-
-VA - 100 Greatest TikTok Songs & Viral Hits (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006482.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fleetwood Mac - Dreams (2018 Remaster) (4:17)
-002. Bella Poarch - Build a Bitch (2:02)
-003. Russ Millions, Tion Wayne, E1 (3x3), ZT (3x3), Arrdee - Body (Remix) (4:38)
-004. Bruno Mars - Talking to the Moon (3:37)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D70CDCC77AB8478B0BF41D5A00D1AAF2BD91D864
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483907   (1006511) от 16.07.2021
-
-Группа VIP - New-York (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New-York (3:30)
- 02. Пассажирский поезд (4:11)
- 03. Я одна (4:04)
- 04. Не отпускай (3:46)(   Читать дальше...   )Жанр: EDM, PopПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030B124979F3DE7F7ABBAF245826313DCA9516C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483602   (1006756) от 14.07.2021
-
-Fancy - Masquerade (Les Marionnettes) (2021) [MP3|320 Kbps] <Pop ,  Eurodisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Like Your Smile (3:14)
-02. Rockabye Me (3:53)
-03. I’m Still A Fool (3:32)
-04. Lovers (3:26)(   Читать дальше...   )Жанр: Pop ,  EurodiscoПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A46426BFD03470E943912FC0BF240812F29666E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483485   (1006771) от 14.07.2021
-
-Jess & Matt - Wildflowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sliding Doors (00:03:10)
-02 - 1961 (00:03:42)
-03. Aftermath (00:03:46)
-04. Wildflowers (00:03:04)(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 00:33:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C5F89E8C1BEE6181DB953029B7D955A243AC00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483395   (1006854) от 13.07.2021
-
-VA - Pure... Alternative 80s (2011) Box Set, 4 CD [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не ошибусь, если скажу, что на нашем трекере собрана наиболее полная серия, которую в свое время издавала Sony Music (ссылка на всю серию внизу поста). И сегодня представляю Вам последний (из имеющихся у меня) боксет - Alternative 80s.
-Если честно вспомнить именно 80-е, то не то что альтернативные треки, едва доступны были и самые популярные композиции, которые гремели (   Читать дальше...   )CD1:
-01. Adam and the Ants - Stand and Deliver  (3:08)
-02. The Stranglers - No Mercy  (3:39)
-03. Big Audio Dynamite - E=MC²  (5:57)(   Читать дальше...   )Тип издания: Box Set, 4 CDРелиз состоялся: 10 окт. 2011 г.Жанр: Pop, Electronic, RockПродолжительность: 04:20:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2BEDD6667E775E9EFEE10547DF31F5E6B46B92A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483360   (1006882) от 13.07.2021
-
-VA - Beautiful and Chilled Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006882.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Devon Seyward, Thom Cooper - Flume (Acoustic Version) (3:01)
-2. Joanie Loves Chachi - (Nice Dream) (3:23)
-3. Thom Cooper - Your Power (3:59)
-4. Charlie Blue Skies - Songbird (3:52)(   Читать дальше...   )Жанр: PopПродолжительность: 00:22:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E8FAEFE9A616ABDBF3A4216C047C6E485F8374A
 ```
 
 

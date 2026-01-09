@@ -1,3 +1,30 @@
+###  Публикация: 1402549   (699824) от 15.08.2020
+
+VA - German Top 100 Single Charts 14.08.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jawsh 685 & Jason Derulo - Savage Love (Laxed - Siren Beat)
+02. Apache 207 - Bläulich
+03. KitschKrieg & Jamule - Unterwegs
+04. Samra - 24 Stunden(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38BF430A7345E93C5DC15908A127EA19DF4B199F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402546   (699831) от 15.08.2020
 
 VA - The Official UK Top 40 Singles Chart 14.08.2020 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Green Therapy Music (2017) [MP3|320 Kbps] <Chillout, Lounge, Dountempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01311BE6E758C9AF016FA0C67E36DD32F35C04F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132384   (701162) от 09.05.2017
-
-VA - Зажигай вместе с Europa Plus. Выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701162.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ольга Бузова - Улететь 3:01
-002. Роза Мажонц - Выше Облаков 3:57
-003. Рома Штайн - Проблем 3:56
-004. Станислав Сорока - Иди За Мной 3:53(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65F1375DE22FD160F2896EB6699AAF7A5AF47E3C
 ```
 
 

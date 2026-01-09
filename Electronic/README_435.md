@@ -1,3 +1,163 @@
+###  Публикация: 1502660   (826512) от 15.10.2021
+
+Tiesto - Together Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oohla Oohla (2:23)
+02. Money (2:50)
+03. I’ll Take You High (2:52)
+04. Be Something (2:58)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:13:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5363F9D4AC462186AE0197508CB46A92135037CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006530   (826985) от 12.04.2016
+
+U96 - The Dark Matter EP (2015) [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood Of The Rose [04:18]
+02. Dark Matter [04:02]
+03. Human Cosmic [04:17]
+04. Run With It [05:29](   Читать дальше...   )Жанр: Electro, TechnoПродолжительность: 00:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07A3781332DA0FBD204CD791C1C8271B17181F88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 343382   (827362) от 06.05.2020
+
+Kraftwerk - Greatest Hits (2CD) (2008) [FLAC|Lossless]<Synthpop, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Robots
+02. The Man-Machine
+03. Radioactivity
+04. Neon Lights(   Читать дальше...   )Жанр: Synthpop, Electronic |Продолжительность: 01:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B706C81800E0AD3EF8A5D44EB945047FF68C95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185868   (827643) от 06.05.2020
+
+Michael Kohlbecker (Funf D, Eternal Basement, Magnat, Masun, Paragon, S.M.I².L.E.) - Discography 30 Releases (1993-2020) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Psy-Tech, Psy-Trance, A ...
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glade (09:08)
+ 02. Sumer (09:23)Тип издания: CD, Web, VinylЖанр: Techno/TranceПродолжительность: 23:37:59 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D1BB0AFA0C40474C3F8A558209B972B036F3EBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381413   (827725) от 06.05.2020
+
+Operentzia | Óperentzia - Collection 5 Releases (2011-2020) Zengőkert Records [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Ambient, Psy-Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mojave (06:05)
+ 02. Ek Chuah (07:57)
+ 03. Melancolony (06:19)
+ 04. Pm (06:16)(   Читать дальше...   )Тип издания: WEBЖанр: Psychill/Dub/Downtempo/Ambient/Progressive Trance/Psy-TranceПродолжительность: 03:40:19 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:124CE306E5D319A0EC7F8C4DB38552678A156657
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381278   (827729) от 06.05.2020
+
+VA - I Love the Rain Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael E - I Love the Rain (Original Mix)
+02. Patiotic, Marga Sol - Hold Me (Marga Sol Chill Mix)
+03. Tigerfrost - I Will Follow You (Ametrine Remix)
+04. Gary B - All I Long For (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5E7495C0E21E057D3E4E93E2804220581ADC67E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115032   (827965) от 17.03.2017
 
 De/Vision - 13 (2016) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
@@ -533,168 +693,6 @@ Cygnus - Colecovisions (2020) Biosoft Records [FLAC|Lossless|WEB-DL|tracks] <Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6929D2E696861B13EDF9DC45A5C68A595C4D07C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114902   (829890) от 16.03.2017
-
-XS Project - The New Pumping Attack (2016) [FLAC|Lossless|WEB|tracks] <Pumping House , Hard Bass>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Xs Project - 1 Oak (4:04)
-02. Xs Project - Monstro (3:52)
-03. Xs Project - Грозный (4:27)
-04. Xs Project - Mad Magazine (3:31)(   Читать дальше...   )Жанр: Pumping House , Hard BassПродолжительность: 01:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018EF88082E2C63201487452F7069F027858D93B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115131   (829898) от 16.03.2017
-
-VA - Best Of Progressive Vocal Trance (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mino Safy & Maria Nayler - A Second Breath (Original Mix)  5:57
-02.  Somna & Sarah Russell - Story Untold (Original Mix)  6:26
-03.  Ana Criado - Vulnerable (Denis Kenzo Remix)  6:45
-04.  Aurosonic & Sue McLaren - Captured By Gravity (Original Mix)  8:08(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70FEA77E16B175EE7BA546081E0F64957E3DDCBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114904   (829973) от 16.03.2017
-
-Zhestyanshiki (Жестяньщики) - Luxury (2016) [FLAC|Lossless|WEB|tracks] <Pumping House , Hard Bass>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pumping Power (5:22)
-02. Funny (4:08)
-03. Hard Pump (5:01)
-04. Lights (Instrumental) (3:06)(   Читать дальше...   )Жанр: Pumping House , Hard BassПродолжительность: 01:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83790DB9C8A79F7AF0CD4CCE99218AC676319337
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496565   (830005) от 13.10.2021
-
-VA - Live  Creamfields UK, United Kingdom (2021) [MP3|320 Kbps] <Trance, Techno, Electro House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Juicy M @ Cream Arena, Creamfields UK, United Kingdom 2021-08-26:
-01. David Guetta & MORTEN - Bombardment
-02. Maddix - Technology
-03. Sonic Snares - Your Body(   Читать дальше...   )Жанр: Trance, Techno, Electro HouseПродолжительность: 12:25:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AECCB6F9B38856840BCF7107E47A6B1AB6C3AB4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114856   (830063) от 16.03.2017
-
-VA - The Fitness Series Vol. 2 (2017) [MP3|320 Kbps] <Hard House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norgzki - Butterfly Effect (Original Mix) 06:54
-02. Oliver Marks - Night Lover (Original Mix) 07:49
-03. Dark By Design - Words Are Not Enough (Original Mix) 06:47
-04. Cut-Up - Time To Rock (Original Mix) 06:17(   Читать дальше...   )Жанр: Hard HouseПродолжительность: 05:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C003A5E6739A6ECE659587AD84F059F1DC8147
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114910   (830065) от 16.03.2017
-
-VA - Best Of Deep House 2017 Vol.02 (2017) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Justin Oh - Good Morning (Claes Rosen Remix)  6:51
-02.  Dezza - Brit  5:49
-03.  Eskai - Tides  5:16
-04.  Dan Sieg - Everything U Need  5:56(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD91578171B0727CDCFAC0E9CE6DD5B7C086A45
 ```
 
 

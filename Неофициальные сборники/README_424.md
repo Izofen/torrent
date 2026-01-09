@@ -1,3 +1,30 @@
+###  Публикация: 1029504   (678605) от 28.06.2016
+
+VA - DJ World Places Miracle (2016) [MP3|320 кб/с] <Funky, Disco, Electronica, Tropical, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dustin Mccoi - What You Want (Dayne S Remix) 06:21
+02. Dimaro - Summer (Original Mix) 04:22
+03. Djerem - Never Look Back (Dave202 Remix) 04:40
+04. Dim Sum - High Love (Original Mix) 03:56(   Читать дальше...   )Жанр: Electronic, Disco, ClubПродолжительность: 09:29:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C06CDD47EB35BE2C04452592AF1749F35958B31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029544   (678608) от 28.06.2016
 
 VA - Ultimate Workout Dance Player (2016) [MP3|256 кб/с] <Club, House>
@@ -674,39 +701,6 @@ VA - Высшая лига. Весна. Версия 8 (2017) [MP3|256 Kbps] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAFE85E012AB8C27CEEA12E33CE5DF4B2E44BB5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508468   (679605) от 10.06.2012
-
-VA - World Of Relax (2012) [MP3|320 кб/с]<Relax>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fred Buccini - Love
-02. Sao Vicente - My Perfect Day
-03. Mayra Andrade - Poc Li Dente e Tcheu
-04. Masan & Miyabi - The Sensual View
-05. Parov Stelar - A Night In Torino
-06. Lenny Macdowell & Krell - The Awakening
-07. Alexander Dancaless - Irreversibility
-08. Sphere - Enchanted World
-09. Matthew Compton - Wings Of Moonlight
-10. Lemongrass - On the Edge of Time Feat Karen2012Жанр: RelaxПродолжительность: 03:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F205921FE8E032D99174A9B1F67A8B431621E97
 ```
 
 

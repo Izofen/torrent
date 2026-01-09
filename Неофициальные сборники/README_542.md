@@ -1,3 +1,30 @@
+###  Публикация: 1008380   (815930) от 18.04.2016
+
+Александр Торчилин - Военный альбом (2004) [MP3|320 кб/с] <Военная песня>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На сопках Маньчжурии
+02. Тучи над городом встали
+03. Последний бой
+04. Мишка-одессит(   Читать дальше...   )Жанр: Военная песняПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28935FD51E43492D19091EBB537E5BCD395309CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008372   (815933) от 18.04.2016
 
 Александр Торчилин - Белый снег - Любимых никогда не выбирают (2005) [MP3|320 кб/с] <Shanson>
@@ -668,33 +695,6 @@ Linkin Park - Celebrate Life in Honor Of Chester Bennington (2017) Live from Hol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46A5CB78DC8170EEA9E3D50C95EFAC942BD081F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117703   (817176) от 23.03.2017
-
-VA - Empire Records - Dancenudisco 13 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bobina & May-Britt Scheffer - Born Again (Filatov & Karas Extended Remix)
-02. Anton Ishutin feat. Note U - Be My Lover (Sax@cean Edit)
-03. Dr. Alban & Nicole Heiland - Solo Tu Music In Me (Vnrg Mash UP Remix)
-04. Ajvas - Walking On The Moon (Original mix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B40CA0EFF226C6D3574ADADC45D0D34D13AC73D
 ```
 
 

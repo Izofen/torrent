@@ -1,3 +1,165 @@
+###  Публикация: 1217841   (741045) от 06.04.2018
+
+Majed Salih - Medievil-Music Trance Emperor Vol. 2 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Trance Symphony (Original Mix)
+02.Orange Idea (Original Mix)
+03.Psychlortron (Original Mix)
+04.Dolphin (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80613E461129FD222AF9964C08F3FA861FD6116A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283097   (741050) от 15.02.2019
+
+Monoplay - Octopus (2019) Nopassport Records [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Journey (Original Mix) (6:21)
+ 02. See You (Original Mix) (7:03)
+ 03. So Far (Honestly) (Original Mix) (5:32)
+ 04. Octopus (Original Mix) (3:46)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C0AB59CE6042B4CC65583F808D382CF0CEBF985
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283172   (741064) от 15.02.2019
+
+VA - Workout 2019 Aerobic Hits. Music For Fitness & Workout 128 BPM/32 Count [MP3|320 Kbps] <Funky, Club House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Maximum - La Fuerza (Extended Mix) 3:39
+02. Luka J Master & Carlo M feat. Regina Saraiva - Vem (Sanny J Mix) 4:24
+03. Condor feat. Adina - Feel U (Extended Mix) 4:45
+04. Joe Berte' & Dago Hernandez - Dance In The Stars (Daniel Tek Remix) 4:53(   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 01:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4920A350032F612826BBAB6A6FB13463D6C9F5D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021465   (741068) от 29.05.2016
+
+VA - Intricate Rec 4 Year Anniversary (2016) [MP3|320 кб/с] <House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feu d'Or - Chasin Joe
+02. Vadim Soloviev - Monday Bounce
+03. Alexey Sonar - Guest List
+04. Roddy Reynaert - Melancholy(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 04:29:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:199D86D39CE6CC51C0D41D25C4D5C17425244855
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126798   (741114) от 20.04.2017
+
+VA - Deep Ibiza Opening Party (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Norvis - Over - Radio Edit 03:27
+02. Tony Vegas - Soul Mates - Maury J Remix Edit 03:34
+03. Franky D.P. - Magic Sax 04:33
+04. Spikaa - Never Be Afraid - Radio Edit 03:04(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFE70AD2FDEB68ECAA49C6EDA03283BA0B0524E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127107   (741117) от 20.04.2017
+
+Angelika Yutt - Beautiful Coloratura (Ambient & Chill) (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Surreal Dream (Ambient Mix)
+02. Fantasia Del Amor (Air Mix)
+03. Its Time To Go Home (Original Mix)
+04. Silence (In Your Eyes) (Air Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:31:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F32FF2B30AF897125C30F55B648AFB17FFD7144B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126820   (741119) от 20.04.2017
 
 VA - Chriss Ronson - Focus: 003 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
@@ -533,168 +695,6 @@ VA - Tokyo Kick Boxing Hits 2020 Session [MP3|320 Kbps] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69750BC0797E214135DE1A7F7D7DED212F7C3251
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397272   (741371) от 19.07.2020
-
-Phil Stroud - Australiana (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Deep House, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Australiana (07:50)
- 02. Zamia Trail (06:02)
- 03. Morning Breeze (07:16)
- 04. Eucalyptus (08:36)(   Читать дальше...   )Жанр: Ambient, Deep House, Dub TechnoПродолжительность: 00:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90220EFAA5E8E1F57B0380D304B640AADC6ACC44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217647   (742265) от 05.04.2018
-
-VA - Dash Berlin @ Ultra Music Festival Miami (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dua Lipa - Homesick (Dash Berlin Rework)
-02.Clean Bandit ft. Zara Larsson - Symphony (Dash Berlin Remix)
-03.Dash Berlin ft. Jonathan Mendelsohn - Locked Out Of Heaven
-04.Above & Beyond ft. Richard Bedford - Sun & Moon (Dash Berlin Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F902A18C72035115D9B79EAE19354F30D6E28E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021134   (742308) от 28.05.2016
-
-DAVI - Metanoia EP (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metanoia (07:28)
-02. Ordinary Nightmares (07:11)
-03. Metanoia (Club Mix) (06:53)
-04. Illusion (06:58)Жанр: Deep House, Tech HouseПродолжительность: 00:28:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ECAB92B313E2AA89868ED64C07F0467B6E37886
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021199   (742315) от 28.05.2016
-
-DAVI - Metropolis EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metropolis (05:59)
-02. Change Your Life (06:51)
-03. None of Us (07:05)
-04. Change Your Life (Part. 2) (07:06)Жанр: Deep House, Tech HouseПродолжительность: 00:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:980F097B17060C4B9F34665F110C7F0E76C9F898
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021063   (742319) от 28.05.2016
-
-VA - Ethno Dreams Vol.1 Chilling Ethno Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunyata Project - Mystic Adventures
-02. Michael E - That Night Last Summer
-03. Roberto Sol - Oceanic
-04. Buddha - Female Buddha Prayer(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B700ADB49BFFEFCB765F6154DECC3FED12835B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282906   (742338) от 14.02.2019
-
-BlutEngel - Un:Gott (2019) 2CD [MP3|320 Kbps] <Darkwave, Synth-pop>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742338.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Together as One
-2. Into the Void
-3. König
-4. Praise the Lord(   Читать дальше...   )Жанр: Darkwave, Synth-popПродолжительность: 01:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2806652EDA1790D565ED90B3D22FBEEF1799F786
 ```
 
 

@@ -1,3 +1,348 @@
+###  Публикация: 588402   (927849) от 10.02.2014
+
+Parijat - 5 albums (2004 - 2013) [MP3|320 кб/с]<New age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(10:02) 1. The Healing Path
+(09:58) 2. Sunset In Heaven
+(10:00) 3. Celebrate Yourself
+(10:00) 4. Path Of Silence
+(10:00) 5. Traveling East
+(09:58) 6. New MorningЖанр: New age, Meditative, RelaxПродолжительность: 00:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1B4F6CD31EAB0CCD3BEA19F629773A3601C6F4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 177958   (927953) от 23.02.2010
+
+Bandari - Sunrise Hill (2009) [MP3|320 kbps]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. April
+02. Spirit
+03. Eternal Ring
+04. Holy Water
+05. First Rose in Spring
+06. Limerick
+07. The Foggy Dew
+08. Temple of Pearl
+09. Children Of Atlantis
+10. Shadow on The Sky(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:02:01
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 630185   (928023) от 15.03.2013
+
+Starcraft 2 Heart Of The Swarm OST (2013) MP3|320 кб/с
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+[07:49] 01. Glenn Stafford, Derek Duke, Neal Acree - Corruptors
+[07:13] 02. Cris Velasco, Neal Acree - Heart of the Swarm
+[05:15] 03. Glenn Stafford, Neal Acree - Collateral Damage
+[08:03] 04. Glenn Stafford, Derek Duke, Neal Acree - Fire in the Sky
+[06:19] 05. Glenn Stafford, Derek Duke, Neal Acree - Stronger
+[07:13] 06. Glenn Stafford, Derek Duke, Neal Acree - The Coming Storm
+[07:31] 07. Glenn Stafford, Jason Hayes, Neal Acree - Conscience
+[07:15] 08. Glenn Stafford, Derek Duke, Russell Brower, Neal Acree - Phantoms of the Void
+[06:37] 09. Russell Brower, Neal Acree - He Had it Coming
+[05:57] 10. Glenn Stafford, Derek Duke, Neal Acree - Ascension(   Читать дальше...   )Жанр: OSTПродолжительность: 01:14:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A12AF9ADF5854CFDC633E98D86CFBA7FFD0BB6CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 755477   (928095) от 10.02.2014
+
+Brian Crain - Piano and Light (2011) [FLAC|Lossless]<New Age, Neo-Classical, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  Softness and Light   (5:38)
+02.  In the Meadow   (2:53)
+03.  Moonlit Shore   (5:40)
+04.  At the Ivy Gate   (4:53)
+05.  Pastel Garden   (2:53)
+06.  Under the Willow   (4:26)
+07.  Dream of Dreams   (4:20)
+08.  Reflecting Pool   (4:27)
+09.  A Glimmer In Her Eyes   (3:32)
+10.  Imagining   (3:26)(   Читать дальше...   )Жанр: New Age, Neo-Classical, PianoПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8659D611E66D2B3D42DF7FCF014B2CD2D010B767
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 755011   (928153) от 10.02.2014
+
+James Horner - Игры патриотов / Patriot Games (1992) /Limited Edition/ [FLAC|Lossless]<Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 - Main Title
+ 02 - Attempt on the Royals
+ 03 - CNN News Report* / Sean's Interrogation*
+ 04 - Kevin Walks Away* / Deadly Lover* / Sean's Trial*
+ 05 - Sean Obsessing in Jail* / Highland's Execution
+ 06 - Strange Cargo*
+ 07 - The Hit
+ 08 - Hospital Vigil*/ Jack Returns to CIA* / Studying Sean's File*
+ 09 - Arrest of the Bombers
+ 10 - Putting the Pieces Together / Reading to Sally* / Sean's Midnight Call*(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B6A9C7C3A32CB451346F35CFE015EE7DD44D6B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 755308   (928262) от 10.02.2014
+
+VA - New Age Style - Space Relax (2011) [MP3|320 кб/с]<Space, Ambient Dub, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Direct 2 Brain - Inner Wave (4:23)
+02. U.P.I. - Escape from confusion (8:20)
+03. Next Logic - Eternal Time (4:36)
+04. Synopsis - Threshold (5:43)
+05. DirecT 2 Brain - Total Immersion (6:50)
+06. Lens Flare - Reflections (6:08)
+07. Direct 2 Brain - Serenity (4:51)
+08. Synopsis - The Silent Moon (7:57)
+09. E-Motion - My Own Space (5:41)
+10. E-MOTION - Emotional Voyage (6:31)(   Читать дальше...   )Жанр: Space, Ambient Dub, New AgeПродолжительность: 07:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D1158A5DE639811BBCB440369827C8A26A10DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 755490   (928274) от 10.02.2014
+
+Anne Dudley - Ancient and Modern (1995) [FLAC|Lossless]<Contemporary Classical, Choral>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Anne Dudley - Canticles Of The Sun And The Moon (05:43)
+ 02. Veni Sanctus Spiritus (04:17)
+ 03. Communion (04:48)
+ 04. Veni Emmanuel (05:05)
+ 05. Tallis' Canon (06:57)
+ 06. The Holly And The Ivy (05:04)
+ 07. Coventry Carol (04:39)
+ 08. Prelude (02:42)Жанр: Contemporary Classical, ChoralПродолжительность: 00:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F789CCD80BAF6866C42B33504331B84AF5C8893
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 755359   (928381) от 10.02.2014
+
+Silentx - Path To Freedom (2007) [MP3|192 кб/с]<New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(4:36) 01. The Journey Begins
+(5:03) 02. Silent Cry
+(4:43) 03. The Child Within
+(8:02) 04. Heart Beats
+(6:33) 05. Voice Of Spirit
+(6:44) 06. Reinvention
+(8:38) 07. Path To Freedom
+(6:06) 08. Into The Horizon
+(6:33) 09. Moon Light
+(5:47) 10. The Way Home(   Читать дальше...   )Жанр: New ageПродолжительность: 01:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF2C8DF2AB5367341A47C280D5B97C9138D6A0C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 630362   (928465) от 15.03.2013
+
+VA - Hawaiian Paradise (Гавайский рай). Коллекция от Ридерз Дайджест (5CD) (2004) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. Hawaiian Paradise - Louie King & His South Sea Islanders
+02. Forevermore - Kalua Beach Boys w- Chorus
+03. The Far Lands - Kalua Beach Boys
+04. Sing Me a Song of the Islands - Kalua Beach Boys
+05. Sail Along, Silv'ry Moon - Louis Nunley & Kalua Beach Boys
+06. Flamingo - Kalua Beach Boys
+07. Hawaii Calls - Kalua Beach Boys
+08. Hawaiian War Chant - Louis King & His South Sea Islanders
+09. The Hawaiian Love Call - Kalua Beach Boys w- Chorus(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CDD5D52E8987CBEEE8C0E3A7A5C0FD75A18361D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986121   (928767) от 15.02.2016
+
+VA - Quentin Tarantino's The Hateful Eight / Омерзительная восьмёрка (Original Motion Picture Soundtrack) (2015) Score by Ennio Morricone [FLAC|Lossless|tracks + .cue] <Soundtracks, Classical>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_928767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'Ultima Diligenza Di Red Rock (07:33)
+02. Overture (03:12)
+03. "Major Warren Meet Daisy Domergue" (00:33)
+04. Narratore Letterario (02:02)(   Читать дальше...   )Жанр: Soundtracks, ClassicalПродолжительность: 01:12:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35EA36560D8C1A0E09F95651C353C6F48604CD47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986626   (928891) от 15.02.2016
+
+Janis Joplin - Janis Little Girl Blue (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с] <Soundtrack, Blues, Rock>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_928891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Janis Joplin - Careless Love (3:07)
+02. Big Brother & The Holding Company - Down On Me (2:03)
+03. Janis Joplin - Women Is Losers (Live) (5:06)
+04. Big Brother & The Holding Company - Ball And Chain (Live) (8:07)(   Читать дальше...   )Жанр: Soundtrack, Blues, RockПродолжительность: 01:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C994BB86B1E2C0DA6EFCF8BF631B1076BA07D4F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 230102   (928913) от 25.01.2011
 
 VA - OST Скотт Пилигрим против всех (2010) [MP3|192-320 kbps]<OST>
@@ -434,315 +779,6 @@ VA - Encyclopedia of Ethnic Music, Vol. 1 (2010) [MP3|192 Kbps] <Native American
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2357563A425093B0D5C24C89C29292F2AAD55FCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 286098   (930572) от 24.01.2011
-
-Enrique Ugarte - 2 albums (2001, 2005) [MP3|320 kbps]<Instrumental / Accordeon>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. When Mademoiselle Dich Kubt		    (02:43)
-02. Sauvageonne				    (03:35)
-03. Indiferente				    (03:37)
-04. Valse violette			    (03:34)
-05. Le val joli				    (03:51)
-06. Retour des cirendelles		    (04:14)
-07. Die Prinzession des Akkordeons	    (02:58)
-08. Corinne				    (04:02)
-09. Germaine				    (03:26)
-10. Petite Musette			    (03:07)(   Читать дальше...   )Жанр: Instrumental / AccordeonПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02DE49A2CA350A138EAB38111B7EB0D22AF9F49B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365567   (930679) от 07.03.2020
-
-a noend of mine - Green Sketches (2017) EP [FLAC|Lossless|Web-DL|tracks] <Instrumental, Ambient, Acoustic, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viridian (7:06)
-02. Emerald (4:40)
-03. Ao (3:42)
-04. Midnight Green (5:32)Жанр: Instrumental, Ambient, Acoustic, Piano, Progressive RockПродолжительность: 00:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F3365334683CC04475EBA5268A4B2BDEBC16030
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986467   (930938) от 14.02.2016
-
-Oliver Scheffner - Sunlight Dreams (2015) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Sunshine
-02. Dreams Of Sunbeams
-03. Sunlights On The Calm Lake
-04. Sundown Magic(   Читать дальше...   )Жанр: New Age, ChilloutПродолжительность: 01:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6923982CCA5C05F2C191F700CD3F9FA14C330611
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986634   (931000) от 14.02.2016
-
-John Adorney - The Essential John Adorney (2016) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Potter's Gift
-02. Yilowe
-03. Even in Your Darkest Hour
-04. Dance of the Moon and Stars(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7819CB8D95A44340A82D2162DBBE59529C4F73DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986672   (931010) от 14.02.2016
-
-Mauro Usai and friends - Ethnico (my wind instruments) (2016) [MP3|320 кб/с] <New Age, World, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dijieridoo
-02. Non e semplice
-03. La voce del vento
-04. Tundu(   Читать дальше...   )Жанр: New Age, World, EthnicПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:966B815154842A769D874AA8FBFAA525CF80414B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986480   (931011) от 14.02.2016
-
-MIDIval Punditz - Light (2015) [MP3|320 кб/с] <New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run
-02. Baanwarey
-03. Nadia
-04. Rushing(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C04094EAAEAB9A053EA5C3609F68B06931A1C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629481   (931349) от 13.03.2013
-
-Tomb Raider 1-5 - Music PS collection +Bonus (1996-2000) [MP3|320 кб/с]<GameRip,Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: GameRip,SoundtrackПродолжительность: 01:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF586AAB92584B6358986A1172ACC0538D2C256C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 754518   (931511) от 08.02.2014
-
-Troika (David Arkenstone) - Kingdom of the Sun (2003) [FLAC|Lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. The Chariot (6:24)
-02. Sister of the Sun (5:07)
-03. The Messenger (5:58)
-04. Goddess of Love (4:45)
-05. The Warrior (5:08)
-06. The Giant (5:04)
-07. The Emperor (5:08)
-08. The Blue Titan (5:25)
-09. God of the Sea (4:50)
-10. God of the Shadows (5:33)Жанр: New AgeПродолжительность: 00:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00EF78907F4A3E28AB9FC619EA9E9AA22E1E60A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629451   (931555) от 13.03.2013
-
-Jesper Kyd - Darksiders 2 (2CD) (2012) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: OSTПродолжительность: 01:23:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCEB4ACC354874A8EC52B6BB2B7CFE18AB351A52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629761   (931913) от 13.03.2013
-
-Wolfsheart - The Call of the Canyons (2010) [MP3|320 кб/с]<New Age, Native American, Instrumental, Flute>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(5:23) 01. The Call of the Canyons
-(4:56) 02. Southwest Skies
-(5:41) 03. Monument Valley Shadows
-(4:37) 04. Dancing Rocks
-(5:51) 05. Kokopelli Dreams
-(4:12) 06. Saguaro Sunset
-(4:52) 07. Eagles Challenge
-(5:07) 08. Rainbow Over Canyon
-(5:40) 09. My Crow Heart (Whispering Winds of Love)
-(5:05) 10. Sunrise at Four Corners(   Читать дальше...   )Жанр: New Age, Native American, Instrumental, FluteПродолжительность: 00:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA02B55D354751F094D1B5BE92ADE98443691C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364755   (931971) от 06.03.2020
-
-Fly Project - 50 Indian Spirit (2015) [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sioux
-02. South America's Dream
-03. Toro Seduto
-04. Terra del fuoco(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 03:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D40885C0E2DE8E1F3BA8A1D53F1BD3A994B14C
 ```
 
 

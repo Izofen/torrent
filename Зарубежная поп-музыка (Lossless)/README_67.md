@@ -1,3 +1,30 @@
+###  Публикация: 1284274   (728897) от 21.02.2019
+
+Jamelia - Superstar-The Hits (2007) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superstar
+02. Thank You
+03. See It in a Boy's Eyes
+04. Stop(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A2A586483DF2B5091A7B7D5227A6C8BCC6BEB32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284323   (728961) от 21.02.2019
 
 The Lemon Trees - Open Book (1993) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -665,33 +692,6 @@ Secret Service - Jane (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17FF3E3C0578ED321C7466BDAC9ACC66CBB1CCAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398138   (736657) от 24.07.2020
-
-Les Humphries Singers - Mexico (1972) 2011, Warner [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop Rock, Gospel>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736657.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Old Time Religion - 3:19
-2. Malaika - 2:10
-3. Lovely Day - 3:24
-4. She's Really Something Else - 2:39(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, GospelПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F95D0594EFE9AC16302BABB64FEAF16EF399CA
 ```
 
 

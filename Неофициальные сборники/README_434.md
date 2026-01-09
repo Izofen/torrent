@@ -1,3 +1,30 @@
+###  Публикация: 1028106   (692876) от 21.06.2016
+
+Corr Sharon - Дискография (2010-2013) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raindrops.
+02. Take a minute.
+03. We could be lovers.
+04. Upon an ocean.(   Читать дальше...   )Жанр: PopПродолжительность: 01:25:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5343DC7C4AC40DB1D46DDC64F4FE0F60FDA055E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028040   (692975) от 21.06.2016
 
 VA - Chilling with Endless Nights (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -650,33 +677,6 @@ VA - Весенний фестиваль хитов 50/50 (2011) [MP3|128 kbps]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4621C1C2B2FB284641D2D9CF6F30DF8BC6F3C849
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027863   (694831) от 20.06.2016
-
-VA - Chillout Classical Study (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patricia Holmberg - Lyric Piece, Book I, Op. 12: VII. Albumleaf
-02. Alastair Cameron - Gnossienne No. 2
-03. Western Horizon Productions - Piano Sonata No. 11 in A Major, K. 331: III. Turkish March
-04. Maxim Melnikov - Drei Fantasiestucke, Op. 73: III. Rasch Und Mit Feuer(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 02:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24AC1CF8BB95361E416D138D5FB9CD09BB9D08F5
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1108243   (864744) от 24.02.2017
+
+VA - Morning Conversation Vol.8 Black Deep (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864744.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Escadia - Make It Hot 5:50
+002. Alex Mytton - Letters - Aevion Remix 3:58
+003. Mario Chris - FeelGood 5:06
+004. Block! - Ride Like The Wind - Sweet Side Lake Remix 5:24(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B09D347C238115D3F5E0AF8F5BD0C708DABD41B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108274   (864745) от 24.02.2017
+
+VA - Cold and Deep #13 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864745.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Echodust - Storm - Jonse & Bengt Van Steegen Remix 6:25
+002. HUGEL - Coming Home - Pingpong Remix 5:29
+003. Toru S. - Sing Another Song Baby 8:28
+004. LeSale - Phantom Vibes 6:06(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:505906D9E8004CD3C20A574624ED3DBCE82FA72A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108029   (864748) от 24.02.2017
+
+VA - Deep House Stewardess Vol.2 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864748.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Justicia - Aurora 5:36
+002. Hector Cooper - Sun Is Shining 5:31
+003. Lou Der - The Party - Max Volkholz Remix 5:38
+004. Andrea Ferri - Last Minute Fly 5:57(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C287534BE4EA2466C624B0DAC44C8761E76D4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108075   (864829) от 24.02.2017
+
+VA - Creations Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Redlounge Orchestra - String Thing  4:40
+02.  Blue Vibes - In The Cool Drazer  5:15
+03.  Dyodho - The Land Of Sinead  8:33
+04.  Akilam - Beauty Language  6:24(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E4932841F09F65D10F4701A633D667E001358E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108110   (864830) от 24.02.2017
+
+VA - Electronic Dance Music Vol.14 (2017) [MP3|320 Kbps] <Trance, Tech Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  ALX Project - Searching Sunlight (Original Mix)  8:49
+02.  Renegade System - Cloudwalker (Alan Wyse Remix)  6:39
+03.  DJ Kay - Waterfall (Original Mix)  8:32
+04.  Aaron Watton - Back To Reality (Brannock Remix)  6:52(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 03:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC842AA7BD47353FEB7F12B6853BCB3D5E14D21D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108036   (864834) от 24.02.2017
+
+VA - Whenever Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864834.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Don Gorda Project - Count The Clouds 5:39
+002. Cane Garden Quartet - Sea Jam 5:24
+003. Enrico Donner - Catch A Glimpse 5:57
+004. Baghira - Happy Piano 5:42(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCCF4DDD268ECE36678912210F2A15582AB93BBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108354   (864836) от 24.02.2017
 
 VA - Chillout Room (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -533,168 +695,6 @@ VA - Going Deep in London (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3ABFE6D0D7BBAC7DCC6D6C89E092CB38E1846C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107728   (866566) от 23.02.2017
-
-VA - 12 Bombs To Rock: Tech and Deep-House Edition 15 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcelo Wallace - A7
-02. Clownfish - The Lights
-03. Andy B. Jones - World To Life - Matty Menck Dub
-04. Mark - Evol - Extended Mix(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C0A77511FCDE6B8F9B7F01CF29035F22D3B3E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107929   (866569) от 23.02.2017
-
-VA - Mallorca Beach and Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866569.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lo Tide - Look To The Skies 3:23
-002. Dominik Pointvogl - Flamingo Hilton 4:39
-003. No Accident In Paradise - Taniec 9:23
-004. Weathertunes - Bikini 4:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF418FF8B771B1816E9F121E75776E4B23B2F3F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107930   (866570) от 23.02.2017
-
-VA - Chillout Dimension: Pure Chill Music Selection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866570.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Valefim Planet - Voyager 5:48
-002. Maxim Air - Fly - Original Mix 7:29
-003. Valefim Planet - Soothing the Soul - Original Mix 6:03
-004. Dmitry Bereza - Light Speed 5:43(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55EA6167E640F11348EB1D1DAF562BF23C1152F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107623   (866572) от 23.02.2017
-
-VA - Clear the Air Vol.4: Pure Chill out and Electronica (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866572.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Redlounge Orchestra - Lightning Seeds 4:49
-002. Antigua Beach Lovers - Moka Reas 5:10
-003. Slownoise - The Knot 5:39
-004. JB 59 - Mediterranean LIfe 4:18(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC8C3EF0BC4E817983785E55452B258355F40B58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107906   (866574) от 23.02.2017
-
-VA - Sunday Brunch Chill Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Breezz Studio - Intro  3:16
-02.  De La Cream - Wonderful Life  3:58
-03.  Greg Walker - Sixth Avenue Samba  5:24
-04.  Florito - Loungery  4:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFAFE8948D76E592997CA7FE2091466912278581
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107855   (866576) от 23.02.2017
-
-VA - Top 20 Chillout February (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Radiobird - Sea  5:36
-02.  Cj RcM - No Regrets  3:42
-03.  DJ Party-Zan - Trip At Nothing  4:40
-04.  Jentarix - Indian Summer  3:54(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A5C1F33AEFB8233B917028104EC7BBD1ABF5015
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 996956   (877318) от 15.03.2016
+
+VA - Ultra Music Festival 2016 (2016) Compilation [FLAC|Lossless|tracks] <Progressive House, Electro House, EDM>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Kygo Ft Maty Noyes - Stay [3:59]
+02.Carnage Ft Tomas Barfod & Nina Kinert - November Skies (Radio Edit) [3:22]
+03.Deorro Ft I-Ez - Haters [4:08]
+04.Louis The Child Ft K.Flay - It's Strange [4:06](   Читать дальше...   )Жанр: Progressive House, Electro House, EDMПродолжительность: 00:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A398DE00C298FCA231A7942346609578EEC8B2C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495787   (877449) от 14.09.2021
+
+Turboslash - Speed (2020) [MP3|320 Kbps] <Synthwave, Retrowave, Darksynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far Away (3:43)
+02. MEGADRIVE Overdose (3:36)
+03. RoadRage (3:32)
+04. GodMode Domination (3:48)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DarksynthПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A2135698760E51E0D48E5AAAF3E8FBCB5EFCC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495806   (877453) от 14.09.2021
+
+Eekkoo - The 4th Season (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change (5:15)
+ 02. The Game (ft. Deji Siegert) (3:14)
+ 03. Barefoot (5:24)
+ 04. Falling (ft. Graham Baxter) (6:49)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B450E415689C00941AC996D173768C7F07482D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104692   (877547) от 16.02.2017
+
+Depeche Mode - Greatest Hits. Volume 1,2 (2009) Compilation, 4CD [FLAC|Lossless|image + .cue] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stripped (4:19)
+ 02. Behind The Wheel (Remix) (4:04)
+ 03. A Question Of Time (4:11)
+ 04. Strangelove (3:49)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 05:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E6D2BDD0286342F83EA2B2CF0BB6BCBD88A01EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996955   (877658) от 15.03.2016
+
+Astropilot & Friends - Soul Surfers (2016) [MP3|320 кб/с] <Psybient, Downtempo, Ambient, Progressive Trance>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AstroPilot - The Bliss Of Now
+02. AstroPilot and Lab's Cloud - Numen
+03. AstroPilot and Suduaya - Soul Surfers
+04. AstroPilot and Trylon - Entering Godmode(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 01:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D51AB74B018753C4A7C6B6F11BEF1809FEAD8202
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995934   (877664) от 15.03.2016
+
+VA -  Drumsterdam (2016) [MP3|320 кб/с] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Signal - 8 Levels
+02. ChaseR - Obsession
+03. Deezibel - Diesel Power
+04. Deone - Feelin Good(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB8878F213AF894C01EAE8105C15550926F44C9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996996   (877681) от 15.03.2016
 
 Gai Barone - Towards (2016) [MP3|320 кб/с] <Progressive House>
@@ -533,168 +695,6 @@ Gregory - Unknown Universe (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Syn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B2D2A2A9E575B9FAB981EA7D83398FA2AA1C593
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495010   (880617) от 12.09.2021
-
-VA - VREMЯ VПERЁD! Russkiй Pizdэnц (1993) Air Fish Records [FLAC|Lossless|tracks + .cue] <House, Hardcore, Ambient, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880617.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Sviridov*– Vremя Vпеrёd 1:27
-2 Block Four– Who Works With You? 6:13
-3 The Fantom– Planet Caladan 5:14
-4 X-Time– X-Time 5:24(   Читать дальше...   )Жанр: House, Hardcore, Ambient, TranceПродолжительность: 01:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D9354C518095C82EB970440343C368A633A7CEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995604   (880825) от 13.03.2016
-
-Space - Best Of (1998) 2002 BMG Russia [FLAC|Lossless|tracks + .cue] <Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic Fly (Original Version) (4:19)
-02. Running In The City (4:13)
-03. Just Blue (4:30)
-04. Carry On, Turn Me On (7:13)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C51446DDA09B5BBFE1B3F580D370FABAB0A9D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996222   (880840) от 13.03.2016
-
-Blutengel - Nemesis: Best of and Reworked (2016) 2CD, Deluxe Edition [FLAC|Lossless|image + .cue] <Darkwave, Synth-Gothic>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vampire Romance (Reworked) [04:45]
-02. Children Of The Night (Reworked) [05:18]
-03. Behind The Mirror (Reworked) [03:51]
-04. Soul Of Ice (Reworked) [05:20](   Читать дальше...   )Жанр: Darkwave, Synth-GothicПродолжительность: 01:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0A88AF0F9C1675D3E71100B677EC5978363CE81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996264   (880933) от 13.03.2016
-
-Physical Dreams - Orbital (2016) [MP3|320 кб/с] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andromeda
-02. Arcadia
-03. Baroque
-04. Der Testimony(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA36773A381C60F903108A4D1531588CDD7EA74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996274   (880950) от 13.03.2016
-
-Sean Tyas - Degeneration (2016) [FLAC|Lossless|tracks+.cue] <Trance, Psy-Trance, Breaks, Drum & Bass>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vagabond (5:43)
-02. Swarm (4:45)
-03. Diffuse (5:10)
-04. 9Am (5:53)(   Читать дальше...   )Жанр: Trance, Psy-Trance, Breaks, Drum & BassПродолжительность: 01:17:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC4CA2D37B6F1482CC6D533C8767A59E49D593C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996263   (880955) от 13.03.2016
-
-VA - Grotesque Winter Edition (Mixed by RAM & Mark Sherry) (2016) [FLAC|Lossless|tracks+.cue] <Trance, Uplifting Trance, Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ahmed Romel - Paradisum (3:57)
-02. Allen & Envy & Andy Elliass feat. Natalie Gioia - In Love (5:13)
-03. RAM & James Dymond feat. Kim Kiona - End Of Times (Flynn & Denton Remix) (4:50)
-04. Factor B - Sacrosanct (5:59)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive TranceПродолжительность: 01:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DD03708B2D9B6974420148AAC6ED78F51790DC4
 ```
 
 

@@ -1,3 +1,163 @@
+###  Публикация: 1141777   (646840) от 12.06.2017
+
+VA - Chill Out Selectionc Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Paul Spectre - Comfort Zone  7:01
+02.  Gabriel Thomas - Velvet Boulevard  3:32
+03.  Nikolay Mikryukov - Summer Is Coming  7:25
+04.  Radar Detector - When We Were Still Together  6:31(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BA6E2BC41E7601874D34BB22AA092D572D3D711
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142095   (646841) от 12.06.2017
+
+VA - Beats For Life Vol.1 20 Deep-House Daiqueries (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Umbria Style - Groove Junkie
+02. NJ Producer - Hold Love - Portugal Mix
+03. Orlando Johnson - It's Time To Get Together - Main Mix
+04. Nicola Minella - Esperando El Sexy Cha Cha - Club Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8125EF0CF942610435E9B494C6BCFED7889660A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141950   (646843) от 12.06.2017
+
+VA - Chillout Summer Tunes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  STJ - Eco Ballad (Aaron The Baron Fantasy Mix)  5:33
+02.  Eternal Dreamer - Kiss Me (Dreamstep Mix)  5:03
+03.  Max Denoise - Forgive You (Chill Around Mix)  5:43
+04.  X-ite project - The Sound Of Goodbye (Extended Version)  3:57(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4223F63151095BFD5B58598C550C457641B208F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541388   (646853) от 02.04.2022
+
+Nickolay Fedorenko - Коллекция (2013-2022) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spacedisco, Dance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance Planet (3:03)
+02. Interstellar Flight (3:37)
+03. Dynamic Motion (3:47)
+04. Winter Dance (3:26)(   Читать дальше...   )Жанр: Spacesynth, Spacedisco, DanceПродолжительность: 04:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A2E3A4F9B50B69D9CB4D4B6256651FF6BC364F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541159   (646859) от 02.04.2022
+
+Наукоград - Дискография (2018-2021) [FLAC|Lossless|WEB-DL|tracks] <Chillwave, New Wave, Lo-Fi>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Апрель (3:28)
+02. Время (4:14)Жанр: Sovietwave, Chillwave, New Wave, Lo-FiПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104AC3C715C8E5DBB7C7C9619558DE47FC707B7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292363   (646907) от 29.03.2019
+
+VA - Trancespotting Vol.8 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindsoundscapes - Grasping Life (Radio Cut) 3:19
+02. Con Phillips - Varanasi (Radio Cut) 3:51
+03. Unit Of Trance - Reserve (Radio Edit) 3:28
+04. Brent Rix - Desert Sun (Original Mix) 3:41(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF2A5583C0393F55B6DDE969147656B615E5A66B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541348   (646942) от 02.04.2022
 
 Lane 8 - Spring 2022 Mixtape (2022-03-30) [MP3|320 Kbps] <Progressive House, Deep House>
@@ -538,168 +698,6 @@ Bella Technika - Section (2019) PDV Records [FLAC|Lossless|WEB-DL|tracks] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED91AE044E3D3BFA27388AECCCB1E84D088EAB00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540984   (648645) от 01.04.2022
-
-VA - Trance Music For You Trip (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7ROSES & Camille - Trying Not To Cry (Radio Mix) (3:22)
-02. Craig B - Hold The Light (Radio Mix) (3:41)
-03. Moonmelo - Imagination (Radio Mix) (2:40)
-04. A.L.Y.S. - Weekend (Radio Mix) (3:00)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B851BE2491B30B0757034CC0CFD57F61B4538D83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 678864   (648663) от 14.07.2013
-
-Lorenzo Dada - The Pianist (2013) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Almost Made It (05:11)
-02. I Need Love (07:05)
-03. Infinity (06:44)
-04. Lye To Me (06:26)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F2A3D2028E74F4750A629B9FDCBDF64F42BA03B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141865   (648692) от 11.06.2017
-
-VA - Blue Marlin Ibiza-Bruce Hill & Valentin Huedo (unmixed tracks) (2017) [FLAC|Lossless|tracks + .cue] <Deep House, Techno, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thodoris Triantafillou & CJ Jeff - Not Only U [06:53]
-02. B.I.G. - A Promise [09:13]
-03. Beatamines - Groove Symphony [06:53]
-04. Milton Jackson - M.L.A. (Shur-i-kan remix) [07:12](   Читать дальше...   )Жанр: Deep House, Techno, ElectronicПродолжительность: 05:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1FBFF39DF6740FE00EE92CEE09072A1335EFF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141673   (648706) от 11.06.2017
-
-A Cerulean State - Singles 2015 (2014) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Piano>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/20. Olēka (3:00)
- 02/20. Perhaps things had finally begun to move (4:14)
- 03/20. Why can't you see me (3:01)
- 04/20. And it all came to a halt (3:09)(   Читать дальше...   )Жанр: Ambient, Modern Classical, PianoПродолжительность: 01:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDF77482F13A14B12CD95EDB19F4DC0F2ECA58F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141654   (648707) от 11.06.2017
-
-VA - Mystic Cinematic: Darkness Electronic Chill out Lounge (2017) [MP3|320 Kbps] <Downtempo, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romatic Warrior - The Round Table - Downbeat Lounge Mix
-02. Gothica Electronica - Counting the Cost - Dark Cinematic Chill Cut
-03. Children of the Cosmos - Tears in Blue Rain - Lounge Electronica Mix
-04. Moon Pub - Cold Ocean Memories - Tomorrow Switcode Mix(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 01:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5753E125A91CB301E32CFD753D1008E72AE94539
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291960   (648738) от 28.03.2019
-
-VA - Colorful Downbeats Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Progressive Chill, Downtempo, Downbeat>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Koan - Ruins of Amber Kingdom 06:30
-02. Ghost Rider - You Sun 08:17
-03. Darish - Marrakesch Nights 05:16
-04. Koan - Dolphin & Eos (Suduaya Remix) 06:16(   Читать дальше...   )Жанр: Psychill, Progressive Chill, Downtempo, DownbeatПродолжительность: 01:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5243A5DA9BB4B33B4B369F5344DC7842A92DFF7
 ```
 
 

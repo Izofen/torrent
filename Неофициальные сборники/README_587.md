@@ -1,3 +1,30 @@
+###  Публикация: 1103566   (885966) от 12.02.2017
+
+VA - Empire Records - Dancenudisco 8 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nami, Taspin, Diaz - Closing Time (Andrey Keyton Remix)
+02. Michael Gray - The Weekend (Extended Vocal Mix)
+03. Sandy Rivera - So Good
+04. Oliver Koletzki, Nord - After All (Claptone Remix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 02:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD2FF81B7FEECD518AA52947103F839DC60CF01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103548   (886074) от 12.02.2017
 
 VA - Planet of Chillout: Fifteen Organic Downtempo and Chillout Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -674,33 +701,6 @@ VA - Break Of Day: Ambient & Chillout Mix (2021) [MP3|320 Kbps] <Chillout, Ambie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D33E6EBC232F22D49237C7A0FEC9EA56B129191
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494588   (887744) от 08.09.2021
-
-VA - Beatport Hard Techno: Sound Pack #342 (2021) [MP3|320 Kbps] <Techno, Minimal, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887744.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Sinner - Catalyst
-002. The Sinner - Oracle
-003. Ben Tyler - 20s Rave
-004. Kontain - Neck Crank(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 12:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99A4DABC68390236FF3EBD8FFEF39DDE4F6EBAD4
 ```
 
 

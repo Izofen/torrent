@@ -1,3 +1,81 @@
+###  Публикация: 1378439   (846532) от 25.04.2020
+
+Sophie Hutchings - Scattered On The Wind (2020) [FLAC 2.0|96/24|tracks|WEB-DL] <Modern Classical, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scattered On The Wind (Pt. 1) [4:54]
+ 02. Scattered On The Wind (Pt. 2) [2:32]
+ 03. Your Heart [5:24]
+ 04. Orange Glow [6:49](   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80AD740C6FA89FB2D4C59D8C1C253232FEBD170C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 192139   (847916) от 14.04.2010
+
+VA - Masters of Classical Music (2008) 10CD [FLAC|Lossless]<Classic>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicПродолжительность: 10:30:42
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002319   (848529) от 31.03.2016
+
+Frederic Chopin - The Complete Works (2008) 16CD, Compilation [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Sonata No 1 in C minor Op 4 [24'46]
+1. Allegro maestoso [8'30]
+2. Menuetto [4'50]
+3. Larghetto [4'41](   Читать дальше...   )Жанр: ClassicalПродолжительность: 19:15:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D7E42C22F8AF0C4D69956919E854D6ECA9172AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999558   (848595) от 31.03.2016
 
 Viktor Merzhanov - Russian Piano School (1995) [FLAC|Lossless|tracks] <Classical, Keyboard>
@@ -611,87 +689,6 @@ VA - J S Bach: Complete Harpsichord Concertos on Antique Instruments (2009) 3CD 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31974B6EC213ACD2472C8D5004903FB3B0BC90AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001276   (853791) от 28.03.2016
-
-Francesco Cera - Trabaci: Music for Organ and Harpsichord (2014) 2CD [FLAC|Lossless|image + .cue] <Classical, Baroque, Keyboard>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canzona franzesa settima cromatica  3:46
-02. Canto fermo secondo del secondo tono  3:36
-03. Consonanze stravaganti  2:22
-04. Toccata seconda ottavo tono  3:03(   Читать дальше...   )Жанр: Classical, Baroque, KeyboardПродолжительность: 01:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F56C57511DF84C1612465605996BC2EEC2ABAFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001244   (853795) от 28.03.2016
-
-Zuzana Ruzickova; - Harpsichord music from England, Spain and Portugal (2012) 2CD [FLAC|Lossless|image + .cue] <Classical, Baroque, Keyboard>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Dowland - Mellancoly Galliard, for lute, P 25    [0:03:00.50]
-02. John Dowland - The Shoemaker's Wife, a Toy, for lute, P 58    [0:01:10.28]
-03. John Dowland - Lady Hunsdon's Almain (Lady Hunsdon's Puffe), for lute, P 54    [0:01:00.70]
-04. Ferdinando Richardson - Pavana (Fitzwilliam Virginal Book)    [0:03:15.35](   Читать дальше...   )Жанр: Classical, Baroque, KeyboardПродолжительность: 01:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B89033A90870DD6DD08950D46F234421365168DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001501   (853798) от 28.03.2016
-
-Ton Koopman, Musica Antiqua Amsterdam - Haydn: Complete Harpsichord Concertos (1995) 2CD [FLAC|Lossless|tracks] <Classical, Baroque>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Concerto in F - I. Allegro  9:46
-02.  Concerto in F - II. Largo Cantabile  6:03
-03.  Concerto in F - 3: III. Presto  5:04
-04.  Concerto in G - I. Allegro Moderato  7:42(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 02:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43AB370F7B676719C03A0ED65CBB97F42186F315
 ```
 
 

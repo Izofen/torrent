@@ -1,3 +1,30 @@
+###  Публикация: 1356548   (976676) от 01.02.2020
+
+VA - Amphetanarchy: Hard Rock Cafe (2020) [MP3|320 Kbps] <Hard Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976676.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mitch Rivers - Reconsider Me
+002. The Quill - Hammerhead
+003. Dead Express - Nightmare On High Heels
+004. Louden Swain - Mrs. Vance(   Читать дальше...   )Жанр: Hard Rock, AlternativeПродолжительность: 09:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A4FAA3C23BD988DD9F56D9059CE4A0E5682146
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 615623   (976725) от 09.02.2013
 
 VA - Хулиганская душа (2013) [MP3|128 кб/с]<Шансон>
@@ -714,33 +741,6 @@ VA - Зимний Отборный Хит (2016) [MP3|256-320 кб/с] <Pop, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B1C0BBF7871189D2DE59814662B36A302DE9806
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973710   (979138) от 09.01.2016
-
-VA - Big Workout Hits 2016 - 40 Essential Fitness And Workout Hits (2016) [MP3|320 кб/с] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Sirias - Firestone (Workout Mix 114 BPM) [05:00]
-02. Billie Tasker - Hideaway (Workout Mix 123 BPM) [04:38]
-03. Stephan Baker - Waves (Workout Mix 120 BPM) [03:39]
-04. Billie Tasker - Am I Wrong (Workout Mix 120 BPM) [04:55](   Читать дальше...   )Жанр: Club, DanceПродолжительность: 04:20:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4AA90CE515BA82E3C3082BBC9ED7566CDD96F92
 ```
 
 

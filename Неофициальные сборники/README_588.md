@@ -1,3 +1,30 @@
+###  Публикация: 1494588   (887744) от 08.09.2021
+
+VA - Beatport Hard Techno: Sound Pack #342 (2021) [MP3|320 Kbps] <Techno, Minimal, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887744.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Sinner - Catalyst
+002. The Sinner - Oracle
+003. Ben Tyler - 20s Rave
+004. Kontain - Neck Crank(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 12:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A4DABC68390236FF3EBD8FFEF39DDE4F6EBAD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494623   (887745) от 08.09.2021
 
 VA - HGM: Organic House Deep Downtempo Mix (2021) [MP3|320 Kbps] <Deep House, Chill House>
@@ -668,33 +695,6 @@ VA - The Best - In Music We Trust Vol.12 (2016) [MP3|320 Kbps] <House, Electro H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:014CC3F0C19BC017AC74ABA749189E998054521B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102799   (889353) от 10.02.2017
-
-VA - Underwater The Shadow Of Life (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889353.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2Step - New Island (Alluna Remix) 05:01
-002. Tafubar - The Wicked Thoughts Of You (Lemongrass Snowflake Mix) 05:06
-003. Adrian Shepherd - Eronika (Original Mix) 04:31
-004. Oscar Stringz - Time For A Break 06:18(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47C82429D678126AF75DE080E58F255344E44A0
 ```
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1544215   (621997) от 15.04.2022
+
+Space - Magic Fly (1977) Reissue, 2010, Repertoire Records [FLAC|Lossless|tracks + .cue] <Synth-pop, Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fasten Seat Belt
+02. Ballad For Space Lovers
+03. Tango In Space
+04. Flying Nightmare(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 00:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A30745E474FDC26A90807F95656C32BDAA442207
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 684241   (622027) от 27.07.2013
+
+Syrian - Death Of A Sun (2013) European Edition [FLAC|Lossless]<Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Fade Away
+02. Runner In The Night
+03. Dreaming
+04. Walk Into The Sun(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B92110DE0A345716AB17AB6F16CA34CB48EFE06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295212   (622055) от 11.04.2019
+
+The Chemical Brothers - No Geography (2019) [MP3|320 Kbps] <Electronic, Breakbeat, Techno>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eve Of Destruction
+02. Bango
+03. No Geography
+04. Got To Keep On(   Читать дальше...   )Жанр: Electronic, Breakbeat, TechnoПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E867949920CD601D5FDEFA1FDA8A72364C21E01F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544323   (622069) от 15.04.2022
+
+Blutengel - Erlosung - The Victory of Light (2021) Deluxe Edition, 2CD Box Set [FLAC|Lossless|WEB-DL|tracks] <Electro, Synth-pop, Darkwave>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Herrschaft (00:05:04)
+02 - Freak Out (00:04:38)
+03 - She's Not a Saint (00:04:17)
+04 - Purple Sky (00:04:19)(   Читать дальше...   )Жанр: Electro, Synth-pop, DarkwaveПродолжительность: 2CD, 01:48:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:160B98B1E0FDA1460866E5B675AF02B2E77233F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544424   (622183) от 15.04.2022
+
+Third ≡ Party - Tomorrowland Friendship Mix (2022-04-14) [MP3|320 Kbps] <Progressive House, Electro House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Third ≡ Party ft. Alfie Bass - Take Me Away
+02. Eli Brown & Love Regenerator - Moving
+03. Maddix - Activating w/Third ≡ Party ft. FMLYBND - Have No Fear
+04. Third ≡ Party - Arrival(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C14DE89A07F394BAE594DA3BB1E8F505FB71E76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295248   (622185) от 11.04.2019
 
 The Chemical Brothers - No Geography (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Breakbeat>
@@ -555,141 +690,6 @@ Arch Origin - Soul Castle (2017) EP [MP3|320 Kbps] <Deep Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDF0AF190071061D6AF356472011DAAF5F26F84E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145116   (623914) от 24.06.2017
-
-VA - Deutsche DJ Charts Vol.21 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Faul & Wad vs. Avalanche City - I Need You  3:56
-02.  PH!L - Don't Kill Yourself (Club Mix)  4:27
-03.  David K. - Too Bad (Tom B. Remix)  5:12
-04.  Yoshua - Lug Mich An (DBN Remix)  4:41(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 04:14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3EA054BB7AAE9DF5196E1F7CB420952612853E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295029   (623985) от 10.04.2019
-
-VA - Synthwave Vol. 2 (2015) [MP3|320 Kbps] <Synthpop, Syntwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Futurecop! - Venice Beach (5:34)
-02. Sally Shapiro - All My Life (5:52)
-03. Room8 - Visions of You (4:33)
-04. Le Matos - All My Life - Venice Beach (4:33)(   Читать дальше...   )Жанр: Synthpop, SyntwaveПродолжительность: 01:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C59F371FECB9906371EEE320438E8158A9B6A21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145219   (624030) от 24.06.2017
-
-VA - Music For Mindfullness (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cantoma - Early Till Late (04:45)
-02. Troels Hammer - View Of Wisdom (03:22)
-03. NordsA & Theill - Good Morning (feat Caroline Franceska) (06:05
-04. The Swan & The Lake - Clouds Over Asterbro (04:42)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:30:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE25E495FEDE09AE25B3D6220B89962A111304EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 231024   (624045) от 07.06.2018
-
-Gridlock - Discography 12 Releases (1997-2004) Hymen Records, Unit [FLAC|Lossless|tracks+.cue, tracks]<IDM, Industrial, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gridlock - Invert (06:01)
- 02. Steel - Help Yourself (Gridlock Remix) (05:54)
- 03. Steel - One Man and His Anger (04:03)
- 04. Gridlock - One Man and His Anger (Steel Remix) (04:46)Тип издания: CD, Vinyl, WebЖанр: IDM, Industrial, Breakcore, Abstract, Ambient •Продолжительность: 09:04:39 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7196623B3553355E66F4387B9C3838BFCDB6994
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910067   (624067) от 19.06.2015
-
-VA - Deep House For Your Body and Soul Vol 2 (2015) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624067.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Elsa Del Mar, Jason Rivas - La Magia d 07:11
-2.Jason Rivas, Positive Feeling - Flying 06:20
-3.Organic Noise From Ibiza - Hojas Ilumi 06:39
-4.Jason Rivas, Instrumenjackin - 100 Sta 05:58(   Читать дальше...   )Жанр: HouseПродолжительность: 01:02:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8517FD40E34F9C874CE8F0E651602F3C1C030F5
 ```
 
 

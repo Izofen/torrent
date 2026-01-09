@@ -1,3 +1,30 @@
+###  Публикация: 1840515   (1047414) от 05.12.2025
+
+Kylie Minogue - Kylie Christmas [Fully Wrapped] (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1047414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - It's the Most Wonderful Time of the Year
+02 - XMAS (Amazon Music Original)
+03 - Santa Baby
+04 - Hot in December(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB1CFC8407224AA471D31435A6369121682C6E92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840693   (1047473) от 07.12.2025
 
 VA - Hooked On a Feeling - 70s Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -128,6 +155,60 @@ Greatest - это сборник лучших хитов группы Bee Gees. 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5BC42DFBE78D6A2EC5D441A38DE68F8C07E7117
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846452   (1051515) от 
+
+Bee Gees - Still Waters (1997) [FLAC|Lossless|image + .cue] <Pop, Disco, Soft rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Still Waters — двадцать первый и предпоследний студийный альбом группы Bee Gees , выпущенный 10 марта 1997 года в Великобритании лейблом Polydor Records.01. Alone - 4:51
+02. I Surrender - 4:18
+03. I Could Not Love You More - 3:44
+04. Still Waters Run Deep - 4:10(   Читать дальше...   )Жанр: Pop, Disco, Soft rockПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72DC63C2432B8962EB1A4D6D7B6B0AB5549A9CE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846477   (1051517) от 
+
+VA - Modern Synth Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charli XCX - Talk Talk (2:42)
+02. Kenya Grace - Strangers (2:53)
+03. Chappell Roan - Sugar High (3:40)
+04. Twenty One Pilots - Vignette (3:23)(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 01:20:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B73DD12AC1169FE10C5C8255A85A66772270E7C
 ```
 
 

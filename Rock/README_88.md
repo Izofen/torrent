@@ -1,3 +1,57 @@
+###  Публикация: 1492787   (898918) от 01.09.2021
+
+U2 - Live At The Apollo (For One Night Only) (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Will Follow (04:05)
+ 02 - The Electric Co. (04:16)
+ 03 - Out of Control (04:56)
+ 04 - Red Flag Day (03:31)(   Читать дальше...   )Жанр: RockПродолжительность: 01:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383CA7ED7DA9D28F2B7967AD2192A2F7710B85AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100501   (899787) от 04.02.2017
+
+The Don Harrison Band - The Don Harrison Band (1976) Reissue, 2006, FruitGum Corp. [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899787.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sixteen Tons
+2. Who I Really Am
+3. Rock 'N' Roll Records
+4. Fame And Fortune(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B0DD0F1D20EAE0C3EEC5CD06E82B39ADC2478B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492581   (900462) от 31.08.2021
 
 The Immediate Family - The Immediate Family (2021) [MP3|320 Kbps] <Classic Rock, Blues>
@@ -638,60 +692,6 @@ Crosby, Stills, Nash & Young - So Far (1974) [MP3|320 Kbps] <Classic Rock, Soft 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9473F72CE8A871A1A8F9B3DC608DCE6F01556A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490727   (915405) от 22.08.2021
-
-Eric Clapton - Eric Clapton (2021) Anniversary Deluxe Edition [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teasin' [00:02:14]
-02. Comin' Home (Alternate Version) [00:06:52]
-03. Blues In "A" [00:10:26]
-04. She Rides [00:05:10](   Читать дальше...   )Жанр: RockПродолжительность: 4CD, 02:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B75EF6C4F03FB11FDB63FCCA8637A3E46A120F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367545   (915637) от 16.03.2020
-
-VA - I Love Rock Ballads (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matchbox Twenty - Push 3:59
-02. Yes - Owner Of A Lonely Heart (2008 Remaster) 4:27
-03. Marillion - Kayleigh (1998 Remaster) 3:35
-04. White Lion - When The Children Cry 4:18(   Читать дальше...   )Жанр: RockПродолжительность: 02:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92425B97E6A7C2FA7C36CF8418B5BCBEA177396B
 ```
 
 

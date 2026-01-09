@@ -1,3 +1,300 @@
+###  Публикация: 1457977   (1023463) от 31.03.2021
+
+Oscar Lopez - Guitar Masters (2002) Compilation [MP3|320 Kbps] <Flamenco, Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armando's Fire (3:26)
+02. Walking Through The Pyramid (3:53)
+03. Chile (3:28)
+04. Latino (4:28)(   Читать дальше...   )Жанр: Flamenco, GuitarПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F9CBC2FEDE047D6126D6C2C2D2152812F9EB8A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457715   (1023464) от 31.03.2021
+
+Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла против Конга (Original Motion Picture Soundtrack) (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023464.jpg" />
+</div>
+
+
+###  Подробнее
+
+[02:20] 01. Pensacola, Florida (Godzilla Theme)
+[07:26] 02. Skull Island (Kong Theme)
+[02:02] 03. Apex Cybernetics
+[02:29] 04. A New Language(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBB15A744B58F72E42D5115BFDB70BABFBD932CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457771   (1023466) от 31.03.2021
+
+Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from the Soundtrack) (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023466.jpg" />
+</div>
+
+
+###  Подробнее
+
+[02:29] 01. '84
+[04:39] 02. No Hero Is Born from Lies
+[05:09] 03. Apex Predator
+[06:50] 04. The Monkey Paw(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8973E0E51144EDCA2099EAD44AA244AD917366AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459059   (1023468) от 31.03.2021
+
+Corrado Carosio & Pierangelo Fornaro - Rocco Schiavone 1-4 (Colonna Sonora Originale Della Fiction TV) (2016-2021) Rai Com [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Soundtrac ...
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ugo In Love (02:07)
+ 02. Teatro Romano (02:48)
+ 03. Il Grande Ritorno (02:17)
+ 04. Amantidi (01:40)(   Читать дальше...   )Тип издания: WebЖанр: Modern Classical, Ambient, Soundtrack •Продолжительность: 02:44:48 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A554CB22C7870A2D617DE6ABDDF1F64D4A18BC2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458751   (1023475) от 31.03.2021
+
+VA - More Pop Piano Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jim Brickman - Sing (2:56)
+02. Stan Whitmire - Hero (4:21)
+03. Jim Brickman - Love Me Like You Do - From Fifty Shades Of Grey (5:03)
+04. Pat Coil - The Old Songs (3:49)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 03:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B46301E934A8B23E864F9385EF0D2A3DAE54C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458651   (1023660) от 30.03.2021
+
+VA - Pop Piano Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pat Coil - Mandy (3:41)
+02. Jim Brickman - Right Here Waiting (3:50)
+03. Beegie Adair - And I Love Her (3:49)
+04. Jimmy Fedd - Blessed (4:20)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 03:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED8384987710643905A77BDFFC68236B0EED37A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457981   (1023669) от 30.03.2021
+
+VA - Romantic Melodies: Enigmatic (2008) [MP3|320 Kbps] <New Age, Folk, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulakos - So Sad (Gregorian) (3:30)
+02. Massini - Ameno (Remix) (Levi-Protheroe) (3:48)
+03. El Suerte - Esperanza (Levantis) (4:44)
+04. Transeparence - Sadeness-Part 1 (CurlyMC-Gregorian-Fairstein) (4:25)(   Читать дальше...   )Жанр: New Age, Folk, CelticПродолжительность: 01:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13E822307AA49114D4EF11D1E9F250F62C6DBDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458607   (1023679) от 30.03.2021
+
+Paul Cardall - The Broken Miracle (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Easy Listening>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Cardall - A Blue Baby (2:51)
+02. Paul Cardall - Moths & Butterflies (5:03)
+03. Paul Cardall, Thompson Square - The Man with Half a Heart (4:19)
+04. Paul Cardall - Family (2:15)(   Читать дальше...   )Жанр: New Age, Instrumental, Easy ListeningПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4E4477A05437B1C689DA6540F103C61FA138A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457773   (1024056) от 28.03.2021
+
+Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from the Soundtrack) (2021) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024056.jpg" />
+</div>
+
+
+###  Подробнее
+
+[02:29] 01. '84
+[04:39] 02. No Hero Is Born from Lies
+[05:09] 03. Apex Predator
+[06:50] 04. The Monkey Paw(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB624FD1AC20F8190FA9067AC4EDB429B5ACF6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457772   (1024060) от 28.03.2021
+
+Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from the Soundtrack) (2021) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024060.jpg" />
+</div>
+
+
+###  Подробнее
+
+[02:29] 01. '84
+[04:39] 02. No Hero Is Born from Lies
+[05:09] 03. Apex Predator
+[06:50] 04. The Monkey Paw(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7121186411F4CD18E26CE9F1724924513D3E7D4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457717   (1024200) от 27.03.2021
+
+Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла против Конга (Original Motion Picture Soundtrack) (2021) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024200.jpg" />
+</div>
+
+
+###  Подробнее
+
+[02:20] 01. Pensacola, Florida (Godzilla Theme)
+[07:26] 02. Skull Island (Kong Theme)
+[02:02] 03. Apex Cybernetics
+[02:29] 04. A New Language(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8052C128C1F32F823F5556BB23834A2F334B0053
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457716   (1024209) от 27.03.2021
 
 Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла против Конга (Original Motion Picture Soundtrack) (2021) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
@@ -401,303 +698,6 @@ Simon Chylinski - Subnautica (Original Game Soundtrack) (2018) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F4A2FE3ACAE93BC6A6E4B55F0E62169C2C4646A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449974   (1029337) от 24.02.2021
-
-Darren Korb - Hades OST (2020) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029337.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. No Escape [2:26]
-2. The House of Hades [4:53]
-3. Out of Tartarus [5:55]
-4. Wretched Shades [2:56](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBFC18A2620B3407DC4D1D55FE92646CE3F0A885
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450117   (1029343) от 24.02.2021
-
-Devesh Sodha - Past & Present (2018) + Singles (2013-2020) [FLAC|Lossless|WEB-DL] <Soundtrack, Instrumental, Epic>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destiny Of The Urban Warrior
-02. Carol of the Bells (Epic Version)
-03. Promises
-04. Falling FasterЖанр: Soundtrack, Instrumental, EpicПродолжительность: 00:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28186DE1AD7B25F70FE6EA3D4FC758A85F02410
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449973   (1029347) от 24.02.2021
-
-Darren Korb - Pyre OST (2017) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029347.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In the Flame [3:10]
-2. Downriver [0:38]
-3. Downside Ballad [4:11]
-4. Path to Glory [3:15](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5277F93292D6660F13DC5E5AEF477026140737BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449559   (1029523) от 23.02.2021
-
-VA - Country Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Hofmeyr - Amanda (03:07)
-02. Demi Lee Moore - Neon Moon (04:10)
-03. Chris Else - I Am I Said (03:47)
-04. Roan Ash - Whiskey To My Soul (03:45)(   Читать дальше...   )Жанр: CountryПродолжительность: 01:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4077B8D2B4E512875811504660687796666AC982
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623171   (1029595) от 31.03.2023
-
-VA - Mystera II (1998) [OGG Vorbis|480 Kbps] <NewAge, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enya - Storms In Afrika
-02. Era - Enae Volare Mezzo
-03. Enigma - Beyond The Invisible
-04. Capercaillie - Ailein Duinn(   Читать дальше...   )Жанр: NewAge, MeditativeПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A14E59DA6FEE74AFA597244BCDB07EE7FF9EA79F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412904   (1029932) от 21.02.2021
-
-The Percy Faith Orchestra - Theme From A Summer Place (2002) [FLAC|Lossless|image + .cue] <Stage & Screen>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перси Фейт (англ. Percy Faith; 7 апреля 1908 - 9 февраля 1976) — канадский музыкант, композитор, руководитель эстрадного оркестра. Известность ему принесли пышные оркестровые аранжировки популярных песен. Его часто считают создателем "легкой музыки" или "музыки настроения": его оркестр, в отличие от биг-бэндов 1940-50-х гг., опирался на классический (   Читать дальше...   )01.  Theme From A Summer Place (02:45)
-02.  Love Theme From Romeo & Juliet (A Time For Us) (03:08)
-03.  Laras Theme From Dr Zhivago (03:20)
-04.  A Man And A Woman (02:18)(   Читать дальше...   )Жанр: Stage & ScreenПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51CA83A0DD93D638AB24FFBE31F160DBE6355CE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449213   (1030010) от 21.02.2021
-
-Evgeny Grinko - Ice for Aureliano Buendia (2014) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noir (1:09)
-02. Valse (3:26)
-03. Serenade (2:29)
-04. Faulkner's Sleep (D-Moll) (3:40)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BD5FC54D44CDD9946FD9DC0D06FA3908601A04B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 257383   (1030091) от 20.02.2021
-
-VA - Золотой саксофон (2003) [FLAC|Lossless|tracks] <Instrumental, Saxophone>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R. Pauls Orc. - Long Road In Dunes (3:44)
-02. Gil Ventura - Maria Elena (2:35)
-03. Melody Orc. - Tender Rain (3:27)
-04. Arsenal Orc. (A. Kozlov) - Nostalgia (4:37)(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF2D53DC32F36C8BA837B2168FC30469F916E81B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 281022   (1030093) от 20.02.2021
-
-VA - 100 Hits Accordeon (2008) 5CD, Box-Set [FLAC|Lossless|image + .cue] <Instrumental, Accordeon>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030093.jpg" />
-</div>
-
-
-###  Подробнее
-
-5-ти дисковый box-set из серии "100 Hits" от EMI Music. На дисках представлены записи, охватывающие период с 30-х до 80-х годов XX века.CD1 - Du bon musette
-01. Yvette Horner - Le denicheur 	  [1959] (02:23)
-02. Jo Privat - Balajo (valse) 		  [1966] (02:37)
-03. Marcel Azzola - La plus bath de javas [1953] (02:34)(   Читать дальше...   )Жанр: Instrumental, AccordeonПродолжительность: 04:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BA2B5B94CD47C3B50C68B1CA60DF5841F3A348
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 197410   (1030098) от 20.02.2021
-
-Vanessa Mae - Greatest Hits (2008) 2CD, Compilation, Unofficial Release, Digipak [APE|Lossless|image + .cue] <Classical, Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030098.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1
-01. Storm 			(03:45)
-02. Toccata And Fugue In D Minor(07:49)
-03. Sabre Dance 		(06:01)(   Читать дальше...   )Жанр: Classical, InstrumentalПродолжительность: 02:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3305912B8F3626BB94760A626A1C71174EBFE56B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 351111   (1030102) от 20.02.2021
-
-Алексей Рыбников - Музыка любви (2006) [FLAC|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тема любви (из к/ф "Шанс") 			     (03:57)
-02. Сны Татьяны (из к/ф "Шла собака по роялю") 	     (01:10)
-03. Финал (из к/ф "Вам и не снилось") 		     (02:43)
-04. Тема на титрах (из к/ф "Шанс") 		     (01:49)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645BAF44F70D6993F0D72B4E6E88F6AAA54F8BBF
 ```
 
 

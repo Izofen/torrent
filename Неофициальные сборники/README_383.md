@@ -715,28 +715,34 @@ magnet:?xt=urn:btih:F2E54124452BC2A8B0B47C94886219936B0BF714
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034732   (630427) от 15.07.2016
+###  Публикация: 461747   (630369) от 04.07.2014
 
-Spawn - In the Demon's Hand (2000) (Yuki Iwai, Takayuki Iwai, Isao Abe, Crankshaft) [MP3|320 кб/с]<Score>
+Various Artists - Syndicate. The Best Disco With Non-Stop Sound Effects (1980) [MP3|320 кб/с]<Disco>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630427.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_630369.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рип основан на основе оригинального музыкального диска, добавлены треки которые не вошли в сборник01. The Beginning of The End (Opening Stage)
-02. Serial Thrilla (New York Alley Stage)
-03. Dive Into The Hell (Underground Waterway Stage)
-04. Demonoid Phenomenon (Human Body Research Institute Stage)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:02:48
+01. Babe - The Drunken Sailor
+02. Theo Vaness - Bad Bad Boys
+03. Ottawan - You're OK
+04. T.H.P. - Good To Me
+05. Doris D. & The Pins - Shine Up
+06. A La Carte - Ring Me, Honey
+07. Methusalem - The Black Hole
+08. Gepy & Gepy - Body To Body
+09. Gilla - Tom Cat
+10. Pussycat - Rio(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:18:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87D3159CE1187820511D74E746C48F599160CE82
+нет
 ```
 
 

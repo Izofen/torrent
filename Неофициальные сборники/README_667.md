@@ -1,3 +1,30 @@
+###  Публикация: 1462212   (1021256) от 13.04.2021
+
+VA - Best 80s Disco Hits (2021) [MP3|320 Kbps] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boney M. - We Kill the World (4:30)
+02. Digital Emotion - Go Go Yellow Screen (6:00)
+03. Fun Fun - Color My Love (4:06)
+04. Grant Miller - Colder Than Ice (5:34)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87053C365C996004155AE971B7FD6BED60260D8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462180   (1021275) от 13.04.2021
 
 VA - The Soft Playlist: Smooth Chilled Jazz (2021) [MP3|320 Kbps] <Smooth Jazz, Lounge, Chillout>
@@ -668,33 +695,6 @@ VA - Slow Blues Songs (2021) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC6D88B7EEE34585D80759D38080767BDDF84571
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461094   (1021911) от 09.04.2021
-
-Gary Eisenbraun - Kings Of Modern Rock (2003-2020) (2021) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мелодия и ритм могут непредсказуемо меняться, каждая песня – это оригинальный эксперимент. Если в одном и том же треке про любовь певец поначалу визжит, потом хрипит, потом поёт прекрасную мелодию ровным голосом, а под конец всё это глушится рёвом электрогитар и ударником, можно быть уверенным, что перед Вами – Gary Eisenbraun001. Blinded By The Headlights
-002. Echoes Through My Time
-003. Gone In A Minutes Time
-004. Heartache To Come(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 13:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:596AF243061A4A3E80DD2EEE7854B5E390A25A2D
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1474522   (1013077) от 02.06.2021
+
+Rest in Haste - 3 Albums (2014-2021) [MP3|320 Kbps] <Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking City [00:02:45]
+02. Waltz Me Away [00:02:09]
+03. Immaterial News [00:04:28]
+04. Content Farm [00:03:03](   Читать дальше...   )Жанр: Stoner RockПродолжительность: 3CD, 01:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2841B9C90CD8EA671884C755FA800EA2462B369A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473978   (1013324) от 31.05.2021
+
+VA - Hair, Glam & Hard Rock - 100 Hits (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damn Yankees - Coming of Age
+02. Ratt - I Want a Woman
+03. Skid Row - Youth Gone Wild
+04. BulletBoys - Smooth up In Ya(   Читать дальше...   )Жанр: RockПродолжительность: 06:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F93B869AC586CA6632D0E51CF5987EDB27D7BEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473437   (1013725) от 29.05.2021
 
 Dunbarrow - Dunbarrow I-III (2017-2021)[MP3|320 Kbps] <Stoner, Heavy Rock>
@@ -641,60 +695,6 @@ Thunder - All The Right Noises (2021) Deluxe Edition [MP3|320 Kbps] <Classic Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77D48E8E3B0A507CEF0F4C1EE6A5069CD55FC5B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459498   (1023152) от 02.04.2021
-
-Cactus - Tightrope (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tightrope (3:48)
-02. Papa Was a Rolling Stone (6:18)
-03. All Shook Up (5:34)
-04. Poison in Paradise (5:32)(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD07A85064CC7E7C1EE4C2FC7C68A4CB83091587
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458920   (1023458) от 31.03.2021
-
-Thomas Frank Hopper - Bloodstone (2021) [MP3|320 Kbps] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bloodstone 04:26
-02. Come Closer 03:55
-03. Dirtylicious 02:41
-04. Sweet Black Magic Sugar Babe 02:26(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC940EC6F4C009FB9A4F020C34C8F0D57FB13065
 ```
 
 

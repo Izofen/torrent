@@ -1,3 +1,164 @@
+###  Публикация: 1616036   (1037007) от 28.02.2023
+
+VA - Global Trance Masters Vol. 8 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Choose & That Mucho - Release Me (Original Mix) [6:17]
+02. Angel Ace - The Sunset (Radio-Edit) [3:37]
+03. Carlo Mathaye - Digitalize (Hiroki Nagamine Remix) [7:47]
+04. Lyes & Slimane - Find Your Way (Original Mix) [7:03](   Читать дальше...   )Жанр: TranceПродолжительность: 02:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1004CABD022896F3CE1BB87BBF9FF2B2F5635B38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441885   (1037120) от 23.01.2021
+
+VA - Erotica Vol. 6 (Most Erotic Chillout & Lounge Music) (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patiotic - Remembering You (Original Mix)
+02. Marga Sol - Soulheaven (Original Mix)
+03. Gary B & Ken Fan - Volar
+04. Weathertunes - Follow Your Heart(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA0DA4755E63F6B6A9D349A12BF275C3C7158E2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441945   (1037179) от 23.01.2021
+
+VA - Genix Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jody Wisternoff – The Bridge (Chicane Extended Rework) (05:47)
+02. Supermodels From Paris – Keep On (Komytea Extended Mix) (06:46)
+03. Genix – Mr. H2O (Extended Mix) (05:46)
+04. Stephen J. Kroos – Formalistick (Extended Mix) (06:42)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FCEEE29C73355C211DE6BD4B99E6DB5F44378F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441878   (1037188) от 23.01.2021
+
+Fix8:Sed8 - The Inevitable Relapse (2021) Luxus [MP3|~245 Kbps (V0)] <Dark Electro, EBM, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Enigma (7:12)
+02.Prognosis (6:16)
+03.Human Harvest (5:13)
+04.Tremors (Feat.Emke) (4:57)(   Читать дальше...   )Жанр: Dark Electro, EBM, IndustrialПродолжительность: 01:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DCE016D8288647BE28F457F8CA4FB220EFFC6DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615845   (1037273) от 27.02.2023
+
+VA - Armada Music - Miami 2023 [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.O.D - Set Me Free (Extended Mix) (4:41)
+02. Eelke Kleijn - Transmission (Joris Voorn Extended Remix) (6:09)
+03. Something Good feat. Yotto - Rhythm (Of The Night) (Extended Mix) (6:35)
+04. Vintage Culture & Three Drives - Greece 2000 (Extended Mix) (5:17)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 03:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AABF35E2619714EC60A30CD95599FE2AE16E5C79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441657   (1037435) от 22.01.2021
+
+VA - Armin van Buuren & Ruben de Ronde - A State Of Trance 1000 (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 50. Tiesto - Suburban Train
+02. 49. ATB ft. Tiff Lacey - Ecstasy (Club Mix)
+03. 48. Above & Beyond ft. Zoe Johnston - Good For Me (Above & Beyond Club Mix)Жанр: TranceПродолжительность: 05:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96824C1E9BEE91BD5EAA5DB755ECA687E0B4AA7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441605   (1037460) от 22.01.2021
 
 VA - Black Hole Trance Music 01-21 (2021) [MP3|320 Kbps] <Trance>
@@ -530,168 +691,6 @@ VA - Inspectrum Recordings Best Of 2020 (2021) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4333618CBC9081D0F40D20BF82820DE5AFEFEF73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440872   (1038282) от 19.01.2021
-
-VA - Elliptical Sun Recordings - (Mixed and Compiled by Leo Lauretti) (2020) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Chris Giuliano - Dream You (Nick Hayes Extended Mix)
-02.Leo Lauretti & Taygeto ft. Giovanna Bianchi - Find My Own (Mind Of One Extended Mix)
-03.East & Atlas - Samoa (Apollo Nash Extended Mix)
-04.Elypsis - Adira (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F55F8B65DB3A05BA5111F736ECF707ECD16F2DE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614781   (1038363) от 23.02.2023
-
-Monflame - Voyager (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Dark [00:01:51]
-02. Play [00:03:27]
-03. Soma Dreams [00:03:51]
-04. Last Summer [00:04:07](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CF66A4A788D720EEB2E0F9B35AB5BDBC7AF6B11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614821   (1038366) от 23.02.2023
-
-VA - Black Hole Trance Music (02-23) (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somna - Hold You [02:48]
-02. LTN - Lone Wolf [02:56]
-03. Ram - Where I Want To Be [03:15]
-04. Markus Schulz - Prestwick [03:24](   Читать дальше...   )Жанр: TranceПродолжительность: 01:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130DD79798D0F6C1C8D648E10754D71F26F2E93D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614852   (1038374) от 23.02.2023
-
-VA - Black Hole House Music 02-23 (2023) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BT - Mercury & Solace (Helsloot Remix) [03:39]
-02. Siskin - Always You [02:45]
-03. Ton TB - Electronic Malfunction (Yurie Remix) [03:52]
-04. JES - Awaken (Elypsis Remix) [03:37](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:912D2E6461BE4759C24DB7BA0F653991AB115053
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440414   (1038488) от 18.01.2021
-
-Kurs - Muter (2021) [MP3|320 Kbps] <EBM, Electro, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:42)
-02. Mirrorshades (4:14)
-03. Shatter (4:06)
-04. Muter (3:55)(   Читать дальше...   )Жанр: EBM, Electro, IndustrialПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F3FD9D2B5E971ECADA5486ED91EA44A606F607
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440731   (1038489) от 18.01.2021
-
-VA - Space Odyssey - Trip Seven: New Year's Voyage 2021 (2021) [MP3|320 Kbps] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spacesynth.ru - Introduction (1:03)
-02. Amandi - Forgotten Spaceship (5:15)
-03. Kresikov & TDHDriver - Take Off! (4:48)
-04. Syst3m Failure - Fly Sputnik (7:22)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCD9A65099663A892D03E5A6E2D8D69EFF80AC7
 ```
 
 

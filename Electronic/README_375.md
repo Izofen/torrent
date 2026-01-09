@@ -1,3 +1,165 @@
+###  Публикация: 1281961   (748430) от 10.02.2019
+
+Côte Déserte (Cote Deserte) - Strange To Look At Her. It Seems That... (2014) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Dark Jazz, Soundscapes, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunshine I (1:47)
+02. Two Nebulas: Eye (4:12)
+03. Two Nebulas: Eve (8:52)
+04. Think That Really Was, I (7:30)(   Читать дальше...   )Жанр: Dark Ambient, Dark Jazz, Soundscapes, ExperimentalПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C84A1384651564862CCC43CE6EEC33FEE7A37703
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282023   (748506) от 10.02.2019
+
+VA - Dancefloor Hits (2019) [MP3|320 Kbps] <House,  Progressive House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spikaa feat. Deja - Home (Radio Mix) 03:10
+02. Geo Da Silva - Tonight Is The Night (Radio Edit) 03:25
+03. Michael Fall feat. Jodie Topp - Sunshine (Radio Edit) 03:26
+04. Sean Norvis feat. Pacha Man and Alexandra Mitroi - Bad Girls (Radio Edit) 03:14(   Читать дальше...   )Жанр: House,  Progressive House, Electro HouseПродолжительность: 01:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5E57557A6EA85D58A065352158BED8B96E4223B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281956   (748507) от 10.02.2019
+
+Côte Déserte (Cote Deserte) - Dale Cooper's Case (2011) EP [FLAC|Lossless|tracks + .cue] <Dark Ambient, Dark Jazz, Experimental, Soundscapes>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dale Cooper's Theme (6:10)
+02. In The Red Room (5:20)
+03. The Red Room Revisited (6:33)
+04. The Owls Are Not What They Seem (5:05)(   Читать дальше...   )Производство: Aquarellist – aquarel 19-11Жанр: Electronic, Dark Ambient, Dark Jazz, Experimental, SoundscapesПродолжительность: 00:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B74A0B8EBE76476CED9560CBE169132CEB6F438D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281967   (748511) от 10.02.2019
+
+VA - Sounds Of Instruments 03 (Mixed by Terry Lee Brown Jr.) (2007) [FLAC|Lossless|image + .cue] <Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Denis Karimani - Realtime Island (Ndru Remix) (3:57)
+02. Dan Drastic - Somebody's Touching Me (5:25)
+03. Trentemoller - Moan (Radio Slave's Remix for K) (6:10)
+04. H.O.S.H. - Steppenwolf (4:37)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E978370DA95C11F0AC40AE73919A7E413623F3DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281999   (748512) от 10.02.2019
+
+VA - We Love House (2019) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GotSome - Everybody Know Now (Ben Pearce Remix) 03:31
+02. MistaJam - Rotate 03:46
+03. Low Steppa - Heard It All Before (Scott Diaz Remix) 03:30
+04. Tube & Berger - E Samba 2018 (Josh Butler Remix) 03:05(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54A0B91FF42BECE24B4B588C84810524393DA528
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282039   (748514) от 10.02.2019
+
+VA - Big Party: EDM Anthems (2019) [MP3|320 Kbps] <Big Room, Progressve House, Future House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic - You and Me (Original Mix) 03:52
+02. Teknova - Katyusha 2K19 (Melbourne Bounce Mix) 03:16
+03. FLGTT - Por Que No 2K19 (Extended Mix) 04:34
+04. Martial Flowz - Forever (Original Mix) 04:37(   Читать дальше...   )Жанр: Big Room, Progressve House, Future HouseПродолжительность: 02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C4EB385936DF08AE6302B8B044D52AA619A570
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019529   (748640) от 24.05.2016
 
 VA - Summer Chill (2016) [MP3|320 кб/с] <Chill Out, Chill House>
@@ -530,167 +692,6 @@ magnet:?xt=urn:btih:26770F36F868C16A140575D0EF8C829CA87C2B99
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AC9FDFF9413967A5A910F8FB52945CAB1EA178F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049577   (751564) от 12.07.2020
-
-my.head - Discography 18 Releases (2012-2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, 2-Step, Future Garage>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Your Typical Soundtrack (56:18)
-
-01. Dark: Ben Frost - Alles Ist Miteinander Verbunden
-02. Arrival: Johann Johannsson - First Encounter(   Читать дальше...   )Тип издания: WebЖанр: Ambient, 2-Step, Future Garage •Продолжительность: 05:17:55 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14FF9C54E5E4CA8D2EB5877E002FB52F05D30D10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246468   (751604) от 08.02.2019
-
-Sexy Suicide (ex-Neon Romance) - 2 Albums, 2 Singles (2014-2018) [MP3|320 кб/с] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изначально группа называлась "Neon Romance", и была основана в начале 2012 года. "Neon Romance" сформировалась по инициативе Варфоломея Саламона и Майкла Капусцинского. Спустя время к группе присоединяется Марика Томчик, которая становится официальной вокалисткой. В течение некоторого времени ребята трудились над своим дебютником "Midnight (   Читать дальше...   )Neon Romance - 2014 - Midnight Stories
-Sexy Suicide - 2016 - Intruder
-Sexy Suicide - 2018 - Iron City (Love Song) (Single)
-Sexy Suicide - 2018 - Techno Scar (Single)Жанр: Synthpop •Продолжительность: 01:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079B0B3F7F18758C9761F75115A7C271D3E6E671
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281483   (751610) от 08.02.2019
-
-Pet Shop Boys - Agenda (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Stupidity A Chance
-02. On Social Media
-03. What Are We Going To Do About The Rich?
-04. The Forgotten ChildЖанр: SynthpopПродолжительность: 00:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A889C0101D759859D056DA9285D458D5FDF05655
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040211   (751686) от 12.07.2020
-
-Nearfield - Discography 14 Releases (2012-2020) People Can Listen [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. H.1 (05:07)
- 02. Pu.94 (05:53)
- 03. O.8 (06:21)Тип издания: WEB •Жанр: IDM, Downtempo, Glitch, Abstract, Ambient •Продолжительность: 08:18:40 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC23112753EA44A05EB451415BE867EB62C4D2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036002   (751727) от 08.02.2019
-
-Unit - Discography 3 Releases (1999-2004) Caipirinha Productions, Co.Ad.Audio [FLAC|Lossless|tracks+.cue] <IDM, Ambient, Drum n Bass, Glitch>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Arrival Is Our Arrival (03:37)
- 02. Tidal (07:11)
- 03. Tuscan Steak (07:17)
- 04. Meet Yourself (05:46)(   Читать дальше...   )Тип издания: CDЖанр: IDM/Ambient/GlitchПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B7234658923DD71F0B74D5C9998CF8303818734
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019019   (752101) от 22.05.2016
-
-The Lost Sun - Spectral Voice From Newborn Star (2016) [MP3|320 кб/с] <Space Ambient, Atmospheric Black Metal>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752101.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Spectral Voice From Newborn Star
-2. Embraced By The Black Void
-3. Lone Wandering Among Pale Stars
-4. Ode To Dead Sun(   Читать дальше...   )Жанр: Space Ambient, Atmospheric Black MetalПродолжительность: 01:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D47CEA0493E0F70B702C6A27776F408138C87E64
 ```
 
 

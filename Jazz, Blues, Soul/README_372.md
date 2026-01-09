@@ -1,3 +1,210 @@
+###  Публикация: 356906   (596946) от 29.06.2011
+
+VA - Coffee Time Jazz (2007) [FLAC|Lossless]<Jazz, Bossa Nova, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_596946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ella Fitzgerald - Black Coffee[03:30]
+02.Noro Morales & His Orchestra - Isla Verde [02:38]
+03.Paul Desmond - El Condor Pasa [03:06]
+04.Lalo Schifrin - Rapaz De Bem [02:35]
+05.Joe Henderson - Boto [06:37]
+06.Les McCann - Guantanamera [02:56]
+07.Cal Tjader - It Didn't End [03:58]
+08.Kenyon Hopkins - Hard Latin [02:13]
+09.Baja Marimba Band - Flyin' High [02:08]
+10.Chico O'Farrill - A Man And A Woman [02:31](   Читать дальше...)Жанр: Jazz, Bossa Nova, Smooth JazzПродолжительность: 01:01:43
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525524   (596972) от 24.07.2012
+
+Various Artists - Blue Note Trip Vol. 10: Late Nights / Early Mornings 2CD (2012) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_596972.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Lou Rawls - Lifetime Monologue (2005 digital remaster)
+02. Donald Byrd - Kofi
+03. Marlena Shaw - Woman Of The Ghetto (live)
+04. Reuben Wilson - Bambu (digital remastered)
+05. Moacir Santos - Off & On
+06. Doris - Beatmaker
+07. Grant Green - Let The Music Take Your Mind (live 2002 digital remaster)
+08. Horace Silver - The Sophisticated Hippie
+09. Nancy Wilson - Goin' Out Of My Head(   Читать дальше...   )Жанр: JazzПродолжительность: 02:14:48
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526421   (597302) от 24.07.2012
+
+V.A. - The Very Best Of Smooth Jazz (2002) [FLAC|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_597302.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Продолжительность: 01:18:47
+
+01. Bill Withers - Ain't No Sunshine
+02. Grover Washington, Jr. & Bill Withers - Just The Two Of Us
+03. Earth, Wind and Fire - After The Love Has Gone
+04. Astrud Gilberto & Stan Getz - The Girl From Ipanema
+05. George Benson - Walk On By
+06. The Temptations - My Girl
+07. Luther Vandross - Goin' Out Of My Head(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:38:05
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299686   (597664) от 02.05.2019
+
+Giorgia Stella - Sexy musica (Improvisation jazz) (2017) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amore appassionato (03:21)
+02. Tocco rilassante (03:40)
+03. Giochi di amore (03:27)
+04. Amore mio (03:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F189948E4BD60BB0AFEA11A5864F633604D3EC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039216   (597806) от 31.07.2016
+
+Gianni Vancini - Acustico (2016) [MP3|320 Kbps] <Jazz, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quando
+02. Cannonball
+03. Caffe centrale (feat. Giacomo da Ros)
+04. All of My Life(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CFD96D53DB3A895D6E0BBBF18A13A35E6E88AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299679   (598416) от 02.05.2019
+
+Tamir Hendelman - Destinations (2010) Resonance Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wrap Your Troubles in Dreams [5:44]
+02. Passarim [5:53]
+03. Soft Winds [6:16]
+04. Le Tombeau de Couperin [5:37](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A0988481C4EA2683B6F5706435A7E7E6D70249
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299573   (598417) от 02.05.2019
+
+David Ian - Valentine's Day (2014) Prescott Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autumn Leaves [3:35]
+02. My Funny Valentine (feat. Kevin Max) [4:04]
+03. Stella by Starlight [2:32]
+04. Solitude (feat. Acacia) [2:19](   Читать дальше...   )Жанр: Mainstream Jazz, Piano Jazz, Vocal JazzПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B19E5E2D924ED03FB942FE844AF1A28163EA643
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914223   (598477) от 02.07.2015
 
 Delta Deep - Delta Deep (2015) [MP3|320 кб/с]<Blues Rock>
@@ -209,6 +416,30 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E173B96D0747E80766BA822BE19B118524181F6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356113   (598875) от 28.06.2011
+
+VA - Nova Tunes 2.3 (2011) [FLAC|tracks+.cue|Lossless]<Reggae/Acid Jazz/Funk Soul/Downtempo>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_598875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Reggae/Acid Jazz/Funk Soul/Downtempo
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -479,222 +710,6 @@ R. Ducros, L. Simoncini - America Amore Amaro (1977) LP [MP3|320 Kbps] <Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F70FCA5F49D8787BE273A4AB9220B70DCB2A1EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149632   (600291) от 11.07.2017
-
-VA - Jazz for Reading Poetry: Soft Relaxing Jazz (2017) [MP3|320 Kbps] <Jazz, Instrumental>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gentle Music Collection - Jazz for Reading Poetry
-02. Emotional Jazz Consort - Smooth Jazz for Studying
-03. Sentimental Piano Music Oasis - French Poetry
-04. Piano Bar Music Oasis - Silence Song(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 01:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:630FBFF8FC32C384D35907418BE1EB2B235E2261
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914164   (600358) от 01.07.2015
-
-Rigmor Gustafsson - When You Make Me Smile (2014) [FLAC|tracks+.cue]<Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Me Lonely [03:32]
-02. Forget About the Moonlight [03:03]
-03. A Different Kind [02:56]
-04. If Dreams Are Made of Sand [03:37](   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5CC2D01D0EB2D569D708D6D2E5EE2A527CBFDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913543   (600360) от 01.07.2015
-
-Budda Power Blues - Budda Power Blues (2015) [MP3|320 кб/с]<Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wanna Please My Baby (4:20)
-02. Tony My German Friend (3:53)
-03. I Feel So Blessed (Feat. Maria Joao) (4:50)
-04. I've Been Down (3:52)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DFC7310A892C78F90A965360519283EC1838986
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149547   (600370) от 11.07.2017
-
-VA - Songs For A Lazy Sunday (2001) 2CD, Rajon Music Group [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Bop, Piano Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600370.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Duke Ellington - The Mood To Be Wooed [03:01]
-02. George Shearing - September In The Rain [03:16]
-03. Sarah Vaughan - It Might As Well Be Spring [03:14](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Bop, Piano Jazz, Hard BopПродолжительность: 01:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE75517D811B0EAF285DC755DE4EAD408BDD0D40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149537   (600375) от 11.07.2017
-
-Lionel Hampton - Jazz Time Paris vol.4, 5 & 6 (1953) Remaster, 2017, Sony Music [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Press Oui [12:58]
-02. Blue Panassie [13:23]
-03. Real Crazy [09:34]
-04. I Only Have Eyes for You [03:34](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DCBFFBAD77FEA0DB855C4CF3EE561905296BE89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299097   (600760) от 30.04.2019
-
-Julian Sas - Stand Your Ground (2019) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Runnin' For The Money
-02. Don't Let Me Down
-03. Stand Your Ground
-04. Anything(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB28B4E984B4116F5B4215F54909339AAAD59043
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299137   (600855) от 30.04.2019
-
-Cindy Blackman - Arcane (1988) Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arcane [5:19]
-02. Late Autumn [5:50]
-03. Dual Force [6:37]
-04. Incindyary [4:39](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF86BF71277CA1EB87C349DCC7B82F30A88773A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149450   (601108) от 10.07.2017
-
-VA - Cocktail Jazz (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Coltrane - I'll Wait and Pray (03:28)
-02. Nina Simone - If I Should Lose You (Remastered) (03:59)
-03. Milt Jackson - The Nearness of You (05:18)
-04. Acker Bilk - Caravella (02:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:15:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2BB55C54632129E14A4DB8083FE1533928237AC
 ```
 
 

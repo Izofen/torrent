@@ -1,3 +1,165 @@
+###  Публикация: 1186895   (697331) от 16.08.2020
+
+Zodiac - Лучшее (Золотая Коллекция) (2008) 2CD [FLAC|Lossless|image + .cue] <Synthpop, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697331.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Зодиак
+02. Пасифик
+03. Провинциальное диско(   Читать дальше...   )Жанр: Synthpop, ElectronicПродолжительность: 01:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF51EB3B55A75EAD7912B3040EAD4E3912400F1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534146   (697524) от 28.02.2022
+
+Lo-Fi Electronic - The Best Of (2020) [MP3|320 Kbps] <Synthpop, Ambient>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lunar Module ('78 Mix) (4:43)
+02. Void Vision (6:05)
+03. Into Oblivion (6:09)
+04. Rocket Man (6:17)(   Читать дальше...   )Жанр: Synthpop, AmbientПродолжительность: 01:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:011F37A2132A195349D02F7013338AA85F45031A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534286   (697525) от 28.02.2022
+
+Aivo - Infinite Path (2022) [MP3|320 Kbps] <Synthwave, Sovietwave, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to the Perfect City (4:19)
+02. Apollo-Soyuz (4:03)
+03. Neon Way (3:32)
+04. Out of Control (3:46)(   Читать дальше...   )Жанр: Synthwave, Sovietwave, SpacesynthПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:008853D0B09D074D16778B1783D3ADAC29186FCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288292   (697641) от 10.03.2019
+
+Michael Oakley - Introspect (2019) NRW Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introspect (1:05)
+ 02. Left Behind (4:16)
+ 03. Crystal Ships (5:14)
+ 04. Control (4:02)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 00:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B0CF59A642B10CA9053EC74C7FBC8FB8D56DF2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288238   (697651) от 10.03.2019
+
+VA - Best Of Uplifting Trance (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Allen & Amir Hussain - Trinket (Extended Mix)
+02. Talla 2XLC feat. Sarah Lynn - Love Is Wide Awake (Extended Mix)
+03. ReOrder feat. Katty Heath - Meteorite (Extended Mix)
+04. Patrick Dreama - Carousel (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B539145CB0A89B073EE452792367C6BF6A2C82F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402863   (697703) от 16.08.2020
+
+StereOMantra - Present (2020) OM Mantra Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, Ambient, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Particles (07:40)
+ 02. Nectar (08:10)
+ 03. Stratosphere (07:10)
+ 04. Lantern (06:15)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 01:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6177F08863C0F4C8F42926139FD45F0DEFEE1D05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287811   (697762) от 10.03.2019
 
 VA - ASOT 900 After-Party @ Poema RAW, Utrecht (2019-02-24) [MP3|320 Kbps] <Trance, Progressive House>
@@ -532,168 +694,6 @@ VA - Shingo Nakamura - Silk Music Pres. Shingo Nakamura 03 (2019) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D428D8175EAB5CE6F5E1C8498FCCA1866E16A01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 794044   (700377) от 07.06.2014
-
-Of Norway - Accretion (2014) [FLAC|Lossless|WEB-DL]<Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yours Is A History Of Violence
-02. Spirit Lights (feat Linnea Dale)
-03. Accretion
-04. Love Is Over(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:07:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F586B2B14538B75ED5D8B94E95B24D0E91559DBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026951   (700406) от 17.06.2016
-
-VA - Goa Trance Vol.32 (2016) [MP3|320 кб/с] <Trance, Psy-Trance, Psychedelic>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waio - Searching for Signals (Symbolic Remix) 8:28
-02. Ace Ventura & Symbolic - Prime Time (Avalon Remix) 8:23
-03. Relativ - Tomorrow Last Forever 8:51
-04. Freak Control - Dmt Trip 6:51(   Читать дальше...   )Жанр: Trance, Psy-Trance, PsychedelicПродолжительность: 02:24:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26F49B0CD4DA2C959CEC623BBDD39981591C9FD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220927   (700526) от 21.04.2018
-
-VA - Markus Schulz presents In Bloom Volume One (2018) (EP) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Markus Schulz & Jes - Calling for Love (Original Mix)
-02.Markus Schulz & Emma Hewitt - Safe from Harm (Club Mix)
-03.Andy Moor & Adina Butar - Wild Dream (Original Mix)
-04.Dave Neven & Ellie White - Try for Me (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:20:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20B6818F69AC97EB468CB7AC3A5CD12AA278E2AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132721   (700627) от 09.05.2017
-
-Коммутатор - Триумф Воли (2008) [MP3|256 Kbps] <EBM, Industrial, Synthpop>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ультиматум (03:30)
-02. Безумный Мир (04:03)
-03. Встань С Колен (04:02)
-04. Триумф Воли (Album Version) (05:40)(   Читать дальше...   )Жанр: EBM, Industrial, SynthpopПродолжительность: 00:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A362553DE4B1CDB406525BF561F8D44319E032AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220792   (700651) от 21.04.2018
-
-Willits + Sakamoto (Christopher Willits & Ryuichi Sakamoto) - Ancient Future (2012) Ghostly International [FLAC|Lossless|tracks+.cue] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reticent Reminiscence (05:04)
- 02. Abandoned Silence (04:31)
- 03. I Don't Want To Understand (07:11)
- 04. Levitation (04:26)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D4503CC338973975214563B7A2D4651E0958D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220895   (700652) от 21.04.2018
-
-VA - Aly & Fila - Future Sound of Egypt 544 (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hazem Beltagui - Reasons To Love (Extended Mix)
-02. iiO - Rapture (Hot TuneiK Remix)
-03. D-Formation - Anbar (Original Mix)
-04. Eelke Kleijn - The Method (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive Trance,Uplifting TranceПродолжительность: 01:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C44EEDF96AEA9B2C8C0BBC6BB0D60AB4F65DC04
 ```
 
 

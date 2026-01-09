@@ -1,3 +1,162 @@
+###  Публикация: 1004673   (838183) от 06.04.2016
+
+Motorcitysoul - Technique (2008) [FLAC|Lossless|tracks + .cue] <Deep House, Tech House, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Start (1:20)
+02. Deliver Me (feat. Ernesto) (6:36)
+03. Space Kätzle (6:45)
+04. Solar (5:15)(   Читать дальше...   )Производство: Simple Records – SIMPLECD04Жанр: Electronic, Deep House, Tech HouseПродолжительность: 01:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08BB5F919CEEB6355838764EC4A9A002FB5A6B46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113083   (838319) от 11.03.2017
+
+B-Movie - Climate of Fear (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic Pop Rock, Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another False Dawn
+02. Come Closer
+03. San Francisco
+04. Corridors(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3554886C023644239D8F101F223129E8F7280AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113364   (838543) от 11.03.2017
+
+V.A. - House Del Mar (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sabado Playground - Perdoname (Tropical House Version)
+02. Red Hot Viper - Gabardino
+03. Gridlocks - The Cratouille
+04. Elton Ames - Beach House(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 02:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F99437098A1CD5A12835B9793EC404DA00DEFC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112973   (838548) от 11.03.2017
+
+VA - Dumbbell Training Overcome Your Weakness (2017) [MP3|320 Kbps] <Deep House, Electronic, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838548.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lucifah - Learn 03:36
+002. Martin Pool - Comples 02:58
+003. Joel Fuel - Stage 03:37
+004. Interfacer - Charge 04:41(   Читать дальше...   )Жанр: Deep House, Electronic, ProgressiveПродолжительность: 06:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:382CB1F55A7A7117C034C63CF4D61B32CFECE853
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112906   (838641) от 11.03.2017
+
+Marbert Rocel - In The Beginning: Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold On (Deetron Dub) (6:08)
+ 02. Dawn Of The Day (Snacks Remix) (5:50)
+ 03. With Your Love (Quarion Remix) (7:05)
+ 04. Hold On (M.ono & Luvless Remix) (6:54)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8587E5545310842E1EE2D47F91FB1A9D430C7BED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 772762   (838713) от 01.04.2014
+
+VA - HeavensGate vol.3 Aluminium Edition (Mixed by Alex M.O.R.P.H B2B Woody Van Eyden) (2014) [FLAC|Lossless|WEB-DL]<Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 02:23:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E002E29703C707E74E6DED6AC3F87946410D3E88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246510   (838922) от 29.04.2020
 
 Wanderwelle - Discography 7 Releases (2015-2020) Silent Season [FLAC|Lossless|WEB-DL|tracks+.cue, tracks] <Dub Techno, Ambient, Techno, Techno Ambient>
@@ -533,168 +692,6 @@ VA - Cafe Paris: The Essence Of Chilled Moments Vol 2 (2017) [MP3|320 Kbps] <Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F54FBFE73D152CE98E7D443B985541072370D69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112791   (841543) от 09.03.2017
-
-lorian MSK - Le Vacarme De Diavel (2016) Zenon Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Psy-Trance, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L Insondable Grandeur De L Ombre (08:55)
-02. Resonances Tourmentees Du Comte De L Aube (07:43)
-03. Dissonances Letargiques (09:13)
-04. La Portail De La Coisee Des Vents (08:06)(   Читать дальше...   )Жанр: Techno, Psy-Trance, MinimalПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A66342B48892B4BDE1411E24229CA9AC93138FE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003680   (841605) от 04.04.2016
-
-VA - Ten Years of Med School (2016) [MP3|320 кб/с] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etherwood & Royalston - Eyes On Me (05:44)
-02. Keeno - Nocturne (Frederic Robinson Remix) (04:03)
-03. The Erised - Pray (Bop Remix) (05:02)
-04. Etherwood & S.P.Y - We're Nothing Without Love (Ivy Lab Remix)(04:50)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F25D43E4D64A3A8A45852967EBD62F777DFD7DC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112587   (841634) от 09.03.2017
-
-VA - Cafe Paris The Essence of Chilled Moments (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stuce The Sketch - Chuki Ya Nini
-02. Puch - Inside a Machine
-03. Newton - Non Genuin
-04. Van - Familiar Person(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B834290E94D5421B21014BEEEB82AE067CF7509
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112652   (841638) от 09.03.2017
-
-VA - Intimacy Lounge Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lamar Ensemble – Inspirational Shortcut
-02. Rey Salinero – Recuerdos
-03. The Sura Quintet – Keep Me Company
-04. Diario – Ancient Stone Steps(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:775CFCCBB456F89E74CA19D5B96BFC41246B752A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112765   (841645) от 09.03.2017
-
-VA - GOA Chill Pt.1 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oblomov - Rain Kiss
-02. Dyno - You Know About This - Ambient Mix
-03. Cyclodol - Dreamoff
-04. Amorph AA - Forgotten Love(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 00:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC029E3DF38E0850B5B57E5B24086A720A067E01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003739   (841692) от 04.04.2016
-
-Kiiara - Low Kii Savage EP (2016) [FLAC|Lossless|WEB-DL|tracks] <postrnb, futurebeats, noesoul, juke, pop, downtempo>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841692.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gold (03:46)
-2. Feels (03:03)
-3. Tennessee (04:21)
-4. Intention (03:50)(   Читать дальше...   )Жанр: postrnb, futurebeats, noesoul, juke, pop, downtempoПродолжительность: 00:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDEBF161B7B2123E1F45935ADE3225EBF78F542B
 ```
 
 

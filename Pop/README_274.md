@@ -1,3 +1,246 @@
+###  Публикация: 1125062   (773311) от 13.04.2017
+
+Jamiroquai - Automaton (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Acid-jazz, funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake It On
+02. Automaton
+03. Cloud 9
+04. Superfresh(   Читать дальше...   )Жанр: Acid-Jazz, FunkПродолжительность: 01:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517D734BCDB4290814E1AABC410D8BEEAE262E32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124373   (773320) от 13.04.2017
+
+Paul Anka - The Real... Paul Anka (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Diana
+2. Love Me Warm and Tender
+3. Put Your Head on My Shoulder(   Читать дальше...   )Жанр: PopПродолжительность: 02:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A691CECEE7867CF61576B74E12954E0E13887D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213044   (773354) от 15.03.2018
+
+VA - Robot Is Systematic (2009) EP (Franco Rago & Gigi Farina feat. 'Lectric Workers) [MP3|320 Kbps] <Electronic, Italo-Disco, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 'Lectric Workers - Robot Is Systematic (8:59)
+02. 'Lectric Workers - The Garden (6:56)
+03. Pleasure Discipline - For Hours Now (Remix) (7:01)
+04. Expansives - Life With You .... (6:56)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, ElectroПродолжительность: 00:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFA4A390BABB8C9DB002C7521595377F6F925928
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124831   (773538) от 13.04.2017
+
+VA - Singers & Songwriters: Classics (2010) [MP3|320 Kbps] <Pop/Rock ,Country ,R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buffalo Springfield - For What It's Worth (2:39)
+02. Gordon Lightfoot - Sundown (3:34)
+03. Nilsson - Everybody's Talkin' (2:44)
+04. Loggins And Messina - Your Mama Don't Dance (2:49)(   Читать дальше...   )Жанр: Pop/Rock ,Country ,R&BПродолжительность: 01:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245B203F65E50557B77EE1E7D77FC59C233D6D38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015725   (774054) от 11.05.2016
+
+Вячеслав Добрынин - И это всё Доктор Шлягер! (2004) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774054.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Спасатель (3:31)
+2. Синий туман (3:54)
+3. Не сыпь мне соль на рану (4:49)
+4. Казино (4:10)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C2BB181D9ECDB10B02D5216110C4A63AA81426
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278024   (774095) от 23.01.2019
+
+Марк Бернес - Песня Посвящается Моя... (1995) Мелодия, записи 1957, 1964-1976 [FLAC|Lossless|image + .cue] <Pop, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песня Посвящается Моя
+02. Песенка Фронтового Шофера
+03. Шаланды, из к/ф ''Два Бойца''
+04. Тучи Над Городомб из к/ф ''Человек с ружьём''(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D4D715A11BB04CDCAC8FE142CC41D8AEB79738
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277393   (774227) от 23.01.2019
+
+Julio Iglesias - Best Collection vol.3 (1995) Unofficial Release [FLAC|Lossless|image + .cue] <Pop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nathalie
+02. Momentos
+03. La Paloma
+04. Las Cosas Que Tiene La Vida(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 01:16:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E38D3F4988DE5F5AF4CA0A01EFB6F12F4165A64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277943   (774240) от 23.01.2019
+
+VA - Radio Italia Love (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774240.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Maneskin - Torna a casa
+02. Eros Ramazzotti - Vita ce n'e
+03. Fedez - Prima di ogni cosa(   Читать дальше...   )Жанр: PopПродолжительность: 01:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB5FD1157A72A85272612D1208C9252C58935659
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277968   (774242) от 23.01.2019
+
+VA - WOW Hits 2019 (2018) Deluxe Edition [MP3|320 Kbps] <Hip Hop, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774242.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. MercyMe-Grace Got You
+02. Zach Williams-Fear Is a Liar
+03. Hillsong Worship-Who You Say I Am(   Читать дальше...   )Жанр: Hip Hop, Rock, PopПродолжительность: 02:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F23BECF5F39AC83AEFB005303B56DE040FE7DF45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212833   (774301) от 14.03.2018
 
 Boris Zhivago - Memories (2018) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synth-pop, Hi NRG>
@@ -455,249 +698,6 @@ Sparks - 2 Compilations (2012) 4CD [MP3|320 кб/с] <Electronic, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F644B3CC0269B2820BE869E83F64B5F6AC1EED4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015022   (775729) от 09.05.2016
-
-Montana Orchestra - Heavy Vibes (1983) [MP3|320 кб/с] <Disco, Funk, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavy Vibes
-02. Ride Like The Wind
-03. Who Needs Enemies (With A Friend Like You)
-04. Another Star(   Читать дальше...   )Жанр: Disco, Funk, InstrumentalПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F62F67E79B339181F835AE16EED37B96041911C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212633   (775747) от 12.03.2018
-
-New Paradise - 6 Albums (1977-1983) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский студийный диско-проект, созданный Leo Carrier. Изначальное название было просто "Paradise", со вторым альбомом появились как "Paradise Birds" и лишь с третьим альбомом стали неизменно выходить как "New Paradise". В составе присутствовали три вокалистки. Проект незаслуженно прошел мимо многих стран.Список альбомов:
-1977 - Back To America (Paradise)
-1978 - I Am A Song  Paradise (Paradise Birds)
-1979 - New Paradise (1)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 03:23:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06A1244F6336326CD95B5BFAB962633C80226BF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212629   (775776) от 12.03.2018
-
-Judit Neddermann - Nua (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Em diras adeu
-02. Vai Vai Vai
-03. Els ocells
-04. 21(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2C982859EA24B606F93BA3C67448769A48FC8B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014965   (775811) от 09.05.2016
-
-Gino Vannelli - Big Dreamers Never Sleep (1987) [APE|Lossless|image + .cue] <Pop, Synth-Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Name Of Money
-02. Time Out
-03. Wild Horses
-04. Young Lover(   Читать дальше...   )Жанр: Pop, Synth-Pop, ElectronicПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A835180FA01687E1269692EEA6108BA09E64EF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014912   (775839) от 09.05.2016
-
-Nicole - Mit Dir Vielleicht (1994) [FLAC|Lossless|image + .cue] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mit Dir vielleicht.
-02. Ich brauch nur Dich.
-03. Moderne Piraten.
-04. Du bist der Mann (You Are the One).(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4CCC133BB72678F81F64541670428087FEB05F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014884   (775848) от 09.05.2016
-
-Niila - Gratitude (2016) [MP3|320 кб/с] <Pop Rock, Folk Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Love Nobody (03:34)
-02. Restless Heart (03:31)
-03. Better Off (feat. Laila Samuels) (04:05)
-04. Play You (03:41)(   Читать дальше...   )Жанр: Pop Rock, Folk RockПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:381555B64AB9FC2E9C9C0AA5DEDB31F99C8F32FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014441   (776036) от 08.05.2016
-
-VA - BRAVO Hits 93 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meghan Trainor - No (3:34)
-02. Era Istrefi - Bonbon (2:46)
-03. Sia feat. Sean Paul - Cheap Thrills (3:43)
-04. Fifth Harmony feat. Ty Dolla $ign - Work From Home (3:36)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop Rock, Indie RockПродолжительность: 02:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:060DEAF290E2D5B8B91E29138FB3BDD5FA3D51FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212425   (776094) от 11.03.2018
-
-Saskia & Serge - 2 Albums, 1 Compilations (1984-1992) [MP3|320 Kbps] <Pop, Folk, World>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голландский вокальный дуэт, состоящий из певицы Trudy van den Berg (родилась 23 апреля 1947 года, Grootebroek) и вокалиста-гитариста Ruud Schaap (родился 22 марта 1946 года в Den Helder). Известность получили ещё приняв участие в конкурсе песни Евровидение 1971. Выпустили вереницу хитов на английском и на голландском.01. The Country Disco Train (8:33)
-02. Mama He's A Soldier Now (4:09)
-03. Toulouse Lautrec (3:38)
-04. There's A Song (3:23)(   Читать дальше...   )Жанр: Pop, Folk, WorldПродолжительность: 02:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DADDA12F8F54F365A9330721D05BE2CF0E0E53AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014750   (776100) от 08.05.2016
-
-Munich Machine - Body Shine (1979) Reissue, 2013, Repertoire Records [FLAC|Lossless|image + .cue] <Disco, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Party Light (6:03)
-02. Fallen Angel (5:24)
-03. Space Warrior (4:17)
-04. Let Your Body Shine (4:35)(   Читать дальше...   )Жанр: Disco, ElectronicПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C67E63BFD7E697C8D0D4BE5AB0674ED54236A2B8
 ```
 
 

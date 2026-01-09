@@ -350,6 +350,33 @@ magnet:?xt=urn:btih:44BB928F4377313A32D0C451AC04BB1AC598F010
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525000   (609244) от 20.07.2012
+
+VA - Hits 2012 (2012) [FLAC|Lossless]<Pop, Rok, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_609244.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Michel Telo - Ai Se Eu Te Pego (2:45)
+2. Sak Noel - Paso (The Nini Anthem) (3:17)
+3. Qwote Feat. Pitbull & Lucenzo - Throw Your Hands Up (Dancar Kuduru) Sagi Abitbul Remix Edit (4:33)
+4. R.I.O. feat. U-Jean - Turn This Club Around (3:18)(   Читать дальше...   )Жанр: Pop, Rok, R&BПродолжительность: 02:31:01
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147228   (610997) от 01.07.2017
 
 Belinda Carlisle - The Anthology (2014) Compilation, 3CD [FLAC|Lossless|tracks + .cue] <Pop-Rock>
@@ -670,33 +697,6 @@ Rainhard Fendrich - Lieder Mit Gefuhl (1994) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0765AE2A8E0DE9627BB126CFC569EF9B8B540ADD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146275   (616197) от 28.06.2017
-
-Harry Nilsson - The Real... Harry Nilsson (The Ultimate Collection) (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. 1941
-02. Cuddly Toy
-03. You Can't Do That(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75A089409366427FB651A2D7890A03B271B5D7C6
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1202426   (789928) от 29.01.2018
+
+VA - Hed Kandi Ibiza (2016) [FLAC|Lossless|tracks] <Deep House, Disco, Tropical House, House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sigala - Give Me Your Love (feat John Newman And Nile Rodgers - radio edit) (3:29)
+02.Gorgon City - All Four Walls (feat Vaults) (3:12)
+03.Tieks - Sunshine (feat Dan Harkna - extended mix) (4:22)
+04.AlunaGeorge - I'm In Control (feat Popcaan - The Magician remix) (4:35)(   Читать дальше...   )Жанр: Deep House, Disco, Tropical House, House, Tech HouseПродолжительность: 06:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77FBF7F933FAE72C2C5590E620D175FD227A984F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202495   (789932) от 29.01.2018
+
+Richard Bone - Nibiru Drones From The 12Th Planet (2018) [MP3|320 Kbps] <Ambient, New Age>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Without (Light) 7:16
+ 02. Maneuvers for Mankind 8:07
+ 03. Gautham 6:28
+ 04. The New Mystic 7:18(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 00:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36664EFDAE8592FCF5381B42D357B840E2963A79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202502   (789941) от 29.01.2018
+
+VA - Dreamline 6 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Florito  -  Saigon Morning  4:04
+02.  Intelligent Rich & Beautiful  -  Vortex Of Love  6:20
+03.  L'art Mystique  -  China White (Ibiza Spa Mix)  5:05
+04.  Roberto Sol  -  Time For Love  5:28(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 02:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2649145F191942BBA6D69669496DBD63D5CD16E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202412   (789946) от 29.01.2018
+
+VA - Progressive Trance Selections Vol.02 (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mr Nobody  -  More Pressing Matters (Original Mix)  5:36
+02.  Fashion Police  -  The Moment (Original Mix)  7:24
+03.  ARChima  -  Walk With Me (Original Mix)  5:43
+04.  Luis M  -  Interferenz (Floating Machine Remix)  7:23(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F962340BA39335081797FD17D6EB56B5A891146
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202488   (789949) от 29.01.2018
+
+Pessimist - Pessimist (2017) Blackest Ever Black [FLAC|Lossless|tracks+.cue] <Techno, Experimental, Drum n Bass, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:44)
+ 02. Bloom (05:46)
+ 03. Grit (05:36)
+ 04. Spirals (06:02)(   Читать дальше...   )Жанр: Techno, Experimental, Drum n Bass, AmbientПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995C07861E681600096399875847787D0E740D06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202506   (789950) от 29.01.2018
+
+VA - Uplift Underground (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gierto - What Dreams May Come (Original Mix)
+02. Bekar-b - Gone To The Sky (Original Mix)
+03. UIAN - You Have To Say (Original Mix)
+04. Natterum - Burning Industrial (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:58:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E662381405887B23CCE16D6148E3E5B9B6C34FB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281247   (790018) от 04.06.2020
 
 Gerard Hanson (Convextion, E.R.P., Time Light Curve, T/O/L) - Discography 33 Releases (1995-2019) [FLAC|Lossless|tracks .cue, tracks] <Electro, Techno, Minimal, Dub Techno, Ambient>
@@ -529,168 +691,6 @@ Fluxion - Upsides & Sideways EP (2018) Echocord [FLAC|Lossless|WEB-DL|tracks] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FF26E7B83FE4FCF4FE30742926FB898543EB008
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510633   (790762) от 17.11.2021
-
-VA - Beautiful Sunday Morning: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexandra Hampton Merge Of Equals - Beautiful (4:25)
-02. Marga Sol - Beautiful & Bitter (Original Mix) (4:28)
-03. Brass Alessio Ventura Dario Benedetti - Ordinary World (Cover) (6:12)
-04. Simply Chill - Coming Home (Original Mix) (3:38)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E58FE59B6E7BE0B32716CC263749749190A1DAAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202073   (790900) от 27.01.2018
-
-Above & Beyond - Common Ground (2018) [FLAC|Lossless|tracks + .cue] <Progressive House, Trance, Ambient>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Inconsistency Principle (3:18)
- 02. My Own Hymn (3:49)
- 03. Northern Soul (5:36)
- 04. Naked (5:24)(   Читать дальше...   )Жанр: Progressive House, Trance, AmbientПродолжительность: 01:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74243C2B6111F7420CC614A645BD9A15249DFFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201928   (790904) от 27.01.2018
-
-VA - Best of Ibiza 2018 [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MYNC - I Feel Love (Illyus & Barrientos Remix - Radio Edit) (Feat. Wynter Gordon) [4:25]
-02. Carl Cox - I Want You (Forever) (Josh Butler Remix - Radio Edit) [4:06]
-03. Fedde Le Grand - Put Your Hands Up for Detroit (TV Rock & Dirty South Remix) [6:50]
-04. DJ Wady - Hulk (Camelphat 2017 Re-Fix - Radio Edit) [3:31](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C6E4EB3D4A53274B1D03A6EF409F5855F440776
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057111   (790905) от 27.01.2018
-
-hyDrone - Discography 6 Releases (2010-2017) [FLAC|Lossless|tracks+.cue, tracks] <Industrial, Ambient, Rhythmic Noise, Dark Ambient>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oscillator, the Violator (10:46)
- 02. Longing for Trust (06:56)
- 03. Lust Factor (04:02)
- 04. Dressed Wounds (06:29)(   Читать дальше...   )Жанр: Industrial, Ambient, Rhythmic Noise, Dark Ambient •Продолжительность: 00:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AAA45D5ACB38E3D82D1DDA3C902688C68311284
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999704   (790936) от 27.01.2018
-
-Sal Solaris - Thresholds (2016) Zhelezobeton [FLAC|Lossless|tracks+.cue] <Industrial, Dark Ambient, Techno, Experimental, Noise>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cryptosystem (08:02)
-02. Limit Value (08:29)
-03. Polygyny Model (07:14)
-04. Displaced (08:48)(   Читать дальше...   )Жанр: Industrial, Dark Ambient, Techno, Experimental, NoiseПродолжительность: 01:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:579108AE2619818CE9A4161EBE74D2A44F997D7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201703   (790977) от 27.01.2018
-
-VA - Trance 100 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790977.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Armin van Buuren feat. Josh Cumbee  -  Sunny Days (PureNRG Remix)  3:11
-002.  W&W, Vini Vici  -  Chakra (Original Mix)  3:23
-003.  Aly & Fila, Ferry Tayle  -  Concorde (Original Mix)  4:19
-004.  Paul van Dyk  -  I Am Alive (Original Mix)  4:38(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal Trance, ProgressiveПродолжительность: 05:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FE81B8D567A281AEFA1C5CC1B3EB517C4770483
 ```
 
 

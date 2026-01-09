@@ -1,3 +1,30 @@
+###  Публикация: 1231975   (603275) от 21.06.2018
+
+Fieldtriqp - Eidolon EP (2005) Experimedia [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. False Start (02:51)
+02. Eidolon (02:42)
+03. You Should Go See It (04:06)
+04. Lost City Sidewalks (04:01)(   Читать дальше...   )Жанр: IDM, AmbientПродолжительность: 00:18:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E287695F56C175D0C77BB26C70AB182BB3BE86DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547196   (603352) от 27.04.2022
 
 Skold - Dead God (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock>
@@ -668,33 +695,6 @@ VA - Spring Lounge Vol.1 (2019) [MP3|320 Kbps] <Balearic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A740F29EC694C44FD30865152E635C30DAD0ED3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038699   (604847) от 29.07.2016
-
-Zhu - Generationwhy LP (2016) [MP3|320 Kbps] <Electronic, Deep House, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Neon City) [01:10]
-02. Cold Blooded [04:19]
-03. In the Morning [04:07]
-04. Secret Weapon [04:04](   Читать дальше...   )Жанр: Electronic, Deep House, HouseПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0CBD70E122B6E2577A3AAFD926C158D985F07D2
 ```
 
 

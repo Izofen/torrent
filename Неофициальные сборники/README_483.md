@@ -1,3 +1,30 @@
+###  Публикация: 1522167   (760348) от 06.01.2022
+
+VA - NYE Trance December Set (2021) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Транс - это мелодии чувств, от прослушивания которых испытываешь удовольствие. Немногим удаётся понять и осознать данный стиль музыки, но однозначно повезло тем, кто способен проникнуться чудесными мелодиями и звуками, которые приносит с собой транс музыка.001. Alvaro Santis - Silent Punch
+002. Dan Thompson - Atlas (Radio Edit)
+003. Paul Todd - La Graciosa
+004. Corrado Baggieri - Exciderunt(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 11:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF9ED2689FE02D4ADF8F0D035650D90DAE8FFDB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522157   (760352) от 06.01.2022
 
 VA - Beatport Tech House: Sound Pack #390 (2021) [MP3|320 Kbps] <Tech House, Electro>
@@ -668,33 +695,6 @@ VA - Europa Plus: ЕвроХит Топ 40 / 23.03 (2018) [MP3|320 Kbps] <Pop, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:231B40C47E68875F4422EDD17FE9EA2416160890
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215091   (761550) от 24.03.2018
-
-VA - Sky Радио: SKY Парад Top 20/Март (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kendrick Lamar feat. SZA  -  All The Stars  3:55
-02.  MARUV & BOOSIN  -  Drunk Groove  3:47
-03.  Marshmello & Anne-Marie  -  Friends  3:23
-04.  Sean Paul & David Guetta  -  Mad Love  3:20(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B049205458398665C1F694886FAD56BF50D9C150
 ```
 
 

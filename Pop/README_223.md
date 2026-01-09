@@ -1,3 +1,193 @@
+###  Публикация: 1036532   (618984) от 21.07.2016
+
+ABBA - The Album (1977) Reissue, Deluxe Edition, 2007, Polar [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eagle (5:53)
+02. Take A Chance On Me (4:07)
+03. One Man, One Woman (4:34)
+04. The Name Of The Game (4:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B4E81C9976FAF7A529FDCC6CEDA2D9DDDF362E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036732   (619094) от 21.07.2016
+
+Bruce & Bongo - 1 Albums, 3 Singles & EPs (1986-1992) [MP3|320 Kbps] <Electronic, Europop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bruce & Bongo (Брюс энд Бо́нго) — базировавшийся в Западной Германии дуэт, который состоял из британцев Брюса Хаммонда  и Дугласа Уилгроува.
+Наиболее известен по своей песне 1986 гола «Geil» (англ.), которая в Германии мгновенно стала хитом, проведя 4 недели на 1 месте. Немецкое слово «geil» в данном контексте имеет значение «крутой» или «классный» (на молодёжном (   Читать дальше...   )01. Intro (0:30)
+02. Geil (Edited Mix) (5:37)
+03. Monkey Dance (4:22)
+04. Fussganger (5:00)(   Читать дальше...   )Жанр: Electronic, Europop, DiscoПродолжительность: 01:29:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12251F7D29D4E787C0D91743024C113246097FBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036589   (619095) от 21.07.2016
+
+Savage Garden - Savage Garden (1997) 2CD, Mixed [APE|Lossless|image + .cue] <Synth-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want You (Xenomania Funky mix)
+02. Break Me Shake Me (Broken mix)
+03. Santa Monica (Bittersweet mix)
+04. Tears of Pearls (Tears on the Dancefloor mix)(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 01:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:215EA7CA71DC9F16EB2462780D8596EE2AA36C02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145580   (619596) от 26.06.2017
+
+VA - Главные песни о старом (2016) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Балаган Лимитед - Сладкая ягода
+02.  Мурашки по телу - Позвони мне
+03.  Призедент и Амазонка - Комарово
+04.  Шиншиллы - В землянке(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C5C3AED4A7A39D1003EE2482D02D12C78EAE87E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145751   (619679) от 26.06.2017
+
+Italove - The Album (Super Deluxe Promo) (2017) [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Trust You (Like I Trust Myself)
+02. Too Late to Cry
+03. No Fear
+04. Heading for the Sun(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 03:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:318CFA1F5FBFE3F6E026DD83B66F585E66711A91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145866   (619690) от 26.06.2017
+
+Fun Fun - Greatest Hits & Remixes (2017) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Station (7" Version) 03:19
+02. Give Me Your Love (7" Version Remix) 03:56
+03. Color My Love (7" Version) 04:06
+04. Living In Japan (7" Version) 03:38(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 02:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F901FA21EB45E6A6ACAB03233C17394B22DCFB88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910880   (619721) от 21.06.2015
+
+Аркадий Хоралов - Давай попробуем вернуть / Ариведерчи (2010) 2CD [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ариведерчи [03:22]
+02. Грусть [04:11]
+03. Бархатный сезон [04:02]
+04. Мне бесконечно жаль [03:57](   Читать дальше...   )Жанр: PopПродолжительность: 01:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ABADF9B0C382B890443DAD68743B3B00E54F781
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910774   (619850) от 21.06.2015
 
 Рома Жуков - Я люблю Вас, девочки, я люблю Вас, мальчики (1994) [FLAC|image+.cue]<Pop>
@@ -506,192 +696,6 @@ Melanie C - Version Of Me (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FC890421922F82601C707AD82F557E00B095281
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230020   (620879) от 09.06.2018
-
-Ivan Cattaneo - Bandiera Gialla (1983) CGD, Reissue, 1988 [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Bambolina Che Fa No No (Une Poupee Qui Fait Non) 3:23
-02. Bang Bang (Al Cuore Bang Bang) 2:49
-03. Sono Bugiardo (I'm Believer) 3:08
-04. Ho Difeso Il Mio Amore (Nights In White Satin) 2:59(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:051286872D6A335AB7D9FEAFF53B3B41C4468811
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036363   (621010) от 20.07.2016
-
-La Mama - Voulez-Vous Coucher Avec La Mama (1983) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа вокальной поддержки таких суперзвёзд как BONEY M., Precious Wilson и некоторых других проектов FAR Music. В её состав вошли первоклассные исполнительницы Madeleine Davis, Patricia Shokley и Cathy Bartney. Фрэнк Фариан всегда знал толк в подборе солисток, обладающих прекрасными голосами. Профессионализм этого студийного трио был настолько высок, что в 1983-м (   Читать дальше...   )01. Voulez-Vous Coucher Avec Moi (Lady Marmalade) (3:37)
-02. Moonlight (2:29)
-03. What Am I Living For (3:41)
-04. Boy You Lift Me Up (3:23)(   Читать дальше...   )Жанр: Electronic, Disco, Funk-SoulПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FA7170887492FEAD4BEFB010B9B86D23737ACF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036250   (621080) от 20.07.2016
-
-VA - 2005 Grammy Nominees (2005) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Black Eyed Peas - Let's Get It Started 03:38
-02. Ray Charles (Feat. Norah Jones) - Here We Go Again 03:56
-03. Green Day - American Idiot 02:56
-04. Los Lonely Boys - Heaven 03:36(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010A2D02E62E50FD9B8ADD055B86335BE1D4CCE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036412   (621171) от 20.07.2016
-
-Pebbles - Straight From My Heart (1995) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Club Laid Back (Intro) (2:53)
-02.Like The Last Time (4:07)
-03.'Are You Ready?' (4:36)
-04.I Can't Help It (5:04)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:115EFF9BDC979BC8AF0B265DBDD65A6EADAC03AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145370   (621410) от 25.06.2017
-
-Veorra - Official Discography (2015-2016) 4EP [MP3|320 Kbps] <EDM, Bass, Trap>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative Pop, EDM, Bass, Trap, DubstepПродолжительность: 01:18:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F1039B9AA57F30AC977B2CF0E69129B75588D2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910383   (621437) от 20.06.2015
-
-Комиссар - Super Hits Collection (2013) [FLAC|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Королева снежная [4:34]
-02. Туман-туманище [4:08]
-03. Голубоглазая [3:35]
-04. Дрянь [4:51](   Читать дальше...   )Жанр: PopПродолжительность: 01:18:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E8BEA49726D6528A47387F73D503837E8245B7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910339   (621441) от 20.06.2015
-
-VA - The Ultimate Collection. 70s Schooldays. 100 Super Hits Of The 70s (2013) 5 CD [MP3|320 кб/с]<Pop, Rock, Funk, Soul, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621441.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. The Jackson 5 - ABC - 02:57
-02. The Average White Band - Pick Up The Pieces - 03:58
-03. Carl Douglas - Kung Fu Fighting - 03:09(   Читать дальше...   )Жанр: Pop, Rock, Funk, Soul, DiscoПродолжительность: 05:53:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A019E96B09C51419A865A2ECEB55083610615A
 ```
 
 

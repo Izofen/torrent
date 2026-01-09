@@ -1,3 +1,31 @@
+###  Публикация: 875712   (855959) от 07.03.2015
+
+Madonna - Rebel Heart [Super Deluxe Edition] (2015) 2CD [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855959.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 (01:14:25)
+CD2 (00:28:17)Треклист CD1:
+01. Living for Love
+02. Devil Pray
+03. Ghosttown(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C5BCAAAC6588999643E9856A9B20A116D364B9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109728   (857062) от 28.02.2017
 
 Bebe Rexha - All Your Fault: Pt. 1 (2017) [FLAC|Lossless|tracks] <Pop>
@@ -688,39 +716,6 @@ Amanda Somerville - Windows (2008) [FLAC|Lossless]<pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F4ED4A95E94B4D0E5ECC3CAA2FEC00C9477BAFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188902   (866431) от 03.04.2010
-
-DJ Bobo - Fantasy (2CD) (2010) Special Double CD Edition [FLAC|Lossless]<Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-DJ Bobo Greatest Hits Megamix:
-01. Countdown (Intro)
-02. DJ Bobo with Emilia - Everybody (Mix)
-03. Respect Yourself (Mix)
-04. It's My Life (Mix)
-05. There Is A Party (Mix)
-06. Around The World (Mix)
-07.Deep In The Jungle (Mix)
-08. Pirates Of Dance (Mix)
-09. Ole Ole (Mix)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 01:27:32
-
-## Скачать торент
-```bash
-нет
 ```
 
 

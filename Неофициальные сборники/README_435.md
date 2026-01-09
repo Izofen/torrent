@@ -1,3 +1,30 @@
+###  Публикация: 1027863   (694831) от 20.06.2016
+
+VA - Chillout Classical Study (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patricia Holmberg - Lyric Piece, Book I, Op. 12: VII. Albumleaf
+02. Alastair Cameron - Gnossienne No. 2
+03. Western Horizon Productions - Piano Sonata No. 11 in A Major, K. 331: III. Turkish March
+04. Maxim Melnikov - Drei Fantasiestucke, Op. 73: III. Rasch Und Mit Feuer(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 02:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24AC1CF8BB95361E416D138D5FB9CD09BB9D08F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027949   (694844) от 20.06.2016
 
 VA - Extra Trance: Bonus [07] (2016) [MP3|320 кб/с] <Trance>
@@ -666,33 +693,6 @@ VA - I Love Ballads - Part VI (2016) [MP3|256 кб/с] <Rock, Pop, Chanson>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:712F39C148D805356B745A92235E873215A765F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027464   (696542) от 19.06.2016
-
-VA - Planet Pop Vol. 04 (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696542.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bahari - Dancing On the Sun
-002. James Bay - Incomplete
-003. Adore Delano - Take Me There
-004. Alanis Morissette - Wake Up(   Читать дальше...   )Жанр: PopПродолжительность: 06:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE1984F6DD675257762EF9EE33ACAEEBDE90C1C
 ```
 
 

@@ -1,3 +1,246 @@
+###  Публикация: 1035580   (626505) от 17.07.2016
+
+Arabesque - Greatest Hits Volume 1 (1993) Unofficial Release [APE|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Mr. Monkey
+02. Fly High Little Butterfly
+03. Buggy Boy
+04. Friday Night(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F2E5E8C05BC74F307B5E666A10DDE023DB8FCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229446   (626563) от 06.06.2018
+
+Eh440 - 2 Albums + 2 Single (2014-2016) [MP3|320 Kbps] <Vocal Pop, A Capella, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626563.jpg" />
+</div>
+
+
+###  Подробнее
+
+2014 - Turn Me Up
+2015 - Beatbox Heart (feat. Luke McMaster) (Single)
+2016 - Boss Level
+2016 - Run Run Rudolph (Single)Жанр: Vocal Pop, A Capella, Soul, R&BПродолжительность: 01:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B53B058E8743B60EF816FB8706A7CF3D35F8B973
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229433   (626566) от 06.06.2018
+
+The Vamps - Disco Blood (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом был выпущен в 1977 в Бразилии и после переиздавался в Италии, Франции и Португалии. Тема раскрывает историю вампира и женщины, которую он порабощает, начиная с ее отпора вампиру. В конечном она итоге попадает под его заклинание и полностью охватывает сексуальный образ жизни вампира. Так песня "Disco Blood" была выпущена на бразильском звукозаписывающем (   Читать дальше...   )01.  Disco Blood (Part 2) (7:14)
+02.  Vamps Sex Theme (4:46)
+03.  Two Lady Vamps (5:00)
+04.  Dancin' Dancin' (5:35)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C6B26646921EFF9F6A376A74D1A6CA771E3085E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035236   (626710) от 17.07.2016
+
+Dicte - Perfume (2016) [FLAC|Lossless|tracks + .cue] <Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626710.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Don't Wanna Lie
+2. All I Want Is You
+3. Mama Said
+4. Stronger(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 0:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A3A5547956D83C1026C658679AF509141919D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 350372   (626891) от 14.06.2011
+
+VA - The Best Of Eurodance 90 (2011) 3CD [MP3|320 kbps] <Pop, Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Brothers On The 4th Floor - Come Take My Hand (Radio Version) (4:05)
+02. 2 Unlimited - The Magic Friend (7' edit) (3:06)
+03. CO.RO feat. Taleesa - 4 Your Love (6:27)
+04. E-Type - This Is The Way (3:55)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 15:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B732F82127437BC04F77FC7D745EDD0D92AD848
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553178   (627107) от 12.04.2022
+
+VA - Хиты 80-х в Новых Версиях (2012) [FLAC|Lossless] <Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Al Bano Carrisi - Felicita (New Version) [3:52]
+02. Bad Boys Blue - You're A Woman (Re-Recorded) [3:44]
+03. Ricci E Poveri - Mamma Maria (Reloaded) [5:15]
+04. Mauro - Buona Sera Ciao Ciao (New Party Version) [3:56](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E70AB327ABF236F6B066A599C2F72C79BB6D57C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144390   (627234) от 22.06.2017
+
+Katy Perry - Witness (Japanese Deluxe Edition) (2017) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Witness (4:11)
+02. Hey Hey Hey (3:35)
+03. Roulette (3:19)
+04. Swish Swish (4:03)(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210857D1A52F8811311A78CD4D768B9360958440
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543327   (627464) от 12.04.2022
+
+VA - Вечеринка Ретро FM (2004) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Здравствуй, песня - Синяя песня
+02. Gloria Gaynor - I will survive
+03. Лейся, песня - Обручальное кольцо
+04. Валерий Леонтьев - Полет на дельтаплане(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ADE2D81040D4332AA70FD46EFD57A09F0BFB84C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543181   (627468) от 12.04.2022
+
+VA - The Best of Dance 80 (2015) [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valerie Dore - The Night (4:06)
+02. Tony Esposito - Kalimba De Luna (3:47)
+03. Bobby Farrell - Rasputin (4:50)
+04. Sendy Marton - People from Ibiza (5:07)(   Читать дальше...   )Жанр: Dance, Disco, PopПродолжительность: 01:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B53CA357469A6315183E33316D72EEE19C7A152A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144438   (627489) от 22.06.2017
 
 All Time Low - Last Young Renegade (2017) [FLAC|Lossless|tracks + .cue] <Pop Rock>
@@ -449,253 +692,6 @@ Captain & Tennille - Love Will Keep Us Together (1975) CD, Album, Remastered, 20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC4B082442565C9794C02FE8E144BBE2E8C1F310
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294492   (628373) от 08.04.2019
-
-VA - Ballermann XXL (Die besten Mallorca Party Schlager Hits zum Opening 2019 im Mallorcastyle) (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628373.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Robin - Cordula Grün
-002. DJ Malle - Helikopter 117 (Mach' den Hub Hub Hub)
-003. Axel Fischer - Bella Ciao (Eric van Dust Mix)
-004. Ingo ohne Flamingo - Saufen morgens, mittags, abends(   Читать дальше...   )Жанр: PopПродолжительность: 06:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3A6B7312034858E00712D96D4129A780A82FA2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294476   (628376) от 08.04.2019
-
-Lou & Hollywood Bananas - Meet The Ska All Stars: Greatest Hits (1980) LP [MP3|320 Kbps] <Pop, Disco, Ska>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hong-Kong Ska (2:20)
-02. I Won't Never Let You Go (2:43)
-03. Ska-Baloo Cha (2:52)
-04. Skeilzat (4:07)(   Читать дальше...   )Жанр: Pop, Disco, SkaПродолжительность: 00:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B38256E09B5A8AEF24FC507AF2C3A8A5053D6CB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035497   (628514) от 16.07.2016
-
-Дима Билан - Я ночной хулиган (2003) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Я ночной хулиган  "
-02. "Звёздочка моя ясная  "
-03. "Малыш   "
-04. "Я так люблю тебя  "(   Читать дальше...   )Жанр: PopПродолжительность: 00: 59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C59087CA6BB751E5716C0C70B7023780AF20AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035473   (628525) от 16.07.2016
-
-Britney Spears feat. G-Eazy - Make Me (2016) Single [FLAC|Lossless|WEB-DL|track] <Pop, Hip-Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make Me [00:03:51]Жанр: Pop, Hip-HopПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1264EE03FD48E4EA2F89233B33E689B4025FD14D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035382   (628527) от 16.07.2016
-
-VA - Come and Get It: The Best of Apple Records (2010) Remaster [FLAC|Lossless|tracks + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаю Вашему вниманию компиляционный альбом лучших песен, выпущенный лейблом Apple Records 25 октября 2010 года. В альбом вошли ремастированные композиции, изданные Apple Records в период с 1968 по 1973 год. Ремастирование песен для альбома провела та же команда инженеров, что в 2009 году ремастировала альбомы The Beatles.
-"На «Come and Get It: The Best (   Читать дальше...   )01. Mary Hopkin - Those Were the Days  (5:11)
-02. James Taylor - Carolina in My Mind  (3:39)
-03. The Iveys - Maybe Tomorrow  (2:54)
-04. Black Dyke Band - Thingumybob  (1:56)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31EF3B31EFEA66F5DEA51D6C606A129E9DD9F0B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521140   (628666) от 10.07.2012
-
-Лада Дэнс - Лучшая Коллекция (2012) [MP3|320 кб/с]<Рор>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нежданный звонок
-02. До свидания
-03. Пойду с тобой
-04. Не судьба
-05. Ночные танцы
-06. Нас больше нет
-07. Девочка-ночь
-08. Будь со мной
-09. Ночь
-10. Только дождись(   Читать дальше...   )Жанр: РорПродолжительность: 02:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530B92DF2AF51AE9A9D5F78E0326F14013EB7EC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035326   (628668) от 16.07.2016
-
-Kany Garcia - Limonada (2016) [FLAC|Lossless|WEB-DL|tracks] <Latin Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mío
-02. De Verano a Invierno
-03. Perfecto para Mi
-04. El Mejor(   Читать дальше...   )Жанр: Latin PopПродолжительность: 0:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29D0D3EBBD2C78E10AE47B6F3B1A0C8EF7BEF092
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144079   (629354) от 21.06.2017
-
-ESTRADARADA - 3 Singles (2015-2016) [FLAC|Lossless|WEB|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Галя, гуляй! (Album Edit) (4:00)
-02. Галя, гуляй! (Radio Edit) (3:30)
-03. Галя, гуляй! (Extended) (4:12)
-04. Галя, гуляй! (Max Creative Radio Edit) (2:52)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACE397A8559D2C5A5C2A75DFD17B6077FA4EA37B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543481   (629526) от 11.04.2022
-
-VA - Summer Wedding 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shania Twain - You're Still The One (3:32)
-02. Extreme - More Than Words (5:37)
-03. The Righteous Brothers - Unchained Melody (3:36)
-04. The Police - Every Breath You Take (4:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE1E268727F5E49B0DC0FB7E061251020670EBB
 ```
 
 

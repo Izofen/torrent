@@ -1,3 +1,30 @@
+###  Публикация: 1216093   (753062) от 29.03.2018
+
+VA - No Stress Relaxing Beats (2018) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Art Of Noise - Robinson Crusoe 3:49
+02 The Grid - Floatation (Single Version) 4:04
+03 Christian Falk feat. Jevetta Steele - Calling You 4:33
+04 William Orbit`s Strange Cargo - Million Town 5:32(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 01:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:611FC21428E7B0122D261193345D4DFB2AA98530
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281338   (753243) от 07.02.2019
 
 Kiss - Kiss Live (2019) [MP3|320 Kbps] <Hard Rock>
@@ -665,33 +692,6 @@ VA - В Ремиксах. Disco 90-х 100 hits (2016) [MP3|192-320 кб/с] <Clu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A21D20D981369DF1F1A26EA09D66B4E78FA3C56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395410   (755475) от 10.07.2020
-
-VA - Lost In Paradise: Sunny Reggae (2020) [MP3|320 Kbps] <Reggae, Ska, Riddim, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755475.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mungo's Hi-Fi X Eva Lazarus - Gasoline
-002. Tanya Stephens - The Goodbye Song
-003. Kingston Express - Straight From The Pram
-004. Beenie Man - Preacher's Daughter(   Читать дальше...   )Жанр: Reggae, Ska, Riddim, SoulПродолжительность: 07:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81119D9CEC4CA9E0DEDD566FB1C44E0AAE6FDDA2
 ```
 
 

@@ -1,3 +1,36 @@
+###  Публикация: 616296   (976088) от 09.02.2013
+
+U2 - Achtung Baby (1991) [FLAC 2.0 24/192|tracks (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976088.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Zoo Station 4:30
+A2. Even Better Than the Real Thing 4:04
+A3. One 3:54
+A4. Until The End Of The World 5:31
+A5. Who's Gonna Ride Your Wild Horses 4:31
+A6. So Cruel 4:21
+B1. The Fly 4:38
+B2. Mysterious Ways 3:42
+B3. Tryin' to Throw Your Arms Around the World 4:37
+B4. Ultraviolet (Light My Way) 4:40(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A890FFA649118C5568151D5A8EE3EDC5439569
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973432   (977974) от 10.01.2016
 
 Наутилус Помпилиус - 3 альбома (1988-1991) [FLAC 2.0 24/192] image + .cue (Vinyl-Rip) <Rock>
@@ -701,39 +734,6 @@ B4. Alive [04:54](   Читать дальше...   )Жанр: Rock, Heavy Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F38DFD1F80C422A7348C4BA05E17948BE0E20998
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608562   (992496) от 26.01.2013
-
-Nirvana - 5 альбомов (Японские прессы) (1996, 2007) [FLAC 2.0 24/192|tracks (Vinyl-Rip)]<Grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992496.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. About A Girl 3:40
-A2. Come As You Are 4:14
-A3. Jesus Doesn't Want Me For A Sunbeam 4:38
-A4. The Man Who Sold The World 4:21
-A5. Pennyroyal Tea 3:41
-A6. Dumb 2:53
-A7. Polly 3:16
-B1. On A Plain 3:45
-B2. Something In The Way 4:02
-B3. Plateau 3:38(   Читать дальше...   )Жанр: GrungeПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60606D67144207DB7E92DDB1A76DB43F321DC14A
 ```
 
 

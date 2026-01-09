@@ -1,3 +1,30 @@
+###  Публикация: 1620240   (1032355) от 19.03.2023
+
+Kylie Minogue - The Abbey Road Sessions (2012) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All The Lovers
+02. On A Night Like This
+03. Better The Devil You Know
+04. Hand On Your Heart(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6954BE1AB9892818BA3771FBC8B2F84D3B49CD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446680   (1032554) от 10.02.2021
 
 Триши - Лунная ночь (2006) [FLAC|Lossless|tracks + .cue]<Pop>
@@ -667,33 +694,6 @@ The Marmalade - Greatest Hits (1993) [FLAC|Lossless|image + .cue] <Pop Rock, Old
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B5C9A33DE3159D6CC25646914730BF6D7D53BDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441751   (1037204) от 23.01.2021
-
-The Fortunes - All The Hits and More (1993) [FLAC|Lossless|image + .cue] <Pop Rock, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seasons In The Sun (3:47)
-02. You've Got Your Troubles (3:28)
-03. Here It Comes Again (3:14)
-04. Caroline (2:28)(   Читать дальше...   )Жанр: Pop Rock, OldiesПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5049F4C5394D098BCC0026010DD54CDFE3F0E941
 ```
 
 

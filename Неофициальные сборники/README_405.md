@@ -1,3 +1,30 @@
+###  Публикация: 1226531   (654711) от 21.05.2018
+
+VA - Music Live (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654711.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Natasha Barnes - Sun, Moon and Stars
+002. Seal - I Put A Spell On You
+003. Saba - LOGOUT
+004. Diplo - Suicidal(   Читать дальше...   )Жанр: PopПродолжительность: 08:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DBFB630F52015E3461A4DAF2D04207871DC4895
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516122   (654734) от 27.06.2012
 
 VA - Союз Клубный. Выпуск 8 (2012) [MP3|256 kbps]<Club>
@@ -732,33 +759,6 @@ CD 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E66CCCEA257AD1B090F9697A10536C74603DF8D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226423   (655760) от 20.05.2018
-
-VA - Unique Disco (2018) vol 2 [MP3|320 Kbps] <Electronic, Funk-Soul, PopRock, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amon Duul Ii - Kismet (1978) (3:57)
-02. Anilisi 91 - Disco Magic (1978) (3:24)
-03. Bogart - On Broadway (1979) (5:56)
-04. Captain Zorro - Phantasm (1979) (6:58)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, PopRock, DiscoПродолжительность: 01:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:203323022E2F8335B6D726E214C3E1F175E49E36
 ```
 
 

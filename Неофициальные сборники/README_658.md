@@ -1,3 +1,30 @@
+###  Публикация: 1479247   (1009552) от 24.06.2021
+
+VA - New Latin Hot Playlist (2021) [MP3|320 Kbps] <Latin, Reggaeton, Dancehall>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009552.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dkvpz - Churrascada E Piscina
+002. Oscar Yestera, DJ Combo - No Soy Tu Juguete
+003. Bandé-Gamboa - Pé Di Bissilon
+004. Goleada - Ritmo Della Noche(   Читать дальше...   )Жанр: Latin, Reggaeton, DancehallПродолжительность: 07:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD22A8A1497BA0B823CD4FEE070CB9BEB85D563F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479253   (1009572) от 24.06.2021
 
 VA - Chillout Deep Sounds (2021) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, Lounge>
@@ -668,33 +695,6 @@ VA - Party Mix (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D46331EFBBC34BB5A9A1C69EE317D1F051B6F0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477723   (1010808) от 16.06.2021
-
-Oystein Ramfjord - Music For Healing (2021) [MP3|320 Kbps] <New Age, Ambient, Meditation>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadow To Light
-02. Ethereal
-03. Mono No Aware
-04. Nightfall(   Читать дальше...   )Жанр: New Age, Ambient, MeditationПродолжительность: 04:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DDF7855FA45D8AD711867AE2D933D56508C03A2
 ```
 
 

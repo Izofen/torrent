@@ -1,3 +1,54 @@
+###  Публикация: 1196632   (822551) от 03.01.2018
+
+Halestorm - Apocalyptic (2015) Single, Atlantic Recording Corporation, 548818-2 [MP3|320 Kbps] <Alternative Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Apocalyptic 3:17Жанр: Alternative Rock, Hard RockПродолжительность: 00:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B411255685F58FC36B59ED105599BCAEBEFB5F0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381904   (822774) от 09.05.2020
+
+Michael Parrett - Influence This (2020) [MP3|320 Kbps] <Garage Rock, Mod, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Television
+02. Fly
+03. Money Loving Hippie
+04. Tattoos & Whiskey(   Читать дальше...   )Жанр: Garage Rock, Mod, Psychedelic Rock, Glam, Psych-PopПродолжительность: 00:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB7C046A715332CD00B28E9AF0B59BC6B427735
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116605   (822991) от 20.03.2017
 
 Crow - Crow Music (1969) Remastered, 2010, Flawed Gems [MP3|320 Kbps] <Funk, Hard Rock, Blues Rock>
@@ -639,58 +690,6 @@ VA - Nuggets II - Original Artyfacts From The British Empire And Beyond 1964-196
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABA8981467801323C89B8A672A0686CC02F225D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380469   (832936) от 03.05.2020
-
-Deep Purple - Man Alive (2020) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Purple - Man Alive
-02. Deep Purple - Throw My BonesЖанр: RockПродолжительность: 00:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D19A1EA375A6FCE7CB7AC18FA725EBCCB55FCA7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380522   (833046) от 03.05.2020
-
-VA - Rock Classics Rock Anthems Rock Hit Rock Legends (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_833046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Company - Can't Get Enough (2015 Remaster)
-02. ZZ Top - La Grange (2005 Remaster)
-03. Foreigner - Cold As Ice (2008 Remaster)
-04. Yes - Owner Of A Lonely Heart(   Читать дальше...   )Жанр: RockПродолжительность: 02:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E4ACD9A80051332E604D35ECD82C21E9840897A
 ```
 
 

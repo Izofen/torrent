@@ -1,3 +1,165 @@
+###  Публикация: 1144369   (627754) от 22.06.2017
+
+Ronny Vergara - Remixes Compilation Vol.02 (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627754.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Chelsy (original mix) (09:32)
+2. Background (Many Reasons AKA Minicoolboyz & Minicoolboyz remix) (07:46)
+3. Background (Virgil Enzinger remix) (06:42)
+4. Background (D-Unity remix) (06:27)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:16:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B29F3056294EE185130E54307675E021DDC4A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144517   (627756) от 22.06.2017
+
+VA - Sigh Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alphawezen - Gun Song (Original Mix)  3:16
+02.  Nor Elle - Let Things Slide (Original Mix)  6:03
+03.  Dadamnphreaknoizphunk - Up The Down Steriod (Original Mix)  5:56
+04.  Tears Of Change - Xy4 (Original Mix)  7:15(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AFBCB7EF169AFD63F2CCDF4A56144538D18C835
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144364   (627760) от 22.06.2017
+
+Irazu & Regis - Shtamm (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627760.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Refused To Be Found (06:07)
+2. Shtamm (07:15)
+3. Last Hours (02:01)
+4. Shtamm (Regis remix) (06:57)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D089A0BA4EDD75C9C7F67D196D9D0E5DC038EF58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144471   (627907) от 22.06.2017
+
+VA - Clinique Sampler (Part 94) (2017) [MP3|320 Kbps] <House,Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Philipp - Be U (Nico Ferrero Remix)
+02. Bob Zopp - Durch Die Nie (Juan Astudillo Remix)
+03. John Cosani - World For All (Original Mix)
+04. Michael A - Frankield (Original Mix)(   Читать дальше...   )Жанр: House,Progressive HouseПродолжительность: 01:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E611B20B6AB0A369ABE1D1C000A1F48FC58728DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229283   (627946) от 05.06.2018
+
+SETI - Discography 3 Releases (1994-1996) Instinct Ambient [FLAC|Lossless|tracks+.cue] <Ambient, IDM, Experimental, Abstract>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fragment.01 (06:41)
+ 02. Fragment.02 (08:36)
+ 03. Fragment.03 (08:26)
+ 04. Fragment.04 (09:30)(   Читать дальше...   )Тип издания: CDЖанр: IDM/AmbientПродолжительность: 01:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA1685B6C160AE71524A5B62EF18C547F97F1027
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599348   (628105) от 05.07.2014
+
+VA - Chill Out Essentials Vol 1-15 (2012-2014) [Обновляемая] [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628105.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vittorio Rioss - Operating Space
+002. Sop-Gradius - Children & War
+003. Drumatrixx - Chill Funk Theory
+004. Juan Sinmiedo - Jean Genet (Instrumental)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 33:27:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7F8BE03CBF0C0A2C23AD5B24B8FB6C104476E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294438   (628109) от 08.04.2019
 
 Toyah - Desire (серия "Другие восьмидесятые") (1987) Reissue, Remastered, 2015, Vertical Species [MP3|320 Kbps] <Avant-Pop, New Wave, Synthpop>
@@ -533,168 +695,6 @@ VA - Paris Fashion Beats Vol.1 (Finest Electronic Style Beats Collection) (2017)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A69B7E496071FD857EF011E4C7E600845621381C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144226   (629656) от 21.06.2017
-
-VA - Stylish Sofa Vol.11: Chill Out Masters (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  LastEDEN - Cold Fingers (Original Mix)  4:13
-02.  Billy Esteban - Rain Girl (Original Mix)  5:00
-03.  Stargazer - Because (Original Mix)  4:13
-04.  Mazelo Nostra - Born To Be Easy (Original Mix)  3:54(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A97AB439353B055DDBCF8499F2CF13E45FA3B22B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144245   (629657) от 21.06.2017
-
-VA - Summer Swagging Vol.3 (Ibiza Electronic Tunes) (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  After Sunrise - Deep Breath (Extended Mix)  8:41
-02.  Wanderboy - Life (Original Mix)  2:47
-03.  Dainpeace - Work Me (Original Mix)  2:53
-04.  Miguel Alcobia - Nobody Else (Original Mix)  9:20(   Читать дальше...   )Жанр: HouseПродолжительность: 02:22:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA530688944DBA2750AA59A2CCB155EACA119697
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908745   (629759) от 16.06.2015
-
-Spectrasoul - The Mistress (2015) [MP3|320 кб/с]<Electronic, Drum & Bass, Hip-Hop>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost Lane (2:44)
-02. Shelter (feat. Lily McKenzie) (3:55)
-03. Always (5:02)
-04. Blindside (5:01)(   Читать дальше...   )Жанр: Electronic, Drum & Bass, Hip-HopПродолжительность: 01:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ABBAD6DF24F40453B28E6AF16CB63FE00E571A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294451   (629978) от 07.04.2019
-
-VHS Dreams - Lost World (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Song I Once Heard (5:47)
-02. Holon (The 4th Dimension) (7:38)
-03. A Midday Summer's Dream (6:06)
-04. Journey (5:01)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F00CF472855A5A79D721513E84C230425D101FBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294339   (629984) от 07.04.2019
-
-Shwamp - Inner Landscape (2019) Mindspring Music [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Dub, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We're Lost (07:40)
-02. Dragonfruit (05:42)
-03. Who Are You (05:08)
-04. Floating Sunrise (06:43)(   Читать дальше...   )Жанр: Psychill, Downtempo, Dub, AmbientПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88298577E29410762E78ED4C753421FF2F341B30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294375   (629985) от 07.04.2019
-
-Jayda G - Significant Changes (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629985.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Unifying The Center (Abstract) (03:13)
-2. Renewal (Hyla Mix) (04:58)
-3. Stanley’s Get Down (No Parking On The DF) (05:22)
-4. Leave Room 2 Breathe (Feat. Alexa Dash) (07:00)(   Читать дальше...   )Жанр: Electronic, Deep HouseПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E93CD1FB8B545EA37E1A740F7DBAF716F05459E4
 ```
 
 

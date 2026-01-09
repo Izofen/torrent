@@ -1,3 +1,165 @@
+###  Публикация: 1354082   (989054) от 21.01.2020
+
+Space Project - The Return Of Space Raiders (2008) [FLAC|Lossless|image + .cue] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989054.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 The Return Of Space Raiders (Original Version) 6:48
+2 The Return Of Space Raiders (Staffan Öhman Remix) 6:54
+3 The Return Of Space Raiders (mindXpander Remix) 8:08
+4 The Return Of Space Raiders (Marco Rochowski Remix) 7:09(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD137E8949C4CACFDAFD5DB94DF784F5A55C695
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610455   (990323) от 29.01.2013
+
+Martin Roth - Beautiful Life / Make Love To Me Baby (2012) [FLAC|Lossless]<Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Life (8:15)
+02. Make Love To Me Baby (9:33)Жанр: Deep HouseПродолжительность: 00:17:47
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610450   (990378) от 29.01.2013
+
+Full Tilt - Take Me Away (2012) [FLAC|Lossless]<Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me Away (Original Mix) (7:17)
+02. Take Me Away (Andrew Bayer & James Grant Remix) (6:16)Жанр: Progressive HouseПродолжительность: 00:13:33
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606874   (990447) от 29.01.2013
+
+Lawrence - Jill (2009) [FLAC|Lossless]<Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 		Jill 	6:53
+02. 		Jill (Reprise) 	4:06
+03. 		Hamtramck 	6:39
+04. 		Sunrise 	4:24Жанр: Deep HouseПродолжительность: 00:22:01
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608308   (990498) от 29.01.2013
+
+Jamie Stevens - The Night Before (2003) [FLAC|Lossless]<Progressive House, Progressive Breaks>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night Before (Original Mix) 09:30
+02. The Night Before (Momu Remix) 09:34Жанр: Progressive House, Progressive BreaksПродолжительность: 00:19:01
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610272   (990511) от 29.01.2013
+
+VA - Zirkus Zirkus Vol.1: Elektronische Tanzmusik (2013) [MP3|320 кб/с]<House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oliver Schories - Archipel
+02. Marc De Vole & Patrick Muschiol - Ein Tag Im Herbst (feat Charly - Rodriguez Jr remix)
+03. Oliver Schleenvoigt - Gerissene Rolle (Neurotron remix)
+04. David Durango - Speak Time
+05. Till von Sein - Injoy
+06. BarBQ - My Pink Motor Boat
+07. Matzak - African Roots (Rodriguez Jr remix)
+08. Quinto - It Is What
+09. Satoshi Fumi - Asiantam (Takaaki Tsuchiya remix)
+10. Dave Pad - Going Nowhere(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 03:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8926424D5D1911E00F08D4C03AA97233B9B5CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 610746   (990578) от 29.01.2013
 
 VA - Wave of Trance Vol.1 (2013) [MP3|320 кб/с]<Uplifting Trance>
@@ -579,196 +741,6 @@ Lemongrass - Discography (1998-2012) [MP3|320 кб/с]<Electronic, Downtempo, Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95E3206C58968C8E9F81B88F87C41961294BAF45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603621   (996472) от 17.01.2013
-
-VA - Electro House 2012 Best Of (2012) [MP3|320 kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laidback Luke Feat Wynter Gordon - Speak Up (Jay Style Remix) (05:41)
-02. Dj Sakin - Beverly Hills Cop (Club Mix) (05:54)
-03. Mykel Mars - Scream (Album Version) (06:59)
-04. Davie Terry - Vibe (House Kartel Reebost Remix) (07:06)
-05. Danky Cigale And Mykel Mars - Feel So High (Kevin Hills Remix) (05:54)
-06. Br!k Ft Philly - Get It Poping (Luis Gutierrez Remix) (03:42)
-07. Djerem, Chris Willis & Xenia - So Beautiful (Djerem Electro Edit) (03:09)
-08. Lissat & Voltaxx - Like Dis Like Dat (Chris Kaeser Remix) (08:05)
-09. Chris Kaeser - Montpellier Of Course (Fx & Sting B Mix) (06:05)
-10. Dj Absinth - Diva (Original) (06:00)(   Читать дальше...   )Жанр: HouseПродолжительность: 06:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18CA835113468D3B5C285DF205A0B71088B7BA98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603052   (997154) от 14.01.2013
-
-Will.I.Am & Britney Spears - Scream & Shout (CD Single) (2013) [FLAC|Lossless]<House, Electro, Pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scream & Shout (Dirty Main)
-02. Scream & Shout (Clean Edit)Жанр: House, Electro, PopПродолжительность: 00:08:56
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601453   (997503) от 13.01.2013
-
-Savant - Alchemist (2012) [FLAC|Lossless]<Dubstep, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997503.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Mother Earth
-2. Sky Is The Limit (feat Donny Goines)
-3.  Sledgehammer
-4. Alchemist (feat Gino Sydal)
-5.  Dancer In The Dark
-6.  Hungry Eyes (feat Qwentalis)
-7. Sustainer
-8.  Witchcraft
-9.  Redemption
-10.  Konami Kode (feat. Donny Goines)(   Читать дальше...   )Жанр: Dubstep, Electro HouseПродолжительность: 01:42:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602619   (997555) от 13.01.2013
-
-VA - Best Of Electronique 2012 (2013) [MP3|320 кб/с]<Deep House, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997555.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bubba – Nudenight (Original Mix) 6:04
-2. F3 – What You Need (Downtown Party Network Remix) 5:56
-3. Finnebassen – If You Only Knew (Original Mix) 6:22
-4. Finnebassen Gundelach – When It Rains (Digital Exclusive) (Original Mix)8:36
-5. Flow & Zeo Marcello V.O.R – N.Y Candy (Original Mix) 6:52
-6. Jobe – This Feeling (Original Mix) 6:19
-7. Jobe – My Life (Max Belobrov Remix) 8:04
-8. Lula Circus – Light Outside (Original Mix) 7:20
-9. Made To Move – Shaman (Cera Alba Remix) 7:56
-10. Markus Eden – With Me (Original Mix) 7:08(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 01:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B33CBB03148513BB0B72D066ABDB2FDB299430
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602731   (997588) от 13.01.2013
-
-VA - The Art Of Fighting! Vol.1 (2013) [MP3|320 кб/с]<Deep House, Nu Disco, Indie Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Re Dupre - Get Down & Dirty! (Original Mix)
-02. Marcello V.O.R., Dashdot - B-Side (Original Mix)
-03. Velkro - HighWay (Original Mix)
-04. Re Dupre, Angelo Fracalanza - Kiss Me (Original Mix)
-05. Gabe - Truly Fucked Feat. M.Adam (Original Mix)
-06. Dashdot - Senseless Static Thing Feat. Zz (Original Mix)
-07. Sex Shop - Renascenca (Original Mix)
-08. Angelo Fracalanza - Long Time (Original Mix)
-09. Marcello V.O.R., Facing Odds - Street Rules (Original Mix)
-10. Andre Marques, Pattern2 - The Chamber (Original Mix)(   Читать дальше...   )Жанр: Deep House, Nu Disco, Indie DanceПродолжительность: 01:27:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81FD7811558D52CF9A9F15154A0356D1FCD65583
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600442   (997863) от 12.01.2013
-
-VA - Deep In My Soul (2013) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desney Bailey - Crazy Day (Original Mix)
-02. Roberto Sol - Phonix Rising (Original Mix)
-03. Miss Luna - Happiness Is True (feat. Q Derhino) (Florito Mix)
-04. Chris Count - Doin It (Dorush Remix)
-05. Dana - Electric Wave (Original Mix)
-06. Lazy Hammock - Rise With You (Katoey Deep House Mix)
-07. Nickotine, Frankee G - They Don't Know It (Original Mix)
-08. Pnfa - Upstream (Original Mix)
-09. Confused - Last Trip (Original Mix)
-10. Miss Luna - The One (feat. Q Derhino) (Bes & Meret Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15222102C1CE14B00FA80163BE2E4FAF9F3AF670
 ```
 
 

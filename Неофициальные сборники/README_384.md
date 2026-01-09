@@ -1,3 +1,30 @@
+###  Публикация: 1034732   (630427) от 15.07.2016
+
+Spawn - In the Demon's Hand (2000) (Yuki Iwai, Takayuki Iwai, Isao Abe, Crankshaft) [MP3|320 кб/с]<Score>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рип основан на основе оригинального музыкального диска, добавлены треки которые не вошли в сборник01. The Beginning of The End (Opening Stage)
+02. Serial Thrilla (New York Alley Stage)
+03. Dive Into The Hell (Underground Waterway Stage)
+04. Demonoid Phenomenon (Human Body Research Institute Stage)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D3159CE1187820511D74E746C48F599160CE82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035136   (630501) от 15.07.2016
 
 VA - RnB Really: Soul Mix (2016) [MP3|320 Kbps] <RnB, Soul, Funky>
@@ -740,33 +767,6 @@ VA - Новинки танцполов 3 Русский (2012) [MP3|256 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DACDBA7A58B8E76E616D9D96AC5DBA9751AED7B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229005   (631820) от 03.06.2018
-
-VA - Дискотека RnB (2018) [MP3|256-320 Kbps] <R&B, Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All-4-One - Say What You Want To
-02. The Weeknd - Call Out My Name
-03. Kwabs - Walk
-04. Jungle - Candy Kisses(   Читать дальше...   )Жанр: R&B, Hip-HopПродолжительность: 06:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8084185D313739546B960F2FFCDADAB9CC7B02D0
 ```
 
 

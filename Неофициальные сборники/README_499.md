@@ -1,3 +1,30 @@
+###  Публикация: 1013627   (776951) от 06.05.2016
+
+VA - Spring Break Beach Party (2016) [MP3|320 кб/с] <Progressive House,Techno, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funtom Cruisers - Boarding (Original Mix)
+02. Dj Rohan - Bring The Bass Back (Original Mix)
+03. Inquisitive - Rave Slam (Original Mix)
+04. D.J. Mash Up - Summertime Sadness (Remix)(   Читать дальше...   )Жанр: Progressive House,Techno, HouseПродолжительность: 06:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282FBD98DCF4CA6E191DEBCFCD7C5978A009EE10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013942   (776954) от 06.05.2016
 
 VA - Trance Desire Volume 68 (2016) [MP3|320 кб/с] <Trance>
@@ -668,33 +695,6 @@ VA - Recuerdos Latinos Locas (2018) [MP3|320 Kbps] <Dembow, Salsa, Reggaeton>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49C01FBC13CEB16B008A7DBBA7A6D87F8CDED3DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211520   (777568) от 07.03.2018
-
-VA - Techno Sound [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Techno, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fog vs Chus & Ceballos - Been A Long Time (Mark Knight Remix) [08:04]
-02. Definition, Def:Play & Roland Clark - I Dream Deep (Olivier Giacomotto Remix) [07:16]
-03. Tini Garcia - Tous [06:52]
-04. The Glitz - Hook Up (Feat Fadila) [07:21](   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 08:08:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6987FFAF3E58A07458FFCD28323F1B10420DB1C3
 ```
 
 

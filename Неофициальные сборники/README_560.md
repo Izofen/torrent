@@ -1,3 +1,30 @@
+###  Публикация: 1112093   (842935) от 08.03.2017
+
+VA - Blues Forever vol.69 - vol.72 (2017) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delta Twins - It Won't Be Long
+02. Larry Miller - Road Runner
+03. Kal David & Lauri Bono - Help The Poor
+04. Derric Procell - Who Will Tell Lucille(   Читать дальше...   )Жанр: BluesПродолжительность: 05:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CEF850C96EE188B45049F5BA3FF611763449AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002986   (843025) от 03.04.2016
 
 VA - Blues Forever vol.45 - vol.48 (2016) [MP3|320 кб/с] <Blues>
@@ -671,33 +698,6 @@ VA - Fall Of Medusa: Hard Classic Rock 90s (2017) [MP3|320 Kbps] <Classic Hard R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9878B98256C8B7F4B0D1656F00886D9881296765
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378631   (844803) от 26.04.2020
-
-VA - Record Super Chart 633 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Big - UNO 2:41
-02. Billie Eilish - Everything I Wanted (Arroy & Sergey Raf Remix) 3:28
-03. El Capon - Shut Up Chicken 2:31
-04. NRD1 - All Good Things (Come To An End) 3:27(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCA5E1F63A1670E6B88952342483B227558231C
 ```
 
 

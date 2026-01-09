@@ -1,3 +1,57 @@
+###  Публикация: 1375430   (867268) от 13.04.2020
+
+Pholhas - Dead Faces (1973) Reissue CD, 2000, BMG Music Spain, S.A. [MP3|320 Kbps] <Pop Rock, Prog Rock, Ballad>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pholhas -  бразильская рок-группа 70х, для латино-говорящих пишется как и на обложке - Hojas01. The Other One (3:16)
+02. She Made Me Cry (3:22)
+03. The World's Truth (3:08)
+04. The Beauty Of Your Soul (4:09)(   Читать дальше...   )Жанр: Pop Rock, Prog Rock, BalladПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A44965D7CE1E02985DFF8C2EA1648886F7D29CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 767007   (867745) от 16.03.2014
+
+Ruby the RabbitFoot - New as Dew (2014) [MP3|320 кб/с]<Indie Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ways
+02 The Shelf
+03 Obsession
+04 Infinity(   Читать дальше...   )Жанр: Indie Rock, PopПродолжительность: 00:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F1726151CEF4545125D9ACBFD8443EC6C4CF628
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086744   (868524) от 12.04.2020
 
 Lera Lynn - Discography (2011-2019) [MP3|320 кб/с] <Folk-Rock, Independent Post-Americana>
@@ -653,57 +707,6 @@ VA - 100 Rock Classics (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6DB46809D44ADE2EF4990558E5E4E02C104AC6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 186067   (881959) от 25.03.2010
-
-VA - 100Hits Rock (5CD) (2007) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_881959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 06:20:12
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995866   (882958) от 12.03.2016
-
-Rhythm Sophie - Born To Live The Blues (2014) [MP3|320 кб/с] <Rhythm & Blues, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Til The Well Runs Dry (01:53)
-02. 5-10-15 Hours (03:00)
-03. She'll Be Gone (02:24)
-04. I'm Gonna Tell My Daddy (01:59)(   Читать дальше...   )Жанр: Rhythm & Blues, Rock & RollПродолжительность: 00:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25EA827C6684F2DF7387D8ED3449665B837E7DAA
 ```
 
 

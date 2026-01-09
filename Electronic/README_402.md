@@ -1,3 +1,165 @@
+###  Публикация: 1204300   (784994) от 05.02.2018
+
+VA - Chilling Sounds, Vol. 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_784994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anjo - Delight (Original Mix) 03:20
+02. Den Shender - Den Shender (Original Mix) 03:12
+03. Fashion Star - One Dream (Original Mix) 04:22
+04. IMAX - Monks Under Tramadol (ArcticA Chill Out Mix) 03:26(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD035827067766165F5F71065ABA7452EC4F809E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204408   (784995) от 05.02.2018
+
+VA - afterlights (2017) [MP3|320 Kbps] <Trance,House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_784995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ryo Nakamura – In The Twilight
+02. Shion Hinano – Farewell
+03. Akihiro Ohtani – Still Beauty
+04. Aran – East Wind(   Читать дальше...   )Жанр: Trance,HouseПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F4E11D8B034246BC8A32E1F28CC6340FA82C93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204364   (784997) от 05.02.2018
+
+Aloner Station - Overcreate World (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_784997.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Forward To Hopes 03:11
+2. Harmony 04:40
+3. Bar 03:15
+4. Vhs 02:28(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBA32C875B61F044215FD35D15EACF4FDDED8F4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277748   (785016) от 21.01.2019
+
+VA - Abora Recordings Best Of 2018 (Mixed By Ori Uplift) (2019) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Syntouch & Spins - Desolation (Intro Mix)
+02.Playme - The Great Bay (Original Mix)
+03.Akku - Megumi (Emotional Mix)
+04.Sandro Mireno - It's Your Day (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDFB289F1FA726D80A11A179FE7372D21F4C4C89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277695   (785020) от 21.01.2019
+
+Acronym & Kali Malone - The Torrid Eye (2019) Stilla Ton [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call From The Tower (03:21)
+ 02. A Sunspot (05:52)
+ 03. Tempest Of Joy (05:21)
+ 04. Legs Of The Fly (06:18)(   Читать дальше...   )Жанр: Techno, Experimental, AmbientПродолжительность: 00:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C25C062B3276E9505F2D4647E062A65D5B86F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277757   (785026) от 21.01.2019
+
+VA - Nothing But... The Future Of Trance Vol.11 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vince Blakk & Angel II Demon - Cohiba (Extended Mix)
+02. Jan Miller - Signs (Original Mix)
+03. Cyril Ryaz - Aurore (Original Mix)
+04. Keurich - Magic Touch (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01BB8552C5F4E79130DDD14992A972FC8849C029
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277734   (785028) от 21.01.2019
 
 VA - Winter Music Top 1 (2019) [MP3|320 Kbps] <House, FutureHouse, Dubstep, Other>
@@ -533,168 +695,6 @@ The Thing With Five Eyes - Noirabesque (2018) [FLAC|Lossless|Web-DL|tracks] <Dar
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EECDBB83FE5AE3567ADE3EC0F01F12F920D3FEB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277311   (785451) от 20.01.2019
-
-VA - Turn Up The Volume - Radio Versions (2019) [MP3|320 Kbps] <House, Dance, Club, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Niels van Gogh, Steelfish-Love & Money (Radio Edit)
-02. Audax, Adriano Pagani, Dimy Soler-Fire & Ice (Radio Edit)
-03. Tocadisco-Feeling Irie (Radio Edit)
-04. MXB-Bottle Runs Dry (MBP Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Club, FunkyПродолжительность: 01:22:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AF143FF97121C937F607DE52CC9029C8F7F8AC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277445   (785453) от 20.01.2019
-
-Our Lady Of The Flowers - Holiday In Thule (2019) 13 Records [FLAC|Lossless|tracks+.cue] <Ambient, Field Recording, Dub Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Initiation (04:55)
- 02. Quantum Prayer - One (04:30)
- 03. A Glowing, Floating Light (07:00)
- 04. Ripples in Shallow Water (09:59)(   Читать дальше...   )Жанр: Ambient, Field Recording, Dub TechnoПродолжительность: 01:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0581FE8AB81A4EC93CAA39481D7D51DBD8A488F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277307   (785457) от 20.01.2019
-
-MRUKS - Deja VU Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Retrowave>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MRUKS - UH
-02. MRUKS - FOX
-03. MRUKS - Tempore
-04. MRUKS - Ancient People(   Читать дальше...   )Жанр: Funky, Club House, RetrowaveПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45182DC63AD509EB52BF8DD33E55946799F1CFDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277298   (785458) от 20.01.2019
-
-VA - Civil Dance Vol.9 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luke Vegas - Let The Bass Kick (Radio Edit)
-02. Martial Flowz - Arena
-03. Tcline - Insanity
-04. Glamrock Brothers - Long Train Runnin (Walker &  Daniels Edit)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275852A4C307BB45572B07BBCD4D2CB393236E88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203907   (785463) от 04.02.2018
-
-VA - The Elegance Of Electronic Music - Deep House Edition #2 (2018) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2Gemeinsam - Want Some Love (Radio Edit)
-02. Scheinizzl - One More (Radio Edit)
-03. Mike Dem, Sanna Hartfield - Day Dream (Radio Edit)
-04. Biskuwi - Sadness Is A Reason To (Radio Edit)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:726136EE51E1B50E8375A3AD18F899C3177972DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204128   (785467) от 04.02.2018
-
-Occer - Imperfect (2017) Zenon Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Psy-Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Affection (06:22)
-02. Imperfect (06:05)
-03. Nefario (06:21)
-04. Tumult (06:31)Жанр: Techno, Psy-TranceПродолжительность: 00:25:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08F071207FF8593B7FFA146CA557B7C9712A5EC4
 ```
 
 

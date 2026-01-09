@@ -1,3 +1,294 @@
+###  Публикация: 1003472   (840196) от 05.04.2016
+
+Alan Howarth - The Dentist 1-2 / Дантист 1-2 (1996, 1998) [MP3|320 кб/с] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dentist Theme (1 & 2 Combo)
+02. Toothache
+03. Not Again
+04. Perfect Fit(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9DFBEB7FA3A3683C73688372F5374E656BA16D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378705   (840692) от 28.04.2020
+
+Nicholas Gunn - Pacific Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840692.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Into the Vastness	04:55
+2. And I	03:13
+3. Sailing	04:25
+4. Chasing the Light	04:23(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:401077FD743A38CC3E58D74BBBC9AAFC761C1899
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003894   (841364) от 04.04.2016
+
+Armik - Romantic Spanish Guitar Vol. 1,2,3 (2014-2016) [MP3|320 кб/с] <Instrumental, Nuevo Flamenco, Acoustic Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing In The Clouds (4:19)
+02. Guitarra Poeta (4:21)
+03. Romance De La Luna (4:39)
+04. Lagrimas (4:49)(   Читать дальше...   )Жанр: Instrumental, Nuevo Flamenco |Продолжительность: 02:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4173075C4B5DB9F64AC278ACECCA5630A31723
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003509   (841586) от 04.04.2016
+
+Hans Zimmer and Junkie XL - Batman v Superman: Dawn Of Justice (2016) 2CD, Deluxe Edition [FLAC|Lossless|image + .cue] <Score, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Lie (3:47)
+02. Their War Here (4:36)
+03. The Red Capes Are Coming (3:32)
+04. Day Of The Dead (4:02)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C2576C07FC415500A9321ED2DBB238092BE74E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003651   (841687) от 04.04.2016
+
+Alice Gomez - Sleep Cycles of the Native American Flute (Over an Hour of Soothing Native Flute Melodies) (1998) [MP3|320 кб/с] <Native American, Ethnic Fusion, Meditation, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleep Cycles of the Native American FluteЖанр: Native American, Ethnic Fusion, Meditation, New AgeПродолжительность: 01:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19587600545F4B69745A91C0A3AC124D005119F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002793   (841702) от 04.04.2016
+
+Sacred Earth - Breathing Space (2014) [FLAC|Lossless|tracks] <New Age, Relax, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grounded    09:31
+02. Bliss    07:25
+03. Breathing Space    08:06
+04. Jai    08:55(   Читать дальше...   )Жанр: New Age, Relax, MeditativeПродолжительность: 00:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAD34DB1ABE4D0B35AB9EBF89332220F680015F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 771895   (842009) от 30.03.2014
+
+VA - Simply Anti Stress /4CD/ (2010) [FLAC|Lossless]<New age, Chillout, Nature sounds>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842009.jpg" />
+</div>
+
+
+###  Подробнее
+
+(7:26) 1. Akash Asher - Far From The City
+(7:46) 2. Saffron Sounds - Warm Embrace
+(7:23) 3. Perry Wood - Crown - Oneness
+(8:01) 4. Karma Soundz - Inner Depth(   Читать дальше...   )Жанр: New age, Chillout, Nature soundsПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CCC2C8F08AE717AB31829302D8FE3BE80E67D07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 309349   (842302) от 15.03.2011
+
+Реальные пацаны (2011) [MP3|320 kbps]<Pop/Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842302.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011Жанр: Pop/SoundtrackПродолжительность: 02:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:013FBE6FE7A6618C1AF0F26C11B1F2D1921A86D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112341   (843110) от 08.03.2017
+
+Dan Gibson's & Donald Quan - Asian Spa (2004) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The True Path
+02. Watery Illumination
+03. Infinite Journey
+04. Euphoric Balance(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A37D755F917F4A4F8FE6599C5D3BB65F373A8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112256   (843188) от 08.03.2017
+
+VA - Yoga Balance: Asian Traditional Music for Meditation, Yoga Pilates, Relaxed Body and Soul, Deep Relaxation (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hatha Yoga Music Zone - Yoga 101
+02. Namaste Healing Yoga - Philosophy of Yoga
+03. Healing Meditation Zone - Soothing Rain
+04. Buddha Music Sanctuary - Balance Body(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92D12D4464A1BACF30241ABAB2E63081EED9E5D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112156   (843288) от 08.03.2017
+
+VA - No Stress Music Playlist 3: Pure New Age & Chillout Relax (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jez Poole - Renewable Energy [00:02:41]
+02. Jez Poole - Energy Constant [00:02:10]
+03. Thierry David - Sunset Islands (Main) [00:03:15]
+04. Adrian Kensington - Beyond the Blue [00:02:58](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C6F7F2404CCC9EC390C7AE1FF1DC80C216D1A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500073   (844432) от 04.10.2021
 
 Raphael - Music for Love (2008) [FLAC|Lossless|tracks + .cue] <New Age>
@@ -398,300 +689,6 @@ Atom Music Audio - Leviathan: Monster Themes (2020) [MP3|320 Kbps] <Soundtrack, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:888537672FE146D2C9B9AC29DA00EE1FE5E05B44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378595   (846600) от 25.04.2020
-
-Atom Music Audio - Blood Crave (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Craft of War [02:13]
-02. Blood Crave [01:52]
-03. Bleak Profecy [02:15]
-04. Dark Ritual [01:54](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:23:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2EE74C6D5F8BC654620BAF9FD66DD8ED272350
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002499   (846832) от 01.04.2016
-
-Gelka - Stardust Memories (2015) [MP3|128 кб/с] <Electronica>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Have You Kept Your Ticket 04:06
-02 Flying Clouds (feat. Phoenix Pearle) 03:40
-03 These Days (feat. Sena) 03:53
-04 Inside Galaxies (feat. Phoenix Pearle) 03:50(   Читать дальше...   )Жанр: Chillout, Lounge, PopПродолжительность: 01:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:203A489A4E12A0A854A4FAAC1B82D70A47801F67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111353   (848175) от 05.03.2017
-
-Vangelis - Delectus (1973-1985)  Remaster, 2017, Universal International Music, 13 CD Box Set [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vangelis - Come On (Remastered)
-02. Vangelis - We Are All Uprooted (Remastered)
-03. Vangelis - Sunny Earth (Remastered)
-04. Vangelis - He-O (Remastered)(   Читать дальше...   )Жанр: Electronic, Ambient, New Age |Продолжительность: 09:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D48D0F5A5ACED87D26947B9067D0B78D7726E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111247   (848365) от 05.03.2017
-
-Adrian Von Ziegler - Moonsong (2016) [FLAC|Lossless|WEB-DL|tracks] <Celtic Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ancient Storm [00:04:48]
-02. High Tide [00:04:01]
-03. Moonsong [00:03:36]
-04. Daydream Melody [00:02:10](   Читать дальше...   )Жанр: Celtic FolkПродолжительность: 01:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B19CE20DC083C0290EF3C9D2D96D2DF3898C54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499169   (849649) от 01.10.2021
-
-Diaspora - Meditation (1998) [MP3|320 Kbps] <Native American, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Song of the Sun
-02. Chisy Muspuyalay
-03. Savry Nan
-04. May Yoe Walk in Sunshine(   Читать дальше...   )Жанр: Native American, EthnicПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC2EF1DCFBC32628F5B6D580B04F2CF853CFF7E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001739   (850049) от 30.03.2016
-
-Estas Tonne - Internal Flight (Guitar Version) 2013 [FLAC|Lossless|tracks] <Folk, World, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Internal Flight.Estas Tonne (guitar version)Жанр: Folk, World, InstrumentalПродолжительность: 01:04:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E10FDE8C013F42787F3595953E6CB7C0067D52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377748   (850089) от 23.04.2020
-
-Aesop Rock - Freedom Finger (Music from the Game) (2020) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Beats, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Play Dead (3:22)
-02. KOWP (3:39)
-03. Drums On The Wheel (3:45)
-04. Play Dead (Instrumental) (3:22)(   Читать дальше...   )Производство: RhymesayersЖанр: Hip-Hop, Beats, SoundtrackПродолжительность: 00:22:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02AF0ABB1CF8684B2A376F8AD114E566FAADBEB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110989   (850183) от 04.03.2017
-
-Armik - Enamor (2017) [FLAC|Lossless|image + .cue] <Flamenco, Acoustic guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enamor
-02. Lost Love
-03. La Guitarra De Oro
-04. Santa Cruz(   Читать дальше...   )Жанр: Flamenco, Acoustic guitarПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40B781535AA047CC603B968E8ABF029BC22B53D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110809   (850184) от 04.03.2017
-
-Marco Beltrami - Logan / Логан (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles (02:21)
-02. Laura (02:25)
-03. The Grim Reavers (01:33)
-04. Old Man Logan (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 0:00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:595CFD36D93865E8B4B64F99FBDDBAA18AD048EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110808   (850242) от 04.03.2017
-
-Marco Beltrami - Logan / Логан (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles (02:21)
-02. Laura (02:25)
-03. The Grim Reavers (01:33)
-04. Old Man Logan (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 0:00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9AC3A8882CD4C7E38861FAF594F4D93DDF4C962
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001983   (850469) от 30.03.2016
-
-Nicholas Gunn - Thirty - One Nights (2012) [FLAC|Lossless|tracks] <Brass & Military, New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remember Me Prelude    00:51
-02. Fiesta Patria    03:14
-03. Thirty-One Nights    03:59
-04. The Swallows of Na' Lu'um    05:29(   Читать дальше...   )Жанр: Brass & Military, New Age, InstrumentalПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF345B827B00440BF4974F4DD912CB00C832D0F
 ```
 
 

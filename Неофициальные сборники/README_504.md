@@ -1,3 +1,29 @@
+###  Публикация: 1207585   (780448) от 18.02.2018
+
+Gon Haziri feat Luar - DY (2018) Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780448.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. DY
+2. DJ Mexx & DJ Karimov
+3. Up MusicЖанр: Club, DanceПродолжительность: 00:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEFDA315B4AC72780FF4CE39BB8141D5CCF85AC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207408   (780487) от 18.02.2018
 
 VA - Enigma Alive Vol.3 (2018) [MP3|320 Kbps] <New Age, Enigmatic>
@@ -673,33 +699,6 @@ VA - Theme For Lovery Story (2018) [MP3|320 Kbps] <Smooth, Nu Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE51E89833CE1AC8D73CA68111E13C776BFA9B52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206974   (781278) от 16.02.2018
-
-VA - Хит FM ВосХИТительная Двадцатка 10.02. (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jason Derulo feat. French Montana  -  Tip Toe  3:08
-02.  MARUV & Boosin  -  Drunk Groove  3:47
-03.  Ed Sheeran  -  Perfect (Robin Schulz Remix)  4:10
-04.  Rita Ora  -  Anywhere  3:35(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046E1BA590C5089A6DFA763F7C5200EF3F0525C5
 ```
 
 

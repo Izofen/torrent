@@ -1,3 +1,30 @@
+###  Публикация: 1109653   (857367) от 28.02.2017
+
+VA - Running Of Dance Hits Friends (2017) [MP3|320 Kbps] <Pop, House, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kygo & Selena Gomez - It Aint Me (Snip Hitz)  5:19
+02.  Pitbull & Stephen Marley - Options (Intro Dirty)  5:18
+03.  Deorro & Lesley Roy - Tell Me Lies (Radio Edit)  3:20
+04.  FloRida & Sage The Gemini - Game Time  3:12(   Читать дальше...   )Жанр: Pop, House, Club, DanceПродолжительность: 03:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B282700F771FC9FC7B4B513139BEF8CDA7BE8EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000655   (857374) от 26.03.2016
 
 Вероника Агапова - Сборник песен (2016) [MP3|128-320 кб/с] <Pop>
@@ -662,33 +689,6 @@ VA - ЕвроХит Топ 40 Europa Plus 17.04.2020 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:644900220183877DE3AE9E7B6AA7838664AB457F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376463   (858914) от 18.04.2020
-
-VA - Reggae On The Roof (2020) [MP3|320 Kbps] <Reggae, Dancehall, Riddim>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858914.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Duane Stephenson - Play That Song
-002. Dj Pablito - Juntemos El Alma
-003. Dipmatik - Duppy A Walk
-004. Adonis Rivera - Ghetto Gospel(   Читать дальше...   )Жанр: Reggae, Dancehall, RiddimПродолжительность: 08:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84B41D53C5C766DA38A258095460795C263F1D54
 ```
 
 

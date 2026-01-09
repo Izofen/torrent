@@ -1,3 +1,63 @@
+###  Публикация: 1149832   (598634) от 12.07.2017
+
+USS (Ubiquitous Synergy Seeker) - Advanced Basics (2014) EP [MP3|320 Kbps] <Alternative Pop, Electronic Rock, Drum'n'Bass>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hydrogenuine
+02. This Is The Best
+03. Nepal
+04. Freakquency(   Читать дальше...   )Жанр: Alternative Pop, Electronic Rock, Drum'n'Bass, Electropop, Hip-HopПродолжительность: 00:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7C950879A64963FF6D4F4126E0E5A11F69BFFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 806178   (598757) от 19.07.2014
+
+Modern Talking - Milestones (2013) Compilation [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Heart, You're My Soul (3:22)
+02. Cheri Cheri Lady (3:50)
+03. You Can Win If You Want (3:47)
+04. Brother Louie (3:43)
+05. Geronimo's Cadillac (3:19)
+06. Atlantis Is Calling (S.O.S. For Love) (3:48)
+07. In 100 Years (3:59)
+08. Jet Airliner (4:22)
+09. Sexy Sexy Lover (3:35)
+10. You Are Not Alone (3:25)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A199147641AB2C0CABF9F41803CB727B3FFF40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 805912   (598760) от 19.07.2014
 
 Silent Circle - Best Of Silent Circle (1991) [FLAC|Lossless]<Euro-Disco, Synht-Pop>
@@ -152,6 +212,33 @@ magnet:?xt=urn:btih:492DFC009C9744191A9A313355BCDFDE63590C49
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:943DA3C2C86CDFCFBE379BB220B68C81243B5A64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 222316   (599248) от 30.07.2010
+
+Валерий Ободзинский - Любимые песни от Музыкального огонька (2009) [MP3|320 kbps]<retro>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_599248.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анжела
+002. Анна
+003. Аравийская песня
+004. Белые крылья(   Читать дальше...   )Жанр: retroПродолжительность: 06:06:16
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -638,87 +725,6 @@ Atmosfear - En Trance (1981) Reissue CD, Discotheque, 2005 [MP3|320 Kbps] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71BDEBB9789024BF4A029928E7BDCAFD2964FDD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298930   (601586) от 29.04.2019
-
-P!nk (Pink) - Hurts 2B Human (2019) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hustle (2:56)
-02. (Hey Why) Miss You Sometime (3:23)
-03. Walk Me Home (2:59)
-04. My Attic (3:02)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3259404185668B16B6942DAE48335BD5228BF0B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298261   (601904) от 27.04.2019
-
-Chrysta Bell & David Lynch - Somewhere In The Nowhere (2016) [MP3|320 Kbps] <Nuar, Trip-Hop, Blue>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somewhere-In-The-Nowhere
-02. Night-Ride
-03. All-The-Things
-04. Back-Seat(   Читать дальше...   )Жанр: Nuar, Trip-Hop, BlueПродолжительность: 00:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B175323AAA1C9463AA3F5482F7AD800EFF86AB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298497   (601915) от 27.04.2019
-
-Rúzsa Magdolna (Ruzsa Magdolna) - Lélekcirkusz (2019) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A bohóc (2:41)
-02. Lélekcirkusz (1:24)
-03. Széldal (3:39)
-04. Nekem nem szabad (3:19)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAEFA911B93050D3F113DB0D2E8C9E2170A5AA81
 ```
 
 

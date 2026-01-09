@@ -1,3 +1,57 @@
+###  Публикация: 904840   (653384) от 04.06.2015
+
+Jeff Beck - Performing This Week... Live At Ronnie Scott's (2015) Deluxe Edition [MP3|320 кб/с]<Blues Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beck's Bolero (Live) (3:29)
+02. Eternity's Breath (Live) (1:14)
+03. Stratus (Live) (4:47)
+04. Cause We've Ended As Lovers (Live) (5:17)(   Читать дальше...   )Жанр: Blues Rock, RockПродолжительность: 01:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A8FFFF970FA091FAC1B3ED62E10C38057C7335E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904758   (653557) от 04.06.2015
+
+Jimmy LaFave - The Night Tribe (2015) [MP3|320 кб/с]<Rock, Folk, Americana>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beauty Of You (05:26)
+02. Maybe (05:25)
+03. Journey Through The Past (05:02)
+04. It's Not On Me (03:32)(   Читать дальше...   )Жанр: Rock, Folk, AmericanaПродолжительность: 00:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF818641818E4D59E587841702A6869CB9B7690
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904846   (653559) от 04.06.2015
 
 MacIntyre - Live At The Moontower (2015) [MP3|320 кб/с]<Blues Rock>
@@ -646,66 +700,6 @@ Witchwood - Litanies From The Woods (2015) [MP3|320 кб/с]<70's Vintage Hard R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E9E231B82DE013A32BF8C493DCF8EBDCF9F0966
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514440   (659274) от 23.06.2012
-
-Gemini - Geminism (1987) [MP3|320 кб/с]<Rock, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659274.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. T.L.C.
-2. Beat The Heat
-3. Mio, My Mio
-4. Ghost Town
-5. I Am The Universe
-6. Shiffin' On The Snakes
-7. I'm A Bitch When I See Red
-8. There's No Way To Fool A Heart
-9. Wild About That Girl
-10. Nearly There1987Жанр: Rock, Pop-RockПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55CF0C9F38634FE2DB573B78B36D08697C278B70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225547   (659752) от 16.05.2018
-
-New England - New England (1979) Reissue, 1993, MCA Records [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659752.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hello, Hello, Hello
-2. Don't Ever Wanna Lose Ya
-3. P.U.N.K. (Puny Undernourished Kid)
-4. Shall I Run Away(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD72CCA5BEF9D19183DD835B38A091AA02DC3174
 ```
 
 

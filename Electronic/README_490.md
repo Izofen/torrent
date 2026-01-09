@@ -1,3 +1,165 @@
+###  Публикация: 973056   (980680) от 07.01.2016
+
+VA - Acoustic Covers Album (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Sugar (03:56)
+02. Alice Lamb - How Deep Is Your Love (03:11)
+03. Chris Pomeroy - The Man Who Can't Be Moved (03:46)
+04. Chloe Le Page - Radioactive (03:30)(   Читать дальше...   )Производство: Lark RecordingsЖанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:01:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D43D0B4A230CC5D309916BFE60905A866EF3A84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972329   (980706) от 07.01.2016
+
+Jazzra - Soulounge (2009) [MP3|320 кб/с] <Lo-Fi, Nu-Jazz>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980706.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:38] 01. Feel Like A Stranger
+[05:43] 02. Heart Beater
+[05:38] 03. Love After Midnight
+[03:04] 04. Love And Lost(   Читать дальше...   )Жанр: Lounge, Downtempo, New JazzПродолжительность: 00:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2C60EA1D6A1FDDF6C859110813C62792F04826
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116885   (980751) от 28.01.2020
+
+eilean rec. - Label-Pack 100 Releases (2014-2019) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental, Modern Classical, Neofolk, Acoustic>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aaron Martin - A Lost Heart Beats (02:02)
+ 02. Ian Nyquist - Land (feat. Jack Sheehan) (05:19)
+ 03. Bamboo Stilts - Porthole (04:07)
+ 04. Seabuckthorn - After Image (03:44)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Ambient, Experimental, Abstract, Drone, Modern Classical, Neofolk, Acoustic •Продолжительность: 87:24:58 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02636784F71EB5BEB7908F646CEB41ADA88CEEB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972659   (980765) от 07.01.2016
+
+Bob Sinclar - Born In 69 (2009) [FLAC|Lossless|tracks + .cue] <Hip-House, Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bob Sinclar feat. The Sugarhill Gang - Lala Song (3:33)
+02. Bob Sinclar feat. Roland Clark - Give Me Some More (3:18)
+03. Bob Sinclar feat. Shabba Ranks - Love You No More (4:22)
+04. Bob Sinclar feat. Vybrate, Queen Ifrica & Makedah - New New New (5:26)(   Читать дальше...   )Жанр: Hip-House, Euro HouseПродолжительность: 00:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7664996A78233CBB18295E5CB98C0983FAF61E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972743   (980767) от 07.01.2016
+
+VA - Get up with Best Chillout Music (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shivana faction - Refined
+02. El Nicoya - Minutos de Oro
+03. Delfina Deines - Einhorn Phantasien
+04. Cesar Martinez Ensemble - Little Drops of Love(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5E503373F96D0F2DC53907120B7C9B71CB2F36B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356015   (981105) от 28.01.2020
+
+The New Division - Hidden Memories (2020) [FLAC|Lossless|WEB-DL|tracks] <Synth, New Wave, Indie Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clear (04:51)
+02. Fascination (04:31)
+03. Lost Life (04:42)
+04. Modus (04:29)(   Читать дальше...   )Жанр: Synth, New Wave, Indie PopПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF6DF317EDD125DD1907F5389AC67C9B425DE686
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355821   (981153) от 28.01.2020
 
 Beat Pharmacy - Wikkid Times + Versions & Remixes (2008-2009) Deep Space Media [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Deep House, Dub, Downtempo>
@@ -552,167 +714,6 @@ Dvar - Roah (2003)  [FLAC|Lossless|image + .cue] <Darkwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44502443FC9C388AA7E55651986DB4BE2B8E1C67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971138   (984599) от 04.01.2016
-
-VA - Club 86 Recordings Best Of (2015) [MP3|320 кб/с] <House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burdan - Father (07:31)
-02. Chantola - Miami Burning (05:51)
-03. Klaukenberg - Walk Of Shame (05:39)
-04. Kantholz - Motel Star (06:05)(   Читать дальше...   )Производство: Club 86 RecordingsЖанр: House, Club HouseПродолжительность: 01:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:442F9A784A01C4498A6D163A64891AE1C459D660
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971737   (984651) от 04.01.2016
-
-Dirty Vegas - Days Go By (2002) [FLAC|Lossless|tracks + .cue] <Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984651.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dirty Vegas - Days Go By (7:12)
- 2. Dirty Vegas - Days Go By (Scumfrog Vocal Remix) (7:09)
- 3. Dirty Vegas - Days Go By (Paul Oakenfold Vocal Remix) (5:32)Жанр: Progressive House, Deep HouseПродолжительность: 00:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE33F70C2AA9848D550C45D1453170AFCA91A13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971881   (984682) от 04.01.2016
-
-VA - Havana Lounge (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua Mundi - Simple ou double [05:33]
-02. Rex Kramer - Chanoyu [04:50]
-03. Bahia de Roses - Desde el Mar [03:55]
-04. The Tonal - Eastern Sun [03:07](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F276BEA89A7092F6B40CD7130C9CA0F8500B1ED9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971885   (984699) от 04.01.2016
-
-VA - Delicate Lounge (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria Bliss - Sway with Me [03:16]
-02. Spirit, Sound & Vision - Early Morning [04:37]
-03. Chillout In Turin - Murazzi Lounge Vibes [04:24]
-04. Schwarz & Funk - Sheela & Luna [04:59](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B41B759885CC583886A71449265741F06AA35D14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355173   (984744) от 25.01.2020
-
-Pet Shop Boys - Hotspot (2020) 2CD Special Edition [FLAC|Lossless|tracks + .cue] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Will-o-the-wisp
-02. You are the one
-03. Happy people(   Читать дальше...   )Жанр: Synthpop |Продолжительность: 01:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D216F7121C249B88E1843E2AB1A8A903BC239D9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355163   (984915) от 25.01.2020
-
-VA - Black Hole Trance Music 01-20 (2020) [MP3|320 Kbps] <Trance, UpliftingTrance, ProgressiveTrance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert Nickson - Blue Encounter (Extended Mix) 8:01
-02. Obie Fernandez - So Far Away (Extended Mix) 6:28
-03. Markus Schulz - Sunrise Over The Bay (Extended Mix) 6:39
-04. Somna - Never Feel Lost (Extended Mix) 6:31(   Читать дальше...   )Жанр: Trance, UpliftingTrance, ProgressiveTranceПродолжительность: 02:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F12C4CF76234DC89601C34FD1670253E6952113
 ```
 
 

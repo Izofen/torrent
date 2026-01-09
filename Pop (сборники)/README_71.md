@@ -703,34 +703,34 @@ magnet:?xt=urn:btih:E5B6596F613FBB962805496BA62C362B7DD0A152
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 520581   (630970) от 09.07.2012
+###  Публикация: 461747   (630369) от 04.07.2014
 
-VA - Жаркий Авто Хит от DFM 50+50 (2012) [MP3|256 кб/с]<Pop,Dance>
+Various Artists - Syndicate. The Best Disco With Non-Stop Sound Effects (1980) [MP3|320 кб/с]<Disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630970.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_630369.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Melvin Reese - All Day All Night (Original Mix)
-02 Вера Брежнева - Ищу Тебя
-03 Dj E-Maxx - Electro Bass (Radio Edit)
-04 Никита - Бессонница
-05 Robert Miles - Children (Mian Timore Remix)
-06 Полина Гагарина – Вернись Любовь
-07 Bueno Clinic - Sex Appeal (Max Farenthide Remix)
-08 Братья Гримм - Аллилуйя (Aksioma Project Radio Remix)
-09 Alexandra Stan - Mr Saxobeat (Ural Djs Dance Remix)
-10 Пыльца - Запасной АэродромЖанр: Pop,DanceПродолжительность: 06:12:44
+01. Babe - The Drunken Sailor
+02. Theo Vaness - Bad Bad Boys
+03. Ottawan - You're OK
+04. T.H.P. - Good To Me
+05. Doris D. & The Pins - Shine Up
+06. A La Carte - Ring Me, Honey
+07. Methusalem - The Black Hole
+08. Gepy & Gepy - Body To Body
+09. Gilla - Tom Cat
+10. Pussycat - Rio(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:18:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6825CCD2F6B8BF24EF143A8E504E0C45EB87117E
+нет
 ```
 
 

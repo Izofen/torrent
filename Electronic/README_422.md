@@ -1,3 +1,165 @@
+###  Публикация: 1273663   (799346) от 03.01.2019
+
+VA - Psychedelic Goa Trance 2019: Best of Top 40 Electronic Dance Acid Techno Hard House Rave (2018) [MP3|320 Kbps] <Psy-Trance, Psychedelic, GOA>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rigel - Singularity
+02. Skoocha - Last Exit To Brooklyn (Earworm Remix)
+03. Pulsar - Uplifting Minds (01-N Remix)
+04. Orion - Dig It (Predators Remix)(   Читать дальше...   )Жанр: Psy-Trance, Psychedelic, GOAПродолжительность: 05:20:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D04BE4ACC22D471830E95DC5ED1F19C23DE71641
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273182   (799404) от 03.01.2019
+
+VA - The Best Of Suanda Base 2018: Mixed by Michael Milov (2018) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Milov - Inner Voice (Extended Mix)
+02. Bigtopo - Gallow (Extended Mix)
+03. Simon Lee & Alvin - Raksasa (Extended Mix)
+04. Kiran M Sajeev - Higher (HamzeH Extended Remix)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14001A00FC07032093EC944E56F2B0CACC9FABF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273804   (799409) от 03.01.2019
+
+Cholosus - Way Of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lord Will Make It Happen (06:06)
+ 02. Aeris (12:48)
+ 03. Winter (09:26)
+ 04. Loner (12:08)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:24:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFBA6840B586DDA5EF6094ACD5C4AFA9C47D283C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273684   (799447) от 03.01.2019
+
+VA - Goodbye 2018 - The Selection Of The Year (2018) [MP3|320 Kbps] <Deep House,Tech House, Progressive House, Deep Tech>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fake Mood Ft. Jinadu - Don't Miss (Armen Miran Remix) (08:13)
+02. Hollson - Saintonge (11:50)
+03. Wally Lopez & Yamil - Coconut (Timid Boy 'Love & Coco' Remix) (07:09)
+04. Mancerow - Keep Running (Timid Boy & Acumen Remix) (07:32)(   Читать дальше...   )Жанр: Deep House,Tech House, Progressive House, Deep TechПродолжительность: 01:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A634A81E467A902E0DAE137444151AFA35696BC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121583   (799654) от 03.04.2017
+
+VA - Spring Workout Music 40 Dance Hits & 1 Megamix (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ouzzo - If You (Club Extended) (Feat. Alba Kras & Tony T) 04:21
+02. David Pole - Join The Party (Extended Mix) (Feat. The Romy & Martika) 04:12
+03. Stephan Vegas - Felt Like Love (Original Mix) (Feat. Penny Hannant) 04:07
+04. Alex Milani - Delicious (Original Mix) 04:46(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E1D117175DBE73D17D81608705C7068DE5E5EB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121347   (799671) от 03.04.2017
+
+VA - Dark Room Erotica Jazz Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seneca Reynolds – Deep Shield – Groovy Obsession Mix
+02. Dave Nimerfro – Get You into My Life – Saxuality Chill Lounge Mix
+03. Perelandra – Dancing with the Sun – Travelling Silvertones Mix
+04. Smooth Rebel – Turn out the Light – Secret Love Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B38802A479822154FF2D9E6AC5D6969017AB0F2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121710   (799677) от 03.04.2017
 
 VA - Soft Chill House Beach Lounge Vol.2 (2017) [MP3|320 Kbps] <Chillhouse, Lounge>
@@ -533,168 +695,6 @@ Patrick Bernard - Divine Grace Divine (2017) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB25F0851011E207D0BD932E24691CAB9E816769
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199679   (800444) от 17.01.2018
-
-VA - Morning Coffee Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papik, Alessandro Pitoni - Walk on By (02:47)
-02. Jazz Reason - Prelude (03:30)
-03. Neja - This Is Your Life (feat Papik - live) (04:39)
-04. DN3 - Miss Cat (06:34)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6980AD2AF5564E57FE9B8159D5F06AED5479BDEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199196   (800446) от 17.01.2018
-
-VA - Hed Kandi - Twisted Disco (2009) [FLAC|Lossless|tracks] <Progressive House, House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Rudenko - Everybody (Club Mix)
-02.Kurd Maverick - Blue Monday (Vandalism Remix)
-03.ATFC Feat. Lisa Millett - Bad Habit (ATFC's Lektrotek Re-Visit)
-04.Robbie Rivera - In Too Deep (EDX Mix)(   Читать дальше...   )Жанр: Progressive House, House, ElectroПродолжительность: 02:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBBD014A08AA0605029241CFF7F5517F58BCE771
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199754   (800448) от 17.01.2018
-
-VA - Alpine Lifestyle Lounge Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Weathertunes  -  Bitter Past (Original Mix)  4:49
-02.  Lazy Hammock  -  Sin-Time (Original Mix)  5:25
-03.  Maurid  -  Sweet Sensation (Original Mix)  6:15
-04.  Twentyeight  -  Destiny (Original Mix)  5:55(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D374804BF164DCF07666E420717D1B4065181F31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199656   (800449) от 17.01.2018
-
-VA - A Decade Ilian Tape (2017) Ilian Tape [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, Techno, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skee Mask - Excess Signal (05:19)
-02. Struction - Seel (07:45)
-03. Stenny - P-Zone (06:26)
-04. Zenker Brothers - Haras (06:09)(   Читать дальше...   )Жанр: Breakbeat, Techno, HouseПродолжительность: 01:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7468F248DB771134338FBC4EAB801910028AB31D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199379   (800450) от 17.01.2018
-
-VA - Antoine Clamaran - Lafayette V.O. La Compil' (2006) [FLAC|Lossless|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.A Clamaran - Keep On Tryin (DJ Fist Remix)
-02.Asle - Golden Sun (Haji & Emanuel Remix)
-03.Mario Ochoa - Shake It (DJ Fist Latin Mix)
-04.Brown Sugar - Take Me Together (Roman Curtis Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:15:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5258CC2A99A5E4FF1CB4BDA396DE5D4E749112B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121184   (800486) от 02.04.2017
-
-VA - Charming Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillelektro – Cala Pi 06:06
- 02. Kusuma Orchestra – Undelivered Message 05:44
- 03. Aqua Mundi – Invisible Options 05:43
- 04. Baghira – Underwater 05:24(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F4820814685E4927E0C9D52795DC86B1847C003
 ```
 
 

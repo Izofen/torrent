@@ -1,3 +1,36 @@
+###  Публикация: 526752   (595523) от 25.07.2012
+
+Andres Segovia - Collections 2 альбома - 6CD (1994 - 1998) [APE|Lossless]<Classical Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_595523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Recuerdos de la Alhambra (F.Tarrega)    [03:23]
+02. Granada de la suite espaсola N1 (I Albeniz)    [04:21]
+03. Danza espaсola N5 en si menos op 37 (E Granados)    [04:31]
+04. Alegretto de sonatina en do mayor (Moreno Torroba)    [03:19]
+05. Preludio (Moreno Torroba)    [01:54.71]
+06. Sevilla de la suite espaсola N6 (I.Albeniz)    [04:18.21]
+07. Variaciones y fuga de cosas de espaсa (Manuel Ponce)    [14:35]
+08. Fandanguillo de la suite castellana(Moreno Torroba)    [01:59]
+09. Nocturno (Moreno Torroba)    [03:08]
+10. Fandanguillo (J Turina)    [03:57]Жанр: Classical GuitarПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 527119   (595584) от 25.07.2012
 
 Enigma Club - Утро Тибета (2002) [MP3|320 кб/с]<New Age, Ethnic Fusion, World Music, Ethnic Instrumental>
@@ -707,33 +740,6 @@ Amure - GEO (2016) 2CD [MP3|320 Kbps] <New Age, Enigmatic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C04488E3582BCFD15D0D4C75DF8CA2EBFB982A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547692   (600253) от 02.05.2022
-
-Faun - Pagan (2022) [FLAC|Lossless|WEB-DL|tracks] <Medieval, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Galdra (6:10)
-02. Halloween (3:54)
-03. Gwydion (3:59)
-04. Wainamoinen (4:02)(   Читать дальше...   )Жанр: Medieval, FolkПродолжительность: 01:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B101F44C05B5777AB78E0C8D31FC1D0CA03EED5
 ```
 
 

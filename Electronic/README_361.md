@@ -1,3 +1,162 @@
+###  Публикация: 1400427   (719145) от 05.08.2020
+
+The Violent Youth - Там, где нас нет (2020) [MP3|320 Kbps] <New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хорошо одному [00:03:27]
+02. Танцуй [00:02:55]
+03. Свободно [00:03:36]
+04. Там, где нас нет [00:03:19](   Читать дальше...   )Жанр: New WaveПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F8F7971BF5F6644943D66472AA699C0C6A2E4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400208   (719146) от 05.08.2020
+
+VA - Nothing But... Funky Groove, Vol. 10 (2020) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WeAreTwo - Could Have Been Us (Dreamell Remix) [05:09]
+02. Bruce Sheroy - Bai Fen Bai (DJ Tecklogix Remix) [05:00]
+03. Walter Gardini - In The Deep [04:51]
+04. JoioDJ - Sensuality (H@K Club Mix) [07:52](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2BD710A9F700313E981BDA65E6287D24B20B88E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400365   (719147) от 05.08.2020
+
+VA - Beach Grooves Maretimo Vol.2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Beach House, Lounge>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Maretimo - Costa Balear (The Beachfloor Cut) (5:41)
+02. Poolwave - African Market (Jazzman´s Cut) (6:11)
+03. Airstream - Back in Time (The Golden Beach Cut) (6:54)
+04. Pascal Dubois - Send Me Away (The Chillhouse Mix) (4:16)(   Читать дальше...   )Жанр: Beach House, LoungeПродолжительность: 01:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948285166DF911172EFCE9B590C2A9B997797E50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285659   (719154) от 27.02.2019
+
+VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brian Eno - An Ending (Ascent)
+02. Cosmic Gate & Foret - Need to Feel Loved
+03. Marshmello featuring Bastille - Happier (Markus Schulz Festival Mix)
+04. Andrew Bayer featuring Alison May - In My Last Life (In My Next Life Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C405A924F0F4651B7FE76844E1F175E34613603
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400422   (719247) от 05.08.2020
+
+рассел - side A (2020) [MP3|320 Kbps] <New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Культ [00:04:09]
+02. Приз [00:02:48]
+03. В плащах [00:02:58]
+04. В уста [00:04:00](   Читать дальше...   )Жанр: New WaveПродолжительность: 00:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC708AF0F07E14175569F875A7902583C838F71E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218858   (719637) от 11.04.2018
+
+VA - ROHS! - Netlabel Collection (2008-2017) (2018) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep House, Techno, Minimal, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: WEBЖанр: Dub Techno, Ambient, Deep House, Techno, Minimal, Tech House •Продолжительность: 09:12:38 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA605E7F2A7DD3C184F532F25F64AF43125EB0F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218770   (719640) от 11.04.2018
 
 VA - The Ultimate Euphoric Trance Vol. 9 (2018) [MP3|320 Kbps] <Trance>
@@ -533,168 +692,6 @@ W&W - Rave Culture Live 003 (2022-02-12) [MP3|320 Kbps] <Big Room, Hard Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A482C2CC508BEF3BA998567F4854893327FD442
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285408   (720863) от 26.02.2019
-
-VA - A State Of Trance 900 (The Official Album) - Extended Versions (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren - Lifting You Higher (ASOT 900 Anthem) (Extended Mix)
-02. Above & Beyond - Rocket Science (Original Mix)
-03. Cosmic Gate & Jason Ross - Awaken (Extended Mix)
-04. Marlo feat Emma Chatt - Here We Are (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2BB9E97406DBC6AD94CE5D5C3F6B45493FD088F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218710   (721275) от 10.04.2018
-
-Balazs Ferenc - Register (1985) LP [MP3|320 Kbps] <Electronic, Experimental, Ambient>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giulietta (4:44)
-02. Claire (4:43)
-03. Electra A Lany, Akire Szerelemmel Nezhetek (3:53)
-04. Szonja (3:15)(   Читать дальше...   )Жанр: Electronic, Experimental, AmbientПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B6940663DAE5D51A84E820BDCF61093EFCFD25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218680   (721724) от 10.04.2018
-
-VA - Summer Nu Disco (Deephouse Selection) (2018) [MP3|320 Kbps] <Deep, Funky, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roger Ky - Music Login (Playa Mix) 3:46
-02. Black Jag - Bad Year (Special Deep Mix) 3:16
-03. K Groove - Epic Wait (Miami Deep Mix) 3:30
-04. Sensation 24 - Paleface (Apero Deep Mix) 3:39(   Читать дальше...   )Жанр: Deep, Funky, Tech HouseПродолжительность: 01:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:194C672884E1C02C277D1E27060BBB78CE76A451
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218602   (721728) от 10.04.2018
-
-VA - HTE Hard Trance Europe (Mixed by Space Raven & Nick The Kid) (2018) [MP3|320 Kbps] <Trance,Hard Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phutek - 1307 Dimension
-02. Neuroma Seroma - Opening (Original Dub Mix)
-03. Space Raven - Leaving Trains & Goodbyes
-04. Space Raven & S5 - Dream State(   Читать дальше...   )Жанр: Trance,Hard TranceПродолжительность: 05:27:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA1EF2FA9F4E808FA8EFCA8A91BD5B0587BC8960
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218607   (721735) от 10.04.2018
-
-VA - Dark Sessions 044 (Mixed by Chris Hampshire) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. G8 - Boom And I Knock Them Out (Original Mix)
-02. John Askew - Battery Acid (Ellez Ria Arkam Reborn)
-03. Peter Plaznik - Outlaw (Cenk Basaran Remix)
-04. Rodas - Uplifted Dream (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACF0B28E62F39B9E14793156008E71CB9B8AE90A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218733   (721739) от 10.04.2018
-
-Cløtur (Clotur) - Levels of Consciousness (2017) Warok Music [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Connecting With The Spirit (06:21)
-02. The Healing Energy (08:49)
-03. Mindfulness (07:30)
-04. Clarity (05:50)Жанр: TechnoПродолжительность: 00:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5EEECABD4FD37FCF7AD1E4DA5372EDC503F3717
 ```
 
 

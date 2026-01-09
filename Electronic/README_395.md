@@ -1,3 +1,165 @@
+###  Публикация: 1207136   (780418) от 19.02.2018
+
+VA - Future Vocal Trance Vol.1 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Adam Sobiech feat. Angel Falls  -  Disillusion (Original Mix)  5:58
+02.  DJ Schillings  -  I Remember The 90s (Original Mix)  3:26
+03.  Rheligie  -  Ardent Fever (Adip Kiyoi Remix)  5:38
+04.  Iris Dee Jay & Robert Holland feat. Erin  -  Faster (Original Mix)  6:23(   Читать дальше...   )Жанр: TranceПродолжительность: 02:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97E83221E1790655608169B24428E2BE7DAFD312
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207634   (780419) от 19.02.2018
+
+VA - Vocal House Traxx Vol. 1 (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj-Chart – Oh My Friend My Brother 3:27
+02. Martin Meister – When Do I Get To Sing My Way (Stranger Things Mix) 3:59
+03. Cysco Fiore And Joan Alasta – Never Ever 3:46
+04. Vindicci – Suddenly (Remix) 4:38(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B69DFE0802FF023C8069BFF2C0290E126FB6219E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207006   (780423) от 19.02.2018
+
+VA - Black Hole Trance Music 02-18 (2018) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Late Night Alumni  -  Montage (Mitiska Extended Signature Mix)  5:46
+02.  Cosmic Gate & Emma Hewitt  -  Tonight (Fatum Remix)  2:54
+03.  Omair Mirza feat. Avari  -  Beautiful Mystery (Sodality Extended Remix)  5:02
+04.  Andy Moor & Somna feat. Diana Leah  -  There Is Light (Extended Mix)  6:51(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting TranceПродолжительность: 02:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8484CC35A415717E0197DF1373343D63C6C054F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206999   (780427) от 19.02.2018
+
+VA - Melodic Trance Vol.3 (2018) [MP3|320 Kbps] <Uplifting Trance, Melodic Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer  -  Lost (Extended Mix)  6:20
+02.  Attila Syah & LTN  -  B29 (Extended Mix)  7:03
+03.  Vadim Spark & Cari  -  Beat Of My Heart (UDM Extended Remix)  5:55
+04.  NoMosk  -  Duel (Original Mix)  6:23(   Читать дальше...   )Жанр: Uplifting Trance, Melodic TranceПродолжительность: 02:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97B830FDAAFE48E182AA54C5DFF6BBB3185A661D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206987   (780602) от 18.02.2018
+
+VA - Global DJ Broadcast - Top 20 February (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jam & Spoon  -  Odyssey To Anyoona (Markus Schulz vs. Jam El Mar Remix)  4:16
+02.  Aly & Fila vs. Ferry Corsten  -  Camellia (Extended Mix)  6:43
+03.  Kyau & Albert  -  Wanderlust (Extended Mix)  5:16
+04.  Ben Bohmer  -  After Earth (Original Mix)  7:37(   Читать дальше...   )Жанр: TranceПродолжительность: 02:21:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6460E47489308D893E6A39501A9B983D3BF4BBB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207427   (780606) от 18.02.2018
+
+Lane 8 - Little By Little (2018) This Never Happened [FLAC|Lossless|tracks+.cue] <Deep House, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daya (06:21)
+ 02. No Captain (feat. Poliça) (05:18)
+ 03. Atlas (05:52)
+ 04. Clarify (feat. Fractures) (04:02)(   Читать дальше...   )Жанр: Deep House, HouseПродолжительность: 00:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:098194B75D1ADC8A386F7B0C01D220415915E175
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207263   (780741) от 17.02.2018
 
 ] interstice [ - Descendence (2017) Innovative Sonic Arts [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Experimental, Electro, Ambient, Industrial>
@@ -526,168 +688,6 @@ Zero Cult - Tangoa (2018) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:197ACCE79F8A0DA9B2AB3B042E512BF19F1A6790
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206681   (781738) от 15.02.2018
-
-Ekke - Klangfarbenmodular (2018) Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <IDM, Electro, Glitch, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imitatsioonid (03:46)
- 02. Matter (09:31)
- 03. Nukud Ja Tootemid (01:30)
- 04. Rahn (06:48)(   Читать дальше...   )Жанр: IDM, Electro, Glitch, AmbientПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A594CC85171771E4324514886D063212EF27F9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206655   (781740) от 15.02.2018
-
-VA - Territories (2017) 79Ancestors [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Telefon Tel Aviv - Something Akin to Lust (6:37)
-02. Deru - The Roar and the Dust (3:45)
-03. Before Tigers - Backwards Rituals (5:55)
-04. Rafael Anton Irisarri - Certainty (5:43)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A4C06B0C6E552B303E9757D3C6D080C977E905F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206768   (781742) от 15.02.2018
-
-Fluida - Branches (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Branches (3:32)
- 02. Ahead (4:10)
- 03. Awaken (3:33)
- 04. Branches (Extended Mix) (5:28)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1892F0C1F164C37E5973FF9DD6EF8D88A2D1A02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390951   (781813) от 18.06.2020
-
-VA - Universal Frequencies, Vol.1-10 (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781813.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Atacama; Jakaan - Complete Awakening (Original) (7:43)
-2. Jakaan - Nefertiti (Original) (8:34)
-3. Genesia; Akron - Imagination Beyond Reality (Original) (8:26)
-4. Genesia - Across Time (original) (8:24)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 29:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B881468F0DB04ABE662A07FB8EFC32B6EC79A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391080   (781880) от 18.06.2020
-
-Trancetorn - Sonic Experience (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781880.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sarva Mangala (9:32)
-2. Solar System (10:09)
-3. Heaven (9:53)
-4. Acid Exxe (8:35)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CED025CC7E13EF6B34906F2A480182A9EB98091
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391078   (781884) от 18.06.2020
-
-Tângela (Tangela) - Dolphin Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781884.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Special Flowers (5:56)
-2. Dolphin Mind (6:44)
-3. Lusy (6:38)
-4. Odyssee of Noises - Firedance (The Sunrise) (Tangela Remix) (5:44)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26908E2FAFF17CAF9BF81E6D2FCA4C72CE170AF7
 ```
 
 

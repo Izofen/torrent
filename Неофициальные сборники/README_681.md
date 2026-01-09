@@ -1,3 +1,30 @@
+###  Публикация: 1615745   (1036978) от 28.02.2023
+
+Everybody Loves An Outlaw - Compilation (2023) [MP3|320 Kbps] <Rock, Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood on a Rose
+02. I See Red Instrumental
+03. Everybody Loves an Outlaw
+04. Wicked Ways(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02694C093284EDFE549FBA7E990CF8ECF1A9464F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616001   (1036994) от 28.02.2023
 
 Rebekka Bakken - Compilation (2023) [MP3|320 Kbps] <Vocal>
@@ -668,33 +695,6 @@ VA - Beatport Tech House: Electro Sound Pack #177-1 (2021) [MP3|320 Kbps] <Tech 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D86187F86C058DBE733CBA30C884C9B46C9EF8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440829   (1038197) от 19.01.2021
-
-VA - Top 100 Most Streamed Songs On Spotify 2020 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038197.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Queen - Bohemian Rhapsody - Remastered 2011 (5:54)
-002. Travis Scott - SICKO MODE (5:12)
-003. Adele - Hello (4:55)
-004. Ed Sheeran - Thinking out Loud (4:41)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3798DD8FD58C20EFA26B848B6B654A44F018A8F
 ```
 
 

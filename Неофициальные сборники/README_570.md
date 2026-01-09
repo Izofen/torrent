@@ -1,3 +1,30 @@
+###  Публикация: 1376463   (858914) от 18.04.2020
+
+VA - Reggae On The Roof (2020) [MP3|320 Kbps] <Reggae, Dancehall, Riddim>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858914.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Duane Stephenson - Play That Song
+002. Dj Pablito - Juntemos El Alma
+003. Dipmatik - Duppy A Walk
+004. Adonis Rivera - Ghetto Gospel(   Читать дальше...   )Жанр: Reggae, Dancehall, RiddimПродолжительность: 08:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84B41D53C5C766DA38A258095460795C263F1D54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376543   (858921) от 18.04.2020
 
 VA - German Top 100 Single Charts 17.04.2020 [MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - EDM Party: Samsara Heat (Vol.05) (2021) [MP3|320 Kbps] <Club, Dance, House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A3DE157BD809A67AA0CC512A3D95913AAD833D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497921   (859653) от 25.09.2021
-
-VA - The Brutal Might (2021) [MP3|320 Kbps] <Metal, Hard Rock, Hardcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859653.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wolvencrown - A Shadow Of What Once Was
-002. Cyrax - Truemetal
-003. Secret Sphere - Shaping Reality
-004. Purgatory - Grave Of Sorrow(   Читать дальше...   )Жанр: Metal, Hard Rock, HardcoreПродолжительность: 10:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E38526780174F0DF4381CD76136B06C9317AEC
 ```
 
 

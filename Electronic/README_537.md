@@ -1,3 +1,165 @@
+###  Публикация: 1840945   (1047687) от 08.12.2025
+
+Thompson Twins - Industry & Seduction : A Thompson Twins Collection (2025) 3 x CD, Compilation, Limited Edition, Remastered, BMG [FLAC|Lossless|image + .cue] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Industry & Seduction - это всеоблемющий сборник, охватывающий всю карьеру Thompson Twins, отражающий их путь от аутсайдеров пост-панка до мировых икон синти-попа. За свою карьеру Thompson Twins записали семь хитов, вошедших в американский Топ-40, и были в авангарде второго вторжения британских исполнителей в США, в которое также входили The Police, Duran Duran, (   Читать дальше...   )Disc One - The Hits (Remastered):
+01. Hold Me Now (2024 Remaster) (4:46)
+02. If You Were Here (2025 Remaster) (2:56)
+03. Doctor! Doctor! (2024 Remaster) (4:38)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 03:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2FB8528E3C9CF612A5E9308C7623D9AD9262C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841082   (1047723) от 09.12.2025
+
+VA - The Orient Collective: Sands Of Time (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania - Soul of the Universe (5:26)
+02. Tibetania - Solace (6:24)
+03. Gumale - Scenery (7:11)
+04. Tibetania - Road to Mombasa (Evan Mars Remix) (7:26)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:27:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D8F6FC8D9C8A4E90E0E7A80FB5DD48906A107B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841076   (1047736) от 08.12.2025
+
+Schwarz & Funk - 25 Years (Chillhouse) (2025) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Downtempo, Chill House>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Waves of Peace (Chillhouse Mix Extended Version) (04:00)
+ 02 - Good Times (Beach House Mix) (06:30)
+ 03 - Remy (Beach House Mix) (05:59)
+ 04 - Nice (Beach House Mix) (04:43)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Chill HouseПродолжительность: 02:23:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C99C71347BF54EAB2BC2549DC642D220E7D6D40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841038   (1047739) от 08.12.2025
+
+VA - The Best Releases 2025 of Endlessky Audio (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iberian - Trust Me (Betibwe Remix) [6:48]
+02. D.J.G. & M.I.K! vs. DJ MacX - Indian Spring (POINoir Remix) [7:08]
+03. Grande Piano - Adrenalin (Original Mix) [7:34]
+04. Jef Karlen - Illariy (Original Mix) [6:30](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8061EB0C02995B6A523BA6FE0F2DF3865B1AC85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841220   (1047844) от 09.12.2025
+
+VA - 100% Ibiza (The Late Night Club Closings 2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francesco Diaz - Frequencies (Video) (2:58)
+02. Steen Thottrup - Dreamers (Stefano Martiago Remix) (5:03)
+03. Kornpluck - Tincture (Vocal Mix) (5:23)
+04. Jacob Ireng - Contemplation (2:37)(   Читать дальше...   )Жанр: TechnoПродолжительность: 02:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A1D65E6DBFFA7A3A960A9EE2C861745707BEFE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841201   (1047858) от 09.12.2025
+
+VA - Best of FSOE 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daxson - Perpetuity (Extended Mix) [7:26]
+02. Aly & Fila with Ferry Tayle - Take Me Higher (Extended Mix) [7:31]
+03. Doppenberg - Worlds Apart (Extended Mix) [6:43]
+04. Allen Watts & Will Rees - Pendulum (Extended Mix) [6:41](   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB115244DAD01A971DD02C9697D53088079FF9A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841594   (1048074) от 12.12.2025
 
 VA - Armin van Buuren - A State Of Trance 1255 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -529,168 +691,6 @@ VA - Chill Lounge del Mar 2026 (Café Chillout Playlist Compilation, Vol.9 - mix
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8974E181FC7CF35AB703FE85AC5B08C85A0A9151
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843049   (1048952) от 18.12.2025
-
-VA - Black Hole Recordings - Best Of 2025 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate & James French - I'm On Fire 03:52
-02. Markus Schulz & Dakota - Faultline 03:40
-03. Ciaran McAuley & Shelby Merry - The Party 03:39
-04. Christina Novelli & Peter Steele - Moment In Time 03:47(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F775A9719755D0FD4E6F29112E5DF2B0EE886B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843128   (1049156) от 18.12.2025
-
-VA - Redux Presents: The Finest Selection 2025 Mixed by DJ Jayel (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Xsacaman - Celestial (Extended Mix) 07:39
-02. Christopher Maison - No Way Home (Extended Mix) 06:47
-03. Angels&Tilove - Venus (Extended Mix) 05:05
-04. Paul Gallagher - Distant Echo (Extended Mix) 06:49(   Читать дальше...   )Жанр: TranceПродолжительность: 05:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB6D8798172F5AF55D69541E6D7A4288B08E6877
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843347   (1049219) от 19.12.2025
-
-Calibre - Rudy (2023) [FLAC|Lossless|tracks + .cue] <Drum'n'Bass, Liquid Funk, Ambient>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stunted (5:17)
-02. More Fool Me (Calibre & Cimone) (4:58)
-03. The Game (4:53)
-04. Heaven (4:56)(   Читать дальше...   )Жанр: Drum'n'Bass, Liquid Funk, Dubstep, AmbientПродолжительность: 01:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09FE6EC5E3EC032D53C273C2FAE32D6FCE53D29F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843342   (1049221) от 19.12.2025
-
-Calibre - they want you (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum'n'Bass, Liquid Funk, Dubstep>
-
->>Electronic
->>Drum'n'Bass, Breakbeat (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. living is truth (5:07)
-02. don't feel for me (5:11)
-03. tame (5:50)
-04. possession dub (5:31)(   Читать дальше...   )Жанр: Drum'n'Bass, Liquid Funk, Dubstep, AmbientПродолжительность: 01:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C951299A0A538957E5DDE236FBCA8656F072AFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843274   (1049225) от 19.12.2025
-
-VA - Armada Music Year Mix 2025 (2025) Extended Versions [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juan Magan, Brando & Eleni Foureira – Truth or Dare (Extended Mix) (03:12)
-02. Nadia Ali, Iro & Summer Is Calling – Almost Home (Extended Mix) (04:55)
-03. Audien, Shallou & Rosie Darling – Bittersweet feat. Rosie Darling (Extended Mix) (03:48)
-04. Edward Maya, Valentino Indy & Klavdia – Back To BlueЖанр: Dance, Club, House, ElectronicПродолжительность: 08:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71420EEDCE3830CE63D05BDAA96296A8D49043CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843212   (1049243) от 19.12.2025
-
-VA - Armin van Buuren - A State Of Trance 1256 (Top 50 Of 2025) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049243.jpg" />
-</div>
-
-
-###  Подробнее
-
-50. Andrew Bayer – I Don’t Want You
-49. David Forbes – Techno Is My Only Drug
-48. Chicane & Ben Nicky & ARTY – Oxygen
-47. 7 Skies – All The Things(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6473BE1622A6DE2EBEFEA2372489ED297715BDBA
 ```
 
 

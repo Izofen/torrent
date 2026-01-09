@@ -1,3 +1,164 @@
+###  Публикация: 1092731   (937425) от 13.01.2017
+
+VA - Best Release Of The Season (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  2 Man On Road - The Way (Original Mix)  4:48
+02.  Alex Nail - Evil Noise (Original Mix)  4:08
+03.  Alexey Suvorov - Our Dreams Come True (Original Mix)  7:25
+04.  Alien Craft - Raven Hunter (Original Mix)  3:18(   Читать дальше...   )Жанр: HouseПродолжительность: 02:20:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F47A2661346FFFA00B4D0D6966C0010197D241C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364393   (937903) от 02.03.2020
+
+2raumwohnung - 20JAHRE 2RAUMWOHNUNG (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, Electro, House, Indie Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ich und Elaine (3:39)
+ 02. Bei dir bin ich schön (3:15)
+ 03. 36Grad (3:50)
+ 04. Wir werden sehen (Paul Kalkbrenner Remix 2020 Edit) (3:53)(   Читать дальше...   )Жанр: Electronic, Synthpop, Electro, House, Indie PopПродолжительность: 01:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33CF95DC7B9CF27B32A46116AE19D0A057C898E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364211   (938011) от 02.03.2020
+
+Prins Thomas - Bringing Mum to Panorama Bar (2020) Prins Thomas Musikk [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bringing Mum To Panorama Bar (12:29)
+ 02. Bringing Mum To Berghain (Norman Nodge Remix) (06:56)
+ 03. Bringing Mum To Panorama Bar (Prins Thomas Diskomiks) (05:54)Жанр: Techno, Tech HouseПродолжительность: 00:25:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96AFF6970A06F265BC8364BED3CC855E9BE97152
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092649   (938635) от 12.01.2017
+
+Trentemoller - The Trentemoller Chronicles (2007) 2CD [FLAC|Lossless|image + .cue] <Dub, Minimal, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Forest (5:59)
+02. Klodsmajor (3:10)
+03. McKlaren (Trentemøller remix) (5:19)
+04. Snowflake (live version) (7:46)(   Читать дальше...   )Жанр: Dub, Techno, Electro, Minimal, Tech HouseПродолжительность: 02:34:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFDE16D9E1A3F54564A2CD75E8C6CA73C5BB8D1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092618   (938648) от 12.01.2017
+
+VA - Lounge Winter Garden (50 Amazing Tunes) (2016) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  5th Groove - Riding the Waves (Next Project's Grand Voyage Mix)  3:15
+02.  Maximilian Cox - The Cleaner  3:43
+03.  Raffika Dionisio - Shell  4:02
+04.  Key Of Dreams Fiftheen - Hot Chocolate  4:54(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 03:21:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:453DEC22317E902D51024162D079FC524F750448
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092475   (938752) от 12.01.2017
+
+Trentemoller - The Last Resort (2006) Limited Edition [FLAC|Lossless|image + .cue] <Techno, Minimal, Tech House, Ambient, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me Into Your Skin (7:44)
+02. Vamp (4:33)
+03. Evil Dub (6:15)
+04. Always Something Better (6:10)(   Читать дальше...   )Жанр: Techno, Minimal, Tech House, Ambient, ExperimentalПродолжительность: 02:33:38 (01:17:36 + 01:16:02)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B590D51BAC8A54148E04674792FEEDAC484D70AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092191   (938873) от 12.01.2017
 
 VA - Oasis Of Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -536,168 +697,6 @@ VA - Trance Euphoria Vol.7 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CD2598F336273B141D492AD05E1AB1EAB80D6CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363630   (940849) от 29.02.2020
-
-Panda Eyes - Continue (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dubstep, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940849.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. One Smile (feat. Azuria Sky) [05:06]
-2. Turning Point [03:36]
-3. Continue (with Subkey) [05:00]
-4. Daydreamer [03:48](   Читать дальше...   )Жанр: Electronic, Dubstep, Electro HouseПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555FA55CFDCF513454168D9571D389B3E3095629
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193443   (940922) от 29.02.2020
-
-Boreal Network - Discography 11 Releases (2007-2016) Retronym, Illuminated Paths [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Downtempo>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Itasca Road Trip (02:33)
- 02. Kandiyohi (02:52)
- 03. Badlands (03:22)
- 04. Campstop Arcade (01:23)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Ambient, Downtempo •Продолжительность: 07:07:15 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A08B581A2BD54366950477FCAD367E33F04DE016
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363835   (940927) от 29.02.2020
-
-La Roux - Supervision (2020) [FLAC|Lossless|tracks + .cue] <Synth-pop, Dance-pop, Funk>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 21st Century (04:15)
-02. Do You Feel (05:00)
-03. Automatic Driver (05:05)
-04. I.W.O.L. (04:18)(   Читать дальше...   )Жанр: Synth-pop, Dance-pop, FunkПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9EBCBEF496978C9A84A8038525BA2ADAB51ECAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363790   (941024) от 29.02.2020
-
-Freeze Etch - All Context Vanishes (2020) Voidstar Productions [FLAC|Lossless|WEB-24Bit|tracks] <IDM, Ambient, Industrial, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Telos (05:18)
- 02. Conscious Image (07:41)
- 03. I Am Always The Same Person (01:50)
- 04. Blunderbuss (08:11)(   Читать дальше...   )Жанр: IDM, Ambient, Industrial, ExperimentalПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C711C9D7DC34993236377DFB1A65DFC78C6E82EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363657   (941025) от 29.02.2020
-
-Will Rees - Live @ Trance Room, Uniclub Buenos Aires, Argentina 2020-02-22 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941025.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Brennan Grey - Capre Omne (Intro Edit)
-2. DJ Jordan - Direct (Indepth Remix)
-3. ID-ID
-4. Genix - Ba55 Camp(   Читать дальше...   )Жанр: TranceПродолжительность: 02:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B837FD941E01AACBC38A1FE89032D364B16DD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091986   (941044) от 10.01.2017
-
-VA - Music For Sex: Erotic Music 2017 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suntise - Erotic Wav  (2:44)
-02. Jentarix - Indian Summer  (3:54)
-03. Denis Arson - First Contact  (6:30)
-04. DJ Rostej - Minutes of Stories  (2:46)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6884D2525F4E2BCB01E440CD7FDB4518C5FAF34B
 ```
 
 

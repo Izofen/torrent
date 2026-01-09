@@ -1,3 +1,165 @@
+###  Публикация: 1488968   (1001453) от 13.08.2021
+
+Aeon Cub - Vacant King (2021) Kaer'Uiks [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Abstract>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Vacant Lot (02:52)
+ 02. Scrap Sailing (02:14)
+ 03. Character Creation (00:31)
+ 04. Body For Barter (00:37)(   Читать дальше...   )Жанр: IDM, Glitch, AbstractПродолжительность: 00:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2255D408F08BC7F4828D0326C67FF6BFCA79C70F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488613   (1001455) от 13.08.2021
+
+VA - Lotus Love: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ann Grace - Intromotion (1:35)
+02. La Estación Del Mar - Un Bano En El Lago (4:45)
+03. Slow World - Deep Inside (Original Mix) (5:21)
+04. Der Waldläufer - Yanaras Light (Original Mix) (4:34)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A905B4800A84C0B281FC2921D9ABB72E698396B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488934   (1001456) от 13.08.2021
+
+Dopefist - Nice Dreams (2019) Gated [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Acid, Breaks>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am Intimidated You Colourful Sound (02:41)
+ 02. Nice Dreams (04:07)
+ 03. Sea Salt (04:18)
+ 04. Naramata (04:04)(   Читать дальше...   )Жанр: Electro, IDM, Acid, BreaksПродолжительность: 00:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF4C70841539EF491C13F9A40ABF304A3844BE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 723160   (1001526) от 12.01.2020
+
+Dmitriy Redko (AstroPilot, Manifestor, Yoga Mantra) - Discography 85 Releases (2007-2019) [FLAC|Lossless|tracks+.cue, tracks]<Psybient, Ambient, Downtempo, Progressive Trance, Psy-Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manifestor & Trylon - Absurd (06:47)
+ 02. Manifestor & Trylon - Dark Hour (07:22)
+ 03. Manifestor & Trylon - Escape (07:22)
+ 04. Manifestor - Beyond Illusions (Static Illusion Remix) (09:23)(   Читать дальше...   )Тип издания: CD, WebЖанр: Psy-Trance/Progressive TranceПродолжительность: 94:14:28 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28AF9FD68FFB68BE402859C83B8CB05175107B1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352005   (1001599) от 12.01.2020
+
+Bobina - 15 Years: The Best Of, Vol. 1 (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Belong To Me (Remaster 2019) (3:33)
+ 02. Invisible Touch (Remaster 2019) (Ferry Corsten's Touch) (3:49)
+ 03. Addicted (2:47)
+ 04. Rocket Ride (Remaster 2019) (3:56)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CF42FD5007905D33C45DFB892274E5233932EB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351900   (1001684) от 12.01.2020
+
+VA - Ushuaia Ibiza The Album: 5th Anniversary (2015) 2CD [FLAC|Lossless|tracks + .cue]<Deep, Electro, House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gotsome - Just A Feeling ( Franky Rizardo Remix )
+02. Emanuel Satie - Cold Sweat
+03. The New Sins - Lights Down ( Waze & Odyssey Remix )
+04. Tensnake - The Walk(   Читать дальше...   )Жанр: Deep, Electro, House, TechnoПродолжительность: 02:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAB078CCA3BD234D5A00B4A00E3F9C83A0ED18E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488663   (1001743) от 12.08.2021
 
 V.A. - Bossanova Lounge (2021) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Lounge>
@@ -528,165 +690,6 @@ Steve Pickton | Stasis - Discography 19 Releases (1993-2021) [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1C629831C02D21490F6E7BED060574D47049B0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487917   (1002826) от 08.08.2021
-
-Saive - Closer (2021) Click Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saive - Closer (06:37)
- 02. Saive - Stay (08:38)
- 03. Saive & Jan Bleidorn - Unknown Land (08:28)
- 04. Saive & Kleiber - Cyode (06:14)Жанр: Tech House, Progressive HouseПродолжительность: 00:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:885152DC953E0C021160FAAFE0AD50AB21CA9F72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487953   (1002856) от 08.08.2021
-
-LTN - The Path Of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nowhere To Run (3:56)
- 02. Zodiac Sign (ft. ENZO) (LTN Sunrise Mix) (3:12)
- 03. Happy Life (ft. Aelyn) (3:30)
- 04. Rise Like Smoke (ft. Kyler England) (LTN Sunrise Mix) (3:24)(   Читать дальше...   )Жанр: EDM, Progressive House, TranceПродолжительность: 01:10:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC3530CA6128656FDD1AFAEF1490E7D054920BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035992   (1002955) от 07.08.2021
-
-Autumn Of Communion - Discography 28 Releases + Box Set 20 Releases (2012-2021) ...txt [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Space, Psybient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High,Just As High And Third (59:44)Тип издания: CD, WEBЖанр: Ambient, Space, Psybient, Experimental, Techno, Drone •Продолжительность: 55:15:11 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA8B2C9C33EB77D3AD27DCB0D2FCE97332D91FE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350791   (1002960) от 07.01.2020
-
-Pleiadians - Pyramid (2019) [FLAC|Lossless|WEB-DL|tracks] <Psytrance, Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pleiadians - New Dimension (09:19)
-02. Pleiadians - Virtual Reality (08:54)
-03. Pleiadians - Pyramid (08:30)
-04. Pleiadians - Alien Artifact (08:10)(   Читать дальше...   )Жанр: Psytrance, Goa TranceПродолжительность: 01:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E808F6DC56F3D567D97B83AC44DBA631FADD2B79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350743   (1002988) от 07.01.2020
-
-Iris - Siх (2019) [FLAC|Lossless|image + .cue] <SynthPop, SynthWave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Third Strike
-02. Joy Kill
-03. Feeder
-04. Silent(   Читать дальше...   )Жанр: SynthPop, SynthWaveПродолжительность: 00:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4877E13A9945CECA8C7CE26110D634E9056CFF79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350670   (1003000) от 07.01.2020
-
-Sole Massif & Jacob Newman - Santraukos (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Field recordings>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santrauka I [08:00]
-02. Santrauka II [04:17]
-03. Santrauka III [03:46]
-04. Santrauka IV [04:00]Жанр: Ambient, Experimental, Field recordingsПродолжительность: 00:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:592DC8D2B904D750CF8A835D918FFAC4E5D64A58
 ```
 
 

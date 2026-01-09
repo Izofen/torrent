@@ -1,3 +1,30 @@
+###  Публикация: 1410598   (1029142) от 25.02.2021
+
+The Rolling Stones - Best of the Best (1965-1973) Remaster SMRP, De-Noised, 2020 [MP3|320 Kbps] <Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-(I Can't Get No) Satisfaction (1965) (03:45)
+02-Play With Fire (1965) (02:16)
+03-As Tears Go By (1965) (02:47)
+04-I've Been Loving You Too Long (1965) (02:57)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ABB13B3104758D52627CA7691DDE1E999F51006
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450175   (1029183) от 25.02.2021
 
 VA - Loud Hits Of The 90s (2021) [MP3|320 Kbps] <Pop, Dance, Rock>
@@ -668,33 +695,6 @@ VA - 90s Megamix (Vol.05) (2021) [MP3|256-320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B031F84FCD634962B4D2082E141C4D1C1D44AA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449114   (1029976) от 21.02.2021
-
-VA - Vocal Deep & Chill House 2021 [MP3|320 Kbps] <Vocal Deep, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029976.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Seb Wiggins - Look At Me (2:15)
-002. Jordan Jay - Baby (Ride Into The Sun) (2:14)
-003. offrami, BASE - Ridin (2:22)
-004. Simon Field, SverreV - La La La - Verano 2018 Remix (2:24)(   Читать дальше...   )Жанр: Vocal Deep, Chill HouseПродолжительность: 06:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6440067BDE4D19948535EE28BC3F42ADAB59D8E2
 ```
 
 

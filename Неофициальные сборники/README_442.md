@@ -1,3 +1,30 @@
+###  Публикация: 1026339   (704073) от 15.06.2016
+
+VA - Trip to Ibiza 2014 - Soulful Deep-House. Volume 1: by Day (2016) [MP3|320 кб/с] <Deep-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Alter - Be the First  05:58min
+02. Cyclist & Maiko - Sunrise (original club mix)  05:04min
+03. Serkan Turkoglu - Zagzagel  06:35min
+04. Andy Lansky - Barcelona Cab Driving  07:04min(   Читать дальше...   )Жанр: Deep-HouseПродолжительность: 04:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA3C12ECCC00AAE7B231A1FEE627C1877F40D055
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220384   (704192) от 19.04.2018
 
 VA - Hits of My Soul Vol. 34 (2018) [MP3|320 кб/с]<Trap>
@@ -677,33 +704,6 @@ VA - Драйвовый молодежный весенний музон вып�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0339EFC21C6974BD342D7BF07DC4F68B2B3BF06D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287174   (705521) от 06.03.2019
-
-VA - Red Sea Gruves (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705521.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rеd Sеа Grооvеs - Thе Futurе Is Unwrittеn
-002. Gt 55 - Rеd Cоlоr
-003. Sоul Brоthеrs - Summеr In Thе Citу
-004. Piеr 17 - Dосk (Originаl Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 08 :00 :11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0D6B1EC51E938CBF79673C29BB0E7C9517726F0
 ```
 
 

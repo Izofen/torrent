@@ -1,3 +1,165 @@
+###  Публикация: 1014828   (921558) от 18.08.2021
+
+Jon Hopkins - Discography 41 Releases (2005-2021) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, Modern Classical, IDM, Techno, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Lukas Boysen - Sleepers Beat Theme (02:11)
+ 02. Darkstar - Hold Me Down (03:39)
+ 03. Holy Other - Yr Love (04:21)
+ 04. Teebs - Verbena Tea (feat. Rebekah Raff) (04:18)(   Читать дальше...   )Тип издания: CD, Vinyl, WebЖанр: Ambient, Downtempo, Modern Classical, IDM, Techno, Experimental •Продолжительность: 22:47:03 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA79D4AE734B792D4558CECF92333F108B42CFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110724   (921896) от 18.08.2021
+
+Aukai - Discography 10 Releases (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Acoustic, Neo-Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rekindle (04:51)
+ 02. Afternoon Moon (02:26)
+ 03. Waves (04:25)
+ 04. Soplo Del Sueno (05:23)(   Читать дальше...   )Тип издания: WEB •Жанр: Acoustic/Modern Classical/AmbientПродолжительность: 00:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1983A7238FF63CFD3B90B1B00CD3B6E7E4358F58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252942   (921991) от 18.08.2021
+
+R.Hz - Discography 53 Releases (2016-2021) Ubertrend Records, Toxic Recordings [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starry Sky (09:36)
+ 02. Steam (07:19)
+ 03. Scatter (06:50)
+ 04. Comb (06:34)Тип издания: WebЖанр: Dub Techno, Ambient, Techno •Продолжительность: 28:06:27 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83660884DAE8A226FBAB315110A2F41B12856251
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212075   (922000) от 18.08.2021
+
+Arandel - Discography 13 Releases (2010-2021) Infiné [FLAC|Lossless|tracks+.cue, tracks] <Techno, Experimental, House, Modern Classical, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doxa Notes (feat. Myra Davies) (05:27)
+ 02. Fabula (feat. Scalde) (04:38)
+ 03. Capriccio (03:16)
+ 04. Pr?ludium (03:23)(   Читать дальше...   )Тип издания: CD, WebЖанр: Techno, Experimental, House, Modern Classical, Minimal, Ambient •Продолжительность: 08:27:47 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC5643B0AC1C22A14F58714ECB9CC3F71E4A9EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301004   (922008) от 18.08.2021
+
+The Alchemical Theory - Discography 11 Releases (2018-2021) Annulled, Illegal Alien Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Athanor (07:10)
+ 02. Elementa (09:38)
+ 03. Ignis (06:07)
+ 04. Sol (08:00)Тип издания: WebЖанр: Techno, Ambient, Experimental •Продолжительность: 06:31:50 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6790B25F70B5B5DDEC015B151D8AC38B8028AD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366661   (922114) от 12.03.2020
+
+VA - Psychill Blossom, Vol. 1 (Compiled by Dense) (2020) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Psychill, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dense & Fourth Dimension - Dawn (John Spanos Remix) (09:44)
+ 02. Germind - Invention Of Proportions (06:01)
+ 03. Side Liner & Aviron - Human, Complete Me (07:16)
+ 04. Cayo Largo - Fotonion (05:18)(   Читать дальше...   )Жанр: Psybient, Downtempo, Psychill, AmbientПродолжительность: 01:16:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC6BC2A764F43FEAB432FF8557D01D9F60087C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366539   (922465) от 12.03.2020
 
 ASOK - MISTRESS 14 (2020) Mistress Recordings [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro>
@@ -536,168 +698,6 @@ Hollan Holmes - Discography 7 Releases (2010-2020) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE2354CBC861305045AD4C512F9ABEF8B524C255
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366381   (923737) от 11.03.2020
-
-Junkie XL - The Racing Collection (2018) [MP3|320 кб/с] <Electronic, Breakbeat, Glitch, House>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923737.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:50| 01. Apex
-|02:50| 02. Disclosed
-|03:28| 03. DRS Engaged
-|03:00| 04. Finish Line(   Читать дальше...   )Жанр: Electronic, Breakbeat, Glitch, HouseПродолжительность: 00:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED9FD9AF46884CF9938E54296E650CE1A8D0D5B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489701   (923748) от 17.08.2021
-
-VA - Vajra (Compiled by Josko) (2006) Indica Music [FLAC|Lossless|tracks+.cue] <Psychill, Dub, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gaudi - Lunar Patchouli (05:14)
- 02. Cell - Idea Spiral (07:12)
- 03. Tripswitch - Cumulus (09:54)
- 04. Mauxuam - Sounds A Lot (07:52)(   Читать дальше...   )Жанр: Psychill, Dub, Downtempo, AmbientПродолжительность: 01:08:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB5BA05B74683DFE5E000998DFDA6464294218A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489757   (923838) от 17.08.2021
-
-Martin Sturtzer - The Stellar Winds (2021) Echo Elberfeld [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, IDM, Psybient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atmosphere (10:40)
-02. NGC 6565 (08:25)
-03. Energy Scale (07:58)
-04. Kaskade (10:28)(   Читать дальше...   )Жанр: Ambient, IDM, PsybientПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732C1677E6C596A78EC8D820E30B56746E18C8E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489756   (923846) от 17.08.2021
-
-Transponder - Terminae Space (2021) Exosphere [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Berlin-School>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atlas (07:30)
-02. Aegis (04:48)
-03. Terminus Worlds (06:58)
-04. Outer Halo (07:22)(   Читать дальше...   )Жанр: Ambient, Berlin-SchoolПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:133C993750C8D80B757B4A8041A8D51087F65FCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366276   (923901) от 11.03.2020
-
-VA - Goa - The Power of Shiva, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923901.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. VA - Goa - The Power Of Shiva Vol 1 (continuous DJ mix 1) (1:17:08)
-2. VA - Goa - The Power Of Shiva Vol 1 (continuous DJ mix 2) (1:16:15)
-3. Neelix - You Can Change the World (Alex M.O.R.P.H. Remix) (7:23)
-4. Reality Test; Off Limits - Daga Dagom (Original Mix) (5:56)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 05:30:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB0603AF617BA888F9D35B6893FFA039FB3927D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366286   (923902) от 11.03.2020
-
-Aviators - The Cinematic Future (2020) [MP3|~278 Kbps (V0)] <Synthpop, Alternative, Cyberpunk>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cities In The Distance (Feat. Nirre) [07:07]
-02. Dark Star [05:36]
-03. Glow [05:28]
-04. Ghosts Of Our Fathers [05:56](   Читать дальше...   )Жанр: Synthpop, Alternative, CyberpunkПродолжительность: 01:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5AD241BAB61E4D9BBA24BD633E07CD42D2A2FB5
 ```
 
 

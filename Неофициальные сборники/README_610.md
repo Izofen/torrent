@@ -1,3 +1,30 @@
+###  Публикация: 1096676   (917774) от 25.01.2017
+
+VA - Зимние лучшие блатные песни Выпуск № 4 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917774.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Серафимов - А Ты Такая Разная 3:42
+002. Инна Улановская - Я Не Вижу Тебя 3:54
+003. Александр Федорков - Листья Падают 3:36
+004. Даниил Сорокин - Сестра Милосердия 4:07(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B6FBAA41D875C7E983C3B51C74E140CA04FBE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096701   (917792) от 25.01.2017
 
 VA - Полный отрыв. Выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
@@ -668,39 +695,6 @@ VA - Electro Life 23 (by ZiP)(2013) [MP3|320 kbps]<Electro House, Progressive Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1AE3AEA64FE2B2EA0EBB76E050AFD2519CA6470
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 630484   (919818) от 20.03.2013
-
-VA - New Street Music One (2013) [MP3|320 кб/с]<Glitchhop, Trap>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919818.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Baauer - Harlem Shake
-2. BeazyTymes - Drop It Low
-3. Brass Knuckles - Bad Habits (Renegades Trap Remix)
-4. Candyland feat. Maksim vs. Mako - All You Gotta Do
-5. Carvar feat. Clock - Miskatonik
-6. CJuicy - Hammered
-7. Creaky Jackals - My Mind
-8. Delhi 2 Dublin - Turn Up The Stereo (The Funk Hunters Remix)
-9. Dj Muggs feat. Chuck D - Wikid (6Blocc remix)
-10. Flosstradamus - Rollup (Baauer Remix)(   Читать дальше...   )Жанр: Glitchhop, TrapПродолжительность: 01:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E55B26CB000339D6F0D980A1D9BBB7DC9FCDF05
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1547716   (602422) от 29.04.2022
+
+VA - Beautiful Vocal Trance - Chapter 8 (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zetandel - Higher Ground (Costa & Aurosonic Remix) (3:44)
+02. Trance Classics - A Day Without Rain (Costa Remix) (3:39)
+03. 4 Strings - Enough (Radio Edit) (3:28)
+04. 4 Strings - Completely (2:49)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:26:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1822D7B389E2DD46FB8767611891F341F36FE4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149162   (602503) от 09.07.2017
 
 Escape With Romeo - 5 Albums (2002-2015) [FLAC|Lossless|image + .cue] <Synthpop, New Wave>
@@ -666,33 +693,6 @@ Edgey - Discography 8 Releases (2002-2016) Hands Productions [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C40056885C3E6D0BB974A66C6ADB87403DFEC903
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231975   (603275) от 21.06.2018
-
-Fieldtriqp - Eidolon EP (2005) Experimedia [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. False Start (02:51)
-02. Eidolon (02:42)
-03. You Should Go See It (04:06)
-04. Lost City Sidewalks (04:01)(   Читать дальше...   )Жанр: IDM, AmbientПродолжительность: 00:18:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E287695F56C175D0C77BB26C70AB182BB3BE86DD
 ```
 
 

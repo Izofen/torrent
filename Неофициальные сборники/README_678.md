@@ -1,3 +1,30 @@
+###  Публикация: 1445960   (1033303) от 07.02.2021
+
+VA - Minimal Jam: Techno Clubbing Set (2021) [MP3|320 Kbps] <Minimal, Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличная подборка клубного электро техно от известных ди-джеев европы. Лонгплей наверняка будет интересен поклонникам жанра и просто слушателям, которые находятся в постоянном поиске чего-нибудь нового из мира электронной музыки.001. Jks - Emergence
+002. Lorenzo Colombini - Pasec
+003. Melt - Centrum Beats
+004. Pure Infinity - Pulse(   Читать дальше...   )Жанр: Minimal, Techno, Tech HouseПродолжительность: 11:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C2BB69DF0827DD0C7862B338FC208E1A1F2F2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445881   (1033307) от 07.02.2021
 
 VA - Event Of The Week: Progressive Trance Mix (2021) [MP3|320 Kbps] <Progressive Trance>
@@ -668,33 +695,6 @@ VA - Best New Electro: Tech House Party (2021) [MP3|320 Kbps] <Tech House, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C31BD4D869523C7627B6A4F9597E3DB1978EB80B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444789   (1034231) от 03.02.2021
-
-VA - Intensity: Trance Compilation (2021) [MP3|320 Kbps] <Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторы сборника "Intensity" объединили свои силы, чтобы достичь нового уровня "Интенсивности", так называется представляемый Вашему вниманию новый транс-сборник, с мощными психоделическими звуками и массивной ударной базой, где нет места милосердию и сладкой лирике.001. Salvatore Mascaro - Isabel
-002. Indecent Noise - Pictures Of A Gallery
-003. Above & Beyond - On My Way To Heaven
-004. Vyacheslav Sketch - New Life(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 08:20:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D7D5719385DA47E3935A59464320C08BA16BEF4
 ```
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1366041   (925526) от 10.03.2020
+
+VA - Absurd Idea (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Xie Product - Dub 13 [03:54]
+02. The Qub - One More [05:42]
+03. Bad Signal - Tarantula [04:11]
+04. Cubsonic - Summer Breath [05:14](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250184D894A90AA356A4C2CCDA56F6B58BC0EF44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366040   (925607) от 10.03.2020
+
+VA - Segment (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Emotion - Horseman [05:01]
+02. Axedent - Thousand Planet [06:04]
+03. Keri Beats - Take Me [08:16]
+04. Badline - Lost World [03:54](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:172C320553FD6925B27934A2159E56481CF9FB83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366039   (925615) от 10.03.2020
+
+VA - Lush Buns (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Area - Mad Funk [05:16]
+02. Massa Under - Minigun [04:09]
+03. Total Destruction - Jigsaw Killer [06:11]
+04. Infecta - Space Odyssey [04:58](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0B18C3CAC414D6780A7B327E6464F27ECF7E498
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366037   (925620) от 10.03.2020
+
+VA - GRL GANG Presents: RIOT! (2020) [MP3|320 Kbps] <Dirty Dubstep, Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JEANIE - Inferno [02:14]
+02. Lizzy Jane - High Again [03:28]
+03. Jinx - Make You Mine [03:18]
+04. Risik - QUEEN BITCH [02:54](   Читать дальше...   )Жанр: Dirty Dubstep, Drum & BassПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9129DB4D47A545E4527054CD8E69456CA6593F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366038   (925631) от 10.03.2020
+
+VA - Halva (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Art Pryde - My Winter [04:38]
+02. System Chaotica - X Files [05:10]
+03. Andrey Aryutkin - Motion [05:06]
+04. Fireblade - Your Depressions [05:46](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19953174CBDBB5B5DC819858C1D23EB7BB0FB263
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366030   (925725) от 10.03.2020
+
+X-Dream - X-Dream Remixed (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925725.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Radio (Eat Static Remix) (7:44)
+2. Out Here We Are Stoned (Shpongle Remix) (6:18)
+3. Our Own Happiness (Dickster Remix) (9:10)
+4. Parent Plant (Sybarite Remix) (8:30)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADFDC4F01080F6A6247C45A973DDD25DBE1CA66F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366147   (925728) от 10.03.2020
 
 V.A. - Coffee Bar Lounge, Vol. 17 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Downtempo>
@@ -531,168 +693,6 @@ VA - Wind In The Field (Downtempo Series)  Vol.005 (2017) [MP3|320 Kbps] <Chillo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:112B1362E9C4AE55A6A6964CCBCC713ADEA9011B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365770   (929010) от 08.03.2020
-
-Evanton - Flavors - The Best Of Evanton Vol.2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Italo-Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swept Away (3:40)
-02. Cloning The Droid (4:43)
-03. Cosmic Juice (5:25)
-04. Micro Disco (6:08)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Italo-DiscoПродолжительность: 01:19:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE4690A23E652CB887929691D8B35B9B9000C46F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365768   (929011) от 08.03.2020
-
-Evanton - Stretch It (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Italo-Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magnetron (Marathon Mix) (7:12)
-02. Swept Away (Extended Remix) (5:24)
-03. Electric Eyes (Extended Version) (6:29)
-04. Funky Times (Maxi Version) (7:12)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Italo-DiscoПродолжительность: 03:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE30A2987067CB7F344AA8CF82A1A29B3EEB68A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365553   (929014) от 08.03.2020
-
-Atongmu - Voice of the Sky (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Progressive Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929014.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Atongmu - Don't Hold Back (7:02)
-2. Atongmu - Bubble Burst (6:31)
-3. Atongmu - Truth, Justice & Action (6:27)
-4. Atongmu - Adventures On The Moon (6:58)(   Читать дальше...   )Жанр: Psy-Trance, Progressive Psy-TranceПродолжительность: 01:21:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C4A770FB81D81DF24893A51C23F7BDB0A3D813
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365769   (929019) от 08.03.2020
-
-Evanton - Colors - The Best Of Evanton (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Italo-Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saga (5:46)
-02. Barbarella Reloaded (4:13)
-03. Love In Rimini (4:24)
-04. Fancy Lady (4:06)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Italo-DiscoПродолжительность: 01:22:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4F15D5239E7516CA06068AA59A5E96F1C70DDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365554   (929142) от 08.03.2020
-
-Sixsense - Energy Source (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Progressive Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929142.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Astro Blast (6:04)
-2. Automatix (6:54)
-3. Digital Giza (7:16)
-4. What There Is (6:44)(   Читать дальше...   )Жанр: Psy-Trance, Progressive Psy-TranceПродолжительность: 01:07:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E99A7BD476D24F86E250FA8C572725DB08C33FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365683   (929147) от 08.03.2020
-
-Paul Pearson - Live @ Subteran, Joshua Brooks Manchester, United Kingdom 2020-02-29 [MP3|320 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JoC H - Puertas
-02. Dmitry Molosh - Ambition
-03. Matt Fax - Light On(Extended Mix)
-04. Paul Thomas & Jerome Isma-Ae - Tomorrow(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 01:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C31F0C455C7E26275B5BCF7CA433E16B1154F75
 ```
 
 

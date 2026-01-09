@@ -1,3 +1,30 @@
+###  Публикация: 1488680   (1001617) от 12.08.2021
+
+VA - 100 Greatest Heavy Metal Songs (2021) [MP3|320 Kbps] <Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Sabbath - Paranoid (2012 - Remaster)
+02. Metallica - Master of Puppets (Remastered)
+03. Iron Maiden - Hallowed Be Thy Name (1998 Remaster)
+04. Black Sabbath - Iron Man (2012 - Remaster)(   Читать дальше...   )Жанр: Metal, RockПродолжительность: 09:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68EC110D8934C6B3C11EF0F8D39D59C4EB8E2B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488461   (1002038) от 11.08.2021
 
 VA - Grooveyard Records: The Sound Of Guitar Rock - Best Of (2021) Volume Five [MP3|320 Kbps] <Blues Rock, Hard Rock>
@@ -668,33 +695,6 @@ VA - Classic Rock timeless! 2 (2020) 2CD [MP3|320 Kbps] <Hard Rock, Classic Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F4E80E40C05509609640A016F4E108D99793914
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350464   (1002931) от 07.01.2020
-
-VA - Chill Cristmas Lounge (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002931.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Svendaq - Audience Loops
-002. Maximilien - Crazy Vocoding
-003. Too Ugly - Shootouts
-004. Mofobeatz - Swisong(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:25:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E096247D699A82672710D4A5B912A1AEFE2DF81
 ```
 
 

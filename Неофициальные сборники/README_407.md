@@ -1,3 +1,30 @@
+###  Публикация: 1139958   (656690) от 05.06.2017
+
+VA - Record Super Chart #489 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Martin Garrix & Brooks - Byte 4:45
+02.  Yellow Claw & Moksi feat. Jonna Fraser - Open 3:31
+03.  Matt Nash - Know My Love 4:23
+04.  W&W - Put EM Up 4:20(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7182BA969265B74028321792C51BECE754D20D05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140229   (656753) от 05.06.2017
 
 VA - The Horizont Of Bliss (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge, Relax>
@@ -707,33 +734,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1637C2DF62454C7BA03D67FFBC925702D98A6771
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225901   (657755) от 18.05.2018
-
-VA - 150 Sport Dance Music (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657755.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Walker - Faded
-002. Calvin Harris feat. Pharrell Williams, Katy Perry & Big Sean - Feels
-003. Shawn Mendes - Stitches
-004. The Chainsmokers feat. Daya - Don't Let Me Down(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:13:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96E317303FF51EBC793E9BDAD71B153CE67A2AE5
 ```
 
 

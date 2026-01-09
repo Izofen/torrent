@@ -1,3 +1,30 @@
+###  Публикация: 862011   (931367) от 22.01.2015
+
+VA - Дискотека 80-90 годов по - новому от Виталия 72 - Часть- 4 (2015) [MP3|313 - 320 кб/с]<Eurodance, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Ashley - Touch By Touch
+02. Dieter Bohlen - Love Me On The Rocks (Dj Alex Dolce Remix )
+03. Disco Service - Come And Dance
+04. A-Ha - Early Morning (DJ Amure Remix )(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:29:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44ECC9D23F7F7B29FBAF8D3C77C32165BA742DA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986059   (932073) от 13.02.2016
 
 VA - Рок впрок 5 (2016) [MP3|320 kbps] <Рок, Поп-Рок>
@@ -668,33 +695,6 @@ VA - Renegade Singles Reviews (Trance Pack 10-01) (2017) [MP3|320 Kbps] <Trance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E808D67B016BC329467513256832143E83C2AEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093636   (933893) от 15.01.2017
-
-VA - Club Dance Ambience Vol.98 (2017) [MP3|320 Kbps] <Dance, Club, Club House, House, Electro House, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet & Sour - Good Times (Original Mix)
-02. MK Ft. A-M-E - My Love 4 U (Extended Mix)
-03. Stuckey - Funkers (Extended Mix)
-04. Aanysa - Burn Break Crash (Madison Mars Extended Remix)(   Читать дальше...   )Жанр: Dance, Club, Club House, House, Electro House, ElectroПродолжительность: 08:09:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5FC47BC68C61F9ABB019D034BAB8C5C0D7005D3
 ```
 
 

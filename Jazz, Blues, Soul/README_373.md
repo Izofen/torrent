@@ -1,3 +1,219 @@
+###  Публикация: 1149632   (600291) от 11.07.2017
+
+VA - Jazz for Reading Poetry: Soft Relaxing Jazz (2017) [MP3|320 Kbps] <Jazz, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gentle Music Collection - Jazz for Reading Poetry
+02. Emotional Jazz Consort - Smooth Jazz for Studying
+03. Sentimental Piano Music Oasis - French Poetry
+04. Piano Bar Music Oasis - Silence Song(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 01:24:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630FBFF8FC32C384D35907418BE1EB2B235E2261
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914164   (600358) от 01.07.2015
+
+Rigmor Gustafsson - When You Make Me Smile (2014) [FLAC|tracks+.cue]<Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Me Lonely [03:32]
+02. Forget About the Moonlight [03:03]
+03. A Different Kind [02:56]
+04. If Dreams Are Made of Sand [03:37](   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5CC2D01D0EB2D569D708D6D2E5EE2A527CBFDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913543   (600360) от 01.07.2015
+
+Budda Power Blues - Budda Power Blues (2015) [MP3|320 кб/с]<Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wanna Please My Baby (4:20)
+02. Tony My German Friend (3:53)
+03. I Feel So Blessed (Feat. Maria Joao) (4:50)
+04. I've Been Down (3:52)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DFC7310A892C78F90A965360519283EC1838986
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149547   (600370) от 11.07.2017
+
+VA - Songs For A Lazy Sunday (2001) 2CD, Rajon Music Group [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Bop, Piano Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600370.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Duke Ellington - The Mood To Be Wooed [03:01]
+02. George Shearing - September In The Rain [03:16]
+03. Sarah Vaughan - It Might As Well Be Spring [03:14](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Bop, Piano Jazz, Hard BopПродолжительность: 01:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE75517D811B0EAF285DC755DE4EAD408BDD0D40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149537   (600375) от 11.07.2017
+
+Lionel Hampton - Jazz Time Paris vol.4, 5 & 6 (1953) Remaster, 2017, Sony Music [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free Press Oui [12:58]
+02. Blue Panassie [13:23]
+03. Real Crazy [09:34]
+04. I Only Have Eyes for You [03:34](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DCBFFBAD77FEA0DB855C4CF3EE561905296BE89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299097   (600760) от 30.04.2019
+
+Julian Sas - Stand Your Ground (2019) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runnin' For The Money
+02. Don't Let Me Down
+03. Stand Your Ground
+04. Anything(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB28B4E984B4116F5B4215F54909339AAAD59043
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299137   (600855) от 30.04.2019
+
+Cindy Blackman - Arcane (1988) Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arcane [5:19]
+02. Late Autumn [5:50]
+03. Dual Force [6:37]
+04. Incindyary [4:39](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF86BF71277CA1EB87C349DCC7B82F30A88773A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149450   (601108) от 10.07.2017
+
+VA - Cocktail Jazz (2017) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Coltrane - I'll Wait and Pray (03:28)
+02. Nina Simone - If I Should Lose You (Remastered) (03:59)
+03. Milt Jackson - The Nearness of You (05:18)
+04. Acker Bilk - Caravella (02:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2BB55C54632129E14A4DB8083FE1533928237AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913459   (601131) от 30.06.2015
 
 The Crawls - Lie (2015) [MP3|320 кб/с]<Rock, Blues, Garage>
@@ -479,222 +695,6 @@ Dave Frishberg - Let's Eat Home (1990) Concord Jazz [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6A3E98DAE4BB41E89DC28FEA5DDB1FD143654B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547808   (601972) от 30.04.2022
-
-Jane Lee Hooker - Rollin (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucky [04:55]
-02. Drive [04:19]
-03. Jericho [04:03]
-04. Weary Bones [03:36](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00: 32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77678D9C656EA6E1F19E52A8B24C07284B0FDADB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547807   (601980) от 30.04.2022
-
-Rory Gallagher - Live In San Diego '74 (2022) Live At The San Diego Civic Center, CA, USA, 1974 [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Messin' With The Kid
-02. Cradle Rock
-03. I Wonder Who
-04. Hands Off(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C879EEA41B222C0141E47108E1026F1FA10E055B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547995   (602005) от 30.04.2022
-
-Parov Stelar - Moonlight Love Affair (2022) [FLAC|Lossless|image + .cue] <Nu Jazz, Electro Swing, Electronic>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Его настоящее имя - Marcus Füreder, его сценический псевдоним - Parov Stelar. Он популярный австрийский DJ, основатель группы The Parov Stelar Band и создатель лейбла Etage Noir Recordings.Marcus родился 27 ноября 1974-го года в Linz, Austria, и с самого раннего детства увлекался музыкой. Впрочем по-настоящему о музыкальной карьере Marcus задумался позднее, (   Читать дальше...   )01. Candy Girl feat Vallemarie (2:43)
-02. AKH Odessa feat The Russian Gentlemen Club (4:01)
-03. Toxic Lover (2:57)
-04. Fire (2:35)(   Читать дальше...   )Жанр: Nu Jazz, Electro Swing, ElectronicПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C81591E2AADC3A650C6BA4D1FEAF80C06314CFB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547658   (602021) от 30.04.2022
-
-Jazz Relax - Smooth Jazz Piano (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Jazz Club (2:27)
-02. Whisky at the Jazz Bar (3:45)
-03. Jazz Romance (3:14)
-04. High Rise Bar (2:46)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:806ED422946A95791E82093075EA09D61553ED19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547868   (602048) от 30.04.2022
-
-Budapest Ragtime Band - The Best Of (2001) 2CD, BRB Records [FLAC|Lossless|tracks + .cue] <Dixieland, Ragtime>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602048.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Maple Leaf Rag [2:57]
-02. Scott Joplin's New Rag [3:44]
-03. The Ragtime Dance [3:04](   Читать дальше...   )Жанр: Dixieland, RagtimeПродолжительность: 01:53:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1FF62CB37344A4F39CEA6EB8E7CF89D135716F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547694   (602053) от 30.04.2022
-
-Red Mitchell & Jimmy Rowles - Red'N Me (1978) 1991, Dreyfus [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mama G. [6:38]
-02. In the Middle of a Kiss [4:44]
-03. The Persian [6:13]
-04. The Woman in the Shoe [4:33](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E47490D979C1D5674616FB18F2522B5B922B17D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149058   (602483) от 09.07.2017
-
-The Swagger Kings - Rock 'N' Twang (2017) [MP3|320 Kbps] <Retro Blues, Jump, Rockabilly>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01. Honey Darlin' Please (Feat. Michael Adrian) (03:04)
-02. Baby Doll's (03:47)
-03. Broken Hearted (03:33)(   Читать дальше...   )Жанр: Retro Blues, Jump, RockabillyПродолжительность: 01:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8738F5901C021F2533B49B649E4A7A073A882729
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149201   (602579) от 09.07.2017
-
-Aynsley Dunbar - Mutiny (2009) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  La Do Da  (03:35) 
-02.  For What It's Worth  (04:51) 
-03.  Juicy John Pink  (04:58) 
-04.  Chung's Revenge  (05:24) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1699AB70F20BC4154A20FE9FD0A25BC218FA5F05
 ```
 
 

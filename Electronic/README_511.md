@@ -1,3 +1,162 @@
+###  Публикация: 1457246   (1024615) от 25.03.2021
+
+Joi Lau - 3 UR Mind (2021) Klasse Wrecks [FLAC|Lossless|tracks+.cue] <Breakbeat, House, Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Need Is (05:50)
+ 02. Bipolar ( Dark Zone Version ) (06:22)
+ 03. Desert Core ( Extended Version ) (09:00)
+ 04. Exotic Beat (06:19)(   Читать дальше...   )Жанр: Breakbeat, House, BassПродолжительность: 00:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0090866B8039FAE36DCB1CE9FDBC6D560F41C7DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457303   (1024626) от 25.03.2021
+
+Leitstrahl - Chromium Dioxide (2021) [MP3|320 Kbps] <Nu Disco, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Telemark [00:05:56]
+02 - Chevrolée [00:05:50]
+03 - Orbit Anthem [00:05:32]
+04 - Europa Supersaw [00:05:57](   Читать дальше...   )Жанр: Nu Disco, SynthpopПродолжительность: 01:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B481CE72AB9DC951E2F0D7B5598B7989A0A78E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456954   (1024785) от 24.03.2021
+
+VA - Main Control Board (2010) Lagunamuch Community [FLAC|Lossless|tracks+.cue] <Leftfield, IDM, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indu Mezu vs Flagra - The Game (05:25)
+ 02. Speyer - Dust (05:42)
+ 03. Riverz End - Triangle Man (03:33)
+ 04. Abstract Avenue - Oxid (06:04)(   Читать дальше...   )Жанр: Leftfield, IDM, ExperimentalПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E7256E47A1A5B6E764EE1203106265ECA18C98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014804   (1024855) от 23.03.2021
+
+Andy Stott - Discography 23 Releases (2005-2021) [FLAC|Lossless|tracks+.cue, tracks ] <Techno, Bass, Grime, Ambient, Downtempo, Experimental, House, Abstract>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beginning (feat. Alison Skidmore) (04:31)Тип издания: CD, WebЖанр: Techno, Bass, Grime, Ambient, Downtempo, Experimental, House, Abstract •Продолжительность: 10:36:16 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA545A48E4BA5D6DA0AF1A8155C3B922807B8FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456300   (1024933) от 23.03.2021
+
+[ШтуRм] - Финал (2021) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Жизнь из железа [00:04:34]
+02 - Зомби-бомбы [00:04:36]
+03 - Мир в зеркалах [00:05:04]
+04 - Ночные дожди [00:05:04](   Читать дальше...   )Жанр: EBM, Dark ElectroПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5EF284C0A7A4F53169388F85D468CB29268E72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 202238   (1025025) от 22.03.2021
+
+Goldfrapp - Head First (2010) [FLAC|Lossless|tracks + .cue]<Electro, Synth-pop, Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocket 3:51
+02. Believer 3:43
+03. Alive 3:28
+04. Dreaming 5:07(   Читать дальше...   )Жанр: Electro, Synth-pop, DiscoПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B733A970C18A9BD99578924D74D11F5C990F2C96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406503   (1025082) от 22.03.2021
 
 Osamu Sato | 佐藤理 - Discography 18 Releases (1983-2020) Sony, Music Mine, Linen Records [FLAC|Lossless|tracks+.cue, tracks] <Experimental, IDM, Future Jazz, Ambient>
@@ -528,168 +687,6 @@ Lane 8 - Spring 2021 Mixtape (2021-03-16) [MP3|320 Kbps] <Deep House, Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0386CF16C06C6BF626EC470DE4CC3D5941594427
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118236   (1025865) от 17.03.2021
-
-Grad_U (Re_Grad) - Discography 32 Releases (2010-2021) Redscale, Greyscale [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Biomechanics (06:45)
- 02. Pawasaris Uzh Lango (04:41)
- 03. Earth's Core (06:42)
- 04. Bounce 06 (12:16)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Dub Techno, Ambient, Techno, Minimal •Продолжительность: 21:38:38 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A2C08DB402A4C8FAE579E82D1C58576C655C78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017980   (1025876) от 17.03.2021
-
-Funki Porcini - Discography 40 Releases (1995-2021) Ninja Tune [FLAC|Lossless|tracks+.cue, tracks] <Downtempo, Breaks, Future Jazz, Trip Hop, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Serious Understanding of the Gearbox (07:41)
- 02. Motorway Lullaby (08:17)
- 03. Overtaking Everything (07:20)
- 04. Motorway Mindmash (07:23)Жанр: Ambient/Future JazzПродолжительность: 23:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DD61406099EEF49E43797A69F78704B3378BA56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455072   (1025949) от 17.03.2021
-
-Dense - Reflux Compressor (2021) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Psychill, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spreading Resistance (07:21)
- 02. Altitude Control (05:18)
- 03. Reflux Compressor (06:02)
- 04. Overwhelming Spring (06:36)(   Читать дальше...   )Жанр: Psybient, Downtempo, Psychill, AmbientПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B008ED6047CBF04D1A5E200E0E02782663C985
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455108   (1025992) от 17.03.2021
-
-VA - Dub Techno (2021) ONESUN Yellow [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno, Tech House, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavenchord - The Future (06:48)
- 02. Mielafon - Truba (08:21)
- 03. Malkov & Kaygo Soul - Raw Rolling (Dub Mix) (07:06)
- 04. Andrey P. - Forest dances (07:15)(   Читать дальше...   )Жанр: Dub Techno, Techno, Tech House, AmbientПродолжительность: 02:10:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08FA709FFCF358B89626AE378D0E40239D8C91F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454875   (1025995) от 17.03.2021
-
-Mono Peninsula - Archangelsk (2021) ROHS! Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Dub>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Archangelsk (12:36)
- 02. Longyearbyen (06:07)
- 03. Malyje (04:18)
- 04. Eisbrecher (09:00)(   Читать дальше...   )Жанр: Dub Techno, Ambient, DubПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C8BF8884E379C86D37FFB14BF4001AB10849CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454728   (1026110) от 16.03.2021
-
-dISHARMONY - Resonance (2021) Aliens Production [FLAC 2.0|44.1/24|tracks|WEB-DL] <Industrial, IDM, Dark Electro, EBM, Ambient>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evacuation (01:37)
-02. Frozen Faces (Edit) (06:10)
-03. I'll Find The Way (03:27)
-04. Mantra (01:40)(   Читать дальше...   )Жанр: Industrial, IDM, Dark Electro, EBM, AmbientПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07512CCF33860E41FDD41CEF1CA8F0C431009644
 ```
 
 

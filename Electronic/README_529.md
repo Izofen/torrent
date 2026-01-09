@@ -1,3 +1,165 @@
+###  Публикация: 1440872   (1038282) от 19.01.2021
+
+VA - Elliptical Sun Recordings - (Mixed and Compiled by Leo Lauretti) (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Chris Giuliano - Dream You (Nick Hayes Extended Mix)
+02.Leo Lauretti & Taygeto ft. Giovanna Bianchi - Find My Own (Mind Of One Extended Mix)
+03.East & Atlas - Samoa (Apollo Nash Extended Mix)
+04.Elypsis - Adira (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F55F8B65DB3A05BA5111F736ECF707ECD16F2DE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614781   (1038363) от 23.02.2023
+
+Monflame - Voyager (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into the Dark [00:01:51]
+02. Play [00:03:27]
+03. Soma Dreams [00:03:51]
+04. Last Summer [00:04:07](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CF66A4A788D720EEB2E0F9B35AB5BDBC7AF6B11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614821   (1038366) от 23.02.2023
+
+VA - Black Hole Trance Music (02-23) (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somna - Hold You [02:48]
+02. LTN - Lone Wolf [02:56]
+03. Ram - Where I Want To Be [03:15]
+04. Markus Schulz - Prestwick [03:24](   Читать дальше...   )Жанр: TranceПродолжительность: 01:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130DD79798D0F6C1C8D648E10754D71F26F2E93D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614852   (1038374) от 23.02.2023
+
+VA - Black Hole House Music 02-23 (2023) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BT - Mercury & Solace (Helsloot Remix) [03:39]
+02. Siskin - Always You [02:45]
+03. Ton TB - Electronic Malfunction (Yurie Remix) [03:52]
+04. JES - Awaken (Elypsis Remix) [03:37](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:912D2E6461BE4759C24DB7BA0F653991AB115053
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440414   (1038488) от 18.01.2021
+
+Kurs - Muter (2021) [MP3|320 Kbps] <EBM, Electro, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:42)
+02. Mirrorshades (4:14)
+03. Shatter (4:06)
+04. Muter (3:55)(   Читать дальше...   )Жанр: EBM, Electro, IndustrialПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F3FD9D2B5E971ECADA5486ED91EA44A606F607
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440731   (1038489) от 18.01.2021
+
+VA - Space Odyssey - Trip Seven: New Year's Voyage 2021 (2021) [MP3|320 Kbps] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spacesynth.ru - Introduction (1:03)
+02. Amandi - Forgotten Spaceship (5:15)
+03. Kresikov & TDHDriver - Take Off! (4:48)
+04. Syst3m Failure - Fly Sputnik (7:22)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCD9A65099663A892D03E5A6E2D8D69EFF80AC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440784   (1038511) от 18.01.2021
 
 VA - Soft, Deep & Dark #1-5 (2017-2020) Seven Villas Music [FLAC|Lossless|WEB-DL|tracks] <Deep House, Dub Techno, Downtempo>
@@ -532,168 +694,6 @@ Shingo Nakamura - Silk Music Pres. Shingo Nakamura 03 (2019) Compilation, DJ Mix
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BEA5DB01AA2D15274253C31B5D872F0BD45B337
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613462   (1039652) от 18.02.2023
-
-VA - The Sound of 2023 Mix 3: Tokyo (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Anton Trian -  Weightless (Intro)  (2:38)
-02.  Sound Fusion -  Signals  (5:01)
-03.  Axel Zambrano -  Xone  (4:41)
-04.  Ormus -  Vishnu  (5:43)(   Читать дальше...   )Жанр: Progressive House, Techno, TranceПродолжительность: 01:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C298DBD0440D8082BBD5D61ED1AB076E486A9DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437429   (1039745) от 13.01.2021
-
-Jean Michel Jarre - Welcome To The Other Side (2021) Concert From Virtual Notre-Dame [FLAC 2.0|48/24|tracks|WEB-DL] <Electronic Techno>
-
->>Electronic
->>Trance, House, Techno (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Opening (VR Live) [00:03:28]
-02. Oxygene 2 (JMJ Rework of Kosinski Remix) [00:04:32]
-03. The Architect (VR Live) [00:03:23]
-04. Oxygene 19 (VR Live) [00:03:45](   Читать дальше...   )Жанр: Electronic TechnoПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF289397186F716B7B9A9EEC612B74303F06BD30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613079   (1039791) от 17.02.2023
-
-Skrillex - Quest For Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Dubstep, Trap, Dance, UK Bass>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leave Me Like This (feat. Bobby Raps)
-02. RATATA (feat. Missy Elliott & Mr. Oizo)
-03. Tears (feat. Joker & Sleepnet)
-04. Rumble (feat. Fred again.. & Flowdan)(   Читать дальше...   )Жанр: Dubstep, Trap, Dance, UK BassПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA989FE4D1A8C5FB01496B67F006C6D4EB359B87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613069   (1039806) от 17.02.2023
-
-Skrillex - Quest For Fire (2023) [MP3|320 Kbps] <Dubstep, Trap, Dance, UK Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leave Me Like This (feat. Bobby Raps)
-02. RATATA (feat. Missy Elliott & Mr. Oizo)
-03. Tears (feat. Joker & Sleepnet)
-04. Rumble (feat. Fred again.. & Flowdan)(   Читать дальше...   )Жанр: Dubstep, Trap, Dance, UK BassПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D939AC4BEFC7905942E182437DB307C4EE75751B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612653   (1039846) от 17.02.2023
-
-Movie Booth - 2 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Breakbeat>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Players [00:03:44]
-02. In the Image and Likeness [00:04:29]
-03. Try To Take Me Down [00:02:41]
-04. Welcome to My World [00:02:37](   Читать дальше...   )Жанр: BreakbeatПродолжительность: 2 CD, 01:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C50B069CB2928636DE7A427C0ECF3955AA0C9D15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439407   (1039864) от 13.01.2021
-
-VA - Swingers Club Party Music 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy listening, New Age>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tantric Sexuality Masters - Sensuality (3:41)
-02. Party Topic Club - All Night Long (3:45)
-03. Sex Music Zone - Hypnotic Beats (3:47)
-04. DJ Infinity Night - Kiss of Paradise (3:41)(   Читать дальше...   )Жанр: Easy listening, New AgeПродолжительность: 01:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45F4D7FF50BCA94AAEB74A6B6A7255A568E2EAE4
 ```
 
 

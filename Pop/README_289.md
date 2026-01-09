@@ -1,3 +1,243 @@
+###  Публикация: 1508897   (796178) от 10.11.2021
+
+ZAZ - Isa (2021) Japan Edition [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les Jours Heureux
+02. Imagine
+03. De couleurs vives
+04. Ce que tu es dans ma vie(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D86FE2811DD7683836AA86E65A1E692DBBCC53A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200123   (796206) от 20.01.2018
+
+VA - Fitness Hits 2018 [MP3|320 Kbps] <Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katchi ofenbach vs nick waterhouse - Nick Waterhouse
+02. 2u feat justin bieber - David Guetta
+03. Despacito version pop - Luis Fonsi
+04. Hymn for the weekend seeb remix - Coldplay(   Читать дальше...   )Жанр: DanceПродолжительность: 03:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC864F36150D002BBC2BBBC251E686C7725EE156
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200216   (796262) от 20.01.2018
+
+VA - New Generation Italo Disco: The Lost Files Vol.6 (2018) [MP3|320 Kbps] <Italo-Disco, Synthpop, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aldo Lesina  -  Castles & Dungeons (Extended Knight Mix)  7:07
+02.  Boris Zhivago  -  Twenty Years Ago (Refurbished Version)  6:42
+03.  Miko Vanilla  -  Goodbye (Fabulous Remix)  6:27
+04.  Boy Blue  -  Take My Heart (Fast Vocal Romantic Mix)  7:06(   Читать дальше...   )Жанр: Italo-Disco, Synthpop, EurobeatПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6627AC6FE720A90659758FA6B233C0534C5F6B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200229   (796316) от 20.01.2018
+
+Everything But The Girl - Amplified Heart (1994) 2013, RE, RM, 2CD [FLAC|Lossless|tracks + .cue] <Pop, House, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Understand Anything (Home Demo) (4:18)
+02. Rollercoaster (Home Demo) (3:14)
+03. Two Star (Home Demo) (2:57)
+04. Troubled Mind (Home Demo) (3:48)(   Читать дальше...   )Жанр: Pop, House, Downtempo |Продолжительность: 01:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C1ECAA999B496A204F4DAE53D2EDAC86AAF9B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011467   (796352) от 28.04.2016
+
+VA - Running Playlist (2016) [MP3|320 кб/с] <Pop, Dance, Club>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liberation Zulu - Rather Be (03:44)
+02. Underground Charisma - Use Somebody (03:20)
+03. Olafur Ros - Show Me Love (05:55)
+04. Liberation Zulu - Forget You (04:25)(   Читать дальше...   )Производство: On the BeatЖанр: Pop, Dance, ClubПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B22FB38B99E392A87B2AFCACC51E1A9C922D6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200330   (796372) от 20.01.2018
+
+Руст (Рустэм Султанов) - Между светом и тенью  (1997) [FLAC|Lossless|image + .cue]<Pop, Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, RockПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B41AD78EA46CCD0105AA4E60748514D2ACAF68ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200315   (796373) от 20.01.2018
+
+Laura Wilde - Es ist nie zu spat (Deluxe Edition) (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolkenbruch im 7ten Himmel
+02. Es ist nie zu spat
+03. Ich schalt' die Sonne wieder ein (Dab, Dab, Daa)
+04. Avalon(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1FF7879763FE2E411CE1957DC95C7FB02D0371E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200274   (796420) от 20.01.2018
+
+TUBA Stockholm - The Spin (2017) [MP3|320 Kbps] <Synthpop, Nu Disco, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reaching for Your Love
+02. The Spin
+03. Give My Love to You
+04. She's a Lady(   Читать дальше...   )Жанр: Synthpop, Nu Disco, Funk, SoulПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03CF8A2E5FA1328F665BA3D5484CC45CB90F24B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200335   (796454) от 20.01.2018
+
+Muddyloop - We Are Light (2017) [MP3|320 Kbps] <Synthpop, 80's Retrowave, R'n'B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are Light (Intro)
+02. All 4 Love
+03. New Toy
+04. Misbehave(   Читать дальше...   )Жанр: Synthpop, 80's Retrowave, R'n'B, SoulПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2307B70C59D2E5001ED5DC4F893FA91AF5A6D186
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385841   (796650) от 26.05.2020
 
 VA - Top 100 Hits (2020) [MP3|320 Kbps] <Euro Dance, Pop, Dance>
@@ -452,249 +692,6 @@ Mel & Kim - F.L.M. (1987) LP [MP3|320 Kbps] <Electronic, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BCEE8349576CA305E2D6AB79885E044EC21A420
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011023   (797541) от 26.04.2016
-
-Samantha Fox - The Hits Collection (1989) Compilation [FLAC|Lossless|image + .cue] <Pop, EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch Me (I Want Your Body) (3:47)
-02. Hot For You (4:13)
-03. I Promise You (3:53)
-04. The Best Is Yet To Come (4:50)(   Читать дальше...   )Жанр: Pop, EuroDiscoПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A62D181B00291ACA8A6080F3D3CFFB528643443F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010861   (797639) от 26.04.2016
-
-Dino Solera - Classically Dino Solera (1977) [MP3|320 кб/с] <Disco, Funk, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797639.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1976г. встретились  в Мюнхене два итальянских музыканта: Джованни Джорджо Мородер (Giorgio Moroder) и Джузеппе Солера (Giuseppe Solera). Первый - начинающий, но уже известный композитор, аранжировщик, продюсер, исполнитель и диджей, второй - джаз, фанк и диско саксофонист и сессионный музыкант. Объединившись, выпустили сразу сингл, а затем в 1977г. небольшой единственный (   Читать дальше...   )01. Classically Elise (Elise'77)   (5:22)
-02. Suite Concerto   (5:19)
-03. Easy Feeling   (4:36)
-04. Theme For A Dream   (6:09)(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 00:31:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54FC005E97547255D6C6C2E4DA22BBCEB9591665
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385363   (797798) от 24.05.2020
-
-Татьяна Абрамова - Письмо (1995) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Анатолий
-02 - Гребешок
-03 - Мой, мой, мой
-04 - Письмо(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F8EF4042CC40BAF2465E0F7903036A7145AFDED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508250   (797943) от 07.11.2021
-
-VA - Золото дискотек, Vol. 1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. President - Coco Jambo (3:40)
-02. Joy - Touch by Touch (3:47)
-03. Linda Jo Rizzo - You're My First, You're My Last (5:42)
-04. Gala - Freed from Desire (3:35)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 02:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E31285241E99A92DF57D3B0D01FD159415A84303
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508252   (797944) от 07.11.2021
-
-VA - Золото дискотек, Vol. 2 (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haddaway - What Is Love (4:30)
-02. Nina - The Reason Is You (3:58)
-03. Sin with Sebastian - Shut up (And Sleep with Me) (3:46)
-04. Londonbeat - I've Been Thinking About You (3:50)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 02:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7F49BB117C804DCCC68D5CB1F5B8CCEE0483ED0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507860   (798078) от 06.11.2021
-
-Amanda Lear - 25 Albums (1977-2021) 9LP & 16 CD Collection [MP3|320 Kbps] <Electronic, Disco, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аманда Лир, родилась в Гонконге - французская поп-певица, актриса и модель. В 1970-1980-е годы Лир была популярной исполнительницей в жанре диско. Позже приобрела известность как художница. С середины 1970-х по начало 1980-х она была королевой дискотеки, продававшей миллионы альбомов, в основном в континентальной Европе и Скандинавии с компанией Ariola Records. Первые (   Читать дальше...   )Список альбомов:
-1977 - I Am A Photograph
-1978 - Sweet Revenge
-1979 - Never Trust A Pretty Face(   Читать дальше...   )Жанр: Electronic, Disco, EuropopПродолжительность: 18:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD35223422056A36C4437489085682343D1F4B3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508055   (798120) от 06.11.2021
-
-MARUV - No Name (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798120.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Money
-2. Ne zabudu
-3. Put your hands up
-4. You and I(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865691CA74C096316782AD38FD14A38126A9E20E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507966   (798123) от 06.11.2021
-
-Diana Ross - Thank You (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thank You
-02. If The World Just Danced
-03. All Is Well
-04. In Your Heart(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6CFFC1DF2E3630793B37A332B9A292CF94E57EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507667   (798220) от 05.11.2021
-
-ABBA - Voyage (2021) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Still Have Faith In You (05:09)
- 02. When You Danced With Me (02:50)
- 03. Little Things (03:08)
- 04. Don't Shut Me Down (03:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF0C460E3FF37E2D1F9E306F5C17893EE7E19BE5
 ```
 
 

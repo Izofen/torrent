@@ -1,3 +1,30 @@
+###  Публикация: 977117   (967745) от 19.01.2016
+
+VA - 90s & 00s Covers Playlist (2015) [MP3|320 кб/с] <Pop, Covers>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Creep (03:59)
+02. Meg Birch - Losing My Religion (Acoustic) (04:10)
+03. Alice Lamb - Tears in Heaven (Acoustic) (02:56)
+04. Talisha Karrer - Somewhere Only We Know (03:28)(   Читать дальше...   )Производство: Lark RecordingsЖанр: Pop, CoversПродолжительность: 01:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17334A5770E572234201A134574A1321FBC04C55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976895   (967786) от 19.01.2016
 
 VA - Battle DJ (2016) [MP3|320 кб/с] <Dance, Club, House, Trance>
@@ -708,39 +735,6 @@ VA - Promo DJ Top 100 Remixes Winter 2015-2016 (2016) [MP3|320 кб/с] <Club Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2C74BDF5B4AA687F8A3678276506FE0F705C070
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617835   (970333) от 13.02.2013
-
-VA - Top 100 Самые скачиваемые треки (2013) [MP3|256 кб/с]<Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indira - Я Буду Верить
-02. Ева Польна - Рыбка
-03. Оля Баскаева - Ты Рядом
-04. MC 77 & Архитектор - Я Ищу Тебя
-05. DAS feat. Лера Туманова (Электра) - Чувствовать Пульс
-06. Fly Project - Back In My Life (DJ Favorite & Mr. Romano Official Radio Edit)
-07. Armin Van Buuren feat. Fiora - Waiting For The Night (Radio Edit)
-08. Blue - Hurt Lovers
-09. Алисия - Простила
-10. E-Rockaz - DJ Bitch (Radio Edit)(   Читать дальше...   )Жанр: DanceПродолжительность: 05:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B0B26F4DF8B4349249D22F0806B8AC0C0E2011
 ```
 
 

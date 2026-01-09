@@ -1,3 +1,84 @@
+###  Публикация: 997382   (873844) от 17.03.2016
+
+Epoca Barocca - Christoph Schaffrath - 2 альбома (2006, 2010) [FLAC|Lossless|tracks] <Classical, Chamber Music>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adagio  02:41
+02. Allegro  05:03
+03. Allegro  05:05
+04. Poco Allegro  06:11(   Читать дальше...   )Жанр: Classical, Chamber Music |Продолжительность: 01:17:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9344F02BEC0B609839DBB6F36D8A64D118BFBB9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997303   (875340) от 16.03.2016
+
+Korngold, Rosza, Waxman, Heifetz - Concertos - Tema Con Variazioni - "Carmen" Fantasy (1988) Compilation [FLAC|Lossless|tracks] <Classical, Neo-Romantic, Contemporary>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moderato Nobile  07:55
+02. Romance  07:13
+03. Finale - Allegro Assai Vivace  06:42
+04. Allegro Non Troppo Ma Passionato  11:24(   Читать дальше...   )Жанр: Classical, Neo-Romantic, ContemporaryПродолжительность: 01:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D48A8E245C4C595770BD2E867DD43B369707367
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105115   (876352) от 17.02.2017
+
+Kalman - Die Csardasfurstin (Сильва) (1968) 1994 Hungaroton Classic Kft [APE|Lossless|image + .cue] <Operetta>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Elojatek  2:38
+02.  Hogyha szivem kered tolem (Haj, ho! Haj, ho!...) 2:42
+03.  A lanyok, a lanyok, a lanyok angyalok (Bunosok vagyunk mi...) 3:49
+04.  Egy a szivem, egy a parom (A szeretem furcsa joszag ...) 5:42(   Читать дальше...   )Жанр: OperettaПродолжительность: 01:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:267990C5A3BFAC51A5247007F062F354F61A2998
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105215   (876401) от 17.02.2017
 
 Tina Guo - The Journey (2011) [FLAC|Lossless|tracks + .cue] <Classical Contemporary>
@@ -607,87 +688,6 @@ Tchaikovsky - Sym No. 4, No. 5, No. 6 (Mravinsky, Leningrad Symphony Orchestra) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6CC84DAD02B1524FB2925282D58317EC964D4AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995228   (885978) от 10.03.2016
-
-Alisa Weilerstein - Solo (2014) [FLAC|96/24|WEB-DL|tracks] <Classical, Chamber>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonata for Solo Cello, Op.8 - I. Allegro maestoso ma appassionato (9:33)
-02. Sonata for Solo Cello, Op.8 - II. Adagio con gran espressione (12:36)
-03. Sonata for Solo Cello, Op.8 - III. Allegro molto vivace (11:54)
-04. Omaramor For Solo Cello (8:15)(   Читать дальше...   )Жанр: Classical, ChamberПродолжительность: 01:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64B9BF0DBAC6E89B586F80213F381B3ADF9CF92C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995069   (886003) от 10.03.2016
-
-Ronald Brautigam - Mozart: Piano Concertos No 20 & 27 (2013) [FLAC|96/24|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Concerto No. 18 in B-Flat Major, K. 456
-1. I. Allegro
-2. II. Andante
-3. III. Allegro(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:53:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD290736A932B8F172FFFB444BEF9A054947FD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995066   (886023) от 10.03.2016
-
-Ronald Brautigam - Mozart: Piano Concertos No 19 & 23 (2013) [FLAC|96/24|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Concerto No. 19 in F Major, K. 459
-1. I. Allegro 00:11:12
-2. II. Allegretto 00:06:19
-3.  III. Allegro assai 00:07:16(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF76403719A7DF393FA052F24A84EF9D673EA720
 ```
 
 

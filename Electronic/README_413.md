@@ -1,3 +1,165 @@
+###  Публикация: 1387468   (791848) от 01.06.2020
+
+Aura Minimum - Mysterious Segments (2020) Modern Nature [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Segment I (11:56)
+ 02. Segment II (13:52)
+ 03. Segment III (12:00)
+ 04. Segment IV (13:40)Жанр: Dub Techno, AmbientПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90DA3C7B9A94E0B654D806C96B7398835D22F937
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387273   (791850) от 01.06.2020
+
+Ferrein - Valentine (2016) Echotourist [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterglow (08:05)
+02. Field (05:22)
+03. Grow (05:28)
+04. Noone (05:39)(   Читать дальше...   )Жанр: Dub Techno, Ambient, ExperimentalПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAAC08827470B1E5163E7462C24A2613A67B75DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387359   (791851) от 01.06.2020
+
+Exos - Indigo (2020) Figure [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reincarnation (03:22)
+02. Í skjóli nætur (04:16)
+03. Sælu-reitur (06:13)
+04. Quod Arcanum Leticia (05:49)(   Читать дальше...   )Жанр: Dub Techno, Techno, AmbientПродолжительность: 01:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8F6451062C28B5F78B741AE2BF2657323E859A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387270   (791852) от 01.06.2020
+
+St. Concrete - Listen Past Me (2019) Modern Cathedrals [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno, Leftfield>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Köpenickerstr (05:28)
+ 02. Oberbaumbrücke (06:56)
+ 03. Cass Ave (05:23)
+ 04. Skalitzerstr (06:37)(   Читать дальше...   )Жанр: Dub Techno, Techno, LeftfieldПродолжительность: 00:30:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F475CA595DFE1F0772BA876AB31428ACE333FA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510234   (792030) от 15.11.2021
+
+VA - Big Workout Hits 2022 - Remixed for Fitness! (2021) [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stephan Baker - Bad Habits (Workout Mix 130 bpm) (04:16)
+02. Stephan Baker - Take My Breath (Workout Mix 130 bpm) (04:06)
+03. Chandler FX - Higher Power (Workout Mix 178 bpm) (03:34)
+04. Chandler FX - Peaches (Workout Mix 178 bpm) (03:40)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 03:06:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C289DDA8689DEA74D8689190D0CC6B196560130
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510032   (792140) от 15.11.2021
+
+Peter Pearson - Hearts and Flowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Edge Of A Dream (5:36)
+02. Coup De Coeur (Feat. Tim Gelo) (5:39)
+03. A Thousand Petals (6:24)
+04. Hearts And Flowers (5:36)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B03D3F2E1BCA0F5145E852746ED02B9CF19F4C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201530   (792169) от 25.01.2018
 
 VA - Ministry Of Sound: The Biggest Dance Hits Of All Time (2017) [MP3|320 Kbps] <House>
@@ -524,167 +686,6 @@ VA - Relax Sensation Lounge & Chill Music 2020 [MP3|320 Kbps] <Balearic, Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:876070350577672BBEB1EEB7D04024272EC5A44D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123075   (792534) от 07.04.2017
-
-VA - Club House Spring '17 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will Fast - Keep It On
-02. Crazybeats - Baby Come On
-03. John Slater - Boogie Down
-04. Robin Feelgood - Pump This Feeling(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F330A4F7F3D38BECD65CF9E967EDCAFEDB93C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201247   (792691) от 24.01.2018
-
-VA - Vocal Trance Hits 2018 Vol.1 (2018) [MP3|320 Kbps] <Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Above & Beyond feat. Zoe Johnston  -  My Own Hymn (Original Mix)  3:51
-02.  Gabriel & Dresden feat. Jan Burton  -  Waiting For Winter (Extended Mix)  7:35
-03.  Dash Berlin feat. Roxanne Emery  -  Shelter (Yoel Lewis Extended Remix)  5:46
-04.  DT8 Project  -  Hold Me Till The End (Aly & Fila Extended Remix)  6:49(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 03:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1615989DD96348BCB1F03C9E2E72EDF4E52FE39D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200632   (792725) от 24.01.2018
-
-Suicide Commando - Forest Of The Impaled (2017) Limited Edition 4CD Box [MP3|320 Kbps] <Dark Electro / EBM / Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gates of Oblivion (06:02)
-02. My New Christ (04:37)
-03. Too Far Gone (04:26)
-04. Death Lies Waiting (04:58)(   Читать дальше...   )Жанр: Dark Electro / EBM / IndustrialПродолжительность: 03:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E274DCC39536B74BA9B9C13905D723B04C8DD46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509920   (792776) от 14.11.2021
-
-Schiller - Epic (2021) 2CD Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Willkommen
-02. Do You See The Light?
-03. The Endless(   Читать дальше...   )Жанр: Chillout, Downtempo, Ambient |Продолжительность: 02:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76121915009016966CA955738CAB5650A51334A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874586   (792810) от 24.01.2018
-
-David Nize (Sons Of Melancholia, (RE)NEW(ED), OZKA) Collection 5 Releases (2011-2015) [FLAC|Lossless|tracks+.cue, tracks]<IDM, Abstract, Ambient, Techno, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Davenport - Bloodchild (09:08)
- 02. Ed Davenport - Islands (Aubrey Remix) (05:40)
- 03. OZKA - Thirteen Years (05:46)Тип издания: CD, Web, VinylЖанр: Techno/HouseПродолжительность: 00:20:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51904818B0F6D4BE46D7373FACE4CDBB1B38F443
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201204   (792875) от 24.01.2018
-
-VA - Hed Kandi Beach House (2016) [FLAC|Lossless|tracks] <Funky House, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Delay - The Boy Is Mine (feat Alexandra Prince - Mark Lower remix) [7:02]
-02. NY's Finest - Do You Feel Me (City Soul Project Club mix) [7:14]
-03. O&O Music - Music's Hypnotising [4:22]
-04. Sonny Fodera - Feeling U (feat Yasmin - Deep mix) [6:09](   Читать дальше...   )Жанр: Funky House, Club HouseПродолжительность: 05:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EB410304B15554E79EBE76B2B3B1AA641D2856C
 ```
 
 

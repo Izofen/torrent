@@ -1,3 +1,165 @@
+###  Публикация: 1214884   (761811) от 24.03.2018
+
+VA - Infrasonic Miami (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Max Millian  -  You Are The One (Extended Mix)  6:38
+02.  Matthew Duncan & Jorza  -  Radiate (Extended Mix)  5:47
+03.  Milad E  -  Intension (Extended Mix)  6:14
+04.  SCHALA  -  Ice & Storm (Extended Mix)  5:37(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 01:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF6B84DDE24FC0A71222211E6E905F38ED5DADC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214893   (761812) от 24.03.2018
+
+VA - Uplifting Trance Sessions Vol.06 (2018) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Albinoni & Alex Numark  -  Adagio (Original Mix)  6:41
+02.  Fright Nite  -  Back In Time (Original Mix)  2:58
+03.  Ciro Visone  -  Modern Storm (Original Mix)  7:10
+04.  Mat Coste  -  Flight 527 (Original Mix)  7:04(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CD52F700B6541A4D477FAFAE64801EAA6CC0A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214885   (761819) от 24.03.2018
+
+VA - Back To Love 03.02 (2002) [FLAC|Lossless|tracks] <House, Breakbeat, Hip-Hop, Garage House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Turntable Orchestra - You're Gonna Miss Me (Original Mix) (5:57)
+02.Victor Romero feat. Latrice Brown - Love Will Find A Way (4:24)
+03.Ann Consuelo - See The Day (Stonebridge Mix) (8:36)
+04.Aftershock - Slave To The Vibe (12' Club Mix) (8:00)(   Читать дальше...   )Жанр: House, Breakbeat, Hip-Hop, Garage HouseПродолжительность: 02:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78AC96E44990E50BD9052FD578245F4B175882B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522112   (761909) от 05.01.2022
+
+Johan Tronestam - Cosmic Steps (2021) [FLAC|Lossless|WEB-DL|tracks] <Berlin-School, Space Music>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leaving the Solar System (12:51)
+02. Interstellar Travel (10:50)
+03. Borderland (8:50)
+04. Habitable Zone (6:58)(   Читать дальше...   )Жанр: Berlin-School, Space MusicПродолжительность: 01:19:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D55AD726F597E83A04EB3B5C6074B03418D3E7B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522083   (761915) от 05.01.2022
+
+Riccicomoto - Huge Distances (2021) LP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Dub Techno, Minimal, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interception (Prelude) (6:58)
+ 02. The Inner Perception (ft. Gustavo Varela) (6:43)
+ 03. Huge Distances (E-Dub Session) (8:05)
+ 04. 20thousand Miles (7:43)(   Читать дальше...   )Жанр: Deep House, Dub Techno, Minimal, AmbientПродолжительность: 04:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0DD204DBE217A90BB5540B99A44222187E0E826
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522110   (761920) от 05.01.2022
+
+Johan Tronestam - Luther (2017) [FLAC|Lossless|WEB-DL|tracks] <Berlin-School, Space Music>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chosen (8:13)
+02. Bad Feelings (8:42)
+03. To Rome (7:48)
+04. Come Closer (8:33)(   Читать дальше...   )Жанр: Berlin-School, Space MusicПродолжительность: 01:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:108B2C11D80B8E30314263848A4BA64C13D319C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280298   (762123) от 02.02.2019
 
 VA - Deep House Hits (Armada) (2019) [MP3|320 Kbps] <House, Deep House, Vocal House, Progressive>
@@ -533,168 +695,6 @@ Eduardo Briganty - Microgramas (2018) El Muelle Records [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13E92325C0ADEFAAB968E34382710289ADD93D89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394396   (763718) от 05.07.2020
-
-Tamlin - Spectrogram (2008) [FLAC|Lossless|tracks + .cue] <Breaks, Psy-Trance, Progressive Trance, Experimental>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perspective (8:42)
-02. Release (6:15)
-03. Switch (7:22)
-04. Catalysk (8:03)(   Читать дальше...   )Жанр: Breaks, Psy-Trance, Progressive Trance, ExperimentalПродолжительность: 01:18:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A088741911113672CC0A5EA2242F0813504A052D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214581   (763973) от 22.03.2018
-
-VA - Goa Dreams Vol.6 (2018) [MP3|320 Kbps] <Psy Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Various Artists  -  Goa Dreams Vol.6 (Continuous Mix Part 1)  1:17:52
-02.  Various Artists  -  Goa Dreams Vol.6 (Continuous Mix Part 2)  1:15:29
-03.  Astrix & Freedom Fighters  -  Burning Stones (Original Mix)  8:07
-04.  Ace Ventura  -  Altern8 Patterns (Pitch Bend Remix)  7:31(   Читать дальше...   )Жанр: Psy TranceПродолжительность: 05:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA05FC0256A0441DB0F889A09DDE822D7715CD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214511   (764056) от 22.03.2018
-
-The Other People Place - Lifestyles Of The Laptop Cafe (2001) Warp Records [FLAC|Lossless|tracks+.cue] <Electro, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eye Contact (05:30)
- 02. It's Your Love (07:31)
- 03. Moonlight Rendezvous (07:07)
- 04. You Said You Want Me (04:24)(   Читать дальше...   )Жанр: Electro, DowntempoПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C2F8D43DECF46B9FAF2A3A748E553C592FE9905
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214677   (764059) от 22.03.2018
-
-VA - Aly & Fila - Future Sound of Egypt 540 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amari & Nico Morano feat. Jinadu - Desire (Extended Mix)
-02. Emerge - It's Over (Extended Mix)
-03. Basil O’Glue - Hoax (Tim Penner Remix)
-04. Wally Lopez - Sunday Trip (Quivver Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7957636CDA43DD5794D94D751FDE24252F05B7B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214532   (764061) от 22.03.2018
-
-Fonogeri - Into The Labyrinth (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Joey Wants To Find  4:33
-02.  Curious Boy  3:41
-03.  The Clue  3:58
-04.  Night Train  3:29(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 01:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE81CC0D7627ABD65411C4FB4F3E8D807C563E76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214501   (764063) от 22.03.2018
-
-VA - Coastal Selections 006 (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valiant (UK) – Paredolia (Original Mix)
-02. Japeboy – Offing (Original Mix)
-03. Lumidelic – Celebration (Original Mix)
-04. Skua – Aoibhneas (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:27:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77082C4FA3CD821B93B6EA84830870A5B2320D8F
 ```
 
 

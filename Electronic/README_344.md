@@ -1,3 +1,168 @@
+###  Публикация: 1029692   (680341) от 27.06.2016
+
+VA - Summer Sessions 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milk & Sugar - My Lovin (Mat.Joe remix) (6:48)
+02. Ucha - Shosholoza (original mix) (7:33)
+03. Coeo - Humbled (original mix) (7:32)
+04. Karol XVII & MB Valence - What's That Say (original mix) (9:49)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 05:32:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B0C35339F97CA1EA5AFF7B993B1D1CB59E9A68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290173   (680435) от 19.03.2019
+
+Twin Peetz | The Difference Engine - Discography 11 Releases (1998-2018) ODrex Music, Rohs! Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 00001 (02:56)
+ 02. 00100 (01:54)
+ 03. 00010 (01:55)
+ 04. 01000 (02:13)(   Читать дальше...   )Тип издания: WebЖанр: Techno/MinimalПродолжительность: 00:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BFCA3C13F952D29418B77BA5B579CC3DB3524B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135274   (680806) от 19.05.2017
+
+Erasure - World Be Gone (2017) [MP3|320 Kbps] <Synthpop, New-Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680806.jpg" />
+</div>
+
+
+###  Подробнее
+
+17-й студийный альбом британского электронного дуэта ERASURE!
+«World Be Gone» следует за диском «The Violet Flame» (2014) и продолжает дальнейшее празднование 30-летия группы.
+Лонгплей включает 10 новых треков, написанных, исполненных и спродюсированных самими Erasure и сремикшированных Мэтти Грин (Matty Green).
+(   Читать дальше...   )01.  Love You To The Sky  4:26
+02.  Be Careful What You Wish For!  3:21
+03.  World Be Gone  3:40
+04.  A Bitter Parting  3:13(   Читать дальше...   )Жанр: Synthpop, New-WaveПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3E8EFD1E23DD2FCE8AC925C71CF4584ED135FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135497   (681095) от 19.05.2017
+
+VA - Erotic Spring Deep House (2017) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Stube - Spinning Around 6:19
+02.  Performative Mode - Egged On 6:15
+03.  Auxochrome - Jungle Juice 6:22
+04.  Mighty Real - Little By Little 5:59(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:57:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B193F9F572631F5678FC3D0C9C2F1CD1F6EE15C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135231   (681191) от 19.05.2017
+
+VA - Spa Pleasure (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soty - Sun Touch (Intro mix) (03:52)
+02. Submersion - My Little Beach (original Chillout mix) (05:21)
+03. Matthew Billings - Bliss  (05:49)
+04. Rega Avoena - Flight In The Dream  (03:46)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20933B6E85A7F0AB4CB4866E68B7FEF4511149AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135345   (681197) от 19.05.2017
+
+Christopher Willits - Horizon (2017) [MP3|320 Kbps] <Ambient, Drone>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681197.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Comet (06:13)
+2. Return (09:00)
+3. Rising (16:40)
+4. Light And Dark (06:18)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BD32508DA48D1C270842929E9BD4BFCDEAC3AC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135307   (681295) от 19.05.2017
 
 VA - Intimacy, Vol. 04 (2017) [MP3|320 Kbps] <Minimal, Tech House>
@@ -541,168 +706,6 @@ Dahu - Desolate EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Minimal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F838BC8AFD542920FE89B7F5CC09A394377B4225
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029291   (682754) от 26.06.2016
-
-Definition - Progression LP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Down (feat Liu Bei) (08:08)
-02. Progression (07:53)
-03. Caught Out (feat Pete Josef) (08:31)
-04. Janus (07:41)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D772D02B3785B542C77B0D9B32E74EBFA9DEC3D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029460   (682759) от 26.06.2016
-
-VA - Bademucke Vol 1 (Selection Of 25 Fantastic Summer Hits) (2016) [MP3|320 кб/с] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bes & Meret - My Cocoon (Tom Leeland Remix)
-02. Tom Appl - Downtown (Christos Fourkis Remix)
-03. Marga Sol - Heaven (Spase Ilo Indie Dance 2016 house rmx)
-04. Miss Luna - Space Funk(   Читать дальше...   )Жанр: HouseПродолжительность: 02:23:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1A536F7905474377C2B352D071B0BB5E7355D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222700   (683041) от 30.04.2018
-
-VA - Body and Soul-House (2018) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dennis Quin feat. Kubik LeFunk – Freak (VIP) (5:15)
-02. Hannah Wants – Dot Com (5:33)
-03. Archie B – Gassed Up (6:13)
-04. Eric Prydz – Woz Not Woz (Club Mix) (7:10)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A60C6094FA053948D3861531935FBA170C2C1A6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135166   (683047) от 18.05.2017
-
-VA - Spiritual Alchemy (Compiled by Dubnotic and Mystical Voyager) (2017) [MP3|320 Kbps] <Chillout, Ambient, Psychedelic Trance>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emog - Mystic Flight 05:42
-02. Antandra - Luminous Organism 05:50
-03. Anchor Hill - Wardens Awakening 05:50
-04. Art Of Fact - Zenzura 05:42(   Читать дальше...   )Жанр: Chillout, Ambient, Psychedelic TranceПродолжительность: 02:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FAF538E083542438998433739213B371ABBF320
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135078   (683056) от 18.05.2017
-
-VA - Electro Lounge Dinner Party (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GYSNOIZE - Horizon of Love
-02. Antonio Arena - Renewal
-03. Wolf Colony - Youth
-04. J-Tizzle - Transparent Odyssey(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33FEB2BE4A00144247E912B4B669651E88E38353
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222690   (683124) от 30.04.2018
-
-Moonbootica - Future (2018) [FLAC|Lossless|WEB-DL|tracks] <Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonbootica & BONDI - Lost & Found (4:28)
-02. Moonbootica & Jack Beauregard - Covered in Gold (6:12)
-03. Moonbootica & BONDI - Trippin' (4:17)
-04. Moonbootica feat. Nneka - Do Not Do Me (Like Dis) (4:11)(   Читать дальше...   )Жанр: Club HouseПродолжительность: 01:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E3511CFF0448D16A3D68EF49B24BBB551CF03E4
 ```
 
 

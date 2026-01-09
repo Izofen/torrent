@@ -1,3 +1,30 @@
+###  Публикация: 1384837   (800198) от 23.05.2020
+
+VA - Beatport Deep House: Electro Sound Pack #87 (2020) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800198.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sans Souci - Alvaro (Extended Mix)
+002. Ben Lucky - Heartwave
+003. Criptosk - El Heladero
+004. Swedz - Nights (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 12:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8063EFCFB4617A7090637C24126AEFB973517D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384719   (800199) от 23.05.2020
 
 VA - Music News vol.5 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -668,33 +695,6 @@ VA - German Top 100 Single Charts 03.04.2017 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34E3F069607124EF6445328D864B97B8CBE76561
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121292   (800547) от 02.04.2017
-
-VA - Deep House Collection Vol.115 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800547.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A - Mase - Spring Love, Mad Love (Radio Mix) 3:08
-002. Acidbro - Moon Day (Vip Tech Mix) 6:57
-003. Andrey Exx - Need to Feel Loved (Original Mix) 6:53
-004. Anton Suchorukov - Tagtraum (Original Mix) 4:45(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:26:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D69690693499768D102FB65283CDA8834941A20
 ```
 
 

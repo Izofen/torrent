@@ -1,3 +1,30 @@
+###  Публикация: 1292845   (643303) от 31.03.2019
+
+VA - Top 50 Party Schlager Charts 01.04.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Berg - Mosaik
+02. Kerstin Ott - Regenbogenfarben
+03. Maite Kelly - Heute Nacht für immer
+04. Roland Kaiser - Stark(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F539AB26A3921B207B2FE4477C91AE05AB1BF57F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906514   (643406) от 09.06.2015
 
 Kylie Minogue - Super Hits Collection (2015) [MP3|320 кб/с]<Pop>
@@ -713,33 +740,6 @@ VA - Зарубежная Дискотека ХХ Века - 74 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8BD0F9A42B533128718C06BDBA1686A055FDB46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292274   (646548) от 29.03.2019
-
-VA - 80s Music Hits (2019) [MP3|320 Kbps] <Disco, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646548.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Patrick Cowley - Megatron Man
-002. Oscar - It's My Life
-003. London Boys - London Nights
-004. Latin Lover - Laser Light(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 13:15:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B5C267BC671795B234827489FAE2A9CA920643C
 ```
 
 

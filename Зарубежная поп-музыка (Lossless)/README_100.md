@@ -1,3 +1,30 @@
+###  Публикация: 1441751   (1037204) от 23.01.2021
+
+The Fortunes - All The Hits and More (1993) [FLAC|Lossless|image + .cue] <Pop Rock, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seasons In The Sun (3:47)
+02. You've Got Your Troubles (3:28)
+03. Here It Comes Again (3:14)
+04. Caroline (2:28)(   Читать дальше...   )Жанр: Pop Rock, OldiesПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5049F4C5394D098BCC0026010DD54CDFE3F0E941
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442026   (1037242) от 23.01.2021
 
 Henk van Daam - Millionen Kusse (2014) [FLAC|Lossless|image + .cue] <Schlager>
@@ -668,34 +695,6 @@ V.A. - The Best Valentines Album In The World...Ever! (2023) [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17BAA0ABDADECFC96C318177ECAC5141BBD3E4D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610082   (1041889) от 09.02.2023
-
-Janet Jackson - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Funk, Disco, Hardcore, Post-Hardcore, Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I.D. (Interlude) [00:00:47]
-02. Feedback [00:03:38]
-03. LUV [00:03:09]
-04. Spinnin (Interlude) [00:00:07](   Читать дальше...   )Жанр: Funk, Disco, Hardcore, Post-Hardcore, Pop, R&BПродолжительность: 01:01:38
-https://deezer.com/album/400976817
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC3BC4EA7E5BC0D7F07FF8FE6D461C1AB553ED01
 ```
 
 

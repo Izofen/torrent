@@ -1,3 +1,246 @@
+###  Публикация: 1226146   (656651) от 19.05.2018
+
+Ірина Білик (Ирина Билык) - 11 Альбомов (1990-2014) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Того, кого
+02. Рассвет
+03. Моя любовь
+04. Не любовники(   Читать дальше...   )Жанр: PopПродолжительность: 10:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F1DED0498335CAB9F27FE218B911356E1A1EDFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140260   (656673) от 05.06.2017
+
+Егор Крид - Что они знают? (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Что они знают
+03. Не могу
+04. Алло(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E26FADBF555727BD00245FFF4BA5799F90A70BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149705   (656743) от 19.05.2018
+
+Robin Cook - Land Of Sunshine (1997) [FLAC|Lossless|tracks + .cue] <Eurodance, Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01.31)
+02. Cuba (03.04)
+03. I Won't Let The Sun Go Down (03.05)
+04. Kalimba De Luna (04.18)(   Читать дальше...   )Жанр: Eurodance, Euro HouseПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80BDEB213A78F3B9CC74F0678395B49292E687C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226188   (656748) от 19.05.2018
+
+VA - Eurodance Master (Rare & Unreleased tracks from Axel Breitung) (2008) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House, Technopop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real Hype - Train Of Love (3:53)
+02. Megamorph - Fade To Grey (3:22)
+03. UC Colors - U Got The Rhythm (3:59)
+04. Indiansphere - Spirit Of The Hawk (3:07)(   Читать дальше...   )Жанр: Eurodance, Euro-House, TechnopopПродолжительность: 02:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26B39BC89DD2C7EDE3754663EE119DA0B4BB0238
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226126   (656960) от 19.05.2018
+
+VA - Гирлянды любви (2006) [APE|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - М. Цветкова - Кто-то выдумал любовь
+02 - Студия 54 - Сердечко
+03 - С. Ротару - Жизнь моя, моя любовь
+04 - Revolvers - Неправильная любовь (remix)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6694BA5D85518AA04435C44B7068123696105854
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539709   (657142) от 26.03.2022
+
+VA - Turbo Disco - Лучшие Хиты Дискотек (2001) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eruption - One Way Ticket
+02. A La Carte - Doctor, Doctor (Help Me Please)
+03. Bad Boys Blue - Kiss You All Over, Baby
+04. Grant Miller - Wings Of Love(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594C4E23183E8383C140C080F71861D54FA5CAE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539748   (657268) от 26.03.2022
+
+Fat Larry's Band - Lookin' For Love (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lookin' For Love (5:32)
+02. Here Comes The Sun (5:22)
+03. Last Chance To Dance (5:21)
+04. Like To Get To Know You Better (5:02)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630C572B327D20C8A1EB49E28D31B8DD7BDFC10E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225925   (657746) от 18.05.2018
+
+Лолита - Раневская (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657746.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. На Титанике
+2. Ты моё море
+3. Раневская
+4. Правде в глаза(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294A499B91749A495BE0E23C54815E0A81A5A30D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225778   (657821) от 18.05.2018
+
+VA - Ultimate 90s Playlist (2018) 5CD [MP3|320 Kbps] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ultra Nate - Free
+02. Moloko - Sing It Back
+03. Ace Of Base - All That She Wants
+04. Suzanne Vega feat. DNA - Tom's Diner (DNA mix)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 06:25:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCEBDA49AC808D55617FA362F348E6A0DD4387AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514899   (657845) от 24.06.2012
 
 VA - Different Shades Of Savage (2011) 2CD [APE|Lossless]<Italo-Disco, Synth-pop, Italodance>
@@ -460,249 +703,6 @@ magnet:?xt=urn:btih:FA44713CA9140FD7C664B05CDF69293382CD5481
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E681839C2040B654314463DD7780B94CE9EDE2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139266   (661099) от 01.06.2017
-
-VA - Summer Beach Party 3 (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever 80 - Carnaval De Paris (Club Mix) 05:21
-02. James Black Pitch - Pirate Life 06:15
-03. Olleo - Oblivium 06:12
-04. Forever 80 - Traces 05:19(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:696187696199B6DED897A30A433B1E90A1A8D853
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538792   (661274) от 22.03.2022
-
-VA - Easy Acoustic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nashville Cast - Ho Hey (2:05)
-02. Nelly Furtado - I'm Like A Bird (Acoustic Version) (3:56)
-03. Amos Lee - Sweet Pea (2:09)
-04. Longpigs - On & On (4:10)(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB104461A8653ADF03AC2C1BEFBA58AB25935F31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138977   (661292) от 01.06.2017
-
-Opus - Up And Down (1984) [FLAC|Lossless|tracks] <Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Up And Down
-02. Vivian
-03. There Is Need For
-04. She Loves You(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C923BDCD35B1B4039787E2419DBCD94F6FC892BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538184   (662196) от 21.03.2022
-
-Charli XCX - Crash (2022) Deluxe Edition [MP3|320 Kbps] <Hyperpop, Dance-pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Crash
-02 – New Shapes (feat. Christine and the Queens and Caroline Polachek)
-03 – Good Ones
-04 – Constant Repeat(   Читать дальше...   )Жанр: Hyperpop, Dance-pop, Synth-popПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE1A8A4E325E7C4DC90660E766850214D3A850B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538111   (662294) от 21.03.2022
-
-VA - Mastermix Pro Remix 2 (2022) [MP3|320 Kbps] <Soulful House, Indie Dance, Dubstep, Nu Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B. Live Feat. Becky Hill & Jme - Don't Know About You (Original Mix)
-02. Belters Only Feat. Jazzy - Make Me Feel Good (Extended Mix)
-03. Ben Nicky X Distorted Dreams - We Come 1 (Extended Mix)
-04. Chaney - Love Again (Extended Mix)(   Читать дальше...   )Жанр: Soulful House, Indie Dance, Dubstep, Nu DiscoПродолжительность: 01:04:16 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C83A9CEA3F0266B98A615CABD134BC95BD90BF86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538109   (662297) от 21.03.2022
-
-VA - Mastermix Pro Remix 1 (2022) [MP3|320 Kbps] <Soulful House, Indie Dance, Dubstep, Nu Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AmyElle - Push It (Extended Mix)
-02. Basement Jaxx - Romeo (Wh0 Extended Festival Remix)
-03. Bklava - Only For Tonight (Big Miz Remix - Extended)
-04. Danny Byrd & D Double E - Selecta (Extended)(   Читать дальше...   )Жанр: Soulful House, Indie Dance, Dubstep, Nu DiscoПродолжительность: 01:12:40 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA4DFC0D78EE7D6923DD642FC1113A811096A0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138836   (662314) от 31.05.2017
-
-VA - Superfresh Top Dance (2017) [MP3|320 Kbps] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nina S. – Calling (Luca Zeta Extended) 5:15
-02. Adam Easter – Keep Hands Up Alive! (Damn-R Remix Edit) 3:03
-03. Damn-R – Here I Go (DJ THT Remix Edit) 3:20
-04. Hypersonic – Six Days (Steve Twain Short Mix) 3:50(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 01:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4054C3FD1F9E860DBD98018D47BD1A3D9AAF70EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138733   (663163) от 30.05.2017
-
-Chromium - Star to Star (1979) LP [MP3|320 Kbps] <Electronic, Disco, Ballad, Space Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radar Angels (4:27)
-02. Forces of Light (3:08)
-03. Star To Star (4:25)
-04. Time Traveler (3:37)(   Читать дальше...   )Жанр: Electronic, Disco, Ballad, Space RockПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D5F37B51EB64F4E77240F3DF25625378EC152E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138761   (663167) от 30.05.2017
-
-I Signori Della Galassia - Iceman (1979) Reissue LP, Medical Records LLC, 2013 [MP3|320 Kbps] <Electronic, Disco, Space Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Proxima Centauri (8:24)
-02. Puoi Sentirmi? (3:47)
-03. Fermate La Reazione (5:11)
-04. Oltre Il Cristallo (3:19)(   Читать дальше...   )Жанр: Electronic, Disco, Space RockПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6D0B6CFD3CFDDE9BEC5D6C710FC37FD950224B
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1461094   (1021911) от 09.04.2021
+
+Gary Eisenbraun - Kings Of Modern Rock (2003-2020) (2021) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мелодия и ритм могут непредсказуемо меняться, каждая песня – это оригинальный эксперимент. Если в одном и том же треке про любовь певец поначалу визжит, потом хрипит, потом поёт прекрасную мелодию ровным голосом, а под конец всё это глушится рёвом электрогитар и ударником, можно быть уверенным, что перед Вами – Gary Eisenbraun001. Blinded By The Headlights
+002. Echoes Through My Time
+003. Gone In A Minutes Time
+004. Heartache To Come(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 13:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:596AF243061A4A3E80DD2EEE7854B5E390A25A2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461019   (1021940) от 09.04.2021
 
 VA - Romantic Feelings: Top Love Songs (2021) [MP3|320 Kbps] <Pop, Lyric>
@@ -668,33 +695,6 @@ VA - Tik Tok Треки выстрелили весной 2021 [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA4E1E8D9D7ABC68D1963B1BF6ACA84FA2BBC3D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460197   (1022749) от 04.04.2021
-
-The Beatles - Sgt. Pepper's Lonely Hearts Club Band (SMRP Stereo from Mono Originals) (1967) Remaster, 2021 [MP3|320 Kbps] <Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Sgt. Pepper's Lonely Hearts Club Band (02:02)
-02-With A Little Help From My Friends (02:45)
-03-Lucy In The Sky With Diamonds (03:27)
-04-Getting Better (02:47)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:092C6E016B545DE556E932ED0B7F31A817236CFD
 ```
 
 

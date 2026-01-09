@@ -1,3 +1,30 @@
+###  Публикация: 1113214   (838628) от 11.03.2017
+
+VA - Vocal Drum & Bass Vol.11 [Compiled by Zebyte] (2017) [MP3|256-320 Kbps] <Drum & Bass>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838628.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fred V & Grafix - Altitude (Ft. Amy J Pryce) 4:35
+002. Hybrid Minds Ft. Alexa Harley - Phoenix 5:01
+003. Nct & Diego Torres - No One Home (Original Mix) 5:16
+004. Whiney - Teddy's Gate (Feat. Lameduza) 5:10(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB534893FE888EDED8E32506CB942A79B521E69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113254   (838630) от 11.03.2017
 
 VA - German Top 50 Official Dance Charts 10.03.2017 (2017) [MP3|320 Kbps] <Pop , Dance>
@@ -662,33 +689,6 @@ VA - Хиты в тачку. Сборник № 6 (2017) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BEBD8D0539318DE6E48787514D156DC252AE4A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112931   (839880) от 10.03.2017
-
-VA - Дискотека 2017 - Весеннее Настроение 85 хитов (2017) [MP3|256-320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839880.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alok & Bruno Martini Feat. Zeeba - Hear Me Now 3:12
-002. Arizona - I Was Wrong (Robin Schulz Remix) 3:41
-003. Cortes Feat. Andreea Balan - Uita-ma (Edit) 2:59
-004. Alexandra Stan - Ecoute 3:15(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 05:26:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9B68FD136DD46665D0BF7F04114C4B9F5A88130
 ```
 
 

@@ -1,321 +1,97 @@
-###  Публикация: 1473950   (1013378) от 31.05.2021
+###  Публикация: 1483536   (1006758) от 14.07.2021
 
-Glary Utilities Pro 5.167.0.193 RePack (& Portable) by TryRooM [Multi/Ru]
+Emurasoft EmEditor Professional 20.9.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013378.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода.
+Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BB726F88704E708A80F9A6A5667603E97FE9A68
+magnet:?xt=urn:btih:170A3CA343BA0FC990DB9F1D5B50E81A608FDFD3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473986   (1013379) от 31.05.2021
+###  Публикация: 1483545   (1006759) от 14.07.2021
 
-VA - The New Rap Heroes (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013379.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fred The Godson - Sweet Nothings
-002. Filthy Gears - Evil
-003. Yowda - Hi Hater
-004. Norok - Im Lost(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 10:21:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:335512A2ECE2D44E09493455BFBF0570A3505A07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473786   (1013380) от 31.05.2021
-
-XYZ - Rainy Days (2005) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild
-02. Crazy
-03. Rainy Days
-04. Where Did We Go Wrong(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94189C5A1E9C1482E083EF605D8FFEFF6A79589C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473890   (1013381) от 31.05.2021
-
-Путешествие в Иран / Travel to Iran (2019) WEBRip [VP9/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествие по истории, природе и невероятно гостеприимным людям. Я посетил Иран и был впечатлен красотой этой земли и её сюрпризами.Производство: ИранЖанр: Документальный, видовойРежиссер: Рене КолеллаПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:097111DE4F089171BEB3F55A844A4996CF7308A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473952   (1013382) от 31.05.2021
-
-VA - Billboard - Hot Dance & Electronic Songs (08-May-2021) [MP3|320 Kbps] <Pop, Dance, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Travis Scott, HVME - Goosebumps (Remix)
-02. Tiesto - The Business
-03. SAINt JHN - Roses (Imanbek Remix)
-04. Regard, Troye Sivan, Tate McRae - You(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 02:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A31F1C3F21C401B067085E96D43F5BC297F0D2B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473757   (1013383) от 31.05.2021
-
-VA - Music News vol.104 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013383.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Franka - Пофигизм (02:59)
- 002. Alesso feat. Stray Kids & CORSAK - Going Dumb (Mike Williams Remix) (02:47)
- 003. Alexandra Stan - Aleasa (Moonsound & Cristi Nitzu Remix) (02:27)
- 004. Alok & Bloodline feat. The Vamps - Another You (02:39)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 11:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C65B0D37A0BE55B75D5BD77A1B148EE0F2D49C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473886   (1013384) от 31.05.2021
-
-Ниагарский водопад / Niagara Falls (2020) WEBRip [VP9/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Государственный парк Ниагарского водопада - старейший государственный парк в Америке, основанный в 1885 году в Ниагарской резервации. Ежегодно Государственный парк Ниагара-Фолс посещают более 8 миллионов посетителей. В периоды пикового стока летом и осенью более 700 000 галлонов воды проливается через Ниагарский водопад. Четыре из пяти Великих озёр впадают в реку (   Читать дальше...   )Производство: КанадаЖанр: Документальный, видовойРежиссер: Даниэль ТурдаПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32CD7237F1490B2AA38BF498072DB31FBFD20B02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474067   (1013385) от 31.05.2021
-
-Firefox Browser ESR 78.11.0 [Ru]
+ChiefTaza - Collection 2 Albums (2017-2019) [MP3|320 Kbps] <Instrumental Hip-Hop, Beats, Native American>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013385.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+01. I See
+02. ZedFed
+03. Inhale Deep
+04. The Harvest(   Читать дальше...   )Жанр: Instrumental Hip-Hop, Beats, Native AmericanПродолжительность: 01:32:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5AE7211691EADECEC1A12A2B44F76979560C0C4
+magnet:?xt=urn:btih:38AA2E9624C3D9EF79FAC30950CB26C73F67E8B3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473904   (1013386) от 31.05.2021
+###  Публикация: 1483438   (1006760) от 14.07.2021
 
-K-Lite Codec Pack Update 16.2.3 [En]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013386.jpg" />
-</div>
-
-
-###  Подробнее
-
-K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473725   (1013387) от 31.05.2021
-
-Liv Kristine - Collection 5CD (2010-2021) [FLAC|Lossless|image + .cue] <Pop, Gothic Rock>
+King Weed - Conquerors Of The Light "Collection Part IV" (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Stoner Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013387.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Skintight 03:18
-02. Twofold 03:07
-03. Train to Somewhere 03:33
-04. Love in Grey 04:10(   Читать дальше...   )Жанр: Pop, Gothic RockПродолжительность: 03:22:02
+01. Conquerors Of The Light - 06:27
+02. Envy - 05:32
+03. Spirits Over Us - 07:18
+04. Bounded By Chains - 04:45(   Читать дальше...   )Жанр: Psychedelic, Stoner RockПродолжительность: 00:52:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A91C663D0013AA4A1F82EEB679394A9129AFB648
+magnet:?xt=urn:btih:B23D095B1F5E9E2BA9FB7A1F142F4FEB1BAAEDD4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473892   (1013388) от 31.05.2021
+###  Публикация: 1483584   (1006761) от 14.07.2021
 
-Мауи / Maui (2020) WEBRip [VP9/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потрясающая красота Мауи повсюду: от чистейших пляжей с белым песком, уединенных водопадов, изрезанного побережья и, конечно же, невероятной Халеакалы.Производство: СШАЖанр: Документальный, видовойРежиссер: Джордан НагасакоПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:839735B547C31EEB39DACB2D8487567CBBD218D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473897   (1013389) от 31.05.2021
-
-Осень в итальянских Альпах / Autumn in the Italian Alps (2021) WEBRip [H.264/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великолепные скалистые горы, водопады и леса - всё это во всей красе изображено в осенних красках, спокойные животные и случайные искры света... Яркое голубое небо, снег, облака и красота итальянских Альп.Производство: ИталияЖанр: Документальный, видовойРежиссер: Кристина ЛимонтаПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BBBC2842BAA6522E383DF15DFAF4E2744AD5F4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473887   (1013390) от 31.05.2021
-
-Новая Зеландия - чистая магия / Pure Magic - New Zealand (2021) WEBRip [H.264/2160p]
+Sandboxie 5.50.8 [Multi/Ru]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013390.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Поистине, одно из самых особенных мест, которые мне когда-либо доводилось снимать. Я очень надеюсь, что вам понравится видео.Производство: Новая ЗеландияЖанр: Документальный, видовойРежиссер: Майкл ШайнблюмПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:15
+Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -325,22 +101,95 @@ magnet:?xt=urn:btih:5BBBC2842BAA6522E383DF15DFAF4E2744AD5F4A
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473965   (1013391) от 31.05.2021
+###  Публикация: 1483557   (1006762) от 14.07.2021
 
-VA - Mastermix DJ Beats 102 (2021) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
+Роберт Дж. Маккензи | Упрямый ребенок: как установить границы дозволенного (2021) [MP3, Антон Макаров]
 
->>
->>
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013391.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Annie Lennox - Walking On Broken Glass (DJ Beats)
-02. Five - Let's DanceЖанр: House, Dance, Dubstep, DiscoПродолжительность: 00:57:34
+С детским упрямством и своеволием так или иначе сталкиваются все родители. Как быть, если ребенок ведет себя плохо, игнорируя или отвергая ваши требования? Что делать, если вы исчерпали все средства, чтобы добиться послушания, или если «конфликт поколений» так вас утомил, что кажется: проще махнуть на все рукой, чем добиваться своего? Читать эту книгу! С помощью (   Читать дальше...   )Жанр: Психология, Воспитание детейПродолжительность: 07:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D49447258722E7CCA9EDACBF11BAE0DF2CD1F02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483565   (1006763) от 14.07.2021
+
+SIV (System Information Viewer) 5.60 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006763.jpg" />
+</div>
+
+
+###  Подробнее
+
+SIV (System Information Viewer) - мощнейшая утилита, показывающая всевозможную информацию о системе. Программа SIV (System Information Viewer) отображает в наглядном виде следующие данные: сведения о процессоре, памяти, видеокарте, жестких дисках, приводах, модемах, USB-устройствах и т.д. При помощи программы можно наблюдать за тем, как расходуются системные ресурсы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B9BA0D2252D1F3DB4735DE0500FE965EEBA425
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483606   (1006764) от 14.07.2021
+
+Opera 77.0.4054.254 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9D1FC504AE261A8799AE4EDB691BB8D2D469B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483560   (1006765) от 14.07.2021
+
+CodeLobster IDE 1.12.0 [Multi/Ru]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006765.jpg" />
+</div>
+
+
+###  Подробнее
+
+CodeLobster IDE – данный продукт является продолжением известного программного обеспечения у web разработчиков CodeLobster PHP Edition (который теперь платный).
+   Изменения не коснулись условий использования CodeLobster IDE. Программа так и осталась бесплатной в стандартной редакции (профессиональная версия программы поддерживает большее количество плагинов).
+   Свободно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -350,102 +199,180 @@ VA - Mastermix DJ Beats 102 (2021) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473920   (1013392) от 31.05.2021
+###  Публикация: 1483573   (1006766) от 14.07.2021
 
-Herman Frank - 6 Studio Albums (2009-2021) 10xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
+IObit Uninstaller 11.0.0.40 RC [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006766.jpg" />
+</div>
+
+
+###  Подробнее
+
+IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F22CE2D05015325FB15313337BE84FE275B294
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483585   (1006767) от 14.07.2021
+
+Mozilla Thunderbird 78.12.0 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Thunderbird –  легкая и безопасная бесплатная программа для работы с электронной почтой. Thunderbird дает большой потенциал для удобной обработки электронных сообщений, позволяет управлять большим списком контактов и производить множество других операций. В Mozilla Thunderbird присутствует мощнейший спам - фильтр, который можно обучать в процессе работы с (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43562F00524A0380602EFB855CD680160D67B5F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483436   (1006768) от 14.07.2021
+
+Goad - La Belle Dame (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Eclectic Prog>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013392.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представлять Германа хэви-металлической аудитории столь же бессмысленно, как ездить в Тулу со своим самоваром. Гитарист играет значимую роль на немецкой тяжелой сцене с первой половины 80-х, он поучаствовал в таких популярных коллективах, как ACCEPT и VICTORY и немало поработал в качестве продюсера, а с 2009 года занимается своим сольным проектом.2009 - Loyal To None
-2012 - Right In The Guts
-2016 - The Devil Rides Out
-2019 - Fight The Fear(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 08:55:27
+01. The Haunted Palace In The Poe' Land
+02. The Queen Of The Valley
+03. The Man In The Dreamland
+04. Magic Stairway pt. 1(   Читать дальше...   )Жанр: Progressive Rock, Eclectic ProgПродолжительность: 00:58:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BED6C3621FA91C03A2DAC44DCD4A8FB6F7B73881
+magnet:?xt=urn:btih:9CFB0ADC653CAA745F7571FF8CC14638703D1154
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473988   (1013393) от 31.05.2021
+###  Публикация: 1483352   (1006769) от 14.07.2021
 
-VA - The Favorite Fitness Music (2021) [MP3|320 Kbps] <EDM, Club, Dance, House>
+VA - Guido's Lounge Cafe, Vol. 8 (2021) [AAC|~325 Kbps] <Chillout, Lounge, Downtempo>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013393.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Scar And Eazyvibe - Life Without You
-002. Jonathan Touch - Brotherhood
-003. Dsigual - Natjwa
-004. Adam Cooper - Eyes Shut(   Читать дальше...   )Жанр: EDM, Club, Dance, HouseПродолжительность: 09:32:40
+01. Weber & Weber - Frozen in Time (4:32)
+02. Simply Chill - Fire (Costa del Mar edit) (5:22)
+03. Patiotic - Timeless (Original Mix) (4:06)
+04. J. R. Haim - Wanderlust (4:47)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:43:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2538BAFC4CA0C8349BF588F5D184245E76CB56F2
+magnet:?xt=urn:btih:3A3E7347E800A1A8E26EE1CD7A47A8C0ABCEC865
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473894   (1013394) от 31.05.2021
+###  Публикация: 1483328   (1006770) от 14.07.2021
 
-Извержение исландского вулкана / Icelandic Volcano Eruption (2021) WEBRip [H.264/2160p]
+VA - Guido's Lounge Cafe, Vol. 1 (2019) [AAC|~348 Kbps] <Chillout, Lounge, Downtempo>
 
->>Документалистика и Телепередачи
->>Релакс / Relax
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013394.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006770.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На полуострове Рейкьянес в Исландии 19 марта земля разверзлась, и лава достигла поверхности.Производство: ИсландияЖанр: Документальный, видовойРежиссер: Стефан ФорстерПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:10
+01. Marga Sol - Ibiza Blue (Original Mix) (5:02)
+02. Solar Music Club - It's All Right (Original Mix) (5:04)
+03. Marga Sol - Butterflies (Project Blue Sun Rmx) (7:30)
+04. Sky Spirit - Beautiful Day (Original Mix) (4:58)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:59:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED0C46B732E97F6127BED1E5B4241007A954D4F0
+magnet:?xt=urn:btih:75041E6DD28FC5BAB2090BA839FB0068D8006652
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473956   (1013395) от 31.05.2021
+###  Публикация: 1483485   (1006771) от 14.07.2021
 
-VA - Dusk Till Dawn (Mixed by John Askew) (2021) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive, Electronic>
+Jess & Matt - Wildflowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sliding Doors (00:03:10)
+02 - 1961 (00:03:42)
+03. Aftermath (00:03:46)
+04. Wildflowers (00:03:04)(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 00:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C5F89E8C1BEE6181DB953029B7D955A243AC00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483439   (1006772) от 14.07.2021
+
+41 South - Are We There Yet? (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013395.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006772.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Union Jack - Cactus (John Askew Rework) (Mixed)
-02. Will Atkinson - Awake (John Askew Rework) (Mixed)
-03. John Askew - Tooth Decay On Tuesday (Mixed)
-04. EverLight feat. Emma Chatt - Obelisk (Mixed)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive, ElectronicПродолжительность: 05:05:23
+01. Red Rocks 07:14
+02. Night Creatures (It Is Time!) 02:31
+03. Night Creatures - Come On My Children (Let's Dance) 08:30
+04. Who Left The Gate Open? 04:32(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:36:59
 
 ## Скачать торент
 ```bash
@@ -455,72 +382,51 @@ VA - Dusk Till Dawn (Mixed by John Askew) (2021) [MP3|320 Kbps] <Trance, Uplifti
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473997   (1013396) от 31.05.2021
+###  Публикация: 1483334   (1006773) от 14.07.2021
 
-Мэйбл Норманд. Ах, эти глазки! / Oh, Those Eyes! (1912) WEBRip
+VA - Guido's Lounge Cafe, Vol. 2 (2019) [AAC|~325 Kbps] <Chillout, Lounge, Downtempo>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013396.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006773.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У Мэйбл большой талант. Талант в области женского искусства под названием "стрельба глазами". Стоит ей только капризно надуть губки и похлопать ресницами, как у окружающих мужчин замирает сердце и они готовы на все, ради ее благосклонности. Папе Мэйбл все это категорически не нравится. И вот, когда она очередной раз злоупотребила своими талантами, он решил (   Читать дальше...   )Производство: СШАЖанр: Комедия, короткометражный, немое киноРежиссер: Мак СеннетАктеры: Мэйбл Норманд, Делл Хендерсон, Эдвард Диллон, J. Jiquel Lanoe, Уильям Дж. БатлерПеревод: Немой с интертитрамиСубтитры: Английские и русские интертитрыПродолжительность: 00:08:39
+01. Gary B - I Did You Wrong (Original Mix) (3:26)
+02. Dreamhunter - Boarding Gate (Original MIx) (4:27)
+03. Marc Hartman - Leave the World Behind (Original Mix) (5:30)
+04. Pier-O - Lady Fantasy (The Next Summer) (5:37)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 03:15:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF8B2094A8608B7CD9DEE5A8D649857996650AFB
+magnet:?xt=urn:btih:86BE3D545334FCBACC805E36F46E4A0CF477DD0B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474004   (1013397) от 31.05.2021
+###  Публикация: 1483648   (1006774) от 14.07.2021
 
-Гарольд Ллойд. Ногами вперед / Feet First (1930) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гарольд Хорн — амбициозный продавец обуви из Гонолулу. Однажды он случайно встречается с дочерью своего босса, не зная кто она, и выдаёт себя за миллионера-бизнесменаПроизводство: СШАЖанр: КомедияРежиссер: Клайд Брукман, Гарольд ЛлойдАктеры: Гарольд Ллойд, Барбара Кент, Роберт МакУэйд, Лиллиан Лейтон, Генри Холл, Ной Янг, Алек Б. Френсис, Артур Хаусман, Уилли Бест, Джеймс ФинлейсонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (hardsub)Продолжительность: 01:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7E5277D7337964EF2A65FBC445E0B8E0FA9864
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473833   (1013398) от 31.05.2021
-
-Talisha Karrer - Jazz Pop and Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+Blochemy - Aithem (2021) whitelabrecs [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Field Recording>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013398.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006774.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Smells Like Teen Spirit
-02. Shape of You
-03. Counting Stars
-04. Crazy in Love(   Читать дальше...   )Жанр: JazzПродолжительность: 01:05:18
+01. Guis (04:54)
+ 02. Feal (04:31)
+ 03. Ange (04:52)
+ 04. Lues (04:18)(   Читать дальше...   )Жанр: Ambient, Field RecordingПродолжительность: 00:40:20
 
 ## Скачать торент
 ```bash
@@ -530,48 +436,24 @@ Talisha Karrer - Jazz Pop and Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473936   (1013399) от 31.05.2021
+###  Публикация: 1483347   (1006775) от 14.07.2021
 
-Ирина Асеева | Креативный "пятый альфа" (2019) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дима Парапланов учится в физмат лицее, но у него всё идёт не так, как надо: написать контрольную по русскому – такая проблема, что приходится голубей приручать, чтобы сорвать эту контрольную, один из старшеклассников объявил охоту на Диму, да ещё и мышонок, принесённый из дома, сбежал из рюкзака. Разве может полюбить такого растяпу самая красивая девочка в классе? (   Читать дальше...   )Жанр: Весёлые приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7860BDF4DA63BD48319BFD357DF0DE8CDE788C06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473990   (1013400) от 31.05.2021
-
-VA - The Clubbing Tech House (2021) [MP3|320 Kbps] <Tech House, Electro, EDM>
+VA - Guido's Lounge Cafe, Vol. 6 (2020) [AAC|~326 Kbps] <Chillout, Lounge, Downtempo>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013400.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006775.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Dubmask - Tale Of
-002. Altamirano - Much Money
-003. Ohmme - Rewind
-004. Drag & Drop - Hypno Slap(   Читать дальше...   )Жанр: Tech House, Electro, EDMПродолжительность: 12:31:32
+01. Mirage Of Deep - Forbidden Perfume (5:28)
+02. Dellasollounge - Show Me the Stars (Original Mix) (4:47)
+03. Chillson, Marc Hartman - Crash & Burn (4:08)
+04. Peter Pearson - Lead Me On (Original Mix) (4:27)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:49:46
 
 ## Скачать торент
 ```bash
@@ -581,82 +463,214 @@ VA - The Clubbing Tech House (2021) [MP3|320 Kbps] <Tech House, Electro, EDM>
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473983   (1013401) от 31.05.2021
+###  Публикация: 1483349   (1006776) от 14.07.2021
 
-VA - World Sound Funky: Jackin House Mixtape (2021) [MP3|320 Kbps] <Funky House, Jackin' House, Nu Disco>
+VA - Guido's Lounge Cafe, Vol. 7 (2020) [AAC|~327 Kbps] <Chillout, Lounge, Downtempo>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013401.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006776.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Toshi,Timmy Regisford - Kiqi
-002. Federico Rosa - Love Is Strong
-003. Pavzo - The Jazz Bar
-004. Domineeky - Play(   Читать дальше...   )Жанр: Funky House, Jackin' House, Nu DiscoПродолжительность: 09:59:37
+01. Schwarz & Funk, Storm Marrero - On the Line (Main Mix) (5:08)
+02. Roberto Bronco, The One Lavic - Day After Day (Original Mix) (3:42)
+03. Chillson, Marc Hartman - With You (4:36)
+04. Roberto Bronco - Come Together (Original Mix) (4:47)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:45:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68E2CEEFB320C56BAAF2D7F0F1FD98439089CE44
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473949   (1013402) от 31.05.2021
+###  Публикация: 1483341   (1006777) от 14.07.2021
 
-VA - Ibiza Chillout #15 (2021) [MP3|320 Kbps] <Chillout, Electronic>
+VA - Guido's Lounge Cafe, Vol. 3 (2019) [AAC|~338 Kbps] <Chillout, Lounge, Downtempo>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013402.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006777.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ryan Kick - All That We Do  (Original Mix)
-02. Damian Force - Where Is Your Love  (Louis Feen Remix)
-03. The Bestseller - Fly Away  (Original Mix)
-04. DJ Skywalk - Love 2 Love  (Squib Extended Mix)(   Читать дальше...   )Жанр: Chillout, ElectronicПродолжительность: 01:36:53
+01. Vincent Boot - Code (Original Mix) (6:00)
+02. Weathertunes - Take It Easy (Original Mix) (4:08)
+03. Marga Sol - Night Sky (Original Mix) (4:17)
+04. Michael e - With Each Passing Moment (Guitar Mix) (4:13)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 03:18:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC46AF43903304BC3067B8C15292EC3B7AB896FF
+magnet:?xt=urn:btih:C529261DA3619FBBCD05FA6521E656B102E90579
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473992   (1013403) от 31.05.2021
+###  Публикация: 1483456   (1006778) от 14.07.2021
 
-VA - Synergetic Nightclub (Vol.02) (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
+VA - Electro Town (2021) [MP3|320 Kbps] <Trance, Progressive>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013403.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006778.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Folklore & Vacce - Krater
-002. Caox & Chris Fielding - Enemy
-003. Andrew Fields - Secret Place
-004. Maph - Ridin Dirty(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 08:31:42
+001. Peetu S - Afterlife
+002. Human Force - Sun Rising High
+003. Green Court - Silent Heart
+004. Wavetraxx - Lost Transition(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 10:29:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A17BAB545B00EF38364140831CF9BD00CA9571B
+magnet:?xt=urn:btih:F15575E00776F7C701B1013DD65AF3A8D40B4CC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483476   (1006779) от 14.07.2021
+
+Истоки анимации. Басня о полной женщине. Басня о неудавшемся романе / The Phable of the Phat Woman. The Phable of a Busted Romance (1916) DVDRip
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две коротенькие мультипликационные басни. Ничего особенного, просто две незатейливые шутки, типичный пример анимации тех лет.Производство: США, International Film ServiceЖанр: Рисованная анимация, короткометражныйРежиссер: Том Э. Пауэрс, Рауль БаррПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:02:20 - часть (2 части)
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483344   (1006780) от 14.07.2021
+
+VA - Guido's Lounge Cafe, Vol. 5 (2020) [AAC|~330 Kbps] <Chillout, Lounge, Downtempo>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patiotic - Late Night Neon (Original Mix) (3:39)
+02. CaPa - Time Is All We've Got (4:32)
+03. Tigerforest - Azure (4:02)
+04. Kevin Paczesny, Jani R. - Winter Lights (5:33)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:40:51
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483640   (1006781) от 14.07.2021
+
+Potlatch - On The Cloud (2021) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Cloud (02:25)
+ 02. The Old Mirrorball (02:32)
+ 03. Glass Shoes (02:21)
+ 04. Water Trip (02:18)(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 00:19:30
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483343   (1006782) от 14.07.2021
+
+VA - Guido's Lounge Cafe, Vol. 4 (2020) [AAC|~325 Kbps] <Chillout, Lounge, Downtempo>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillson, Marc Hartman - Smiling Faces (Original Mix) (4:09)
+02. Mo'jardo, Tim Gelo - Midnight in Paris (4:43)
+03. Florzinho, Euphonic Traveller - Like the First Moment (Original Mix) (5:33)
+04. Martin Liege - Balearic Jazz (Original Mix) (3:43)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:40:41
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483461   (1006783) от 14.07.2021
+
+VA - Best New Hype Techno (2021) [MP3|320 Kbps] <Techno, Minimal>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006783.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Briarcliff - One Direction
+002. Obstructor - Recession
+003. Chris Lehmann - Drive
+004. Dhalgren - Bad Trip(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 11:54:54
+
+## Скачать торент
+```bash
+нет
 ```
 
 

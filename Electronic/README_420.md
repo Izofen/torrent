@@ -1,3 +1,165 @@
+###  Публикация: 1385336   (797803) от 24.05.2020
+
+VA - Erotic Lounge Essential Summer (2020) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LA F Project - Berlin (05:20)
+02. Gil Ward - Fluctuate (Red Chill Mix) (04:31)
+03. Spike Melo - Encendido (Sun Chill Edit) (11:08)
+04. Ibeeza Grooves - Maxell (Keep Calm Mix) (03:27)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3CEEFCA5B1127134AEA5A38289019774E7209D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385411   (797807) от 24.05.2020
+
+V.A. - Coffee Bar Lounge, Vol. 19 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allume - So Dance (Original Mix)
+02. Mazelo Nostra - Smooth Background (Original Mix)
+03. Dreamhunter - La Nostalgie (Original Mix)
+04. Kingstone - Dead Vally (Original Mix)(   Читать дальше...   )Жанр: Easy Listening, Lounge, DowntempoПродолжительность: 01:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BBCFDFC8D3125362F642A91FDAE97435E489B5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385305   (797810) от 24.05.2020
+
+Testpattern - Apres-Midi (1982) Reissue CD, 1990, Yen Records [MP3|320 Kbps] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crescent Moon (4:09)
+02. Souvenir Glace (3:52)
+03. Beach Girl (3:17)
+04. Sea Breeze (4:22)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A15C000088FF5020069F58110C405C5C5782A92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385469   (797811) от 24.05.2020
+
+Lisa Shaw - Cherry (2005) [FLAC|Lossless|tracks + .cue] <Deep House, Broken Beat, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cherry.flac
+02. Don't Know What To Do.flac
+03. When I.flac
+04. Grown Apart.flac(   Читать дальше...   )Жанр: Deep House, Broken Beat, DowntempoПродолжительность: 00:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0362843C2D2B21DC138960F4FD96943D77AE20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385249   (797813) от 24.05.2020
+
+Aurolab - Anna (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Nu-Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above The Rainbow (6:07)
+02. Anna (5:49)
+03. Artek (4:53)
+04. Close Your Eyes (6:43)(   Читать дальше...   )Жанр: Synthwave, Nu-DiscoПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EED296569EBA394E3B8B75FCB062A5AACA2709C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385162   (797873) от 24.05.2020
+
+Jody Wisternoff - Nightwhisper (2020) Extended Edition [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning U (3:24)
+ 02. Nightwhisper (3:37)
+ 03. Here To Stay (4:04)
+ 04. Emochine (3:50)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:998B041732AE20C4159989D56E431F8AC44FB7CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508182   (797970) от 07.11.2021
 
 Olive - CD Коллекция (4 CD, 2 Albums) (1997-2000) [FLAC|Lossless|tracks + .cue] <Electronic, Downtempo, Synth-pop>
@@ -531,168 +693,6 @@ Jade 4U - Jade's Dream (1988) LP [MP3|320 Kbps] <Electronic, New Beat>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00DAF97D2F99C5160A13F6BFAAC60EF71C4A416F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122297   (798863) от 05.04.2017
-
-VA - Deep House April 2017 Top 10 Best of Collections (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CJ RcM - My Love
-02. Macrolev - Deeper
-03. Anton Ishutin - Sunrise
-04. Muxxo - The Calm of the Time(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD1CEBE83034D07958844625FE35C0D412012FB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122302   (798871) от 05.04.2017
-
-Michael E - Autumn (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Are We There Yet
- 02. Bossa Nova Baby
- 03. Bitter Sweet
- 04. That Feeling(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9EA84D255ABCAB84C85CE9758094E32874EEA65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122354   (798873) от 05.04.2017
-
-VA - Summer Chillout, The Best of Buddha Ambient Experience and Chill Zone (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Total Chillout Music Club — Summer Chillout
-02. Summer Time Chillout Music Ensemble — Buddha Ambient Lounge
-03. Chillout Music Zone — Party Time
-04. Hawaii Chillout Music — Electronic Music(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2390C5950C3819606A949A1680B0FCCEF671602
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122523   (798875) от 05.04.2017
-
-Third Party - Hope (2017) [MP3|320 Kbps] <Big Room, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798875.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Without You
-2. Live Forever
-3. Veins
-4. Guiding Light ft. Fran Garcia(   Читать дальше...   )Жанр: Big Room, Electro HouseПродолжительность: 00:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6464FF597223832B60A8A9345044F813E7363D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122555   (798881) от 05.04.2017
-
-VA - Spring Times Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Following Light – Azure (Aluria remix) (09:20)
-02. Aluria – Basilica Philosophica (original mix) (07:41)
-03. Christian Monique – Planetarium (original mix) (06:01)
-04. Findike – The Peaceful (original mix) (08:54)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:27:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3422618202BD75A55D0F786FDF57D5E89295C3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122285   (798885) от 05.04.2017
-
-VA - Quiet Zone Just Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sombra Modos - Botavara  5:34
-02.  Arrojas - Lazy Sunday  5:48
-03.  Lamar Ensemble - Stay Sharp  5:36
-04.  Chillelektro - Vitt  6:07(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92BB40D0B092766D8EE0AA9FBC2C8819C576332D
 ```
 
 

@@ -1,38 +1,30 @@
-###  Публикация: 286407   (930945) от 24.01.2011
+###  Публикация: 287071   (929446) от 25.01.2011
 
-Vijay Antony - VA[Kadhalil Vizhunthen/Я полюбил] (2008) [FLAC|Lossless]<Soundtrack/Tamil/Isma>
+VA - Ледяной Дискач (2011) [MP3|128 kbps]<Dance,Club>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930945.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929446.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Naaka Mukka
-02. Unn Thalai Mudi
-03. Doley
-04. Unakkena Naan
-05. Thozhiya
-06. Naana Mukka
-07. Solladi
-08. Enna Sonnen
-09. Kadavul PadaithaЖанр: Soundtrack/Tamil/IsmaПродолжительность: 00:39:57
+Жанр: Dance,ClubПродолжительность: 12:16:30
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:10A16C18C5CBAE7834C3F4FD0AE96863879B2366
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 285746   (930950) от 24.01.2011
+###  Публикация: 287182   (929447) от 25.01.2011
 
-VA - Club Mania (20 01 2011) [MP3|320 kbps]<Electro House>
+VA - Extrasensory Perception Part 3 (2011) [MP3|~204 kbps] <Psytrance, Progressive>
 
 >>Архив торрентов
 >>Архив Музыки
@@ -44,28 +36,27 @@ VA - Club Mania (20 01 2011) [MP3|320 kbps]<Electro House>
 
 ###  Подробнее
 
-1. Vinylshakerz vs Rico Bernasconi - One Night In Bangkok (Digital Mode Nightflight Remix) (5:23)
-2. Tiesto vs Diplo feat. Busta Rhymes - C'mon (Catch 'Em By Suprise) (Extended Club Mix) (5:13)
-3. Subject Delta vs 5 Sided Cube - Don't Break It (Original Mix) (5:35)
-4. Ron-Bon-Beat Project - Supernatural (Bastian Bates Remix) (6:17)
-5. Remady feat. Manu-L - Save Your Heart (Extended Mix) (5:21)
-6. Porter Robinson - The Wildcat (Original Mix) (6:15)
-7. Porter Robinson - The Wildcat (Lazy Rich Remix) (6:16)
-8. Ne!tan feat. Edyta Nawrocka - Watch Me (Kuba Club Mix) (4:33)
-9. Mike De Ville - Pump It Up (Rico Bernasconi & Max Farenthide Remix) (5:05)
-10. Max Farenthide - Just Walk Away (Club Mix) (5:34)(   Читать дальше...)Жанр: Electro House
+VA - Extrasensory Perception Part 3 (2011)
+Год: 2011
+Жанр: Psytrance, Progressive
+Лейбл: Mikrokosmos Records
+Продолжительность: 01:13:16
+Кодек: MP3
+Битрейт: ~204 kbps
+Тип битрейта: VBRТрек лист:
+01. Ovnimoon - Galactic Mantra (Liquid Soul Remix) [09:40](   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E81A9B26F3DD0796FAAF6729ED85A7A07D671751
+magnet:?xt=urn:btih:9A54C1C72F90FF299D03E2783C8651BCB5B45927
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 286149   (930952) от 24.01.2011
+###  Публикация: 286760   (929449) от 25.01.2011
 
-VA - Exclusive Hit Зима (2011) [MP3|256 kbps]<PoP,Club>
+VA - Dispatch Recs. Pres: Transit One (2010) [MP3|320 kbps]<Drum'n'Bass>
 
 >>Архив торрентов
 >>Архив Музыки
@@ -77,28 +68,76 @@ VA - Exclusive Hit Зима (2011) [MP3|256 kbps]<PoP,Club>
 
 ###  Подробнее
 
-01. Красавчик - Девочка пьяна (RMX)
-02. DJ A-Newman feat. Lexa - Es ist alles vorbei (DFM mix)
-03. Pra.da - Мураками (Версия 2010)
-04. Alex - Ангел мой (DJ Pikus Remix)
-05. Китай - Мое Сердце (Harisma Remix)
-06. Luna feat. 23-45 - Прости (dance mix)
-07. Фабрика - Зацелую (Radu Sirbu Remix)
-08. 5sta Aka 5ivesta Family - Зачем (Radio Edit)
-09. DJ Vengerov feat. В. Брежнева - Любовь Спасет Мир (Extended Mix)
-10. Дискотека Авария - Звезда (Ost Четверо Парней Video Mix)(   Читать дальше...)Жанр: PoP,ClubПродолжительность: 06:10:05
+01.Жанр: Drum'n'BassПродолжительность: 01:29:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD527F593AFB5622898FE69838E3B9C2208E2864
+magnet:?xt=urn:btih:5D05E7F793BEE353F10C4DDE9D9F307BDFDB756B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 177317   (930958) от 21.02.2010
+###  Публикация: 286347   (929450) от 25.01.2011
 
-Журнал | Hard`n`Soft №2 [2010] [PDF]
+NG: Люди против львов / Lion Warriors (2010) HDTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+На равнинах Кении, раскинувшихся у подножья горы Килиманджаро, как и сотни лет назад, львы традиционно нападают на домашний скот масаев - коренных жителей этой страны. А гордые воины-масаи также традиционно ведут охоту на львов. Из-за сложившейся веками ситуации популяция львов сокращается, и в настоящее время во всей стране осталось всего около 2000 этих животных.Жанр: ДокументальныйРежиссер: Кир ГодалПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:955DF8E54263436AF476643B3902AE3E02D59577
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 286605   (929451) от 25.01.2011
+
+The Game - The R.E.D. Room [MixTape by DJ Skee] (2010) [MP3|320 kbps]<Rap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. 400 Bars (The Skeemix)
+02. Ha Ha ft. Nipsey Hussle
+03. The Professionals ft. Menace, Maad Maxx, Kanary Diamonds
+04. Revolver Or The Semi ft. Mysonne
+05. Drop The World ft. Kanary Diamonds
+06. Never Stop Hustlin ft. Fabolous
+07. Gangsta
+08. Gangs Of New York ft. Jadakiss & Jim Jones
+09. Trippin ft. Kanary Diamonds
+10. Everything Red ft. Lil Wayne & Birdman(   Читать дальше...)Жанр: RapПродолжительность: 01:30:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD192414ACA5C7793F6298780A8D1E86D1378A78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 286857   (929452) от 25.01.2011
+
+Анатолий Афанасьев | Монстр сдох [2008] [MP3]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
@@ -110,22 +149,19 @@ magnet:?xt=urn:btih:DD527F593AFB5622898FE69838E3B9C2208E2864
 
 ###  Подробнее
 
-HARD'n'SOFT — популярный российский ежемесячный журнал для увлеченных компьютерной техникой.
-Ежедневно лучшие специалисты и эксперты предоставляют читателям необходимую, максимально полную и объективную информацию по цифровым и компьютерным технологиям.
-По данным исследований TNS Gallup Media за 2007 год журнал входит в пятерку лидеров по охвату читательской аудитории. И эти лидирующие позиции сохраняются на протяжении многих лет.
-Издание проверено временем, он 15 лет выходит в России и это уже говорит о многом!Формат: PDF
+Сюжет романа Анатолия Афанасьева "Монстр сдох" лихо закручен: торговля детьми, донорскими органами - жуткая фабрика смерти. Но на пути зла встает прекрасная девушка Лиза Королькова, богиня спецназа.Жанр: детектив, боевик
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0BDCF524425837D0947CF8F73D669002C1A93618
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 177491   (930959) от 21.02.2010
+###  Публикация: 286745   (929453) от 25.01.2011
 
-VA - ELECTRO ЖЕСТЬ!!! Vol.5 (2010) [MP3|96-320 kbps]<House, Electro, Electro House>
+Solisia - Ordinary Fate (2010) [MP3|224 kbps]<Power Metal>
 
 >>Архив торрентов
 >>Архив Музыки
@@ -137,19 +173,28 @@ VA - ELECTRO ЖЕСТЬ!!! Vol.5 (2010) [MP3|96-320 kbps]<House, Electro, Electr
 
 ###  Подробнее
 
-Жанр: House, Electro, Electro House
+1. Intro
+2. Ordinary Fate
+3. Lightning Of Reality
+4. Life Diamond
+5. Fictions
+6. I'll Take You With Me
+7. Overlude
+8. Vortex Of Indifference
+9. Inner Will
+10. Unrevealed WordsЖанр: Power MetalПродолжительность: 00:47:23
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:96587601EA775F2DFE85B082A245F27F1EECBB57
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 176998   (930961) от 21.02.2010
+###  Публикация: 286742   (929454) от 25.01.2011
 
-Натаника - Дискография (2009-2010) [MP3|320 kbps]<Рор>
+VA - Fokuz Recs. Pres: Time Travel Vol. 5 (2011) [MP3|320 kbps]<Drum'n'Bass>
 
 >>Архив торрентов
 >>Архив Музыки
@@ -161,7 +206,40 @@ VA - ELECTRO ЖЕСТЬ!!! Vol.5 (2010) [MP3|96-320 kbps]<House, Electro, Electr
 
 ###  Подробнее
 
-Жанр: Рор
+[05:33] 01.Жанр: Drum'n'BassПродолжительность: 01:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05FF8416FD6BD45C300E26C575C02177919FAAD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 177126   (929457) от 22.02.2010
+
+Lee Morgan - Lee-Way (1960 / 2008 Remaster) [FLAC|Lossless]<Jazz / Hard Bop / Post Bop / Trumpet>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929457.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. These Are Soulful Days
+2. The Lion and the Wolff
+3. Midtown Blues
+4. Nakatini Suite
+
+Исполнители:
+
+ Lee Morgan (trumpet)
+Jackie McClean (alto saxophone)
+Bobby Timmons (piano)(   Читать дальше...)Жанр: Jazz / Hard Bop / Post Bop / Trumpet
 
 ## Скачать торент
 ```bash
@@ -171,12 +249,12 @@ VA - ELECTRO ЖЕСТЬ!!! Vol.5 (2010) [MP3|96-320 kbps]<House, Electro, Electr
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 177314   (930962) от 21.02.2010
+###  Публикация: 177586   (929458) от 22.02.2010
 
-Журнал | Компьютерное обозрение №5 [2010] [PDF]
+Прожекторперисхилтон / Выпуск 54 (2010) SATRip
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Юмора
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -185,7 +263,9 @@ VA - ELECTRO ЖЕСТЬ!!! Vol.5 (2010) [MP3|96-320 kbps]<House, Electro, Electr
 
 ###  Подробнее
 
-Еженедельник "Компьютерное Обозрение" – издается с мая 1995 г. и нацелен на профессионалов в области информационных технологий, занятых в разработке, продаже и внедрении IT-продуктов и услуг.Формат: PDF
+Жанр: ТВ-ШоуПеревод: Оригинал
+
+ФайлФормат: AVI
 
 ## Скачать торент
 ```bash
@@ -195,12 +275,12 @@ VA - ELECTRO ЖЕСТЬ!!! Vol.5 (2010) [MP3|96-320 kbps]<House, Electro, Electr
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 177493   (930964) от 21.02.2010
+###  Публикация: 177657   (929460) от 22.02.2010
 
-FixCleaner 1.3.3708.894 Eng  [английский]
+The Milt Jackson Quartet - Wonder Why (1955) [FLAC|Lossless]<Jazz>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -209,7 +289,12 @@ FixCleaner 1.3.3708.894 Eng  [английский]
 
 ###  Подробнее
 
-FixCleaner – полезная программка, предназначенная для контроля за состоянием и обслуживанием компьютера. Она сочетает в себе набор надежных, специализированных утилит для полного устранения ошибок, которые снижают производительность, вызывают медленную загрузку и другие проблемы. Программа имеет дружественный интерфейс и проста в использовании.
+01. Wonder Why
+02. My Funny Valentine
+03. Moonray
+04. The Nearness Of You
+05. Stonewall
+06. I Should Care1955Жанр: JazzПродолжительность: 00:31:16
 
 ## Скачать торент
 ```bash
@@ -219,12 +304,12 @@ FixCleaner – полезная программка, предназначенн
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 177295   (930965) от 21.02.2010
+###  Публикация: 177332   (929461) от 22.02.2010
 
-Журнал | Games №3 [2010] [PDF]
+Third Ear Audio - Third Ear Audio (2009) [MP3|320 kbps]<Ambient/Downtempo/Dub>
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Музыки
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -233,7 +318,16 @@ FixCleaner – полезная программка, предназначенн
 
 ###  Подробнее
 
-Отечественный журнал Games о компьютерных играх и не только предлагает читателям свой свежий и оригинальный взгляд на новинки компьютерных игр и кино. Публикуются также советы по аппаратному и программному обеспечению, читы для популярных и самых новых игр.2010Формат: PDF
+01. Intro (01:29)
+02. Ethereality (06:48)
+03. Just A Moment (06:58)
+04. Freak Of Nature (07:22)
+05. Up In Smoke (07:04)
+06. Jamaican Robot (07:03)
+07. The Sleeping Giant (08:48)
+08. Final Front Ear (06:35)
+09. Deep Blue (08:17)
+10. The End? (07:58)Жанр: Ambient/Downtempo/Dub
 
 ## Скачать торент
 ```bash
@@ -243,9 +337,9 @@ FixCleaner – полезная программка, предназначенн
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 177302   (930966) от 21.02.2010
+###  Публикация: 177306   (929462) от 22.02.2010
 
-Журнал | Страна игр №2 [2010] [PDF]
+Журнал | Страна игр №4 [2010] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
@@ -267,12 +361,12 @@ FixCleaner – полезная программка, предназначенн
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 176628   (930967) от 21.02.2010
+###  Публикация: 177712   (929463) от 22.02.2010
 
-Affair Bureau (P) [En] (2010)
+Win7codecs 2.4.0 & x64 Components addon 2.4.4 Final / Eng
 
 >>Архив торрентов
->>Архив Игр
+>>Архив Программ
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -281,7 +375,7 @@ Affair Bureau (P) [En] (2010)
 
 ###  Подробнее
 
-Разгадайте тайный заговор в игре в жанре я ищу Affair Bureau! Алекс был полицейским, который решил открыть детективное агентство, но решать простейшие кражи и угоны машин ему быстро надоело. Но мир перевернулся когда "она" вошла в его офис. Кто эта таинственная женщина и что она знает так об Алексе? Чтобы все это узнать, он должен будет путешествовать вниз, в темноту преступного мира и раскрыть потрясающую тайну о преступном лидере! Присоединитесь к Алексу в идентификации таинственной женщины ...  Изучите данные судебной экспертизы, взломайте полицейскую базу данных и расшифруйте загадки, которые приблизят вас на шаг ближе преступнику!Жанр: Квест, Логическая, Я ищу
+Win7codecs - пакет представляет собой автоматизированное средство, предназначенное для установки основных кодеков и декодеров. Он не содержит никаких дополнительных проигрывателей и не меняет системные ассоциации файлов по умолчанию. Кроме того, при установке он автоматически удалить популярные кодеки и заменит их собственными из комплекта для обеспечения лучшей совместимости.
 
 ## Скачать торент
 ```bash
@@ -291,30 +385,21 @@ Affair Bureau (P) [En] (2010)
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 177177   (930968) от 21.02.2010
+###  Публикация: 177768   (929464) от 22.02.2010
 
-VA - House Vip (19.02.10) [MP3|320 kbps]<Electro House>
+PCMedik 6.2.22.2010 [Eng+Rus]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930968.jpg" />
+  <img src="Повторная ошибка скачивания" />
 </div>
 
 
 ###  Подробнее
 
-01. Dada Life - Love Vibrations (Phatzoo Dub Remix) (5:00)
-02. Dada Life - Love Vibrations (Phatzoo Remix) (5:00)
-03. Dj Antonio and Alex Astero - You're In The Army Now (Original Club Mix) (5:27)
-04. DJ TLX - La Bamba (Original Mix) (6:52)
-05. Won't Forget These Days 2k10 (The Mobb Remix) (6:18)
-06. DJ Yanny Pres. Terraformer - Won`t Forget These Days 2K10 (Crystal Rock & South Blast! Remix) (5:36)
-07. Ekowraith - Waiting For Tonight (DJs From Mars FM Remix) (3:39)
-08. Federico Franchi feat. Becci - Image (Dub Remastered) (4:37)
-09. Greko - Trademark (Original Mix) (5:37)
-10. Ida Corr - Let Me Think About It (DeRom Remix) (6:25)(   Читать дальше...)Жанр: Electro House
+Вышла новая версия PCMedik, небольшой программы, предназначенной для настройки параметров и оптимизации работы операционных систем Windows. Вся работа с программой осуществляется посредством простого интерфейса. После применения PCMedik может заметно возрасти скорость работы приложений в среде Windows, а также заметно снизится вероятность непредсказуемого "падения" системы.Предусмотрена возможность отката к первоначальным настройкам.
 
 ## Скачать торент
 ```bash
@@ -324,12 +409,12 @@ VA - House Vip (19.02.10) [MP3|320 kbps]<Electro House>
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 285429   (930969) от 24.01.2011
+###  Публикация: 286551   (929465) от 25.01.2011
 
-Seraphim - The Soul That Never Dies (2001) [MP3|320 kbps]<Symphonic Power Metal>
+DVDFab 8.0.6.8 [Rus] / (UnOfficial) RePack by rs.bandito.soft [Русский]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -338,155 +423,7 @@ Seraphim - The Soul That Never Dies (2001) [MP3|320 kbps]<Symphonic Power Metal>
 
 ###  Подробнее
 
-01.Prelude
-02.Love Hate
-03.Emptiness
-04.Immortal Silence
-05.The Soul That Never Dies
-06.Samsara
-07.Mind's Sky
-08.Forever
-09.Canticle
-10.Light Of The Setting Sun(   Читать дальше...)Жанр: Symphonic Power MetalПродолжительность: 01:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:419723235EDEA928E66D96FB422846CECEDC82D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 286070   (930970) от 24.01.2011
-
-Ahn’Quyin - Jungle (EP) (2010) [MP3|~252 kbps] <Psytrance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Ahn’Quyin - Jungle (EP) (2010)
-Год: 2010
-Жанр: Psytrance
-Лейбл: Clock Form Records
-Продолжительность: 00:15:06
-Кодек: MP3
-Битрейт: ~252 kbps
-Тип битрейта: VBRТрек лист:
-01. Movement [06:26](   Читать дальше...)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C84830F8DE69DB9D1E5390C2D3B94C0F447B701B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 286400   (930971) от 24.01.2011
-
-LAB - Roleplayers (2010) [MP3|320 kbps] <Dark Psytrance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-LAB - Roleplayers (2010)
-Год: 2010
-Жанр: Dark Psytrance
-Лейбл: No Comment Records
-Продолжительность: 01:14:09
-Кодек: MP3
-Битрейт: 320 kbps
-Тип битрейта: CBRТрек лист:
-01. Inflatable (with Kiriyama) [06:59](   Читать дальше...)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E8690C8D50F80562C91B70588C4776A7CE4A567
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 286371   (930973) от 24.01.2011
-
-VA - Trance Maniacs Party: Trancefer Wave #43 (2010) [MP3|320 kbps]<Uplifting Trance, Dream Trance, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-001. ReOrder & Dave Deen - Rain (Original Mix)
-002. Rob_Dalby - Grand Piano
-003. Pedro Del Mar & Kostya Veter - A Breeze of Spring (Original Mix)
-004. Craving - First Feeling
-005. Deluna - Axygen (Arc Remix)
-006. Techtrek - Mandarina (Sandeagle Remix)
-007. Sunny Lax & Solex - Out Of This World (Mike Koglin Remix)
-008. Mike Danis - Nothing Fades
-009. Roger Shah pres. Sunlounger - Trademark White (Incognet Remix)
-010. Moein - Fresh Air (Original Mix)(   Читать дальше...)Жанр: Uplifting Trance, Dream Trance, TranceПродолжительность: 02:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F71DF623E60D7E174B54F07025C6113558F45C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 286066   (930975) от 24.01.2011
-
-Lucidstatic - Collection 7 Albums (2008-2010) [MP3|320 kbps]<IDM, Downtempo, Industrial, Rhythmic Noise, Breakcore, Electro, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Broadcast
-02. N.E.P. (Original)
-03. Intercept (2009 revision)
-04. Lost Broadcast (Worms of the Earth remix)
-05. Intercept (Iammynewt remix)
-06. Intercept (Native Resolution remix)
-07. Lost Broadcast (SINthetik Messiah remix)
-08. N.E.P. (Receiver remix)
-09. N.E.P. (New Economic Plague remix)
-10. Lost Broadcast (Transmission remix)(   Читать дальше...)1. By My Own Admission(bending light remix) (5:27)
-2. Wild(spacial mix) (5:33)
-3. A Small Reminder(forgotten mix) (4:20)
-4. Roomremover(acidic remix) (3:52)
-5. Carving My Initials Into Your Skull With An Axe (lucidstatic mix) (4:45)
-6. Erasus (lucidstatic vs mono penguin throwdown mix) (5:05)
-7. Frozen(on the rocks mix) (5:29)
-8. Rape System(feral mix) (3:38)
-9. Cold Storage ( frosty mix) (6:14)
-10. In The Name Of Torture(bone peeler mix) (5:24)(   Читать дальше...)Жанр: IDM, Downtempo, Industrial, Rhythmic Noise, Breakcore, Electro, Ambient |Продолжительность: 01:07:04
+DVDFab - мощная программа для копирования DVD и Blu-Ray дисков на DVD5/DVD9 и Blu-Ray диски с возможностями гибкой обработки видеопотока. Программа является одной из лучших на сегодняшний день для копирования, разбиения, пережатия и конвертирования DVD дисков с фильмами. Снимает все защиты и ограничения с диска и, при желании, пережмет диск большой емкости и вместит его в обыкновенную пустую DVD болванку с минимальными потерями качества или разобьет фильм на два диска с полным переносом его меню, удалит всю рекламу, либо запишет только фильм и многое другое.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -496,41 +433,9 @@ Lucidstatic - Collection 7 Albums (2008-2010) [MP3|320 kbps]<IDM, Downtempo, Ind
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 286408   (930977) от 24.01.2011
+###  Публикация: 286608   (929469) от 25.01.2011
 
-VA - Mentalism (Compiled by Monks Of Madness) (2010) [MP3|320 kbps] <Dark Psytrance, Forest Psytrance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-VA - Mentalism (Compiled by Monks Of Madness) (2010)
-Год: 2010
-Жанр: Dark Psytrance, Forest Psytrance
-Лейбл: Geomagnetic.TV
-Продолжительность: 01:14:04
-Кодек: MP3
-Битрейт: 320 kbps
-Тип битрейта: CBRТрек лист:
-01. Arahat - Strange Findings [07:35](   Читать дальше...)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:757B100A6EAFDE00E2540BF93874941A615CF528
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 286168   (930979) от 24.01.2011
-
-VA - ClubMusicRu 50/50 (2011) [MP3|256 kbps]<PoP,Club>
+Dj Cool3r - ENERGY ACCESSIBLE TO EVERYONE #001 (2011) [MP3|192-320 kbps]<Powerfull, Extreme Psytrance>
 
 >>Архив торрентов
 >>Архив Музыки
@@ -542,136 +447,51 @@ VA - ClubMusicRu 50/50 (2011) [MP3|256 kbps]<PoP,Club>
 
 ###  Подробнее
 
-001 MaXimA - Небо вода (Harisma remix)
-002 5iveSta - Зачем (For People remix)
-003 Dan Balan - Justify sex (DJ Nejtrino & DJ Stranger remix)
-004 Zara Wild - Рай (DJ Pomeha & Igor Kox radio mix)
-005 Tiesto & Diplo - Cmon (original mix)
-006 Privin & Reznik pres. Masha - Гороскоп
-007 Allysia - Без тебя
-008 Steel Deluxe & Andrian - Куда бегут печали
-009 А. Кабанов & Володя Aspirin - Лети (extended mix)
-010 AStudio - Fashion girl (Vengerov dance remix)(   Читать дальше...)Жанр: PoP,ClubПродолжительность: 07:13:57
+1. Attik - Alien On The Last Floor
+2. Ultravoice vs. Perplex - Shake Walker
+3. Azax Syndrom, Painkiller - Sons of God
+4. FunCake - No Breaks
+5. Cosa Nostra - Feelings
+6. Creactive And Aum Project - Infra Radiation Flux
+7. Hux Flux - Bring Your Own BIOS (Ctrl Alt Del Rmx)
+8. Painkiller vs. Lost & Found - Transmit
+9. Freeze - GiftedЖанр: Powerfull, Extreme PsytranceПродолжительность: 01:03:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:41D6EB29BDFF963BE3ED6BDE74260D0FC7D465CA
+magnet:?xt=urn:btih:A418DAF61376B8C6E66D487140BB0265A71E57B8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 285389   (930983) от 24.01.2011
+###  Публикация: 285475   (929471) от 25.01.2011
 
-Seraphim - Ai (2004) [MP3|320 kbps]<Symphonic Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1 Intro 1.21
-2 Tears 5.23
-3 Resurrect 6.29
-4 Implementation 5.29
-5 Desperate 6.09
-6 Can't Take 4.57
-7 My 7.25
-8 In The Air 5.41
-9 Gone 3.44
-10 Before 6.34(   Читать дальше...)Жанр: Symphonic Power MetalПродолжительность: 01:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71918D6A5951686B3D814DB94E38F1B2DDD1397B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094180   (930984) от 17.01.2017
-
-VA - Mysterious Station. The Best Of 2016 (Mixed By Dr Riddle) (2017) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akamana - Helga (Stella Project Remix) 07:38
-02. South Empire - Empire (PvR Remix) 07:00
-03. Nx-Trance - Us (Original Mix) 08:19
-04. Nx-Trance - XCite (NXT TechLifting Mix) 08:25(   Читать дальше...   )Жанр: TranceПродолжительность: 03:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACE66381E43A3DA8CA1FAE8DD0C001255FD07164
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 286338   (930985) от 24.01.2011
-
-VA - You want to dance... from AGR (2011) [MP3|256 kbps]<Pop, Club>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, ClubПродолжительность: 06:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ECC596AD6F4ED640C4F40C4FB940DC1B23FF327
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986585   (930986) от 14.02.2016
-
-Воскресное время - Первый канал (14.02.2016) SATRip
+Кино в деталях. В гостях Юлия Высоцкая (эфир 27.12.2010) SATRip
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930986.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Информационно-аналитическая программа Первого канала, выходящая в эфир каждое воскресенье (кроме праздников) с начала сентября по начало июля в 21:00 с хронометражем в 1 час. Рубрик не имеет. Состоит из двух частей примерно по полчаса каждая, разделенных рекламным блоком. Производится Дирекцией информационных программ ОАО «Первый канал».Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 01:35:05
+В эфире СТС программа "Кино в деталях" - Федор Бондарчук продолжает анализировать "важнейшее из искусств", придерживаясь изначально выбранного кредо: навигатор по киноиндустрии на СТС не должен быть похож ни на одну из программ на отечественном ТВ. В своей программе Федор показывает кино с разных ракурсов: обсуждает эстетическую сторону кино и его бизнес-составляющую. В программе звучат только авторитетные мнения и только свежие новости мира кино.Жанр: ТелепередачаПродолжительность: 00:49:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D9D52C0FBF4EB869AC9EE3F9A91F3F04CE9492A
+magnet:?xt=urn:btih:3EA0A76551388E9F9BDC41A37871F86FFC79124C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 284141   (930988) от 24.01.2011
+###  Публикация: 286785   (929473) от 25.01.2011
 
-Armin van Buuren - A State of Sundays 019 (16.01.2011) [MP3|128-192 kbps]<trance>
+Infinity Overture - The Infinite Overture Pt. 1 (2011) [MP3|320 kbps]<Symphonic Power Metal>
 
 >>Архив торрентов
 >>Архив Музыки
@@ -683,19 +503,27 @@ Armin van Buuren - A State of Sundays 019 (16.01.2011) [MP3|128-192 kbps]<trance
 
 ###  Подробнее
 
-[58:48] 01. Armin Van Buuren - A State of Sundays-SAT-01-16-2011Жанр: tranceПродолжительность: 00:58:48
+1. The Hunger (04:49)
+2. The Stand (04:28)
+3. Angels (05:55)
+4. Evernight (04:46)
+5. Secrets (05:00)
+6. Back From the Past (04:59)
+7. Smoke and Mirrors (05:01)
+8. The Infinite Overture Pt. 1 (07:16)
+9. Darkness of Mind (05:04)Жанр: Symphonic Power MetalПродолжительность: 00:42:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69AF5060EB963CB943FFEA03B08EF5EC9B80F8D0
+magnet:?xt=urn:btih:D4E6E61CAF6E38E1BCA4D54E4A01FBBDEFB3EE58
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 286329   (930991) от 24.01.2011
+###  Публикация: 286964   (929475) от 25.01.2011
 
-Patchbay and Ital - Why The Universe Exists (EP) (2011) [MP3|320 kbps] <Psytrance, Progressive>
+Agneton - Horizon In Your Head (2008) [MP3|~201 kbps] <Goa Trance>
 
 >>Архив торрентов
 >>Архив Музыки
@@ -707,27 +535,27 @@ Patchbay and Ital - Why The Universe Exists (EP) (2011) [MP3|320 kbps] <Psytranc
 
 ###  Подробнее
 
-Patchbay & Ital - Why The Universe Exists? (EP) (2011)
-Год: 2011
-Жанр: Psytrance, Progressive
-Лейбл: Antu Records
-Продолжительность: 00:20:37
+Agneton - Horizon In Your Head (2008)
+Год: 2008
+Жанр: Goa Trance
+Лейбл: Phototropic Records
+Продолжительность: 01:01:43
 Кодек: MP3
-Битрейт: 320 kbps
-Тип битрейта: CBRТрек лист:
-01. Why The Universe Exists [06:29](   Читать дальше...)
+Битрейт: ~201 kbps
+Тип битрейта: VBRТрек лист:
+01. Agneton - Silver Shadow Lifeforms [07:08](   Читать дальше...)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:333194C0A08F778601177128082D776E288D3D7D
+magnet:?xt=urn:btih:46F84B32705C6D16DA368152B77EE8FAB07992D3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 286366   (930993) от 24.01.2011
+###  Публикация: 284146   (929477) от 25.01.2011
 
-VA - Trance Maniacs Party: Trancefer Wave #44 (2011) [MP3|320 kbps]<Uplifting Trance, Dream Trance, Trance>
+Flucturion and Psybrothers - Contrary To Prioritys (2010) [MP3|~202 kbps] <Dark Psytrance>
 
 >>Архив торрентов
 >>Архив Музыки
@@ -739,20 +567,159 @@ VA - Trance Maniacs Party: Trancefer Wave #44 (2011) [MP3|320 kbps]<Uplifting Tr
 
 ###  Подробнее
 
-001. Haris C - Time To Say Goodbye (Original Mix)
-002. Indecent Noise - Dirty Secret (Original Aero Mix)
-003. Marcel Woods - BPM (Original Mix)
-004. Oliver Smith - Chordplay
-005. SHato - Mentha (Original Mix)
-006. Kid Massive & John Puzzle - Makarska (Moonbeam Remix)
-007. Motehra - Remember Us (DJ Tarkan & V-Sag Mix)
-008. Nitrous Oxide - Dreamcatcher (Club Mix)
-009. Richard Sander - Heaven (Blue Tente Remix)
-010. Snatt & Vix vs. In Progress - Sunride (Ronski Speed Remix)(   Читать дальше...)Жанр: Uplifting Trance, Dream Trance, TranceПродолжительность: 02:54:47
+Flucturion and Psybrothers - Contrary To Prioritys (2010)
+Год: 2010
+Жанр: Dark Psytrance
+Продолжительность: 01:18:53
+Лейбл: Insomnia Records
+Кодек: MP3
+Битрейт: ~202 kbps
+Тип битрейта: VBRТрек лист:
+01. Flucturion vs. Jun - Kino Bot [08:24](   Читать дальше...)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85D598278B446718EF9C549ACE0C7EB78BB9D6BD
+magnet:?xt=urn:btih:B0A6F402DCCA6D1B733D8330AFB42AFEC70A4681
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 287179   (929480) от 25.01.2011
+
+VA - Summer Snow (1 Year Compilation) (2011) [MP3|320 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Trance, Uplifting Trance, Progressive Trance, Progressive HouseПродолжительность: 01:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E74D66CFF09707A4E86706FBD4C871559EE009
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 286410   (929482) от 25.01.2011
+
+Центральное телевидение. Выпуск №18 (2011.01.23) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Сегодня мы вылавливаем новости в телеэфире и Интернете, обсуждаем в очередях и в блогах, обмениваемся ссылками на интересные видеоролики и фото и не делим новости на "официальные" и "из жизни". Чтобы вызвать цепную реакцию, любая тема должна отвечать единственному требованию - быть интересной. Тот же принцип положен в основу нового воскресного проекта НТВ "Центральное телевидение". Формат, в котором нет понятий "формата" и "неформата". Мультимедийный и мультижанровый. Отбирающий информационные поводы по единственному весомому критерию: что интересно - то и показываем!В выпуске: Ведущий: Вадим ТакменёвЖанр: ТележурналистикаПродолжительность: ~ 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5594F97A848D770A864335C5E5EFDBFFF5DC248
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 286718   (929484) от 25.01.2011
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #36 (2011) [MP3|320 kbps]<Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Mistigris - Sunshine
+002. Fabio XB feat. Yves De Lacroix - Close To The Stars (Jerome Isma-Ae Remix)
+003. Origene - Sanctuary (Gafty & More Remix)
+004. Santerna feat. Stine Grove - Somewhere Better (Vocal Club Mix)
+005. Luca De Maas feat. La'Cor - Never Ending Misery (Radio Mix)
+006. Filo & Peri feat. Audrey Gallagher - This Night (Arty Remix)
+007. Infinity - Understand Me (Trance Arts Remix)
+008. The Madison feat. Marta Lay - Kiss You (Robert Vadney's Kiss Mix)
+009. Tom Cloud feat. Antonia Lucas - Silent Sun (DJ Observer & Daniel Heathcliff Vocal Mix)
+010. Vast Vision feat. Fisher - Behind Your Smile (Suncatcher Remix)(   Читать дальше...)Жанр: Vocal TranceПродолжительность: 03:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48BCBB10A6C58B09B0B0C0BF8B51C5216B512586
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 755175   (929485) от 09.02.2014
+
+Зажги меня / Plush (2013) BDRip [1080p] [VO]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Молодая рок-звезда Хейли (Эмили Браунинг) в фильме «Зажги меня» (Plush) переживает не самый лучший период в жизни: после того как ее брат погиб от передозировки, она никак не может взять себя в руки. Новый альбом ее группы раскритикован и потерпел финансовый крах, сама она превратилась в бледную тень себя самой.
+
+Все меняется, когда в жизни девушки появляется гитарист Энцо (Ксавьер Сэмюэл). Он становится новым членом группы и одновременно захватывает сердце Хейли, вдохновляя ее на покорение новых творческих высот. Но все осложняется, когда героиня триллера «Зажги меня» узнает темную историю Энцо. Она понимает, что, вероятно, впустила сумасшедшего в свою жизнь, и это может стоить ей жизни самых близких людей.Жанр: Триллер, ДрамаРежиссер: Кэтрин Хардвик / Catherine HardwickeАктеры: Эмили Браунинг, Завьер Сэмюэл, Кэм Жиганде, Фрэнсис Фишер, Брэндон Джей МакЛарен, Доун Оливери, Кэйси ЛаБоу, Джеймс Кайсон Ли, Марлин Форте, Кимико ГельманПеревод: Одноголосый закадровый, любительскийЯзык субтитров: Русский, английскийПродолжительность: 01:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1701CBDD4D8104351D8C4BF683887382A9837B36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 286376   (929486) от 25.01.2011
+
+VA - Trance Maniacs Party: Trancefer Wave #41 (2010) [MP3|320 kbps]<Uplifting Trance, Dream Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+001. Markus Schulz - Rain (Phynn Remix)
+002. D-Mad - FMG (Official Future Music Gallery Anthem 2010)
+003. John O'Callaghan vs. Neptune Project - Rhea
+004. Suncatcher - First Day (Original Mix)
+005. Mike Danis - Believe
+006. Modified Frequencies & Rick Siron - Another You (Chapter XJ Remix)
+007. Plastic Boy - Pacific Dreams
+008. San Antonio Harbour - Romantic Avenue (Original Mix)
+009. Three 'N One pres. Johnny Shaker - Pearl River (Da'Others & Andrea Saenz Unplugged mix)
+010. Bart Claessen - Elf (2001 Returning Mix)(   Читать дальше...)Жанр: Uplifting Trance, Dream Trance, TranceПродолжительность: 02:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:624A1B3EB4568BF8B1858B1E5DDB4754E66A315D
 ```
 
 

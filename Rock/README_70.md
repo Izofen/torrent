@@ -1,3 +1,57 @@
+###  Публикация: 1289261   (687727) от 15.03.2019
+
+dArtagnan - In jener Nacht (2019) [MP3|320 Kbps] <Musketier-Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687727.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. In jener Nacht
+2. Flucht nach vorn
+3. Chanson de Roland
+4. Einer für alle für ein'(   Читать дальше...   )Жанр: Musketier-Rock, Folk RockПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524A1D8421231B2D888CB9CFA91A0C8ECF29D4C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028571   (688673) от 23.06.2016
+
+VA - Greatest Ever! Dad Rock (2016) 3CD [MP3|320 кб/с] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocean Colour Scene - The Day We Caught The Train (3:06)
+ 02. The La's - There She Goes (2:42)
+ 03. Stereophonics - Dakota (4:56)
+ 04. The Charlatans - Blackened Blue Eyes (4:19)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 03:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDAFA9ADDB1DB651313F0D065EFE541F9CE7FA0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289179   (690062) от 14.03.2019
 
 Echoes - Live From The Dark Side A Tribute To Pink Floyd (2019) [MP3|320 Kbps] <Psychedelic Rock, Progressive Rock>
@@ -641,60 +695,6 @@ magnet:?xt=urn:btih:0ED2A4295148C5576EC071699F877E9A80209DCE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC54CAEC97BBB600AC77ECA7811C9E7D1B56D161
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132698   (700828) от 09.05.2017
-
-The Rubettes - The Singles Collection (1992) [MP3|320 Kbps] <Rock & Roll, Pop Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugar Baby Love
-02. Tonight
-03. Juke Box Jive
-04. I Can Do It(   Читать дальше...   )Жанр: Rock & Roll, Pop Rock, GlamПродолжительность: 01:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36B01EC6F6D5532456EFBBA1F9243DDB7D10CA26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402314   (701715) от 14.08.2020
-
-Скрябін - Про любов - InOrganik (Remixed) (2020) [MP3|320 Kbps] <Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701715.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Про любов (Budapest Pop-Mix)
-2. Парасолі (Budapest Pop-Mix)
-3. Хлопці-Олігархи (Budapest Pop-Mix)
-4. Вибач (VSTeam Remix)(   Читать дальше...   )Жанр: Rock, ElectronicПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:241BF16E0600255FB7E7B89E407674FB62624E17
 ```
 
 

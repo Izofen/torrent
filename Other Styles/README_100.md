@@ -1,3 +1,171 @@
+###  Публикация: 1145076   (619829) от 26.06.2017
+
+VA - Zen Tracks Deep Inner Peace (2017) [MP3|320 Kbps] <Chillout, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindfulness Meditation Music Spa Maestro - Zen Tracks
+02. Meditation Mantras Guru - Positive Affirmations
+03. Rebirth Yoga Music Academy - Reiki (Healing Music)
+04. Mantra Yoga Music Oasis - Healing Your Soul(   Читать дальше...   )Жанр: Chillout, Ambient, New AgeПродолжительность: 01:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C7148E40972F67867C1F3A80895102262D9F6E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295450   (620621) от 12.04.2019
+
+David Arkenstone - Pure Sleep (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620621.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Be Still  7:11
+2 The Here and Now  7:48
+3 Mindful Breathing  8:48
+4 Relax and Release  8:30(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B86C72DA9D16F03D629465B42FB1E7A84E2B65EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229996   (620889) от 09.06.2018
+
+Сергей Гримальский - Inner Space (1998) [MP3|320 Kbps] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Полёт в будущее (5:43)
+02. Молитва (2:13)
+03. Venus (6:24)
+04. Inner Space (4:23)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ABE305F41EF2474349A7248818E09CC51708052
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229871   (620962) от 09.06.2018
+
+Сергей Гримальский - West (2003) [FLAC|Lossless|image + .cue] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ветер времени (3:52)
+02. Колыбельная (3:35)
+03. Цветные сны (5:53)
+04. Золотой ангел (5:11)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:624B2755B382427AC41842620435D9C37230ADA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508866   (620973) от 14.07.2012
+
+The Guggenheim Grotto - 3 альбома [MP3|128-320 кб/с]<Folk-pop>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trust Me I'm A thief (3:56)
+02. Map of the Human Heart (3:54)
+03. Wings and Feathers (3:53)
+04. Never Before (2:54)
+05. Concentrate (5:09)
+06. Wisdom (3:35)
+07. Ruby Heart (3:33)
+08. The Spiegel Song (3:25)
+09. The Universe Is Laughing (3:07)
+10. Diamond (3:00)Жанр: Folk-popПродолжительность: 00:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441CFD7A61DF7E4EBB90C446384FE0AED9D057F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036320   (621005) от 20.07.2016
+
+VA Hit Country - Hit Country (2014) [MP3|320 Kbps] <Country, Alt Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621005.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Florida Georgia Line - Get Your Shine On
+2. Kenny Chesney - Pirate Flag
+3. Carrie Underwood - Two Black Cadillacs
+4. Jasmine Rae - If I Want To(   Читать дальше...   )Жанр: Country, Alt CountryПродолжительность: 1:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:249D5DBC8C1981E711DABE1119D45E0C3AE492F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 803307   (621019) от 09.07.2014
 
 Marc Shaiman - Семейка Аддамс / The Addams Family (2014 (1991)) [FLAC|Lossless]<Score>
@@ -74,6 +242,39 @@ Wuauquikuna - VII: The Sun Of The Inka's (2016) [FLAC|Lossless|image + .cue] <Na
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2470BD5CD96534ACAA5CE009DDC55EFCFDFA6723
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 219679   (621686) от 20.07.2010
+
+Namaste - True Crystals (2009) [MP3|256 kbps]<New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_621686.jpg" />
+</div>
+
+
+###  Подробнее
+
+(6:12) 01. Hematite
+(6:32) 02. Citrine
+(6:09) 03. Amber
+(7:10) 04. Rose Quartz
+(6:33) 05. Adventurine
+(6:11) 06. Aquamarine
+(5:55) 07. Celestite
+(6:40) 08. Amethyst
+(6:33) 09. Clear Quartz
+(6:05) 10. Onyx(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 01:16:38
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -340,6 +541,39 @@ magnet:?xt=urn:btih:75A6353D8250F92BD2AC7CEE85FC8609096FA2F6
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522140   (623012) от 13.07.2012
+
+Большой Барабан - The Big Drum (Live) (2009) [MP3|64-160 кб/с]<Instrumental, World Music,>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_623012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Большой Барабан (1:29) 64 kbps
+02. Большой Барабан (1:42) 64 kbps
+03. Большой Барабан (3:16) 64 kbps
+04. Большой Барабан (3:57) 64 kbps
+05. выступление в Белых Облаках (9:06) 160 kbps
+06. выступление в Гавань Надежды (7:41) 160 kbps
+07. выступление в Картонии (11:02) 70 kbps (VBR)
+08. и Оркестр Интуитивной музыки (7:27) 160 kbps
+09. выступление на винзаводе (3:40) 89 kbps (VBR)
+10. выступление на Евроконе (7:16) 64 kbpsЖанр: Instrumental, World Music,Продолжительность: 02:37: 58
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542817   (623568) от 14.04.2022
 
 James Asher - Return of the Tiger (2011) [FLAC|Lossless|tracks + .cue] <New Age, Tribal, World Beat>
@@ -497,222 +731,6 @@ VA - Me Before You / До встречи с тобой (Original Motion Picture 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:281AEF1FBE9369D024B13D9612273BBF45E7360E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035716   (624576) от 18.07.2016
-
-Craig Armstrong - Me Before You / До встречи с тобой (Original Motion Picture Score) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me Before You Orchestral (07:14)
-02. Will Goes to Work (00:56)
-03. The Castle (01:34)
-04. Walk Home (00:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414FE1B84ABC93094A0256B3B67F534A6D91FF80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035708   (624583) от 18.07.2016
-
-VA - Me Before You / До встречи с тобой (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Jury - Numb (04:06)
-02. HOLYCHILD - Happy With Me (02:48)
-03. X Ambassadors - Unsteady (Erich Lee Gravity Remix) (03:24)
-04. Jessie Ware - Till The End (03:00)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859D07FD392A2A1F17B9F95875FD6D2E8B69911D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035719   (624662) от 18.07.2016
-
-Craig Armstrong - Me Before You / До встречи с тобой (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me Before You Orchestral (07:14)
-02. Will Goes to Work (00:56)
-03. The Castle (01:34)
-04. Walk Home (00:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:043E4B142E544F18F7D2323C03C0585901CFF38E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035668   (624720) от 18.07.2016
-
-Brian Tyler, Keith Power - Criminal (Original Motion Picture Soundtrack) (2016) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drift and Fall Again (feat. Lola Marsh) (4:07)
-02. Criminal (Madsonik Remix) (3:55)
-03. Pope (3:17)
-04. Division (4:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4907639295B96BAC5657E56EE3D7AE080999BF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144565   (625526) от 23.06.2017
-
-Empire Of Love - Mysterious I-II (2016-2017) [MP3|320 Kbps] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children Of The Sun (4:54)
-02. Heya (5:45)
-03. In The Dream Of The Monk (4:32)
-04. Inside You (4:36)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:31:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83FDD83595B7688500A775CBD1605D783592C103
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035552   (626241) от 17.07.2016
-
-Andy Hull and Robert McDowell - Swiss Army Man / Человек – швейцарский нож (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Song (feat. Paul Dano) (02:27)
-02. Where Did You Come From? (feat. Paul Dano) (02:43)
-03. Cave Ballad (feat. Paul Dano) (01:46)
-04. Hank Drinks (01:28)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4301B005B315B4A7A9FE27C6876E6645E68DD0CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035549   (626378) от 17.07.2016
-
-Andy Hull and Robert McDowell - Swiss Army Man / Человек – швейцарский нож (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Song (feat. Paul Dano) (02:27)
-02. Where Did You Come From? (feat. Paul Dano) (02:43)
-03. Cave Ballad (feat. Paul Dano) (01:46)
-04. Hank Drinks (01:28)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365BBB2C96BBD2A022A81AA2593797BC196FE300
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229263   (626463) от 06.06.2018
-
-VA - Eamonn Karran - I’ll Be With You (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The River (5:19)
-02. Guiding Light (4:30)
-03. I'll Be With You (4:20)
-04. Morning Light (4:24)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:810B6871D4F8792DF0A872AB45156E0A57AE22E5
 ```
 
 

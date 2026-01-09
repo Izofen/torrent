@@ -1,3 +1,30 @@
+###  Публикация: 1378965   (843042) от 27.04.2020
+
+a-ha - Scoundrel Club (1987) EP, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cry Wolf (Extended Version) (8:14)
+ 02. We're Looking For The Whales (Live) (3:51)
+ 03. I've Been Losing You (Dub) (4:29)
+ 04. Manhattan Skyline (Extended Remix) (6:50)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, SynthpopПродолжительность: 00:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44EE0EC5DA55EB6311D7F0CC72533D6F9AB4FB91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112474   (843306) от 08.03.2017
 
 Luigi Tenco - Tenco (1966) [APE|Lossless|image + .cue] <Pop>
@@ -682,34 +709,6 @@ VA - NRJ 200% Hits 2015 (2015) [FLAC|Lossless]<Pop, Hip Hop, Eurodance, R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EFEA8455B83DBCC1681201200F7C7949E8F49F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875712   (855959) от 07.03.2015
-
-Madonna - Rebel Heart [Super Deluxe Edition] (2015) 2CD [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855959.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 (01:14:25)
-CD2 (00:28:17)Треклист CD1:
-01. Living for Love
-02. Devil Pray
-03. Ghosttown(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C5BCAAAC6588999643E9856A9B20A116D364B9C
 ```
 
 

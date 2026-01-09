@@ -1,3 +1,306 @@
+###  Публикация: 1106771   (871220) от 20.02.2017
+
+VA - Ёлки 5 (Музыка к фильму) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Секрет - На любой стороне земли (03:44)
+02. Павел Есенин - The Beginning (01:40)
+03. Павел Есенин - The Arctic Life (00:50)
+04. Павел Есенин - Vova & Varya (00:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3C855C2D2AC03333B148A3C7FDF50613DBD538
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106831   (871391) от 20.02.2017
+
+2002 - Celtic Fairy Lullaby (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seoithín Seo Hó Gartan Mother's Lullaby
+02. Cariad
+03. Bí Thusa Mo Shúile
+04. Away from the Roll of the Sea(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23EAF3FFF7DD4436495704E6EF134AA11F9CECDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496505   (871397) от 18.09.2021
+
+Sarah Patterson - Buddhasongs (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, World, Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Heart Sutra
+02. Buddha of the Wild and Green
+03. Deer in the Morning (Chenrezig)
+04. Medicine Buddha Healing(   Читать дальше...   )Жанр: New Age, World, MantrasПродолжительность: 00:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A406732959A4E7C5FD8AE63ACF7E6F4EDF772C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 186479   (871440) от 31.03.2010
+
+David Nevue - 10 albums (1991-2007) [MP3|320 kbps]<New Age, Solo pian>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New Age, Solo pianoПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997648   (871459) от 18.03.2016
+
+Romantic Collection - HARP (2002) [MP3|320 кб/с] <Instrumental, vocal>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erotica (05:23)
+02. Dee (03:49)
+03. Snowcaps (04:12)
+04. Peligroso Amor (03:44)(   Читать дальше...   )Жанр: Instrumental, vocalПродолжительность: 01:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A443639C09ECF53C11D15E07B9E5553190A77E6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106824   (871560) от 20.02.2017
+
+2002 - Celtic Fairy Lullaby (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seoithín Seo Hó Gartan Mother's Lullaby
+02. Cariad
+03. Bí Thusa Mo Shúile
+04. Away from the Roll of the Sea(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D5C576E9B2AD3BE8703D2896DCE9C780B38D882
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997635   (871752) от 18.03.2016
+
+Romantic Collection - HARP (2002) [FLAC|Lossless|image + .cue] <Instrumental, vocal>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erotica (05:23)
+02. Dee (03:49)
+03. Snowcaps (04:12)
+04. Peligroso Amor (03:44)(   Читать дальше...   )Жанр: Instrumental, vocalПродолжительность: 01:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F27DEE66C8E4A7029B03696B6401247E515E4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 188260   (871919) от 31.03.2010
+
+Existence - 10 albums (2004-2009) [MP3|320 kbps]<New Age, Relax, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Jai Ramakrishna
+02. Om Mani Padme Hum
+03. Sancta Maria
+04. Sri Ananda Ma
+05. Allah Hay
+06. Gayatri Mantra
+07. Pie Jesu
+08. Shiva Shankara
+09. ShalomЖанр: New Age, Relax, MeditativeПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 301277   (872223) от 26.02.2011
+
+VA - Ballroom Dance Collection (10CD) (2001) [MP3|320 kbps]<Ballroom Dance | Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ballroom Dance | Easy ListeningПродолжительность: 12:24:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:969CE3E3E8E8D13DE848A08BC9C88C922B8EC280
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 368425   (872274) от 10.04.2020
+
+VA - Pan Pipes of the Andes - 3 альбома (1998) [FLAC|Lossless|tracks + .cue] <New age, Pan pipes>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pan flute или pan pipe или многоствольная флейта — флейтовый музыкальный инструмент, состоящий из нескольких соединённых или отдельных трубок как правило без пальцевых отверстий. Нижние концы трубок могут быть открытыми или закрытыми.
+На верхние срезы трубок направляют струю воздуха. Каждая трубка издаёт один основной тон, высота которого зависит от длины, диаметра (   Читать дальше...   )Список альбомов:
+1998 - Pan Pipes of the Andes - CD-1
+1998 - Pan Pipes of the Andes - CD-2
+1998 - Pan Pipes of the Andes - CD-3Жанр: New age, Pan pipesПродолжительность: 02:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A005889B180659F86931F455A0449F3C3618658
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765689   (872433) от 13.03.2014
+
+Christophe Beck - Холодное сердце / Frozen (Русский Саундтрек) (2013) [FLAC|Lossless]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Павел Конаев и Андрей Бирин - Сердце Льда [1:34]
+02. Варя Новошинская и Натали Быстрова - За Окном Опять Сугробы [3:26]
+03. Натали Быстрова и Анна Бутурлина - Впервые [3:44]
+04. Дима Билан и Натали Быстрова - Это Моя Любовь [2:05]
+05. Анна Бутурлина - Отпусти и забудь [3:43]
+06. Андрей Бирин - Олени приятней, чем люди [0:45]
+07. Сергей Пенкин - Лето [1:49]
+08. Натали Быстрова и Анна Бутурлина - Впервые (Реприза) [2:29]
+09. Анастасия Лапина, Екатарина Сёмина, Павел Ковалёв, Андрей Бирин, Варя Новошинская и Юлия Баранчук - Неполадки [3:01]
+10. Demi Lovato - Let it Go (Demi Lovato Version) [3:45](   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA86537AA00C3CF0380BDEE4CCFEAD9CAE9C5E17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 301406   (872540) от 26.02.2011
 
 101 Strings Orchestra - Ballroom Under The Stars (2007) 3CD [MP3|320 kbps]<Ballroom Dance | Easy Listening>
@@ -427,338 +730,6 @@ Hayseed Dixie - Killer Grass (2010) [FLAC|Lossless]<Bluegrass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68B8BAC4C1493C785DF7E0555CD067F46B5340CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791724   (874132) от 09.04.2020
-
-David Arkenstone - Citizen of the World (1999) [FLAC|Lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forest Runners (5:55)
-02. Desert Crossing (5:22)
-03. Moonflower (5:10)
-04. The Gypsy Camp (4:21)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0143BDFD0624F1FEB95F033E8C66A1E7AF0F581
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 783854   (874193) от 09.04.2020
-
-Troika (David Arkenstone) - Shaman (2000) [FLAC|Lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calling (7:14)
-02. Vision Quest (6:21)
-03. Crossing the Light (6:00)
-04. Other World (6:43)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58C4F966F89DF960DAF2147DA5640FA9AA38ED3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300574   (874264) от 25.02.2011
-
-Gregorian - Best Of 1990-2010 (2011) [MP3|320 kbps]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 -Жанр: New AgeПродолжительность: 01:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF34006CC0C96683C19A53C94647A73C73FA7885
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 643043   (874414) от 13.04.2013
-
-Caravelli - 54 альбома (1965-2011) [MP3|128-320 кб/с]<Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Оркестр Каравелли (Caravelli Orchestra) - едва ли не самый знаменитый на сегодняшний день оркестр, исполняющий лёгкую инструментальную музыку. Потрясающая фоновая музыка, на все времена! Французский музыкант, пианист, композитор, великолепный аранжировщик, дирижёр, создатель вышеупомянутого коллектива, сын итальянца и француженки - всё это сказано о Клоде Вазори, взявшего себе сценический псевдоним Caravelli. Целая плеяда артистов, приверженцев инструментальной музыки, из самых разных стран, так, или иначе, выросли вместе с творчеством французского маэстро. Почему, собственно, только артистов? Все семидесятники - восьмидесятники, так или иначе, выросли на этих записях...01 - I'm Not In Love
- 02 - Born To Be Alive
- 03 - Dancing Queen
- 04 - Une, Deux, Tois
- 05 - Chiquitita
- 06 - Un Banc, Un Abre, Une Rue
- 07 - Magic Fly
- 08 - Samson & Delilah
- 09 - Tweedle Dee, Tweedle Dum
- 10 - T.S.O.P (The Sound Of Philadelphia)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5143BCAA53CC8283A5D662BD412017FACA753837
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 186931   (874691) от 29.03.2010
-
-Би-2 - О чем говорят мужчины (OST) (2010) [MP3|320 kbps]<Rock>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1.Скандал (3:30)
-2.Реки Любви (4:08)
-3.Вечная Призрачная Встречная (5:12)
-4.Ярмарка Невест (5:26)
-5.Черный День (3:43)
-6.Задеть За Живое (7:34)
-7.Когда Мы Станем Снегом (4:25)
-8.Фавн Dj (4:14)
-9.Её Глаза (Из Шекспира) (4:53)
-10.Падает снег (feat. Чичерина) (4:03)(   Читать дальше...)Жанр: Rock
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 187498   (875310) от 29.03.2010
-
-Existence & Margot Reisinger - Planetary Healing (2008) [MP3|320 kbps]<New Age, Meditative, Healing>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Sun (5:33)
-02. Mercury (5:50)
-03. Venus (5:39)
-04. Earth (5:44)
-05. Moon (5:50)
-06. Mars (5:45)
-07. Jupiter (4:49)
-08. Saturn (5:10)
-09. Uranus (6:06)
-10. Neptune (5:43)(   Читать дальше...   )Жанр: New Age, Meditative, HealingПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997435   (875584) от 16.03.2016
-
-Jozef Van Wissem - When Shall This Bright Day Begin (2016) [MP3|320 кб/с] <Folk, Dark Folk, Experimental>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875584.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. To Lose Yourself Forever Is Eternal Happiness
-2. You Can't Remain Here
-3. Detachment
-4. The Purified Eye of the Soul Is Placed In the Circle of Eternal Sun(   Читать дальше...   )Жанр: Folk, Dark Folk, ExperimentalПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70361A1C7F88CBA512AE8BB25645106AD0C858A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 643293   (876015) от 13.04.2013
-
-Andre Moss - My Spanish Rose (2008) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - My Spanish Rose
-02 - Fiesta At Night
-03 - The Tears In Your Eyes
-04 - Take Me To Your Heaven
-05 - Mademoiselle Monique
-06 - Simply Cause I Like It
-07 - Angelina
-08 - Behind The Clouds
-09 - Yesterday On My Mind
-10 - Lady Of My Life(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D95184029F94CEE065155F26886C5A781376A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764966   (876157) от 11.03.2014
-
-Olivier Deriviere - Remember Me (2013) [FLAC|Lossless]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Nilin The Memory Hunter - [03:26]
-02. Rise To The Light - [03:34]
-03. Still Human - [03:11]
-04. Fragments - [02:19]
-05. Neo Paris - [04:00]
-06. The Enforcers - [02:15]
-07. Chase Through Montmartre - [04:43]
-08. Memory Reconstruction - [03:13]
-09. The Fight - [03:21]
-10. Our Parents - [02:54](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE01CA3C62C6D9A80496FF563D98E00A6DD58B8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765430   (876279) от 11.03.2014
-
-Enaid (Diane & David Arkenstone) - Avalon. A Celtic Legend (2002) [FLAC|Lossless]<New Age, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Road to Camelot (3:40)
-02. Enchantment (4:39)
-03. Avalon (3:34)
-04. The Spirit of Excalibur (4:40)
-05. Merlin's Secret (4:10)
-06. Lady of the Lake (3:55)
-07. The Round Table (4:49)
-08. Guinevere's Tears (4:46)
-09. The Wedding (4:12)
-10. Arthur's Farewell (5:10)Жанр: New Age, CelticПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63DCC8A1C296C71C18CF1F71E1181E0CBD89A23F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765192   (876334) от 11.03.2014
-
-Rebecca Brandt - 2 Альбома (2012 - 2014) [FLAC|Lossless]<Alternative, Contemporary Classical, Instrumental, Deep House, Grime, Techno>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Run (Hilla Remix) (06:53)
- 02. Staying Silent (Liondub Remix) (05:18)
- 03. 54 (Starkey Remix) (04:15)
- 04. Jewelry Box (Rabit Remix) (03:24)
- 05. Kill the Messenger (tomlaan Remix) (04:52)
-(   Читать дальше...   )Жанр: Deep House, Grime, TechnoПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:637CAE3EDE0A63A2C89AE40FBB8EE81BD2E98E60
 ```
 
 

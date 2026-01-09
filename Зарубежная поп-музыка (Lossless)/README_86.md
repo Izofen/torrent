@@ -1,3 +1,30 @@
+###  Публикация: 990804   (906194) от 28.02.2016
+
+VA - Discoradio Collection Vol.3 (2004) 2CD Compilation [FLAC|Lossless|tracks + .cue] <Synthpop, Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Banderas - This Is Your Life (4:39)
+02. Tina Charles - I Love To Love (3:02)
+03. Londonbeat - I've Been Thinking About You (3:50)
+04. Greg Kihn - Jeopardy (3:49)(   Читать дальше...   )Жанр: Synthpop, Pop, Pop-RockПродолжительность: 02:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6E4B507FADE3769A951B7627F05A9965C25164
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099151   (906642) от 31.01.2017
 
 Marian Hill - Sway (2015) EP [FLAC|Lossless|tracks] <Alternative Pop, Electronic, Minimalist>
@@ -665,31 +692,6 @@ Yumi Zouma ‎ - Willowbank (2017) Japanese Edition [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1764FAEBD17D4DE7F900014577CAD82B4422E696
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096832   (917628) от 25.01.2017
-
-Olivia Holt - Olivia (2016) EP [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917628.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Phoenix (3:20)
-2. Thin AirЖанр: PopПродолжительность: 00:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77152A1EBA1ECF13AEC5F57A4CF0D82DA4500659
 ```
 
 

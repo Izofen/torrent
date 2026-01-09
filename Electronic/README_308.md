@@ -1,3 +1,30 @@
+###  Публикация: 1038699   (604847) от 29.07.2016
+
+Zhu - Generationwhy LP (2016) [MP3|320 Kbps] <Electronic, Deep House, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Neon City) [01:10]
+02. Cold Blooded [04:19]
+03. In the Morning [04:07]
+04. Secret Weapon [04:04](   Читать дальше...   )Жанр: Electronic, Deep House, HouseПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0CBD70E122B6E2577A3AAFD926C158D985F07D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038789   (604970) от 29.07.2016
 
 VA - Dance Zone - Top Music Hits (2016) [MP3|320 Kbps] <House, Progressive>
@@ -106,6 +133,39 @@ magnet:?xt=urn:btih:8B9EA5E74ABC529F8B1759CDFA970C6FD8922C0A
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525946   (605222) от 22.07.2012
+
+VA - Ministry Of Sound - Addicted To Bass (2012) 3CD [FLAC|Lossless]<Progressive House, Dubstep, Tech House, Breakbeat, Hip-House, Electro, Drum n Bass>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_605222.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ministry of Sound» - название одного из крупнейших лондонских ночных клубов, а также связанной с ним звукозаписывающей компании. Девиз компании - «To create the moments people live for» («Создавать моменты, ради которых живут люди»). Addicted To Bass - мощнейший сборник различной басс-музыки в трех частях. В состав сборника вошли хиты таких музыкальных стилей, как: дабстеп, драм энд бейс, електро хаус. Addicted To Bass - рецепт заряда отличным настроением!01. Dj Fresh Feat. Rita Ora - Hot Right Now  :: 02:34
+02. Utah Saints - What Can You Do For Me (Drumsound & Bassline Smith Original Mix) :: 02:44
+03. Example - Midnight Run (Flux Pavilion Mix) :: 04:04
+04. Calvin Harris - Feel So Close (Nero Remix) :: 04:40
+05. Foreign Beggars Feat. Skrillex - Still Getting It :: 03:12
+06. Joker Feat. William Cartright - On My Mind :: 03:30
+07. Porter Robinson - Unison (Knife Party Remix) :: 04:13
+08. High Contrast Feat. Tiesto & Underworld - The First Note Is Silent :: 04:04
+09. Camo & Krooked Feat. Ayah Marar - Cross The Line :: 03:41
+10. Friction Feat. McLean - Someone :: 03:41(   Читать дальше...   )Жанр: Progressive House, Dubstep, Tech House, Breakbeat, Hip-House, Electro, Drum n BassФормат: 3xCD, Compilation, MixedПродолжительность: 03:52:34
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231528   (605242) от 18.06.2018
 
 Pom Pom - 35 (2018) [FLAC|Lossless|tracks|Vinyl] <Techno>
@@ -128,6 +188,72 @@ Pom Pom - 35 (2018) [FLAC|Lossless|tracks|Vinyl] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64FB64D39AF17189052BE1DBEA2C18F4177B7792
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525771   (605523) от 22.07.2012
+
+Goldfish - Caught In The Loop (2005) [FLAC|Lossless]<Afrobeat, Future Jazz, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_605523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два джазовых виртуоза из Южной Африки познакомились, изучая музыку в университете, и организовали электронный дуэт, играющий только вживую. Первую пластинку они записали самостоятельно, используя контрабас, саксофон и несколько синтезаторов. Этот андеграундный альбом, Caught in the loop, стал 1 в их родной стране и положил начало их звездной карьере и культовому статусу.01. The Real Deal :: 04:49
+02. Times May Change You :: 04:30
+03. Love And Hate :: 04:02
+04. Mbira Beat :: 05:02
+05. All Night :: 03:45
+06. Eqyptology :: 04:48
+07. Wait A Minute :: 05:23
+08. The Four Forty Five Blues :: 04:35
+09. Last Tango In Paradise :: 04:00
+10. Dream :: 04:16(   Читать дальше...   )Жанр: Afrobeat, Future Jazz, Deep HouseФормат: CD, AlbumПродолжительность: 01:05:09
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525707   (605525) от 22.07.2012
+
+VA - Ministry Of Sound - Chilled II 1991-2009 (2009) 3CD [FLAC|Lossless]<Deep House, Downtempo, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_605525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ожидаемое продолжение сборника Chilled I 2008 года от именитой студии Ministry of Sound представляет собой фантастический и действительно всесторонний раунд классических вещей Chillout`а от Air, Groove Armada, Coldplay, Zero 7, Everything But The Girl, Daft Punk, Leftfield, Primal Scream, Unkle и многих других. Дополняют общую картину великолепные смеси дип-хауса Эрика Прайдза "Pjanoo" и Кида Коуди "Day And Nite".01. 808 State - Pacific State :: 03:45
+02. The Beloved - Sun Rising :: 04:15
+03. Leftfield - Original :: 04:03
+04. Primal Scream & Denise Johnson - Don't Fight It, Feel It :: 06:44
+05. Sneaker Pimps - 6 Underground :: 03:20
+06. Groove Armada - At The River :: 04:07
+07. St Germain - Dub Experience II :: 03:43
+08. A Man Called Adam - Barefoot In The Head :: 03:58
+09. Moloko - Sing It Back :: 03:06
+10. Kinobe - Slip Into Something More Comfortable :: 04:41(   Читать дальше...   )Жанр: Deep House, Downtempo, AmbientФормат: 3xCD, Compilation, MixedПродолжительность: 03:55:26
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -587,114 +713,6 @@ VA - Blue Marlin Ibiza Vol. 09 (Mixed by UNER & Dosem) (2015) [FLAC|Lossless]<Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0044F52696B3A30EE4C9067022962F8894D8BB37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231380   (607120) от 17.06.2018
-
-VA - The Best Of Critical State 001 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asteria - Whaaat (Indecent Noise Remix)
-02. Estigma - The Joker (Original Mix)
-03. Evan Pearce - Galactica (Original Mix)
-04. HP Source - Highlight Reel (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36686EA23804ADC5F8FA6663BB45E9933DD4B88A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231364   (607124) от 17.06.2018
-
-VA - Silent Shore Selections Top 20: Spring (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christopher Corrigan - Sleepless Nights (Original Mix)
-02. Suprano & Hypersia - Resurrected (Original Mix)
-03. Ashley Smith & Rielle - Let Me Breathe (Original Mix)
-04. Ram & Stine Grove - RAMore (Daniel Skyver Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38460F28D9AFCECFF0B760E177F66D3982A5F9AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231418   (607126) от 17.06.2018
-
-VA - Clubbers Culture (Classified Trance Tracks) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Craig Meichan - Warp Drive (Original Mix)
-02. Ercole - Cut The Wire (Original Mix)
-03. Liam Nicklin - Fire (Original Mix)
-04. Alizera - Galaxy (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9B4852483251C63F6C679F916A63EF0625F4A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913281   (607146) от 28.06.2015
-
-VA - Secret Weapons (2015) [MP3|320 кб/с]<Techno, Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adrian Hour - Speaking Groove (06:16)
-02. Erik Hagleton - Pressure (Club Mix) (06:46)
-03. Mihalis Safras & Mark Broom - Messing (Dosem Remix) (07:13)
-04. Tapesh - Black Out (Club Mix) (06:59)(   Читать дальше...   )Жанр: Techno, Deep House, Tech HouseПродолжительность: 03:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D903EEC87713772E6F70FE80FB1B03B829751817
 ```
 
 

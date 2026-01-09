@@ -1,3 +1,30 @@
+###  Публикация: 1011289   (797020) от 27.04.2016
+
+VA - Romantic Flight In A Dream (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kenny Dickenson - Goldenflower
+02. Florito - Funny Valentine
+03. Nova Casa - You Get Me (feat. Nathalia)
+04. Jan Liesefeld - Americana(   Читать дальше...   )Жанр: Downtempo, Chillout, Lounge, RelaxПродолжительность: 03:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9FAC07987CDA5C3CE4FB590D0EF7EE3A9CC7FB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011429   (797025) от 27.04.2016
 
 VA - Ibiza 2015. Soulful Deep-House. Vol.2 В клубах (2015) [MP3|253-320 кб/с] <House>
@@ -668,33 +695,6 @@ VA - Future Trance Energy 003 April TOP (2016) [MP3|320 кб/с] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C91D16BFA7AAF7A446EBE5166866F2497ADB28C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385358   (797760) от 24.05.2020
-
-VA - Beatport Trance: Electro Sound Pack #87 (2020) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797760.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Future State - Heliosphere
-002. Sunmote - Melancholy
-003. Ex-S & Escobar - Spiritual Dimension
-004. Sunny Lax - Moonlight(   Читать дальше...   )Жанр: TranceПродолжительность: 13:15:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645ED1B912C43C97F2D458C5B8DAF24CB907ADB9
 ```
 
 

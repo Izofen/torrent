@@ -1,3 +1,163 @@
+###  Публикация: 1276978   (787222) от 18.01.2019
+
+VA - Sublime Drum And Bass, Vol.14 (2019) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Kurrupt - Traffic Cops (Original Mix)
+02.  Liraxity - Refuse (Dubbage Remix) (Feat Fireflake)
+03.  DJ Tiny M - Sanity Killz Dat (Original Mix)
+04.  Cryogenics - Addictive (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66050068158FFA45AECEF8459C81931633CBEE61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276846   (787238) от 18.01.2019
+
+VA - Black Hole Trance Music 01-19 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Profetik Feat. Mandy Jones - Memories (Extended Mix)
+02. Orkidea - Forward Forever (Extended Mix)
+03. Maarten De Jong - Goodbye (Extended Mix)
+04. Myon & Late Night Alumni - Hearts & Silence (Super8 & Tab Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C31539303922E83B569F86F12658E50DAA715211
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276843   (787247) от 18.01.2019
+
+VA - Markus Schulz - Global DJ Broadcast Top 20 January (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz & Jam El Mar - Lotus (Extended Mix)
+02. Moogwai - Viola (Elevation Extended Remix)
+03. Fisherman - The JaguarЖанр: TranceПродолжительность: 02:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7831F7349E573352D0A764236ED6ED5BC0687EE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276823   (787249) от 18.01.2019
+
+Adverb - Collection 6 Releases (2013-2019) Etoka Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Volatile (07:54)
+ 02. Dub Protocol (09:30)
+ 03. Manipulate (05:28)Тип издания: WEBЖанр: Dub Techno/Deep TechnoПродолжительность: 00:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5A5FC6C0377290EEAFD78F6E61B62ABAE2AB36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277040   (787255) от 18.01.2019
+
+Aevin - Gravity (2019) [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, Electro, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L1 (01:37)
+ 02. Neptune Trojan (05:03)
+ 03. Halo Orbit (05:18)
+ 04. L2 (01:40)(   Читать дальше...   )Жанр: IDM, Industrial, Electro, ExperimentalПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D635C360B283081352CACD0149DFA481AEB9DFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276973   (787258) от 18.01.2019
+
+VA - Beats And Grooves (30 Top House Tunes),Vol.3 (2019) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Encure feat. Brett Miller Extended Mix - You Lead, I Follow (Extended Mix)
+02. Zinner, Orffee - Someday (Instrumental Radio Edit)
+03. Fijin feat. Nessa Sovi Remix - The One (Sovi Remix)
+04. Ben Weber - My People(   Читать дальше...   )Жанр: HouseПродолжительность: 02:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48FEA7A73E7A2A6B0CCAF650E016A47AB1FB45B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276982   (787259) от 18.01.2019
 
 VA - Minimal Love Vol. 5. (2019) [MP3|320 Kbps] <Minimal>
@@ -533,168 +693,6 @@ VA - Ori Uplift - Uplifting Only 260 (incl. Vocal Trance) (2018) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC01D4227A908B0BC4FCFAD2B21EE5343CB88232
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276479   (788192) от 16.01.2019
-
-VA - Winter Sessions 2019 (Mixed by Milk and Sugar) (2019) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasing Kurt - Let It Run (Organ Version)
-02. Arco - Touch The Sun (Original Mix)
-03. D'al Senio - A Thought In Your Mind (Vocals By Jammaroots)
-04. Francesco Poggi Feat Ida Flo - I Need Your Lovin (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65C942268741B97F8AD4068B42EE5E0BB36BC7FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276196   (788198) от 16.01.2019
-
-VA - Drinks at Sunset, Vol. 3 (2019) [MP3|320 Kbps] <Electro, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Hammock - Speak Of The Mind
-02. Spoq - Scratch
-03. Dub Mars - No Time To Lose
-04. Stuce The Sketch - Resonating Love(   Читать дальше...   )Жанр: Electro, DowntempoПродолжительность: 02:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39E4898F9978E7C637E3EF35AC7F93D20949C705
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203430   (788207) от 02.02.2018
-
-VA - Arabian Shisha Lounge Vol.3 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Christos Fourkis  -  Summer Escape (Original Mix)  6:44
-02.  Dormidontov  -  Love You (Original Mix)  7:10
-03.  Dany Cohiba  -  Afro Civilization (Original Mix)  5:56
-04.  Urban Phunk Society  -  Night Train (Original Mix)  3:21(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC20E7C37303D5D2CCA7E23B9492168AF345C34B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203453   (788211) от 02.02.2018
-
-VA - Markus Schulz - Global DJ Broadcast 2 Hour Mix (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elevation presents Elara - Meridian (World Premiere)
-02. Markus Schulz presents Dakota - Cafe Del Mar
-03. Stoneface & Terminal - Covenant
-04. Giuseppe Ottaviani - Till the Sunrise (Global Selection)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA8179E870BB0496E6141C5389920D90201B306C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203405   (788217) от 02.02.2018
-
-VA - Big Party: EDM Anthems (2018) [MP3|320 Kbps] <House, Melbourne Bounce, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Turbotronic  -  JOA (Original Mix)  4:30
-02.  Maarten Van Larsen, Harlie & Charper  -  Woodoorave (Extended Mix)  4:24
-03.  DJ MNS vs. E-Maxx  -  Night Train (Harlie & Charper Remix)  3:48
-04.  Turbotronic  -  Show Me The Money (Original Mix)  4:13(   Читать дальше...   )Жанр: House, Melbourne Bounce, ClubПродолжительность: 02:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52BBA4124C9C61FDD70136447BA963C291B389F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276592   (788221) от 16.01.2019
-
-VA - Markus Schulz - Global DJ Broadcast - New Year's Rehab (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tim Green - Her Future Ghost
-02. Tonal Axis - Rainfall (Monoverse Remix)
-03. Louis Botella - Sueno Latino (Paradise Slave Mix)
-04. Hernan Cattaneo & Lonya - Confession(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5390D1CC956E686A832D9AB180A3E36A44A35659
 ```
 
 

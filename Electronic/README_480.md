@@ -1,3 +1,162 @@
+###  Публикация: 1363234   (942313) от 28.02.2020
+
+VA - DJ Tapolsky - Drama (2003) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ram Trilogy - Beastman [5:06]
+02. Ram Trilogy - Milky Way [3:54]
+03. Adam F feat. M.O.P. - Stand Clear (Andy C & Ant Miles Remix) [4:05]
+04. Adam F feat. Red Man - Smash Sumthin ()EIB( Remix) [2:58](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37EC164354937F2058EA9152EF88510096524585
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363238   (942412) от 28.02.2020
+
+DJ Tapolsky - Free My Soul Mix (2009) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Tapolsky - Untitled (1:01:03)Жанр: Drum & BassПродолжительность: 01:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06C7DE0AE30DB8E2E856CD04AE5A1EC9044C5709
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362762   (942416) от 28.02.2020
+
+VA - DJ Tapolsky - Lomka (2001) [MP3|192 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aphrodite - Fanfare (6:38)
+02. Mulder - Hoover (4:51)
+03. Drunken Masters - How Much (3:49)
+04. E-Sassin - Wireframe (Teebee Remix) (4:38)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CAB37DF366B718E0C8E9260372AA0D09FD53121
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363281   (942484) от 28.02.2020
+
+Wrangler - A Situation (2020) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthropocene (05:24)
+02. How To Start a Revolution (04:40)
+03. Machines Designed (To Eat You Up) (05:43)
+04. Mess (07:09)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA849B38EFE7AEB771F6702A1BABD3098D51B5C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587128   (942495) от 09.01.2017
+
+Aurosonic - Etyology Sessions 001-193(Обновляемая) (2007-2016) [MP3|320 кб/с]<Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cerf, Mitiska, Jaren - Light The Skies (Harry Peat remix)
+ 02. DJ Fire - Midnight In Beijing
+ 03. Andrew Bennett - Menar (Markus Schulz remix)
+ 04. ATB - Desperate Religion (Aurosonic remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 198:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A847F021CE563DD43E479E0350AE42AEE6E766CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362716   (942542) от 28.02.2020
+
+VA - Dj Бинокль - Fucking Society (2002) [MP3|320 Kbps] <House, Euro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Funk U Later - Something About You (DFR Mix)
+03. Jame Gumb - I Am (Sporting Mix)
+04. Reloop - Fucking Society (DJ Jean Mix)(   Читать дальше...   )Жанр: House, Euro HouseПродолжительность: 00:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCD69EA65598EE4E284324FAB7D6CCCC1850273B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363002   (942597) от 28.02.2020
 
 Omar S - You Want (2020) [FLAC|Lossless|tracks + .cue] <House, Deep House, Techno>
@@ -533,168 +692,6 @@ VA - Sunny Cool & Sexy, Vol. 1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E820109041634C43BF180B4E92F1EFB99314ACFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091273   (944966) от 08.01.2017
-
-Michael E - Heaven Sent (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful (04:27)
- 02. She’s Heavenly (04:56)
- 03. Hathor’s Theme (06:38)
- 04. Make Our World a Better Place (04:45)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73149DCA248051504EA8A0D8DCEAD16C46444AFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090871   (945014) от 08.01.2017
-
-VA - Absolute Love for Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweetadelic - Elevon
-02. Chillelektro - Kap Arkona
-03. Azeotrop - Aftermath
-04. Chiffre 100 - Jolly(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:09:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387F76E683168C58629EA4F16DDE4D37E680F2BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983033   (945228) от 05.02.2016
-
-Tiesto - Elements Of Life (Remixed - Extended Mixes) (2016) [MP3|320 кб/с] <Trance, Progressive Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto - Ten Seconds Before Sunrise (First State Remix) (7:57)
-02. Tiesto feat. JES - Everything (Cosmic Gate Remix) (8:48)
-03. Tiesto feat. Julie Thompson - Do You Feel Me (Roger Martinez Remix) (7:09)
-04. Tiesto - Carpe Noctum (Fire Element Mix) (7:15)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 03:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07812DC4A4221A0734C30DC8F1E4BBF4D723CE13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983151   (945548) от 05.02.2016
-
-John Dahlback - Saga (2016) [MP3|320 кб/с] <Electro House, Progressive House, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saga Intro (01:27)
-02. Into You (03:28)
-03. Sycophant (03:42)
-04. Raven (03:13)(   Читать дальше...   )Жанр: Electro House, Progressive House, Future HouseПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C3705A6A698E6155BBBEC3D750A2F7400B5C993
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983002   (945595) от 05.02.2016
-
-VA - Seductive Lounge Music (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945595.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Baghira - A Thrill of Anticipation [05:37]
-002. Stiopa & Angel Falls - Heartbeat [06:03]
-003. Cafe Royale - Lounge Addict [04:27]
-004. King Hookiss - Forever [04:35](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF8A39C0D3A4B374912D6FF2836E61218CEBBCAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090654   (945979) от 07.01.2017
-
-VA - Goa Vol.62 (Compiled by Champa) (2017) [MP3|320 Kbps] <Trance, Goa Trance, Psychedelic>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Champa & Aquila - Chaquila (Original Mix)  7:46
-02.  Reality Test - Go! (Original Mix)  6:29
-03.  Sub6 & Jah Natan - The Clash (Omiki Remix)  7:29
-04.  Vini Vici - Namaste (Static Movement & Off Limits Remix)  8:01(   Читать дальше...   )Жанр: Trance, Goa Trance, PsychedelicПродолжительность: 02:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0C27BE3717475A32D3024D116C731B34F16C26
 ```
 
 

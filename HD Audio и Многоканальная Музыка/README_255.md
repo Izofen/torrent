@@ -1,3 +1,30 @@
+###  Публикация: 1098631   (907982) от 30.01.2017
+
+Enigma - The Fall Of A Rebel Angel (2016) [WavPack 2.0|32/192|image+.cue|Vinyl-Rip] <Downtempo, New Age, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circle Eight (2:24)
+02. The Omega Point (5:41)
+03. Diving (2:48)
+04. The Die Is Cast (4:15)(   Читать дальше...   )Жанр: Downtempo, New Age, AmbientПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63980C31979D75EE5D2953BEAD32229CC25F6BE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098652   (908384) от 30.01.2017
 
 Paul van Dyk - Out There And Back (2000) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Trance>
@@ -665,33 +692,6 @@ magnet:?xt=urn:btih:C0F8994506E24FC87802F2081FCB124399FDA3E1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:303EBE4045F4ACB6E8E3BC5B50AF9F369B49513A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986813   (928780) от 15.02.2016
-
-Оркестр Поля Мориа - Бабье лето (1981) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Romantic, Ballad>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Бразильский карнавал · Brasilia Carnaval  2:44
-2. Бабье лето · L'ete Indien «Africa»  3:30
-3. Мелиза · Melisa  2:56(   Читать дальше...   )Жанр: Romantic, BalladПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25EBD896D2DE870517140CC1B3FE3CB6487D3C98
 ```
 
 

@@ -1,3 +1,300 @@
+###  Публикация: 1011032   (795447) от 29.04.2016
+
+Andreas Vollenweider - White Winds (1984) [FLAC|Lossless|image + .cue] <Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The White Winds - The White Boat (First View)  1:51
+02.  Hall of the Stairs - Hall of the Mosaics (Meeting You)  5:04
+03.  The Glass Hall (Choose the Crystal) - The Play of the Five Balls - The Five P...  7:36
+04.  The Woman and the Stone  4:25(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4378BF5DBAD56BFC72695CFDC8CB2A08141A7C4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011672   (795451) от 29.04.2016
+
+Finvarra - Finvarra (2013) [FLAC|Lossless|tracks + .cue] <Folk, World, Country, Celtic>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kelpie / The Cliffs Of Moher 03:33
+02. The Wind That Shakes The Barley 03:11
+03. Jovano Jovanke / Ciuleandra 05:25
+04. Dimna Juda 02:22(   Читать дальше...   )Жанр: Folk, World, Country, CelticПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C129CE82B254DC37528CC016CBC9723F6193A47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509062   (795486) от 11.11.2021
+
+VA - The Best Christmas Album In The World...Ever! 2021 (2021) [MP3|320 Kbps] <Christmas, Pop, Rock>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen - Thank God It's Christmas
+02. Band Aid 30 - Do They Know It's Christmas?
+03. Sam Smith - Have Yourself A Merry Little Christmas
+04. Justin Bieber - Mistletoe(   Читать дальше...   )Жанр: Christmas, Pop, RockПродолжительность: 03:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B67DB638690343CEC5544BCAB38C4B3FA7FD34EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012042   (795516) от 29.04.2016
+
+Myristica - Star-Filled Skies (2016) [MP3|320 кб/с] <New Age, Neoclassical, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down by the Willow Tree
+02. Star-Filled Skies
+03. Tree of Life
+04. Two Skies(   Читать дальше...   )Жанр: New Age, Neoclassical, RelaxПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E87871642FD6051D41BFAC0C936C1EED669BDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200700   (795524) от 21.01.2018
+
+The London Studio Orchestra and Singers - For Lovers Only: Great Romantic Themes (1997) [FLAC|Lossless|image + .cue] <Instrumental, Easy listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795524.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Just Called To Say I Love You (4:22)
+2. Never Gonna Let You Go (3:19)
+3. With You I'm Born Again (3:12)
+4. Baby Come To Me (3:15)(   Читать дальше...   )Жанр: Instrumental, Easy listeningПродолжительность: 03:22:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E31275D7CFFA818832A8C5559FF51DDE3F383F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200215   (796146) от 20.01.2018
+
+Алексей Рыбников - Музыка Космоса (2006) [APE|Lossless|image + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Свет Звёзд (Через тернии к звёздам)
+02. Письма (Большое космическое путешествие)
+03. Тема Полёта (Полёт с космонавтом)
+04. Гроза (Через тернии к звёздам)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CE40FBD19A034C58BAC2BF6B89A8E726378E5A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200398   (796252) от 20.01.2018
+
+James Last - Classics From Russia (1996) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Second Waltz
+02. Der Verzauberte See
+03. Scheherazade
+04. Andante Variationen Nr.6(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EDC8C2DD8817D18A045DF3D517C0DE4B3B7990B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200386   (796260) от 20.01.2018
+
+James Last - Russland Zwischen Tag Und Nacht (1989) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mitternacht in Moskau
+02. Kalinka
+03. Der rote Sarafan
+04. Russischer Volkstanz(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE830DB42AF232EA07DDBC6E5A248982EA249428
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 103840   (796642) от 09.11.2021
+
+VA - The World Of Jeeves And Wooster (1992) [FLAC|Lossless|tracks] <OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeeves and Wooster
+Дживс и Вустер - заглавная тема.
+02. Jeeves and Wooster say What Ho!
+Вступительное слово от Дживса и Вустера (на англ.)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36DE92B135E9CE3C04D088071E3C5ECF0519C4F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200110   (796889) от 19.01.2018
+
+First Aid Kit - Ruins (2018) [FLAC|Lossless|tracks] <Indie Folk, Country Folk, Americana>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rebel Heart
+02. It's a Shame
+03. Fireworks
+04. Postcard(   Читать дальше...   )Жанр: Indie Folk, Country Folk, AmericanaПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66CA868B2E161D981C585A091E6303E0AF5C9FC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200001   (796911) от 19.01.2018
+
+VA - Intimate Piano: Canadian Sunset (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is A Many Splendored Thing (Gordon Langford, His Piano & Orchestra) (2:55)
+02. Moonglow (Douglas Gamley, His Piano & His Orchestra) (3:07)
+03. Rhapsody In Blue (Henry Mancini) (3:27)
+04. Moonlight In Vermont (Gordon Langford, His Piano & Orchestra) (2:57)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C8FEDC6C2E584E08DAFAAEFAF99E497358A6B71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199997   (796941) от 19.01.2018
 
 VA - Intimate Piano - Body & Soul (1999) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
@@ -401,300 +698,6 @@ Mehdi - Christmas Treasures II (2005) 2009, SoothingMusic [FLAC|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4007DB576F91C49C97336FCE1F375674FDAAB55A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272439   (799394) от 03.01.2019
-
-Doyle W. Donehoo - Battlefleet Gothic Armada (2016) Gamerip [FLAC|Lossless|tracks] <Soundtrack, Epic, Battle>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Main Theme. 2,13
-03. Narrative 02.    9,27
-04. Schindelgeist. 14,5
-05. Campaign 01. 	14,19(   Читать дальше...   )Жанр: Soundtrack, Epic, BattleПродолжительность: 00:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E824BE52A943351233A691CFDE7C4797B8FB2FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273797   (799396) от 03.01.2019
-
-Andreas Vollenweider - Down to the Moon (1986) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down to the Moon 02:27
-02. Moon Dance 04:10
-03. Steam Forest 04:59
-04. Water Moon 02:15(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A22C00EF998AA85A4A7FF4EF996D7490D275D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121740   (799631) от 03.04.2017
-
-Aenigmatica - Enigmatic (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enigmatic (05:42)
-02. Occulta Mysteria (05:23)
-03. Hypnosis (06:03)
-04. Lakota Myths (05:23)(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7FB225874958CAE48F992A7DE825247218D1432
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121218   (800022) от 02.04.2017
-
-Brian Tyler - Now You See Me 2 / Иллюзия обмана 2 (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now You See Me 2 Fanfare (03:20)
-02. Now You See Me 2 Main Titles (03:01)
-03. 300 Seconds (07:26)
-04. The Setup (05:46)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D734CBC8CC082A022960D14D1227A9B89DB31A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121221   (800026) от 02.04.2017
-
-Brian Tyler - Now You See Me 2 / Иллюзия обмана 2 (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now You See Me 2 Fanfare (03:20)
-02. Now You See Me 2 Main Titles (03:01)
-03. 300 Seconds (07:26)
-04. The Setup (05:46)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEDBCB21C4D32E23E87DD1808CB27309A6724755
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120702   (800324) от 02.04.2017
-
-Mark Mancina, VA - Moana / Моана (Оригинальный саундтрек) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivia Foa'i - Tulou Tagaloa (00:52)
-02. Vai Mahina - An Innocent Warrior (01:37)
-03. Денис Клявер - Дом родной (03:30)
-04. Зинаида Куприянович - Что меня ждет (02:43)(   Читать дальше...   )Жанр: Soundtrack, Score
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC844DABD9D997E66CEC77949CB26AD0945EE33D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120729   (800327) от 02.04.2017
-
-Systems In Blue - Symphony In Blue: The Very Best Of (2011) 2CD [MP3|320 Kbps] <Pop, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800327.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. System In Blue (3:29)
-02. Sexy Ann (3:43)
-03. Jeannie Moviestar (Single Version) (3:40)(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 02:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C03D36AC745BB7EC865013883415CFD8B19EE2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199720   (800348) от 17.01.2018
-
-Артель Роса - Саночки (2017) Single [MP3|320 Kbps] <Russian Urban Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. СаночкиЖанр: Russian Urban FolkПродолжительность: 00:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:598A14291FD9371694DC00FA62DD8307E6519BF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121231   (800424) от 02.04.2017
-
-VA - The Young Pope / Молодой Папа (Unofficial Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lele Marchitelli - Cardinals (02:12)
-02. Lele Marchitelli - Fear of God (03:08)
-03. Lele Marchitelli - Later (01:50)
-04. Lele Marchitelli - My Destiny (04:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 07:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBA5A88CBFF584AC13F5BA55E5582C33DADAEACE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121075   (800425) от 02.04.2017
-
-David Arnold and Michael Price - Sherlock / Шерлок (Collection Original Television Soundtrack) (2012-2017) [FLAC|Lossless|CD|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Was Different (03:49)
-02. Doing a Good Thing (02:17)
-03. 3 Suspects (02:11)
-04. Pick Up (05:15)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 05:02:41 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2E03AE893A3206B585512BE855DD41598E85CF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120737   (800439) от 02.04.2017
-
-Cliff Carpenter - 6 альбомов (1972-1983) LP-Rip [MP3|320 Kbps] <Pop, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hans Im Gluck
-02. Der Duft von Paris
-03. Kiss Me
-04. Morgen Fruh, Da Lachst Du Schon Wieder(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 04:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:152D00B5996DAFAE04D8F99477078A2BBEE7DE09
 ```
 
 

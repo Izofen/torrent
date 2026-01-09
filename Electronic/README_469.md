@@ -1,3 +1,162 @@
+###  Публикация: 1097858   (912631) от 28.01.2017
+
+VA - Steyoyoke Black Onyx Vol.2 (2017) [MP3|320 Kbps] <Techno, Tech House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Devon - Metis (8:19)
+02. Mallone - The Flowing Moon (8:22)
+03. Binaryh - Encode (7:55)
+04. David Granha - Tessitura (7:03)(   Читать дальше...   )Жанр: Techno, Tech House, Progressive HouseПродолжительность: 01:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B623F75BBB64F01F52A1CB5DD3D2B9906EDF8A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097810   (912670) от 28.01.2017
+
+VA - Ibiza Opening Party (2016) [MP3|320 Kbps] <Progressive House, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Eve Belle & Brian Laruso - Solace (M-22 Remix)  4:43
+02.  Myon & Shane 54 with Haley - Round We Go (SNR Remix)  5:15
+03.  WSTLNDR & Fisher - Save Me (Bolier Remix)  4:14
+04.  Nerq ft Floor Cry - Song  4:40(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E70FEC62F4148A18D7F73D25BBDD7FC6F2585B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990155   (913495) от 24.02.2016
+
+em:t records - Label-Pack (28 Releases) emit (1994-2006) [FLAC|Lossless|image+.cue] <Ambient, Experimental, Downtempo, Tribal, IDM, Field Recording>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beatsystem - Tibet (08:02)
+ 02. Gas - Oxygen (08:04)
+ 03. Undark - Rain In Our Room (10:29)
+ 04. Woob - Mould (06:50)(   Читать дальше...   )Тип издания: CDЖанр: Ambient, Experimental, Downtempo, Tribal, IDM, Field Recording |Продолжительность: 01:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A309CAE4377BA47940C24B687A87CB6A53E8A874
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989047   (913531) от 24.02.2016
+
+VA - Fantastic Muscle, Vol. 2 (20 Workout Tracks For A Professional Training) (2016) [MP3|320 кб/с] <Funky, Club, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sl Curtiz - Drop That Sound 06:45
+02. Sebastian Fleischer - Would I (Eric Kanzler Remix) 07:19
+03. Frankox - Sotto 06:37
+04. Dumb Dan - I Found Love (Dub Mix) 07:44(   Читать дальше...   )Жанр: Funky, Club, HouseПродолжительность: 02:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158159EC827A6D556AF3021B4E1481E0B39E8284
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989365   (913662) от 24.02.2016
+
+Dj Antonio - XIII - Deja Vu. 1 Year Together (2007) [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Not AvailableЖанр: HouseПродолжительность: 01:14:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B66C8EDE3005C3192ADB022979FA339BDFEA463D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989390   (913672) от 24.02.2016
+
+VA - V.I.P (Chillhouse Edition) (2016) [MP3|320 кб/с] <Deep House, Chill House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yovann Blue - Feel so High (Blue Area Mix) (03:37)
+02. Thomas Walbrunnen - Can Not Keep Me Down (North Light Mix) (03:39)
+03. Ruadh Munro - Joe Sax (03:13)
+04. Tolly Brody - Azul (03:02)(   Читать дальше...   )Производство: North Town RecordsЖанр: Deep House, Chill House, ElectronicПродолжительность: 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C50F40580CE805181FC65932384312E6391B9D45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990168   (913677) от 24.02.2016
 
 Modjo - Modjo (2001) Compilation, 2CD [FLAC|Lossless|tracks + .cue] <House, Disco>
@@ -542,168 +701,6 @@ VA - Chillout Fantasies (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86A68134E7C3ABC84947DA5C59445FAD8BB6BC9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097202   (916067) от 26.01.2017
-
-VA - River's Lounge: Stage Selection (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Enrico Donner - Sensual Education  5:57
-02.  Don Gorda Project - In Silencio  5:07
-03.  Cane Garden Quartet - Ageless  5:52
-04.  Baghira - Way Too Long  5:43(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:25:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEBEFA8C1A8608CA79E32523615047CFBB5C9724
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 757583   (916153) от 17.02.2014
-
-Conforce - Kinetic Image (2013) Delsin [FLAC|Lossless]<Techno, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Excess Mortality (06:19)
- 02. Spatiotemporal (07:28)
- 03. Temporary Reversals (07:09)
- 04. Semantic Fields (05:03)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F5AE66EFC36171275BC1D5B4828A4DE70FEE17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 758102   (916191) от 17.02.2014
-
-Muhr - Depersonalization (2013) [FLAC|Lossless|WEB-DL|24Bit]<Ambient, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are A Dead Television (4:19)
- 02. Fragments A (Steady) (2:42)
- 03. Fragments B (Adrift) (5:05)
- 04. Sails (3:52)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31D706B45499AA87E6B059E902E21713BCE4E724
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 759254   (916710) от 21.08.2021
-
-KiloWatts (Invisible Allies, Skeetaz, Super Galactic Expansive) - Discography 42 Releases (2002-2021) [FLAC|Lossless|tracks+.cue, tracks]<IDM, Breaks, Downtempo, Dub, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. India Ink (03:39)
- 02. Metacognition (04:04)
- 03. Barbed Wire Tightrope (07:46)
- 04. Indra's Web (03:40)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM, Breaks, Downtempo, Dub, Glitch, Ambient •Продолжительность: 30:12:31 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87DC07B0A0B09E3A77810E2A40CF0BB7145EFD53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 68682   (916839) от 15.03.2020
-
-Scatman John - Scatman's World (1995) [FLAC|Lossless|image + .cue] <Euro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To Scatland (0:51)
-02. Scatman's World (3:42)
-03. Only You (3:44)
-04. Quiet Desperation (3:54)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB42BCBDEEB53DD33490F6C9DEF1D26BF6DDFB28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198712   (917100) от 15.03.2020
-
-The Pixel Door - Discography 13 Releases (2013-2020) [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Modern Classical, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Murk (02:09)
- 02. Season (02:27)
- 03. Belial (02:48)
- 04. Dusk And Down (02:07)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Glitch, Modern Classical, Ambient •Продолжительность: 08:40:24 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6046B20A09045B836BFA8883A0DEC9A9059D630A
 ```
 
 

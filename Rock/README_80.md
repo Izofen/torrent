@@ -1,3 +1,57 @@
+###  Публикация: 1201259   (792820) от 24.01.2018
+
+Maschine (Dieter Birr of Puhdys) - Neubeginner (2016) [MP3|320 Kbps] <Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neubeginn 4:23
+02. Helden meiner Generation 4:40
+03. So viel erlebt 3:37
+04. Der grobe Magnet 4:46(   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A6CF1B803BBDEDA566F0C4FB00095E8F6838395
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123043   (793145) от 06.04.2017
+
+Smokie - Greatest Hits vol.1 & vol.2 (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lay Back In The Arms of Someone
+02. Something's Been Making Me Blue
+03. If You Think You Know How To Love Me
+04. Looking Daggers  *(   Читать дальше...   )Жанр: RockПродолжительность: 02:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87EE95F26431BE5FDE56EF8189D4AD49449A32B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122494   (793312) от 06.04.2017
 
 The Stone Foxes - Twelve Spells (2015) [MP3|320 Kbps] <Rock>
@@ -641,60 +695,6 @@ STORIES:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6047174C8E4F1BE12D92AF64DFC8E3A761C9CFA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505966   (801395) от 29.10.2021
-
-Whitesnake - Restless Heart (1997) 25th Anniversary, Super Deluxe Edition, 4CD, 2021 [MP3|320 Kbps] <Blues Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Restless Heart [00:05:45]
-02. You’re So Fine [00:04:20]
-03. Can’t Go On [00:05:03]
-04. Crying [00:08:07](   Читать дальше...   )Жанр: Blues Hard RockПродолжительность: 4CD, 04:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26B3AA5D4CCA368BE2D3984167CE0E4B868AA82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505986   (801654) от 29.10.2021
-
-BrainStorm - Год без календаря (2021) [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801654.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Это любовь
-2. Бумажные самолеты
-3. Год без календаря
-4. Feels(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8500486DEF0D56E4F0DC785FD0091B3E943B38DC
 ```
 
 

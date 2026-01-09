@@ -1,3 +1,30 @@
+###  Публикация: 1279496   (766118) от 29.01.2019
+
+VA - German Top 100 Single Charts 04.02.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766118.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mero - Hobby Hobby
+002. Ava Max - Sweet but Psycho
+003. Shindy - DODI
+004. Ariana Grande - 7 rings(   Читать дальше...   )Жанр: PopПродолжительность: 05:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A64A8887AFE9FD0175FD13FA1DF13A6F4EAE3AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126252   (766152) от 17.04.2017
 
 VA - Unknown 80's (part VI) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
@@ -668,33 +695,6 @@ VA - Record Super Chart #528 (2018) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C3278194A35DDDFF9D984084C15C35F6C2EA53E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213802   (767361) от 18.03.2018
-
-VA - Empire Records - First Disco (2018) [MP3|320 Kbps] <Disco, Chillout>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ely Bruna - Found Love
-02. Seven24 & Soty - Style Night (Original Mix)
-03. Childish Gambino - Terrified (Zikomo Remix)
-04. John Milk - Treat Me Right(   Читать дальше...   )Жанр: Disco, ChilloutПродолжительность: 01:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9D7EA74F2CCB67FD6B70CC8B2ECF22A19AF0FB
 ```
 
 

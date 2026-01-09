@@ -1,3 +1,165 @@
+###  Публикация: 1089134   (953877) от 02.01.2017
+
+VA - Playa Del Carmen 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chus & Ceballos/Supernova - The Prophet (Remastered) [06:40]
+02. Rafa Barrios - Horizont (original mix) [05:15]
+03. DJ Fronter - Damn (original mix) [07:52]
+04. Supernova - Shut Your Mouth (original mix) [07:44](   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 02:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E42B2DEA78FE9849C8547C913C125744397E7D6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088997   (953885) от 02.01.2017
+
+VA - Best 10 Bigroom Dance Of The Year (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953885.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cevelon - Neurotic (Original Mix) 02:54
+2. Manu3l - Tantrum (Igness Edit) 03:31
+3. Jozef - Aim High (Original Mix) 06:00
+4. Stan Castillo - Everybody Bounce (Original Mix) 04:31(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:988296D261D3190678FBCBF2BEDA503D2A474503
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089164   (953904) от 02.01.2017
+
+VA - Best 10 Trance Of The Year (2016) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A.M.P - November Leaves (Psymfonius Remix) 06:35
+02. Barzek - July (Stephane Badey Remix) 08:28
+03. Noize Compressor - Hurricane (Original Mix) 06:54
+04. Pax (UK) - Transatlantic (Mobil Remix) 06:18(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2715BD45BBA4822F640821617E893EA54701F27C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088965   (953908) от 02.01.2017
+
+VA - Sirocco Ibiza A Touch Of Class (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Pippi - A Touch Of Class Intro 00:44
+02. DJ Pippi feat. Gina Teves - Peculiar 06:08
+03. Boris Dlugosch feat. Roisin Murphy - Never Enough 06:11
+04. Jean Aita & The Noox feat. Maurizio Ponzo - Wilderness 05:10(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05551ED7E14340474E391CC83433406C930E9932
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089207   (954005) от 02.01.2017
+
+VA - Syndicated Soul, Vol. 1 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kraak & Smaak - One of These Days (Balearic Soul Remix) 08:04
+02. Dominique Lucena - Cocktail d'amour 04:20
+03. Luca Guerrieri - Evolution X014 (Roberto Cavicchioni Remix) 04:32
+04. Adrian B - With You (Instrumental Mix) 10:50(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:15:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F719D43302A6C43E76551AD5D7996F338A06835
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089209   (954016) от 02.01.2017
+
+VA - Silent Shore Records - The Best Of (2016) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tristan Armes - Dreamfall (Original Mix) 06:14
+02. Josh Oshima - Voyage (Original Mix) 06:50
+03. Pvr - Solar Station (Original Mix) 08:21
+04. Nord Horizon - Innocent Angel (Original Mix) 07:17(   Читать дальше...   )Жанр: TranceПродолжительность: 02:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25453CB333FBF50F6CE2F1298A31A3A131990B58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089247   (954024) от 02.01.2017
 
 VA - Winter Chill 2017  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -525,165 +687,6 @@ CD1 Rrose Selection
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65B7509A08BB67D1BE9A2054A086971869243C85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026832   (959333) от 16.02.2020
-
-Blacktree - The Beginning Of Summer - The Beginning Of The Party (2016) [FLAC|Lossless|image + .cue] <Minimal Techno, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mal, Min - Violin (07:21)
-02. Jose Ponce, Joe Red - Legato (03:39)
-03. Beth Lydi - Quando (03:40)
-04. Cristian Valencia & Ricar - Kryptonite (Mateo Remix) (06:48)(   Читать дальше...   )Жанр: Minimal Techno, Tech HouseПродолжительность: 01:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2153053CC0D69C43F1DF3BED1CC2B02B6DC13F23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 737621   (959383) от 26.01.2016
-
-Tiesto - Club Life 351 - 460 (Обновляемая) (2013-2016) [MP3|128-320 кб/с]<Progressive House, Electro House, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tube & Berger feat. Juliet Sikora - Set It Off
-02. Tim Berg feat. Amanda Wilson - Seek Bromance (Dear David & Posse Version)
-03. C-Block - So Strung Out (Christian Cardwell & Nigel Stately Remix)
-04. Lexer feat. Chantal - Dream & Love (Pingpong Tanzt Mix / SonneMondSterne Version)(   Читать дальше...   )Жанр: Progressive House, Electro House, Deep HouseПродолжительность: 195:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657EB75E46E4D0B0D3F057721F7B2240007F1636
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360134   (959395) от 16.02.2020
-
-Boytronic - Love For Sale (1988) Remastered, Deluxe Edition, 2014, SP Records [FLAC|Lossless|image + .cue] <Synth-pop, Euro-Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959395.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Promiscuity 4:14
-2 Killing Fields 4:25
-3 Love For Sale 5:25
-4 Gallileo 3:26(   Читать дальше...   )Жанр: Synth-pop, Euro-DiscoПродолжительность: 01:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6FCE81E3F8BEED617D7180D744753FB4E75AD7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360800   (959401) от 16.02.2020
-
-Ultra SKM - Southern Shaman (2020) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ultra SKM - Southern ShamanЖанр: Uplifting TranceПродолжительность: 00:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD800B782BDB98FC4CAE36C399E0D4540641DA26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360305   (959468) от 16.02.2020
-
-VA - Progressive MEGA Mix vol.2 (2003) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mixed by Dj Maxi - Untitled (05:56)
-02. Mixed by Dj SAnDY - Untitled (04:13)
-03. Mixed by Dj General - Untitled (05:29)
-04. Mixed by Dj project Slim Line - Untitled (03:25)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13B51861BED40C8F7BCF95740050F593E9C4D47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979232   (959776) от 26.01.2016
-
-VA - Chill Out Smoothies (Relaxed & Calm Chill Out Sounds) (2016) [MP3|320 кб/с] <Lounge, Chill Out, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ganga - Blessed (04:48)
-02. Steen Thottrup - Missing U (A Tribute to the Sun) (05:11)
-03. Lemongrass - Bossa Del Mar (04:10)
-04. Puch - Yakiimo (07:12)(   Читать дальше...   )Производство: Elements Of LifeЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E30C2D0114E003FB583DC98BAAA2A9B7277A46E
 ```
 
 

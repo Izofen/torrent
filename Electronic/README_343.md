@@ -1,3 +1,165 @@
+###  Публикация: 1135750   (677415) от 21.05.2017
+
+VA - Ultra Undeground Festival (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Owl Stone - Breath On Water (Original Mix) 7:07
+02.  Ruslan Shalbekov - Summer Day (Original Mix) 2:35
+03.  Vyacheslav Sketch - Kandalaksha (Vyacheslav Sankov Remix) 6:01
+04.  Vyacheslav Sketch - 5pm (Original Mix) 5:06(   Читать дальше...   )Жанр: TranceПродолжительность: 01:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411873DD4576FE83802F8D0040F5EF968410E173
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223177   (677417) от 03.05.2018
+
+VA - My Heart Belongs To You - Romantic Tracks For Good Moments (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Peter - Less I Have You (original mix) 03:12
+02. Secret Babies - Make A Wish On (original mix) 04:11
+03. Greg Beattie - Dance Of My Life (instrumental mix) 03:52
+04. Mitsch Kohn - Good Old Friends (original mix) 03:39(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:28:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44817971D43D79393BC6E0A945D47BC3138F78E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223326   (677524) от 03.05.2018
+
+VA - Yoga Vibes Vol.1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonic Scope - Persian Night (Original Mix) [06:57]
+02. LUOrchestra - Midsummer (Original Mix) [04:30]
+03. Onlyby - Journey To The Spirit Land [06:29]
+04. Bassus - Good Morning (Original Mix) [04:57](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 04:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4AE4AD73BE800C58D648B606E16D437A1F79BDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290444   (678196) от 20.03.2019
+
+VA - A State Of Trance Top: 20 March 2019 (Selected By Armin Van Buuren) - (Miami Edition) - (Extended Versions) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren feat. Bonnie McKee - Lonely For You (Extended Club Mix)
+02. Above & Beyond - Distorted Truth (Extended Club Mix)
+03. Gareth Emery & Ashley Wallbridge feat. PollyAnna - Lionheart (Extended Mix)
+04. ARTY - Save Me Tonight (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76026A2D888FC513063EF256DEB25C9B937DBD4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290452   (678249) от 20.03.2019
+
+Lemongrass - Earth (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Breaks, Downtempo, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lightful (4:48)
+ 02. Roses (4:37)
+ 03. Blue Skies in Your Eyes (4:03)
+ 04. Moonshine (4:38)(   Читать дальше...   )Жанр: Electronic, Breaks, Downtempo, ChilloutПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3730C5CF840A2D5152ED706B6D1F8072D4A63F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290458   (678254) от 20.03.2019
+
+Argus - Pure Love / Pure Chill-out Vol.1 (2019) [MP3|320 Kbps] <Ambient, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Argus feat. Mina - The Invisible Sun - 07:24
+02. Argus & Ascent - Strong Connection - 06:51
+03. Argus - Feelings - 07:04
+04. Argus - Questions - 07:36(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 02:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82404C843383073B6776A0A80ECD3B1DC0B6A225
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 508762   (678289) от 10.06.2012
 
 The Prodigy - Their Law (2005) The Singles 1990-2005 [FLAC|Lossless]<Breakbeat, Hardcore, Big Beat>
@@ -539,171 +701,6 @@ VA - Black Hole Trance Music 03-19 (2019) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:414E2FD5B4351DB3B9E74A6E8ADABE3CDC9072F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029692   (680341) от 27.06.2016
-
-VA - Summer Sessions 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milk & Sugar - My Lovin (Mat.Joe remix) (6:48)
-02. Ucha - Shosholoza (original mix) (7:33)
-03. Coeo - Humbled (original mix) (7:32)
-04. Karol XVII & MB Valence - What's That Say (original mix) (9:49)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 05:32:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B0C35339F97CA1EA5AFF7B993B1D1CB59E9A68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290173   (680435) от 19.03.2019
-
-Twin Peetz | The Difference Engine - Discography 11 Releases (1998-2018) ODrex Music, Rohs! Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 00001 (02:56)
- 02. 00100 (01:54)
- 03. 00010 (01:55)
- 04. 01000 (02:13)(   Читать дальше...   )Тип издания: WebЖанр: Techno/MinimalПродолжительность: 00:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BFCA3C13F952D29418B77BA5B579CC3DB3524B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135274   (680806) от 19.05.2017
-
-Erasure - World Be Gone (2017) [MP3|320 Kbps] <Synthpop, New-Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680806.jpg" />
-</div>
-
-
-###  Подробнее
-
-17-й студийный альбом британского электронного дуэта ERASURE!
-«World Be Gone» следует за диском «The Violet Flame» (2014) и продолжает дальнейшее празднование 30-летия группы.
-Лонгплей включает 10 новых треков, написанных, исполненных и спродюсированных самими Erasure и сремикшированных Мэтти Грин (Matty Green).
-(   Читать дальше...   )01.  Love You To The Sky  4:26
-02.  Be Careful What You Wish For!  3:21
-03.  World Be Gone  3:40
-04.  A Bitter Parting  3:13(   Читать дальше...   )Жанр: Synthpop, New-WaveПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3E8EFD1E23DD2FCE8AC925C71CF4584ED135FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135497   (681095) от 19.05.2017
-
-VA - Erotic Spring Deep House (2017) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Stube - Spinning Around 6:19
-02.  Performative Mode - Egged On 6:15
-03.  Auxochrome - Jungle Juice 6:22
-04.  Mighty Real - Little By Little 5:59(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B193F9F572631F5678FC3D0C9C2F1CD1F6EE15C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135231   (681191) от 19.05.2017
-
-VA - Spa Pleasure (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soty - Sun Touch (Intro mix) (03:52)
-02. Submersion - My Little Beach (original Chillout mix) (05:21)
-03. Matthew Billings - Bliss  (05:49)
-04. Rega Avoena - Flight In The Dream  (03:46)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:09:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20933B6E85A7F0AB4CB4866E68B7FEF4511149AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135345   (681197) от 19.05.2017
-
-Christopher Willits - Horizon (2017) [MP3|320 Kbps] <Ambient, Drone>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681197.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Comet (06:13)
-2. Return (09:00)
-3. Rising (16:40)
-4. Light And Dark (06:18)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD32508DA48D1C270842929E9BD4BFCDEAC3AC0
 ```
 
 

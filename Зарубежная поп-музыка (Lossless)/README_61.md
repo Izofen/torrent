@@ -1,3 +1,30 @@
+###  Публикация: 1537506   (667835) от 16.03.2022
+
+VA - Spring Hits 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tame Impala - Eventually (5:18)
+02. Glass Animals - Heat Waves (3:58)
+03. Sean Paul - No Lie (3:41)
+04. Elton John - Cold Heart (PNAU Remix) (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39F79A18FB470249B9E8355054A4C7213105700E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137568   (667880) от 26.05.2017
 
 Вelindа Сarlislе - The Соlleсtiоn (2002) Japanese Edition [WV|Lossless|image + .cue] <Pop, Pop Rock>
@@ -668,33 +695,6 @@ Tamaryn - Dreaming The Dark (2019) [FLAC|Lossless|WEB-DL|tracks] <New-wave, Drea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4131D6F7A12259BE3DD0F4D4CD526D9EFB3FAC20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290984   (674346) от 22.03.2019
-
-VA - Sophisticated Ladies (2018) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edith Piaf - La Vie en Rose
-02. Margaret Whiting - Moonlight in Vermont
-03. Peggy Lee - I've Got You Under My Skin
-04. Sarah Vaughan - Come Rain or Come Shine(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0BA2D8DF8161A2933E47F13B4F46EF061139345
 ```
 
 

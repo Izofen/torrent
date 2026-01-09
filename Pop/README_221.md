@@ -1,3 +1,171 @@
+###  Публикация: 1545405   (614904) от 19.04.2022
+
+Michael Ball - The Musicals (1996) [FLAC|Lossless|image + .cue] <Vocal, Musical, Soundtrack>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Ask Of You (Phantom Of The Opera)
+02. Something's Coming (West Side Story)
+03. Losing My Mind (Follies)
+04. Memory (Cats)(   Читать дальше...   )Жанр: Vocal, Musical, SoundtrackПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7DDB4E98D19D197F7CB62513D2DA90D76A9158
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523965   (614947) от 17.07.2012
+
+На-На - Лучшая Коллекция (2012) [MP3|320 кб/с]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я люблю тебя
+ 02. Эксимос и папуас
+ 03. Эй,санам
+ 04. Соловей-разбойник
+ 05. Не знаю
+ 06. Месяц май
+ 07. Рыбка моя
+ 08. Бабушка Яга
+ 09. Чудная
+ 10. Фаина(   Читать дальше...   )Жанр: РорПродолжительность: 01:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BB90374355FA419D0702955521C5909B2525C2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036887   (615086) от 23.07.2016
+
+Время и Стекло - #Глубокий дом (2015) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Имя 505 [03:26]
+02. Ритм 122 [04:24]
+03. Опасно 220 [02:57]
+04. Песня 404 [03:34](   Читать дальше...   )Жанр: PopПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F60D49466ADA2FB24418A17B4648BE504B0055E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296001   (615132) от 15.04.2019
+
+VA - 100 Greatest Chilled Pop (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Club>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rudimental / Jess Glynne / Macklemore / Dan Caplen : These Days (feat. Jess Glynne, Macklemore & Dan Caplen) [00:03:31]
+02. Fleetwood Mac : Everywhere (2017 Remaster) [00:03:46]
+03. Dua Lipa : Be The One [00:03:22]
+04. All Saints : Pure Shores [00:04:28](   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B758D16310C90C433D7805893F7C8B3458E65D0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295758   (615133) от 15.04.2019
+
+VA - 100 Greatest Summer Songs (2019) [MP3|320 Kbps] <Rock, Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615133.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)
+002. Fleetwood Mac - Everywhere (2017 Remaster)
+003. Dua Lipa - Be The One
+004. All Saints - Pure Shores(   Читать дальше...   )Жанр: Rock, Pop, DanceПродолжительность: 06:26:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084DEB52D4B72F51D3022611233BD3DD4B88AC3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296006   (615139) от 15.04.2019
+
+Westlife - Westlife (1999) [FLAC|Lossless|image + .cue] <Europop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swear It Again
+02. If I Let You Go
+03. Flying Without Wings
+04. Fool Again(   Читать дальше...   )Жанр: Europop, BalladПродолжительность: 01:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D72885DDAEE61FB7AB7A318E912462A8F376222A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296047   (615140) от 15.04.2019
 
 VA - 100 Greatest Chilled Pop (2019) [MP3|320 Kbps] <Pop, Dance, Club>
@@ -551,168 +719,6 @@ magnet:?xt=urn:btih:F8611EEA91D86BEFE4F5E1AD0D9B5FD046DB4374
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE3FE0780E02C3E1CFECB19BE8841F70FC9F818F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230328   (617300) от 11.06.2018
-
-VA - Italo Disco: The Lost Legends Vol. 18 (2018) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F. Monieri - Up Medley Walk Away
-02. Shane - Simba
-03. New Glory - Run Along The Road
-04. Stop Limit Line - Colonel(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43F1ACEDA62C8541C9515A37F3508A0FD00050CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230335   (617301) от 11.06.2018
-
-VA - Italo Dance Summer Hits (2012) [MP3|320 Kbps] <Italo-Disco, Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hessencia - Cosmo (The Arcane Charmers Remix) 06:28
-02. Hoxygen feat. Krystal Em & Scio - Only Smoke (The Arcane Charmers Remix Edit) 03:36
-03. DJ Doddo - Tu sei (Radio Edit) 03:09
-04. Il Viaggiatore - Respiro (Vocal Mix) 03:30(   Читать дальше...   )Жанр: Italo-Disco, DanceПродолжительность: 02:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:390273957452DCF7023854475C954C2628E857DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230318   (617302) от 11.06.2018
-
-VA - Italo Disco: The Lost Legends Vol. 16 (2018) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiki Gaida - Virginal Mystery
-02. Parsifal - Carillon (English Version)
-03. Tenere - Moon Destination (Vocal English Version)
-04. Zener - New Generation(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0CE1DD01FCB7DFBD2C145BBDA75008B49D5926F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230324   (617382) от 11.06.2018
-
-VA - Italo Disco: The Lost Legends Vol. 17 (2018) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Via Verdi - Love Is A Dream
-02. Ryvon - Sing A Happy Song
-03. Federico L'Olandese Volante - Just Another Love Song
-04. Too Too Toy - Don't Wake Up(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:17:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F838F9B09D48919E640BD5C0138A565E4DCD53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230329   (617385) от 11.06.2018
-
-VA - Italo Disco: The Lost Legends Vol. 19 (2018) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert X - Vision
-02. Kono - Cleopatra (Dance Version)
-03. Raigo - Let Me Live
-04. J. Ford - Mind Wanderer (Japanese Mix)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B48F96DD9B076E12F41E5CAF6DB6842C3B9390
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146051   (617978) от 27.06.2017
-
-Carole King - The Real... Carole King (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. I Feel The Earth Move
-02. Nightingale
-03. Brother, Brother(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9E7B1249D66D8A8AE26D8176A15B48615AF289
 ```
 
 

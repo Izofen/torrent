@@ -1,3 +1,165 @@
+###  Публикация: 1114902   (829890) от 16.03.2017
+
+XS Project - The New Pumping Attack (2016) [FLAC|Lossless|WEB|tracks] <Pumping House , Hard Bass>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Xs Project - 1 Oak (4:04)
+02. Xs Project - Monstro (3:52)
+03. Xs Project - Грозный (4:27)
+04. Xs Project - Mad Magazine (3:31)(   Читать дальше...   )Жанр: Pumping House , Hard BassПродолжительность: 01:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018EF88082E2C63201487452F7069F027858D93B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115131   (829898) от 16.03.2017
+
+VA - Best Of Progressive Vocal Trance (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mino Safy & Maria Nayler - A Second Breath (Original Mix)  5:57
+02.  Somna & Sarah Russell - Story Untold (Original Mix)  6:26
+03.  Ana Criado - Vulnerable (Denis Kenzo Remix)  6:45
+04.  Aurosonic & Sue McLaren - Captured By Gravity (Original Mix)  8:08(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70FEA77E16B175EE7BA546081E0F64957E3DDCBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114904   (829973) от 16.03.2017
+
+Zhestyanshiki (Жестяньщики) - Luxury (2016) [FLAC|Lossless|WEB|tracks] <Pumping House , Hard Bass>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pumping Power (5:22)
+02. Funny (4:08)
+03. Hard Pump (5:01)
+04. Lights (Instrumental) (3:06)(   Читать дальше...   )Жанр: Pumping House , Hard BassПродолжительность: 01:19:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83790DB9C8A79F7AF0CD4CCE99218AC676319337
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496565   (830005) от 13.10.2021
+
+VA - Live  Creamfields UK, United Kingdom (2021) [MP3|320 Kbps] <Trance, Techno, Electro House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Juicy M @ Cream Arena, Creamfields UK, United Kingdom 2021-08-26:
+01. David Guetta & MORTEN - Bombardment
+02. Maddix - Technology
+03. Sonic Snares - Your Body(   Читать дальше...   )Жанр: Trance, Techno, Electro HouseПродолжительность: 12:25:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AECCB6F9B38856840BCF7107E47A6B1AB6C3AB4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114856   (830063) от 16.03.2017
+
+VA - The Fitness Series Vol. 2 (2017) [MP3|320 Kbps] <Hard House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norgzki - Butterfly Effect (Original Mix) 06:54
+02. Oliver Marks - Night Lover (Original Mix) 07:49
+03. Dark By Design - Words Are Not Enough (Original Mix) 06:47
+04. Cut-Up - Time To Rock (Original Mix) 06:17(   Читать дальше...   )Жанр: Hard HouseПродолжительность: 05:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C003A5E6739A6ECE659587AD84F059F1DC8147
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114910   (830065) от 16.03.2017
+
+VA - Best Of Deep House 2017 Vol.02 (2017) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Justin Oh - Good Morning (Claes Rosen Remix)  6:51
+02.  Dezza - Brit  5:49
+03.  Eskai - Tides  5:16
+04.  Dan Sieg - Everything U Need  5:56(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD91578171B0727CDCFAC0E9CE6DD5B7C086A45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114858   (830066) от 16.03.2017
 
 VA - Soundbar Deluxe Chill Lounge Vol.3 (Best Of Ibiza Chillout, Ambient & Downbeat Tracks) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -531,168 +693,6 @@ DJ Feel - Top 30 Of February (2017) [MP3|320 Kbps] <Progressive Trance, Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B62E66435134F947C2ABDBA48F8C9F0C2C96FBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114732   (832080) от 15.03.2017
-
-VA - Abora Chillout Best of 2016 (Mixed by Johannes Fischer & Ori Uplift) (2017) [FLAC|Lossless|WEB|tracks|image] <Chillout, Modern Classical>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. illitheas & Johannes Fischer - Tears of Hope (Chillout Mix) (2:45)
-02. Afternova - By Your Side (Piano Version) (2:09)
-03. Night Sky - Visions (2:43)
-04. Driftmoon & Sylvia Tosun with Geronimo - Haze (3:33)(   Читать дальше...   )Жанр: Chillout, Modern ClassicalПродолжительность: 01:55:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1FB84B89743AA70C15F520E2CE9F8568363A906
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114821   (832081) от 15.03.2017
-
-VA - My Italian Cafe Vol.3 (Selection Of Amazing Lounge & Chill Out Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roberto Sol - Contra  4:30
-02.  Roman Bunka - Cafe Abadan  5:29
-03.  Project Blue Sun - Beautiful Day  5:21
-04.  Michael Crueger - Rainforest  6:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70A289A993F171E7ED3FA1669178897217FC3F59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114522   (832085) от 15.03.2017
-
-VA - Islas Baleares: The Summer Opening Party 2017 (30 Deep House Anthems) (2017) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mario Chris - Beach  4:06
-02.  Eva Scolaro - Don't Tell Me No (Anders Ponsaing Remix)  5:49
-03.  Slippy Beats - Deep In The Night (Maui's Tropical Beach Remix)  3:48
-04.  Andy B. Jones - World To Life (Matty Menck Dub)  4:09(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AEFE8F5F1A87AAA03C1B8CA210432F320E69C6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114622   (832086) от 15.03.2017
-
-VA - Hygge Acoustic (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Liverpool Express - It's a Beautiful Day  2:04
-02.  Alanis Morissette - Hand In My Pocket (Acoustic Version)  4:31
-03.  Cody Simpson - La Da Dee (Acoustic Version)  3:37
-04.  Jette Torp - You've Got A Friend  4:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FE4E41D93D88786A39ECEDF246BB370983F68C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114716   (832087) от 15.03.2017
-
-Martin Graff & Eva Kade - Destiny (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Martin Graff - Days Go By (Original Mix)  4:55
-02.  Martin Graff - Dreamwalker (Original Mix)  6:15
-03.  Martin Graff - King of Sea Lions (Original Mix)  6:26
-04.  Martin Graff & Kalim Milo - More Than Ever (Original Mix)  5:55(   Читать дальше...   )Жанр: TranceПродолжительность: 01:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73040F657F292F4047371A4739A8B2FFFD6ACA92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114586   (832151) от 15.03.2017
-
-VA - Hernan Cattaneo - Balance Presents Sudbeat (2017) [MP3|320 Kbps] <Deep House, Progressive House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hernan Cattaneo - Balance Presents Sudbeat (continuous DJ mix 1) (78:41)
-02. Hernan Cattaneo - Balance Presents Sudbeat (continuous DJ mix 2) (77:57)
-03. Toki Fuko - An Odor (8:59)
-04. Sahar Z & Navar - The Dogma Code (7:07)(   Читать дальше...   )Жанр: Deep House, Progressive House, Tech HouseПродолжительность: 06:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C1612542990DA11ECABA5DA9B4D2BC06AC2F46E
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1031685   (651376) от 04.07.2016
+
+VA - Огонек (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Женя Белоусов - Золотые купола [05:18]
+02. Мираж - Музыка нас связала [04:28]
+03. Андрей Державин - Чужая свадьба [04:27]
+04. Aлена Апина - Электричка [04:33](   Читать дальше...   )Жанр: PopПродолжительность: 04:16:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3FB16DA7BAFD8613B14C882285BE0068EBB843
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516460   (651430) от 29.06.2012
 
 VA-Русский рок. Фреш (2012) [MP3|192 kbps]<Rock>
@@ -701,39 +728,6 @@ VA - Танцевальный рай 29 (2012) [MP3|192 кб/с]<Pop-Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93F27C04FD6FF20F12F631C7B82FF5991135C311
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516708   (651943) от 29.06.2012
-
-VA - Trance In Motion vol.118 (Mixed By E.S.) (2012) [MP3|320 kbps]<Trance, Vocal Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Poshout feat. Ange - Beside (Sunset Extended)
-02.Allure feat. Emma Hewitt - Stay Forever (Extended Mix)
-03.ATB feat. Ramona Nerra - Never Give Up (Clubmix)
-04.Tenishia feat. Jan Johnston - As It Should (tyDi Remix)
-05.Will Holland feat. Jeza - Every Heartbeat (Beat Service Remix)
-06.Cosmic Gate & J'something - Over The Rainbow (Extended Mix)
-07.Xtigma feat. Sarah Russell - Take Your Hand (Summer Remix)
-08.Ignas feat. Julie Thompson - Hold On (Original Mix)
-09.Sean Tyas - Lekta (Original Mix)
-10.Mark Bester - Colors Of Summer (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, ProgressiveПродолжительность: 01:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B1DF6F2EF991BBFC997893ABB6015C5D997464
 ```
 
 

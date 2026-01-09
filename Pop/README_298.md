@@ -1,3 +1,246 @@
+###  Публикация: 1008219   (818093) от 17.04.2016
+
+Paul Handyside - Tide, Timber & Grain (2016) [FLAC|Lossless|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flowers Won't Bloom    05:38
+02. Fond Farewell    04:16
+03. Let Me Down Easy    03:52
+04. All Will Be Revealed    03:51(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871A7F57B4D6F94E86384CC9D1B24E950851E4BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117234   (818558) от 22.03.2017
+
+Arabesque - The HQ Vinil Collection (1978-1984) All Studio Albums [MP3|320 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкая поп-группа, работавшая в жанре диско с элементами хай-энерджи, получившая мировую славу. Основная вокалистка группы Сандра, после распада группы продолжила успешную сольную карьеру (в 1990-х годах также принимала участие в проекте Enigma). Раздача представляет полную дискографию группы, состоящую из студийных альбомов, выходивших на фирменных виниловых дисках, (   Читать дальше...   )Список альбомов:
+1978 - Friday Night
+1979 - City Cats
+1980 -  Marigot Bay(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 05:34:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE24CC92368844CEAE1A9601B9D554E6D4CFD39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196872   (818771) от 05.01.2018
+
+Георг Отс - Золотые россыпи романса (2000) [APE|Lossless|tracks] <Ретро, Романс>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ария Мистера Икса 3:57
+02. Я вас любил 7:13
+03. Я помню вальса звук 3:47
+04. Услышь меня, хорошая 4:45(   Читать дальше...   )Жанр: Ретро, РомансПродолжительность: 01:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1D287E01A982A420E4227A3B9FC2E9587B6D000
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197024   (818778) от 05.01.2018
+
+Joy - Best (1986) Compilation, Reissue [FLAC|Lossless|tracks + .cue] <Synth-pop, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch By Touch (3:50)
+02. Kisses Are The Doctor's Order (3:29)
+03. Chinese Girls (3:40)
+04. Valerie (4:12)(   Читать дальше...   )Жанр: Synth-pop, Euro-DiscoПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E479A8167AB748C5BD7A78FDEDB57D4BDE7132E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117433   (818783) от 22.03.2017
+
+Fancy - Bolero The Hit Collection & More (2012) [FLAC|Lossless|tracks + .cue] <Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flames Of Love (5:20)
+02. Colder Than Ice (5:06)
+03. Bolero (Hold Me In Your Arms Again) (5:40)
+04. After Midnight (4:42)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 01:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC57D33478DC3AC383F02F908913F491120E1B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196963   (818873) от 05.01.2018
+
+Maroon 5 - Red Pill Blues (2017) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Best 4 You
+02. What Lovers Do (Feat. SZA)
+03. Wait
+04. Lips On You(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29881F19FC1D4F153AA678EAB4274FB134410927
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117249   (818930) от 22.03.2017
+
+VA - Acoustic: The Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alanis Morissette - Ironic (Acoustic Version) (3:56)
+02. Coldplay - The Scientist (5:10)
+03. Bruno Mars - Grenade (Acoustic) (4:07)
+04. James Blunt - 1973 (Acoustic) (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 03:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D91BA5E68B9D9B9EF0703A4F8C1CAFA5D82ABAF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117411   (818938) от 22.03.2017
+
+Fancy - Bolero The Hit Collection & More (2012) [MP3|320 Kbps] <Disco, Italo-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flames Of Love (05:21)
+02. Colder Than Ice (05:08)
+03. Bolero (Hold Me In Your Arms Again) (05:41)
+04. After Midnight (04:43)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 01:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2DE136A436F34892A8B75D836F35862F9D93AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117415   (818939) от 22.03.2017
+
+Лариса Черникова - Любовное настроение (2004) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Одинокий волк [4:03]
+02. Рука в руке [4:16]
+03. Ты полети, моя звезда! [4:53]
+04. Подари мне ночь [4:05](   Читать дальше...   )Жанр: PopПродолжительность: 01:15:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62C0B6691C99E315C4DF506F694D0040142D3DD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117102   (818941) от 22.03.2017
 
 VA - Just Mix Eurodisco (2009) [FLAC|Lossless|WEB|tracks + .cue] <Disco, Synth-pop>
@@ -453,247 +696,6 @@ VA - Dance Hits Explode (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:633DD856EB7629B48674C856BDD1CC029A4488AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196690   (820741) от 04.01.2018
-
-Judy Cheeks - Mellow Lovin’ (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Little Girl In Me (3:51)
-02. Kiss Me Baby (5:38)
-03. Suspicious Minds (4:08)
-04. It's Just A Love Affair Gone (3:52)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A9A32706FEF296DA0CA3E40687497E47D1EDFCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196777   (820743) от 04.01.2018
-
-Bebu Silvetti - 40 Exitos (2008) 2CD [MP3|320 Kbps] <Pop, Disco, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хуан Фернандо Сильветти Адорно (27 марта 1944 года — 5 июля 2003 года), более известный как Бебу Сильветти — аргентинский композитор, пианист, дирижёр, аранжировщик и музыкальный продюсер. Пик популярности Бебу Сильветти как композитора пришёлся на конец 70-х — начало 80-х годов. Как продюсер стал обладателем премии Billboard Music Awards в 2002 году и обладателем (   Читать дальше...   )01. Lluvia de primavera (5:55)
-02. Atmosfera (4:44)
-03. Fin de semana (2:30)
-04. Lluvia de cocos (3:26)(   Читать дальше...   )Жанр: Pop, Disco, Easy ListeningПродолжительность: 02:27:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5195FEA473F6223A80A99CCDD5261FC75A00C81A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116938   (820803) от 21.03.2017
-
-Secret Star - I Need A Man | Jump In My Car (2 Singles) (1986) [MP3|320 Kbps] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Need A Man 4:47
-02. Space Operator 4:12Жанр: Euro-DiscoПродолжительность: 00:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D49B8A176EC22209CDBA9B7EEB9B6D627650AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117099   (820929) от 21.03.2017
-
-НеИгрушки - На Луну (2000) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ерунда
-02. На Луну
-03. Мальчишка
-04. Весна (полная версия)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF0CBD671D5808A202FCDB97BFEBBEA42BA7FBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116810   (821052) от 21.03.2017
-
-Coeur de Pirate - Roses (2015) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carry On [03:35]
-02. Crier Tout Bas [04:20]
-03. I Don't Want To Break Your Heart [04:05]
-04. Drapeau Blanc [03:24](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39237056906CBCE009BC955CFDA39965C5D8CD59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117041   (821062) от 21.03.2017
-
-VA - Miami Disco 2017  [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821062.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Discotron - Clap Your Hands (original mix) (06:40)
-2. Audio Jacker - Rotate (original mix) (05:38)
-3. Disko Junkie - Go Back To Disko (original mix) (05:15)
-4. Jack Le Funk - Funk's Lazy Afternoon (original mix) (06:14)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E40DAAD6F9F626C3B7AF8B0F87426A427DC8BD53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503297   (821241) от 18.10.2021
-
-VA - Calming Acoustic Covers: 14 Chilled and Relaxing Acoustic Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shannon & Keast - Fireflies (Acoustic) (03:42)
-02. John Burnsby - What a Wonderful World (Acoustic) (02:20)
-03. Karizma Duo - Islands in the Stream (03:30)
-04. Django Wallace - My Future (Acoustic) (03:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144843692198F49B0A93F871D03C4AC0F3FE115C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503362   (821344) от 18.10.2021
-
-VA - Hit Connection 2011.3 (2011) [FLAC|Lossless|tracks + .cue] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elisa Tovati & Tom Dice - Il Nous Faut (3:08)
-02. MIKA - Elle Me Dit (3:41)
-03. Maroon 5 & Christina Aguilera - Moves Like Jagger (3:24)
-04. Rihanna - Man Down (4:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7FC47DFEB532C3FC296181331B483EF6D24A31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007602   (821411) от 15.04.2016
-
-Wild Belle - Dreamland (2016) [FLAC|Lossless|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mississippi River
-02. Losing You
-03. Dreamland
-04. Coyotes(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8922D845772BEDBB99CFFFAC377AD2F7D9F3FE12
 ```
 
 

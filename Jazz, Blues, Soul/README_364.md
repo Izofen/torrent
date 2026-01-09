@@ -1,3 +1,57 @@
+###  Публикация: 1553242   (583761) от 24.05.2022
+
+David Linx - Be My Guest: The Duos Project (2021) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Letter to Trevor (with Trevor Baldwin) (3:51)
+02. Hunter (with Or Solomon) (4:02)
+03. Pagina de Dor (with Hamilton De Holanda) (4:29)
+04. Close to You (with Magic Malik) (4:03)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDBCEE732B6F3E9B7C2BD4B9DD05C02A11E6EB5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553190   (583808) от 24.05.2022
+
+Sarah Vaughan - The Roulette Years, Vols. 1-2 (1960 - 1964) 1991, Blue Note [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Time We Say Goodbye [2:27]
+02. Great Day [2:13]
+03. Just in Time [2:21]
+04. You Stepped Out of a Dream [2:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ED244966432DB782DA215B79CDB2BC386A57C50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919391   (583975) от 18.07.2015
 
 Gary Moore - Les Genies du Rock - Parisienne Walkways (1995) [MP3|320 кб/с]<Blues, Blues Rock>
@@ -649,60 +703,6 @@ Vdelli - Ainґt bringing me down (2009) [APE|Lossless]<Blues-Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040598   (585536) от 06.08.2016
-
-Oli Brown - Songs From The Road (2013) Live [FLAC|Lossless|tracks + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speechless    04:51
-02. Thinking About Her    04:03
-03. Manic Bloom    09:36
-04. Next Girl    03:57(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEF72547E0C55740250CC6E3544A78A0FBB376AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810060   (585551) от 03.08.2014
-
-Count Basie and Dizzy Gillespie - The Gifted Ones (1999) [FLAC|Lossless]<Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back To The Land [07:25]
-02. Constantinople [08:32]
-03. You Got It [05:22]
-04. St. James Infirmary [06:58](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5A45CAA221A1DAEAFF0847D003E2499864D07B
 ```
 
 

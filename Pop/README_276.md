@@ -1,3 +1,246 @@
+###  Публикация: 1211682   (777242) от 08.03.2018
+
+Donna McGhee - Make It Last Forever (1978) Reissue CD, Big Break Records, 2012 [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make It Last Forever (8:26)
+02. Do As I Do (10:21)
+03. It Ain't No Big Thing (6:45)
+04. Mr. Blindman (5:14)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7792C31CDF2C54C3DAF99104A8CEA3C8F47F4EA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211692   (777244) от 08.03.2018
+
+VA - Mastermix Pro Disc 213 - March (2018) [MP3|320 Kbps] <Indie, Folk, Neo Soul, Dancehall, Electropop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iggy Azalea Ft, Quavo - Savior
+02. James Bay - Wild Love
+03. Blocboy JB Ft, Drake - Look Alive
+04. The Chainsmokers - Sick Boy(   Читать дальше...   )Жанр: Indie, Folk, Neo Soul, Dancehall, ElectropopПродолжительность: 01:14:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:445F2C233DBA778A2AF95C1331314E9D8FEC290A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211376   (777268) от 08.03.2018
+
+VA - Hot Parade Dance Winter (2018) [MP3|320 Kbps] <Dance, Pop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777268.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Ofenbach & Nick Waterhouse - Katchi (Ofenbach Vs. Nick Waterhouse)
+02. Betta Lemme - bambola
+03. Lost Frequencies & Zonderling - Crazy(   Читать дальше...   )Жанр: Dance, Pop, Euro HouseПродолжительность: 2:24:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:276D39E91EF550AA1FD450FD4BE075764CF48138
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211543   (777270) от 08.03.2018
+
+Girls Aloud - Sound Of The Underground (2003) Polydor [MP3|320 Kbps] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777270.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Girls Aloud» — очередной продукт британской «фабрики звёзд». Будущие участницы квинтета давно мечтали о славе. Но в группу попали разными путями. Самая популярная, согласно опросам зрителей, 19-летняя Шерил Твиди, бросила школу и долго зарабатывала чем ни попадя, пока, как написано в биографии, «судьба не забросила её в «Popstars». Самая младшая из девчонок, Надин (   Читать дальше...   )01 Sound Of The Underground 3:41
+02 No Good Advice 3:48
+03 Some Kind Of Miracle 3:09
+04 All I Need (All I Don't) 3:40(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:53:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4239AFB788C344C715F59068ED1FDD2B19CA94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211324   (777565) от 07.03.2018
+
+Kállay Saunders - Grind (2018) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockstar (04:00)
+02. Hunger (03:28)
+03. I Don't Really Care (03:16)
+04. Why Can't (03:29)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD28C25C0A64B50A37DB1F00EA646403D883F3BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013313   (777631) от 04.05.2016
+
+Модель поведения - Кому что (2016) [MP3|320 кб/с] <Synthpop, Indie Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В этом сезоне
+02. Кости (Album Version)
+03. Шторм
+04. Рыбы(   Читать дальше...   )Жанр: Synthpop, Indie PopПродолжительность: 00:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E31C832EDD2BABF340576023089027A3326BB19C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211220   (777725) от 06.03.2018
+
+VA - Disco 80's: Special Edition (2018) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eddy Huntington - Physical Attraction (4:22)
+02. Eighth Wonder - I'm Not Scared (10'' Remix) (5:42)
+03. Fancy - Moscow Is Calling (5:13)
+04. Italian Boys - Forever Lovers (3:54)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73BCFDEB34E22C31939B8F9640E7AED3F0E7E197
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211213   (777728) от 06.03.2018
+
+Татьяна Буланова - Это Я (2017) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Это я (4:00)
+02. В доме, где живёт моя печаль (3:22)
+03. Не бойтесь любви (3:36)
+04. Апрель (4:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2391A076E473C4D0EB82257CB71BFF521B3DD0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211203   (777779) от 06.03.2018
+
+Вячеслав Малежик - Альбом (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777779.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вчерашние дети
+2. Эхо любви
+3. Утки крякали
+4. Конотоп(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:778CDECD1AF6723E31B4CC2F24BDDAB14E42FA79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211217   (777785) от 06.03.2018
 
 VA - Disco 80's: Special Edition (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
@@ -452,249 +695,6 @@ Armenian Navy Band - авангардный фолк-джазовый музык
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69686806CBD3A501036ECD1B0AE25FF9BEF5F591
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210989   (778241) от 05.03.2018
-
-Armenian Navy Band - How Much Is Yours? (2005) D. Svota Music [MP3|192 Kbps] <Folk, World, Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armenian Navy Band - авангардный фолк-джазовый музыкальный коллектив, созданный в 1998 году в Ереване, Армения. Музыка ANB является смесью джаза и армянской народной музыки. Музыку сочиняет Арто Тунчбояджян, который также иногда использует блюз и афроамериканский джаз, смешивая с традиционной армянской музыкой.01. Let Factories Open 4:04
-02. Let's Not Become a Copy from a Copy 6:38
-03. Let's Try a New Road 4:42
-04. I Don't Forget My Faith 4:49(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 01:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5586C104DB43ABE5FE9A9BEF10085EA86AC84A2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210956   (778271) от 05.03.2018
-
-Armenian Navy Band - New Apricot (1999) İmaj [MP3|192 Kbps] <Folk, World, Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armenian Navy Band - авангардный фолк-джазовый музыкальный коллектив, созданный в 1998 году в Ереване, Армения. Музыка ANB является смесью джаза и армянской народной музыки. Музыку сочиняет Арто Тунчбояджян, который также иногда использует блюз и афроамериканский джаз, смешивая с традиционной армянской музыкой.01. The Love Me From 15 Feet Away 7:18
-02. Rooster Run 3:22
-03. My Aunt Mari Doesnt Care About My Jacket 4:23
-04. Shadows Of Clean Spirits 5:22(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC6FEC2527197EFFA7902BBAB68B5E811B05B7EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012678   (778305) от 02.05.2016
-
-Barry White - A Collection Of Great Songs (uy) Unofficial Release [APE|Lossless|image + .cue] <Funk, Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let The Music Play
-02. I'm Gonna Love You Just A Little More, Baby
-03. You're The First, The Last, My Everything
-04. Can't Get Enough Of Your Love, Baby(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 01:15:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F06ECB26A4B257DD4E8373BE10E43B1907428C73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012922   (778314) от 02.05.2016
-
-VA - Ultimate - Dance (2016) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778314.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-Пpодолжительность: 01:07:29
-
-1. Calvin Harris - Blame (feat John Newman) (3:31)(   Читать дальше...   )Жанр: PopПродолжительность: 04:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9819E7518A6D597C4D7A88D889BDAC585364AA94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012821   (778343) от 02.05.2016
-
-Engelbert & Tom Jones - Back To Back: The Best Of Engelbert & Tom Jones (1989) Recordings 1965 - 1969 [APE|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Engelbert Humperdinck - Release Me
-02. Engelbert Humperdinck - There Goes My Everything
-03. Engelbert Humperdinck - The Last Waltz
-04. Engelbert Humperdinck - Am I That Easy To Forget(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA23A158587D4A349E26DE59FBA3DE609AFBAC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012666   (778355) от 02.05.2016
-
-VA - Now That's What I Call Fitness (2016) [MP3|256 кб/с] <Pop, Club, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778355.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Zara Larsson -  Lush Life  3:19
-02. Mike Posner -  In Ibiza (SeeB Remix)  3:14
-03. Tinie Tempah -  Not Letting Go (feat. Jess Glynne)  3:48(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 03:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCCB20DB6FC62F722A8C4FC4B9CCD5E802120356
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012627   (778392) от 02.05.2016
-
-Anjali Ray - Indigo (2016) [FLAC|Lossless|tracks] <Pop, Jazz, World>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Long    04:15
-02. Indigo Boy    04:34
-03. Immortalize Me    04:06
-04. Float    05:35(   Читать дальше...   )Жанр: Pop, Jazz, WorldПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924B7BEEBD6F39384298747E109AEB9089911BF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210873   (778440) от 04.03.2018
-
-VA - Now That's What I Call Music! 65 (2018) USA Series[FLAC|Lossless|tracks + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taylor Swift - Ready For It?  (3:26)
-02. Demi Lovato - Sorry Not Sorry  (3:20)
-03. Camila Cabello - Havana  (2:55)
-04. J Balvin & Willy William - Mi Gente (feat. Beyonce)  (3:29)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BE605E43FD748BB1B62114805A0F4FA68A54B25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210823   (778505) от 04.03.2018
-
-Алёна Апина - Давай так (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Близость
-02. Давай так
-03. Елена
-04. Девушка Бонда(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE24CD11D4EE8F67F145EB0BA9F56E3968B2669
 ```
 
 

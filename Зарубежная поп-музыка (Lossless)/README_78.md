@@ -1,3 +1,30 @@
+###  Публикация: 1380767   (831360) от 04.05.2020
+
+VA - NOW That's What I Call Music! 73 (2020) USA version[FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый выпуск нового десятилетия состоялся в январе 2020 г. Очередной сборник новинок из топов США (и немножко Великобритании) получился несколько более спокойным и "приглушенным" по сравнению с общим тоном предыдущих выпусков. Пожалуй, энергия на короткое время дает всплеск на 11 и 12 треках с дивами следующей волны Camila Cabello и Dua Lipa, но в остальном (   Читать дальше...   )01. Maroon 5 - Memories  (3:05)
+02. Taylor Swift feat. Shawn Mendes - Lover (Remix)  (3:39)
+03. Halsey - Graveyard  (3:01)
+04. Shaed & Zayn - Trampoline  (3:02)(   Читать дальше...   )Релиз состоялся: 24 января 2020Жанр: Pop, Rock, DanceПродолжительность: 01:07:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D15955FCB7FE75CBAD1724A5FEBF44FEE80D42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380531   (831451) от 04.05.2020
 
 VA - NOW Love Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Ballad>
@@ -666,33 +693,6 @@ Noémie Wolfs (ex.Hooverphonic) - Lonely Boy’s Paradise (2020) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83A531C8CE2D92BC7B211FA2B342963CE90C99F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378965   (843042) от 27.04.2020
-
-a-ha - Scoundrel Club (1987) EP, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cry Wolf (Extended Version) (8:14)
- 02. We're Looking For The Whales (Live) (3:51)
- 03. I've Been Losing You (Dub) (4:29)
- 04. Manhattan Skyline (Extended Remix) (6:50)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, SynthpopПродолжительность: 00:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44EE0EC5DA55EB6311D7F0CC72533D6F9AB4FB91
 ```
 
 

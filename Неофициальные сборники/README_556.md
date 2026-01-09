@@ -1,3 +1,30 @@
+###  Публикация: 1379748   (837389) от 30.04.2020
+
+The Alan Parsons Project - 100% Alan Parsons (2020) [MP3|320 Kbps] <Progressive rock, Art rock, Progressive Pop>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sirius (Chicago Bulls Theme Song)
+02. Eye In The Sky
+03. Games People Play
+04. Don't Answer Me(   Читать дальше...   )Жанр: Progressive rock, Art rock, Progressive PopПродолжительность: 03:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C297192629DA256534432B5C006633DB0D42EE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112929   (837486) от 11.03.2017
 
 VA - В Современной Обработке. Mega Дискотека 80-90-х. Версия № 2 (2017) [MP3|256-320 Kbps] <Pop, Dance, Disco>
@@ -662,33 +689,6 @@ VA - Welcome House Atomic (2016) [MP3|160-320 кб/с] <Progressive, Club, House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C05772BEF4D76744CAE69BEF35B7BEC0BCD0427E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113214   (838628) от 11.03.2017
-
-VA - Vocal Drum & Bass Vol.11 [Compiled by Zebyte] (2017) [MP3|256-320 Kbps] <Drum & Bass>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838628.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fred V & Grafix - Altitude (Ft. Amy J Pryce) 4:35
-002. Hybrid Minds Ft. Alexa Harley - Phoenix 5:01
-003. Nct & Diego Torres - No One Home (Original Mix) 5:16
-004. Whiney - Teddy's Gate (Feat. Lameduza) 5:10(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:32:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BB534893FE888EDED8E32506CB942A79B521E69
 ```
 
 

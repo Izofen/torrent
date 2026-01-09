@@ -1,3 +1,165 @@
+###  Публикация: 1469200   (1016430) от 12.05.2021
+
+VA - Hardstyle XXL Megamix 2021 [MP3|320 Kbps] <House, Club House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Headhunterz & Jdx - Transcendence
+02. Ran-D & Leprince - Fight Fire With Fire (Radio Edit)
+03. Killshot - Horrorshow (Radio Edit)
+04. Adaro & Kronos & Nikki Milou - The Life (Radio Edit)(   Читать дальше...   )Жанр: House, Club House, ProgressiveПродолжительность: 03:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4986899E54F8533D378130D050AD7B0BEF0F5DE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469043   (1016572) от 11.05.2021
+
+Korolova - Live @ Kamianets - Podilskyi, Ukraine(2021-05-07) [MP3|320 Kbps] <Progressive House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Böhmer & Panama - Weightless
+02. Noidor & Whoriskey - Embrace
+03. Jean Vayat & Evelynka - Your Rain (Moonwalk Remix)
+04. Innellea - Haveli(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45202C425CCB948EACE9D967DFF22D8B105C83D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469328   (1016582) от 11.05.2021
+
+VA - Relaxing Afternoon: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patiotic - First Leaves (2:38)
+02. Beamy - Utopia (3:25)
+03. Marga Sol, Leo de la Rosa - Esta Noche - Leo de la Rosa Sensual Mix (5:50)
+04. Matej Blanusa - Beginning (Medani Pieck) (3:58)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E2A01EE14AE9D4D1E5F927E8413D90269BC44E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469320   (1016583) от 11.05.2021
+
+VA - Calming Sea: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Can Summer Last Forever - Original Mix (5:05)
+02. Finland & Aaskoven - The Mountains & Peaks (6:04)
+03. Mission Brown - Watching Clouds - Original Mix (6:02)
+04. Weathertunes - Follow Your Heart (4:20)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:20:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0834B0262A340E9D5ACE827284C5B1ADC06B34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469038   (1016586) от 11.05.2021
+
+SPINNIN' - Best of Tiesto (2021-05-09) [MP3|320 Kbps] <Big Room, Future House, Dance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016586.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tiësto & The Chainsmokers - Split (Only U)
+2. Tiësto & Oliver Heldens - Wombass
+3. Tiësto - The Business
+4. Tiësto & Sevenn - BOOM(   Читать дальше...   )Жанр: Big Room, Future House, DanceПродолжительность: 01:26:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD3DE620DCCC05D7B72F5E6DEFAA49A161754460
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468912   (1016915) от 09.05.2021
+
+BCee & Charlotte Haining - Life As We Knew It (2021) [FLAC|Lossless|Web-DL|tracks] <Drum'n'Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. History (Technimatic Remix) (5:19)
+02. Wanderer (Mitekiss Remix) (5:15)
+03. Could Have Been Us (Winslow Remix) (5:08)
+04. Little Bit Lighter feat. Etherwood (Pola & Bryson Remix) (3:55)(   Читать дальше...   )Производство: Spearhead Records - SPEAR148Жанр: Drum'n'BassПродолжительность: 01:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A8E44B362AA2089A28233E5D11051312D56F5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468235   (1017197) от 07.05.2021
 
 ilan Bluestone - Impulse (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Trance>
@@ -529,168 +691,6 @@ Beta Consciousness - Synesthesia (2021) ...txt [FLAC 2.0|44.1/24|tracks|WEB-DL] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:590B82ADE2B753702764CE3BF16E13C834C63AED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336245   (1018425) от 30.04.2021
-
-Zoon van snooK - Discography 10 Releases (2008-2020) Lo Recordings, Mush, Alter K [FLAC|Lossless|WEB-DL|tracks+.cue, tracks] <IDM, Abstract, Modern Classical, Downtempo, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Coral & The Hummingbird (03:02)
- 02. Zócalo (03:06)
- 03. iMadre! (04:50)
- 04. Rocinha (01:57)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Abstract, Downtempo, Ambient •Продолжительность: 04:48:30 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8DE2ECBF11D1D08EE2AC2DBE4907FEAD152F7A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466450   (1018438) от 30.04.2021
-
-ROISIN MURPHY / Róisín Murphy - Crooked Machine (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kingdom of Machines (06:29)
-02. Echo Returns (05:55)
-03. Capable Rhythm (06:07)
-04. Assimilation (06:55)(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B0CBDADFC356008E6C07706ECBDC214DED3ADB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466635   (1018448) от 30.04.2021
-
-Beta Consciousness - Synesthesia (2021) ...txt [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Downtempo>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scope (13:14)
- 02. Use All Your Senses (08:39)
- 03. Synesthesia (05:25)
- 04. Audionom (07:50)(   Читать дальше...   )Жанр: Ambient, IDM, DowntempoПродолжительность: 01:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:710925E8EFED86AED53C5750976B9029AD03C0FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969068   (1018486) от 29.04.2021
-
-r.roo - Discography 34 Releases (2011-2021) Someone Records [FLAC|Lossless|WEB-DL|tracks] <IDM, Modern Classical, Ambient, Glitch, Downtempo>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Potential differenSe - Koseity (r.roo remix) (06:14)
- 02. troxellemott - Blood Moon (r.roo remix) (07:27)
- 03. Tineidae & Mediadata - Noided (r.roo remix) (08:13)
- 04. Vroda - New Sanjary (r.roo remix) (04:33)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Modern Classical, Ambient, Glitch, Downtempo •Продолжительность: 28:45:57 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90A893291FFDD4A4B009F544213F43E016BA5AF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225048   (1018538) от 29.04.2021
-
-Artilect | Deeperheightz - Discography 11 Releases (2015-2021) [FLAC|Lossless|tracks] <Drum n Bass, Jungle>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Inferior (08:16)
- 02. Black Lake (08:02)
- 03. Clinch (08:27)
- 04. Fundamental (06:43)Тип издания: WEB, VinylЖанр: Drum & BassПродолжительность: 03:59:11 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BF447BCCCC45672C2E8AF863889AB76E632E377
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466372   (1018600) от 29.04.2021
-
-VA - Kiez Beats: Synthwave, Vol. 8 (2021) Anniversary Edition [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. XENNON feat. Castro - Sith Lord (3:54)
-02. Dimi Kaye - Hang On (3:32)
-03. SilverHawk - 80's Legend (4:46)
-04. Palm Lakes - Nothing to Me (2021 Edit) (4:27)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 01:07:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F282E74485370B4B45CA364D131E8A8DEA9B92
 ```
 
 

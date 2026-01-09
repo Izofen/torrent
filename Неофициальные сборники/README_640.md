@@ -1,3 +1,30 @@
+###  Публикация: 974902   (974535) от 13.01.2016
+
+VA - Love Classics Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ash King - Neele Neele Ambar Par - The Unwind Mix
+02. Mohammad Irfan - Chhukar Mere Man Ko - The Unwind Mix
+03. Jonita Gandhi - Tu Tu Hai Wohi - The Unwind Mix
+04. Rahul Vaidya - Dilbar Mere - The Unwind Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165D1A8EEEA9E253111D0FB3677EA19231257F31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974846   (974583) от 13.01.2016
 
 VA - Prometheus: Trance Party (2016) [MP3|320 кб/с] <Progressive Trance, Electro>
@@ -704,33 +731,6 @@ VA - Cубботний TWIST (2013) [MP3|320 кб/с]<Twist>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EC13363BDF0775DEF23D6E0FEAD5D91A800BCB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356548   (976676) от 01.02.2020
-
-VA - Amphetanarchy: Hard Rock Cafe (2020) [MP3|320 Kbps] <Hard Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976676.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mitch Rivers - Reconsider Me
-002. The Quill - Hammerhead
-003. Dead Express - Nightmare On High Heels
-004. Louden Swain - Mrs. Vance(   Читать дальше...   )Жанр: Hard Rock, AlternativeПродолжительность: 09:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A4FAA3C23BD988DD9F56D9059CE4A0E5682146
 ```
 
 

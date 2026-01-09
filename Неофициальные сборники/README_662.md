@@ -1,3 +1,30 @@
+###  Публикация: 1472650   (1014139) от 26.05.2021
+
+VA - Options Remake 125 Tracks New May (2021) [MP3|320 Kbps] <Funky, Soulful, Progressive, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014139.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Booka Shade, Felix Raphael - Follow
+002. Brascon - Yeah
+003. Katarina Dariy - The Sun (Extended Mix)
+004. Jay Frog & Sunny Marleen - For You (BlackBonez Extended Remix)(   Читать дальше...   )Жанр: Funky, Soulful, Progressive, Future HouseПродолжительность: 12:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E01B0A09B979D56329864D0708C832BCC0F0EBB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472723   (1014162) от 26.05.2021
 
 VA - Simply 90s: Greatest Hits of the 90ies (2021) [MP3|320 Kbps] <Electronic, Pop, Dance, Hip Hop>
@@ -668,33 +695,6 @@ VA - 200 Ethnic Pop Songs (2021) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72C09CC8523CF20A79E337583B77F273E218241E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470913   (1015317) от 19.05.2021
-
-VA - Discohustle (2CD) (2021) [MP3|320 Kbps] <Disco House, Funky House, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Микс, который слушается «на одном дыхании», без перемоток и перерывов, от начала и до конца! Лёгкие, стильные ритмы Disсо Hоusе вперемешку с элементами классического Eurоdisсо делают данную компиляцию приятной, не напрягающей уши и создающей позитивный, добрый фон для любых дел, чем бы вы ни занимались – работали, отдыхали или прогуливались в дождливую погоду по (   Читать дальше...   )CD 01:
-
-01. Hp Vince & Killed Kassette - Mirror Ball
-02. Orson Welsh - Who’s Got Ya Number(   Читать дальше...   )Жанр: Disco House, Funky House, Nu DiscoПродолжительность: 13:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23DEF2831B1F7F973C90ABED0F0480A406EF79E1
 ```
 
 

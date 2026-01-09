@@ -1,3 +1,138 @@
+###  Публикация: 910525   (618499) от 22.06.2015
+
+Stimulus Timbre - Life's Most Wonderful Place (2015) [MP3|320 кб/с]<Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life's Most Wonderful Place
+ 02. Flowing in Your Mind
+ 03. Signs
+ 04. Silent Days(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 00:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B24BC2A45DB0FEBA17367A91F365C06C3425288
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295318   (618603) от 13.04.2019
+
+DJ Smash - Twenty Three (Special Burger King Edition) (2011) Special Edition [FLAC|Lossless|tracks + .cue] <House, Electronic, Pop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Need You (Feat. Terri B! & MC Shayon) (4:08)
+02.Show Me To Your Love (Feat. Los Devchatos) (3:25)
+03.From Russia With Love (Feat. Los Devchatos) (3:17)
+04.Этой ночью (Feat. Лариса Долина) (3:47)(   Читать дальше...   )Жанр: House, Electronic, PopПродолжительность: 00:57:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FEEFE82D4A614AB7DE66823DCF0FFD30ECEB602
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295455   (618605) от 13.04.2019
+
+The Chemical Brothers - No Geography (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Big Beat, Techno>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eve of Destruction (4:40)
+02. Bango (4:07)
+03. No Geography (3:10)
+04. Got to Keep On (5:17)(   Читать дальше...   )Жанр: Electronic, Big Beat, TechnoПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B860A0E08D86CC2AA3609D0A3996877F806296C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230133   (618694) от 10.06.2018
+
+VA - Be Free 5 Years (2018) Be Free Recordings [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darse – Alone | Love Over Entropy Remix (07:37)
+02. Dave Nyx Aether – Forgive Me | Talul Remix (06:56)
+03. Eleonora – With You Here | Javier Orduna Remix (07:13)
+04. Gianluca Corvesi – Viaggio | Gabriele Carasco Meet Sehija Remix (09:15)(   Читать дальше...   )Жанр: Deep Progressive House, Tech House, Nu DiscoПродолжительность: 03:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7235ACE3404DBFA835C339CE54D8BE8372263041
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295695   (618814) от 13.04.2019
+
+Pushkin - Sertra Line (2019) [FLAC|Lossless|tracks + .cue] <Electronic, IDM, Techno>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Departure (04:59)
+02. Lounge (03:28)
+03. Alien Highway (03:59)
+04. The Sun Came Out (04:40)(   Читать дальше...   )Жанр: Electronic, IDM, TechnoПродолжительность: 00:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3621B8D112217FB03C89A3129533D030726E8CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036690   (618900) от 21.07.2016
 
 VA - Amsterdam Trance Sessions Vol. 5 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
@@ -566,141 +701,6 @@ VA - Clubbers Culture: Chill Out At Sunset Beach (2017) [MP3|320 Kbps] <Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DAAD07C907C8354C703F6B95EAFB3B363DDD839
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544215   (621997) от 15.04.2022
-
-Space - Magic Fly (1977) Reissue, 2010, Repertoire Records [FLAC|Lossless|tracks + .cue] <Synth-pop, Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fasten Seat Belt
-02. Ballad For Space Lovers
-03. Tango In Space
-04. Flying Nightmare(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 00:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A30745E474FDC26A90807F95656C32BDAA442207
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 684241   (622027) от 27.07.2013
-
-Syrian - Death Of A Sun (2013) European Edition [FLAC|Lossless]<Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Fade Away
-02. Runner In The Night
-03. Dreaming
-04. Walk Into The Sun(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B92110DE0A345716AB17AB6F16CA34CB48EFE06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295212   (622055) от 11.04.2019
-
-The Chemical Brothers - No Geography (2019) [MP3|320 Kbps] <Electronic, Breakbeat, Techno>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eve Of Destruction
-02. Bango
-03. No Geography
-04. Got To Keep On(   Читать дальше...   )Жанр: Electronic, Breakbeat, TechnoПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E867949920CD601D5FDEFA1FDA8A72364C21E01F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544323   (622069) от 15.04.2022
-
-Blutengel - Erlosung - The Victory of Light (2021) Deluxe Edition, 2CD Box Set [FLAC|Lossless|WEB-DL|tracks] <Electro, Synth-pop, Darkwave>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Herrschaft (00:05:04)
-02 - Freak Out (00:04:38)
-03 - She's Not a Saint (00:04:17)
-04 - Purple Sky (00:04:19)(   Читать дальше...   )Жанр: Electro, Synth-pop, DarkwaveПродолжительность: 2CD, 01:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:160B98B1E0FDA1460866E5B675AF02B2E77233F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544424   (622183) от 15.04.2022
-
-Third ≡ Party - Tomorrowland Friendship Mix (2022-04-14) [MP3|320 Kbps] <Progressive House, Electro House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Third ≡ Party ft. Alfie Bass - Take Me Away
-02. Eli Brown & Love Regenerator - Moving
-03. Maddix - Activating w/Third ≡ Party ft. FMLYBND - Have No Fear
-04. Third ≡ Party - Arrival(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C14DE89A07F394BAE594DA3BB1E8F505FB71E76
 ```
 
 

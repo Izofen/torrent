@@ -1,3 +1,165 @@
+###  Публикация: 988861   (919192) от 21.02.2016
+
+Daniel Masson - Jetlag 2015 Edition (2015) [MP3|320 кб/с] <Electronic, Chillout, World Fusion>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919192.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Впервые выпущенный в начале 2000-х годов, этот альбом - мое первое музыкальное путешествие по смешиванию традиционных инструментов и голосов с электронными стилями, такими как Ambient, Drum and Bass, Jungle, House, Trip Hop. Я использовал сэмплы из записей моих сессий на Dahka – Бангладеш, а также образцы, поступающих из Океании и тихоокеанских островов региона."(Daniel (   Читать дальше...   )01. Deia
+02. Utopia Airlines
+03. Moon Hotel
+04. Djoser(   Читать дальше...   )Жанр: Electronic, Chillout, World FusionПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8035C6294862DEA90167ABC4911632BA2EFA5706
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096652   (919209) от 24.01.2017
+
+VA - Business Lounge  Vol.1 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vega Ray - Track in Rhythm  4:56
+02.  Scott Navarro - Tell Me Why  6:39
+03.  Jason Davis - Lio  2:40
+04.  Amos Martin - Squiggles  5:25(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56C034CCBE9047DF04529F7AC2970E05DE0CBE42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096737   (919249) от 24.01.2017
+
+VA - Good Music 2017-Top 10 Best Slow Music (2017) [MP3|320 Kbps] <Electronic, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamans - Reach Heavens (Chillout Mix) (4:33)
+02. Soulalive - After Sun (Chillout Mix) (6:24)
+03. Sad radio on Cassini - Clear Sky (Chillout Mix) (4:18)
+04. Suntise - Erotic Wav (Chillout Mix) (2:44)(   Читать дальше...   )Производство: SundesireЖанр: Electronic, Lounge, ChilloutПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58D1DDA24D9584B85F6BC89965EE0E04DADD16FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096478   (919308) от 24.01.2017
+
+VA - Deephouse Night Beats (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Performative Mode — First Mode (Original Mix) 05:48
+02. Mighty Real — Remote Viewing (Original Mix) 06:43
+03. Circuito Zeta — Step Down (Original Mix) 07:17
+04. Stube — Calling Dingo (Original Mix) 06:30(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B73650F921E9DD2A7E3AE39EBBE9DF0A021E171
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096574   (919322) от 24.01.2017
+
+VA - Bossa & Chill Vol.1 (Finest Latin Bar & Lounge Music) (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Florito - A La Playa  5:30
+02.  MacThomson - 4th Avenue (Radio Edit)  3:51
+03.  Svendaq - Rhythm Of Life  3:57
+04.  Ibiza Air - The Secret In Me (Original Instrumental Mix)  4:07(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E07D5DB6DC38500B4D8D05265B5DCC33F44396F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096397   (919395) от 24.01.2017
+
+VA - Redux Presents: The Finest Selection (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919395.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Para X - Extasia (original mix) (07:08)
+2. UDM - Omega (extended mix) (06:09)
+3. F.G. Noise & TrancEye - The Mist (original mix) (06:42)
+4. Kayan Code - False Reality (feat Juha V - Dreamy Banging vocal mix) (07:49)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4154ABE052B72972E4BAE3B95151D701F2D2D6CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096588   (919407) от 24.01.2017
 
 VA - Chill Party Chillout Fine Selection (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -532,168 +694,6 @@ SKAM Records (Skam, 33, Kasm, 30mil Recordings) - Label-Pack 118 Releases (1991-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F94243C38E216F85B3E364873ABAFFB413EBB282
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014828   (921558) от 18.08.2021
-
-Jon Hopkins - Discography 41 Releases (2005-2021) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, Modern Classical, IDM, Techno, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Lukas Boysen - Sleepers Beat Theme (02:11)
- 02. Darkstar - Hold Me Down (03:39)
- 03. Holy Other - Yr Love (04:21)
- 04. Teebs - Verbena Tea (feat. Rebekah Raff) (04:18)(   Читать дальше...   )Тип издания: CD, Vinyl, WebЖанр: Ambient, Downtempo, Modern Classical, IDM, Techno, Experimental •Продолжительность: 22:47:03 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FA79D4AE734B792D4558CECF92333F108B42CFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110724   (921896) от 18.08.2021
-
-Aukai - Discography 10 Releases (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Acoustic, Neo-Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rekindle (04:51)
- 02. Afternoon Moon (02:26)
- 03. Waves (04:25)
- 04. Soplo Del Sueno (05:23)(   Читать дальше...   )Тип издания: WEB •Жанр: Acoustic/Modern Classical/AmbientПродолжительность: 00:24:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1983A7238FF63CFD3B90B1B00CD3B6E7E4358F58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252942   (921991) от 18.08.2021
-
-R.Hz - Discography 53 Releases (2016-2021) Ubertrend Records, Toxic Recordings [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starry Sky (09:36)
- 02. Steam (07:19)
- 03. Scatter (06:50)
- 04. Comb (06:34)Тип издания: WebЖанр: Dub Techno, Ambient, Techno •Продолжительность: 28:06:27 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83660884DAE8A226FBAB315110A2F41B12856251
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212075   (922000) от 18.08.2021
-
-Arandel - Discography 13 Releases (2010-2021) Infiné [FLAC|Lossless|tracks+.cue, tracks] <Techno, Experimental, House, Modern Classical, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doxa Notes (feat. Myra Davies) (05:27)
- 02. Fabula (feat. Scalde) (04:38)
- 03. Capriccio (03:16)
- 04. Pr?ludium (03:23)(   Читать дальше...   )Тип издания: CD, WebЖанр: Techno, Experimental, House, Modern Classical, Minimal, Ambient •Продолжительность: 08:27:47 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC5643B0AC1C22A14F58714ECB9CC3F71E4A9EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301004   (922008) от 18.08.2021
-
-The Alchemical Theory - Discography 11 Releases (2018-2021) Annulled, Illegal Alien Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Athanor (07:10)
- 02. Elementa (09:38)
- 03. Ignis (06:07)
- 04. Sol (08:00)Тип издания: WebЖанр: Techno, Ambient, Experimental •Продолжительность: 06:31:50 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6790B25F70B5B5DDEC015B151D8AC38B8028AD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366661   (922114) от 12.03.2020
-
-VA - Psychill Blossom, Vol. 1 (Compiled by Dense) (2020) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Psychill, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dense & Fourth Dimension - Dawn (John Spanos Remix) (09:44)
- 02. Germind - Invention Of Proportions (06:01)
- 03. Side Liner & Aviron - Human, Complete Me (07:16)
- 04. Cayo Largo - Fotonion (05:18)(   Читать дальше...   )Жанр: Psybient, Downtempo, Psychill, AmbientПродолжительность: 01:16:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC6BC2A764F43FEAB432FF8557D01D9F60087C9
 ```
 
 

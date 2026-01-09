@@ -1,3 +1,30 @@
+###  Публикация: 1211520   (777568) от 07.03.2018
+
+VA - Techno Sound [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fog vs Chus & Ceballos - Been A Long Time (Mark Knight Remix) [08:04]
+02. Definition, Def:Play & Roland Clark - I Dream Deep (Olivier Giacomotto Remix) [07:16]
+03. Tini Garcia - Tous [06:52]
+04. The Glitz - Hook Up (Feat Fadila) [07:21](   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 08:08:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6987FFAF3E58A07458FFCD28323F1B10420DB1C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013358   (777587) от 04.05.2016
 
 VA - Workout Music - Work Out Mix (2016) [MP3|320 кб/с] <Pop>
@@ -667,33 +694,6 @@ VA - Nostalgie Chansons Francaises (2018) [MP3|320 Kbps] <Chanson>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3D11F3469B3E9486963BB55AD41CBBFF83BE0AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211096   (778204) от 05.03.2018
-
-VA - Empire Records - Deep Disco 7 (2018) [MP3|320 Kbps] <Disco, Nu Disco, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Olej & Stereoteric feat. Kristina Tiurina  -  Trust Me (Remix)  3:01
-02.  Robert Cristian  -  My Road (Original Mix)  3:05
-03.  QRVZH  -  Sunshine (Original Mix)  5:24
-04.  Vanotek feat. Eneli  -  Tara (Andrew Brooks Remix)  5:04(   Читать дальше...   )Жанр: Disco, Nu Disco, DanceПродолжительность: 01:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4FEA6C0EF30F86661692FE6AE5794A4F0966B08
 ```
 
 

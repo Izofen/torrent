@@ -1,3 +1,36 @@
+###  Публикация: 188902   (866431) от 03.04.2010
+
+DJ Bobo - Fantasy (2CD) (2010) Special Double CD Edition [FLAC|Lossless]<Dance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+DJ Bobo Greatest Hits Megamix:
+01. Countdown (Intro)
+02. DJ Bobo with Emilia - Everybody (Mix)
+03. Respect Yourself (Mix)
+04. It's My Life (Mix)
+05. There Is A Party (Mix)
+06. Around The World (Mix)
+07.Deep In The Jungle (Mix)
+08. Pirates Of Dance (Mix)
+09. Ole Ole (Mix)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 01:27:32
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 873797   (866533) от 01.03.2015
 
 Kylie Minogue - Kylie (1988) Deluxe Edition, 2CD/2015, PWL Records/ [FLAC|Lossless]<Pop>
@@ -718,34 +751,6 @@ Stella - Works for You (2017) [FLAC|Lossless|tracks] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5050CE0AD6CDCB741B1AB509313B95DFDB8ED493
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 872309   (873735) от 25.02.2015
-
-Modern Talking - Ready For Romance - The 3rd Album (1986) [FLAC|Lossless]<EuroDisco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Brother Louie (3:45)
-02. Just We Two (Mona Lisa) (4:00)
-03. Lady Lai (5:01)
-04. Doctor For My Heart (3:22)
-05. Save Me - Don't Break Me (3:50)(   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D21D35B0BF1C11AFC232E7B7B5C00649159EEB7
 ```
 
 

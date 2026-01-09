@@ -1,3 +1,30 @@
+###  Публикация: 999396   (862773) от 23.03.2016
+
+VA - I Love Ballads - Part III (2016) [MP3|256 кб/с] <Pop, Rock, Chanson>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santana - Samba Pa Ti
+02. Samanta Mumba - Always Come Back
+03. Sade - Smooth Operator
+04. Roxette - Breathe(   Читать дальше...   )Жанр: Pop, Rock, ChansonПродолжительность: 01:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D69B6CB4BEA5EDBCA229C6453BAB1B130F95EC5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999295   (862774) от 23.03.2016
 
 VA - Chill Out Blues (2014) [MP3|320 кб/с] <Blues>
@@ -668,33 +695,6 @@ VA - 100 грамм для храбрости Прими на грудь и сл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BAA5981B845D177E7284DEF3BF1799B5F9E0F38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999313   (864815) от 22.03.2016
-
-VA - Tropical Chill Vol.1- Relaxing Summer Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864815.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Christos Fourkis - Feel Me Chill Out Version
-002.  Kai French - Just Relax
-003.  Svendaq - Get Away
-004.  Sunyata Project - Lay Your Hands On Me Extended Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A3F1045D8B98E4F2E22FCD9638D98E5919DF7A8
 ```
 
 

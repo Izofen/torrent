@@ -1,3 +1,51 @@
+###  Публикация: 1458559   (1023750) от 29.03.2021
+
+3D Smart materials - Gumroad - Marco Tomaselli - Porcelain and Gems Pack 10+ Smart Materials [SPP, SPSM]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умные материалы от автора Marco Tomaselli.Формат: SPP, SPSM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33C77FE2806C1E34883D09D0B6D5115CD7C2CE1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458280   (1023924) от 28.03.2021
+
+3D Smart materials - Artstation - Tod Ryan - 18 Robot Metal Substance Painter Smart Material Pack [SPSM]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умные материалы от автора Tod Ryan: 18 smart materials, специально разработанные для роботов и других механических объектов. Включает в себя дополнительные кабели и грязные smart materials.Формат: SPSM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C2CC0F3ADC27D48E9A9A9734611999CA474F676
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458273   (1023936) от 28.03.2021
 
 3D Smart materials - Artstation - Tod Ryan - 13 Substance Painter Engine Metal Automotive Smart Materials [SPSM]
@@ -571,54 +619,6 @@ magnet:?xt=urn:btih:C38B57BE06619E7FA6A8AD29FA84E0389B7BDEE5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7603698453F0336FC28EB2FBB32D78102BEB908
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456440   (1025042) от 22.03.2021
-
-3D Smart materials - Artstation - Zack Maxwell - Stylized Metal - Smart Materials [SPSM]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Умные материалы от автора Zack Maxwell.Формат: SPSM
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:521D52928899FBE66C4BF845871D8161B1DDCF69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456448   (1025046) от 22.03.2021
-
-3D Smart materials - Artstation - Zack Maxwell - Stylized Stone - Smart Materials [SPSM]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Умные материалы от автора Zack Maxwell.Формат: SPSM
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B3647768F0440021EEDB20066309619996E99AC
 ```
 
 

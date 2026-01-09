@@ -1,3 +1,30 @@
+###  Публикация: 1530223   (729681) от 10.02.2022
+
+VA - Сегодня на радио хиты FM Vol.12 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Konfuz - Пропал интерес (1:48)
+02. Артур Пирожков, Клава Кока - Хочешь (2:01)
+03. Graham Lake - FOCUS (2:06)
+04. Markul, Джарахов - Я в моменте (2:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43DB9172F05D3156EF3EAFCBC278D356DD68138
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530163   (729687) от 10.02.2022
 
 VA - EuroDance Hits (2022) [MP3|320 Kbps] <Dance, House>
@@ -677,33 +704,6 @@ Dark Side:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F06EC63688D6350F1B1CBA9F466F77FE442BDF0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127679   (730701) от 22.04.2017
-
-VA - Blues Collection 8 (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Geoff Everett Band - Lost At Sea (Feat. Mollie Marr...)  (06:29) 
-02. Brad Curtis & The SOME x 6 Band - Be Still 2017  (04:49) 
-03. Mark Selby - Back Door To My Heart  (04:01) 
-04. Dizzroxx - Nuclear Shit  (03:33) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 04:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B59C57A0052F3E16BFBA957F72F3B91A29379901
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1368018   (912031) от 18.03.2020
+
+VA - Kiss FM: Top 40 [15.03] (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren feat. Candace Sosa - Runaway 3:58
+02. SAINt JHN - Roses (Imanbek Remix) 3:58
+03. Верка Сердючка - Make It Rain Champagne 2:53
+04. Yves V & Ilkay Sencan feat. Emie - Not So Bad 2:34(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3DB1328644968354BBC82ED0175A71AF6051244
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097674   (912589) от 28.01.2017
 
 VA - Музыкальный плен на Europa Plus выпуск №9 (2017) [MP3|256 Kbps] <Pop>
@@ -680,33 +707,6 @@ VA - Лучшие зимние хиты года. Сборник № 7 (2017) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D09BCA19676E0EFB91C395696527DEB45B76429
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096701   (917792) от 25.01.2017
-
-VA - Полный отрыв. Выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917792.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Olstan Van Guard - Знаки 4:48
-002. Сергей Дубровин & Dima Sirota - Отпусти 4:46
-003. Agressor Bunx - The Curse 5:15
-004. Melanie C - Loving You Better 4:45(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30ECA5CD559CAAFE5F4444E715BA42547E37E66F
 ```
 
 

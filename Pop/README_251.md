@@ -1,3 +1,246 @@
+###  Публикация: 1220865   (700433) от 21.04.2018
+
+VA - Первый танцевальный, Vol. 15 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Филипп Киркоров - Цвет настроения синий
+02. Артём Пивоваров - Полнолуние
+03. Zivert - Ещё хочу
+04. Ева Польна - Сильнее меня (feat. Burito)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA7857D50CBEFA9091873DD0521766959C0E49C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220749   (700664) от 21.04.2018
+
+Lisa Stansfield (Лиза Стэнсфилд) - Affection (1989) Arista [MP3|320 Kbps] <Pop, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лиза Стэнсфилд — британская певица, которая стала известной в 1989 году, записав свой дебютный альбом «Affection». Прорывом певицы стала песня с альбома 1989 года «Affection» «All Around the World», которая достигла третьего места в чарте Америки Billboard Hot 100 и первого — в Великобритании. Также популярными оказались песни «This Is the Right Time», «Live Together», (   Читать дальше...   )01. This Is The Right Time 4:33
+02. Mighty Love 5:12
+03. Sincerity 4:50
+04. The Love In Me 5:00(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 01:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F583417749BC0EDE399A9671FF94EBB46A06E3CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287821   (700803) от 08.03.2019
+
+Кватро - XV лет. Посвящение женщине. Часть 3 (2019) [MP3|320 Kbps] <Pop, Retro>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700803.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Замок из дождя
+2. Как ты красива сегодня
+3. Сердце в 1000 свечей
+4. Виноградная косточка(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:185E119B23AA2EE6CBCDF118335B8927CC932EAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132511   (700841) от 09.05.2017
+
+Lola Coca - The Only Child (2017) [MP3|320 Kbps] <Pop, Britpop, Alternative Hip Hop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Songs
+02. Big Ben
+03. Dream Date
+04. GQ(   Читать дальше...   )Жанр: Pop, Britpop, Alternative Hip HopПродолжительность: 00:30:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98D0167AF95C890A4400BE7A4F18FFF5DF317B48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 895299   (701015) от 05.05.2015
+
+Lara Fabian - Essential (2015) [FLAC|Lossless]<Pop, Classical Crossover>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voce
+02. Tu t’en vas
+03. Tout
+04. Je t’aime(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5558150FCD5F39D76529CFE0FE42D5BB35A1D857
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287825   (701351) от 08.03.2019
+
+Гречка - сборник малолетки (2019) [MP3|320 Kbps] <Pop-Rock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701351.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. проснись моя любовь
+2. каждую секунду
+3. мир сходит с ума
+4. ты главный герой(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A6008A3FB0F5B45F4D6F6C7A5232D41E7D30869
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533952   (701372) от 26.02.2022
+
+VA - ZYX Italo Disco: Flemming Dalum Remixes (2021) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 'Lectric Workers - Robot Is Systematic (Flemming Dalum Edit) (6:33)
+02. Duke Lake - Do You (Flemming Dalum Short Edit) (6:21)
+03. Mono Band - Ghost Town (Flemming Dalum Edit) (7:46)
+04. Wish Key - Orient Express (Flemming Dalum Edit) (5:41)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:15:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6371754FB990FB1AADEF3937519C789EB7DE9B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402464   (701424) от 14.08.2020
+
+Bad Boys Blue - My Star (2019) Compilation [FLAC|Lossless|image + .cue] <Euro-Disco, Italo-Disco, Europop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L.O.V.E. In My Car (5:21)
+02. You're A Woman (Reloaded) (3:50)
+03. Pretty Young Girl (5:46)
+04. Kisses And Tears (My One And Only) (3:57)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, EuropopПродолжительность: 01:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73F46CDD0DA2B46B017BF7676C759AC02C9E4A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533907   (701557) от 26.02.2022
+
+VA - DMC Dance Extra Mixes 168 (2021) [MP3|320 Kbps] <Electronic, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A7S - Nirvana (Header Extended Remix)
+02. A7S - Nirvana (Steff Da Campo Remix)
+03. Anna Awe - Keep Calm (Maik Schafer Pleasure And Pain Remix)
+04. Craig & Grant Gordon - Garden (Original)(   Читать дальше...   )Жанр: Electronic, Funk / Soul, PopПродолжительность: 01:19:20 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA9368813E64602443E599D9AC81A24B89EB2D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402273   (701571) от 14.08.2020
 
 VA - From Russia With Italo Disco (2015) 10CD, Full Set Limited Edition [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco, Hi-NRG, Synthpop>
@@ -450,249 +693,6 @@ PLS PLS - Jet Black (2017) [MP3|320 Kbps] <Indie Pop Rock, Electronic Rock, Synt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A5F5BD34EF90026F9C5527D8F6D054F51D6E162
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132179   (703190) от 08.05.2017
-
-PLS PLS - LP LP (2013) [MP3|256 Kbps] <Indie Pop Rock, Electronic Rock, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circles
-02. On/Off/On
-03. Pigs
-04. WCA(   Читать дальше...   )Жанр: Indie Pop Rock, Electronic Rock, SynthpopПродолжительность: 00:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D04CFE789AABB6F1B38B1B00F2F1B739D0ED7149
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287336   (703226) от 07.03.2019
-
-VA - ZYX Italo Disco New Generation Vol. 14 (2019) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yuhniversia - Infection (Flemming Dalum Remix) (6:47)
-02. Italove - At The Disco (Also Playable Mono Remix) (6:09)
-03. Stylove - Disco Music Energy (Extended Mix) (6:44)
-04. Stockholm Nightlife Feat. Eliza K. - Love Me Tonight (Extended Version) (7:33)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:29:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8A79F561AB94AE8DC5CB7360D548C44CFAE629
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287393   (703241) от 07.03.2019
-
-Mylene Farmer - Dance Remixes (1992) Compilation, Reissue, 2000, Polydor [FLAC|Lossless|tracks] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We'll never die (Techno remix) (7:28)
-02. Sans contrefaзon (Boy remix) (5:48)
-03. Tristana (Remix club) (7:14)
-04. Sans logique (Illogical club remix) (7:13)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 01:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33FBA248849A749D474DF0798705F8543FA9CE25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533639   (703326) от 25.02.2022
-
-Mario Renzi - Un Violino In Discoteca (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Love (3:28)
-02. Honey Pie (3:26)
-03. Copacabana (4:12)
-04. One For Me One For You (5:33)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FB607118BE3DE6AEACC6865FA75F3D1EA55B64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287537   (703347) от 07.03.2019
-
-Dido - Still on My Mind (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hurricanes
-02. Give You Up
-03. Hell After This
-04. You Don't Need a God(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D6BF22248F105DCA3A766EE0B44B2193530D027
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287558   (703626) от 07.03.2019
-
-Sugar & Candy - Come To The Party (1979) [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come To The Party (4:03)
-02. Chapel Of Love (2:54)
-03. Teardrops On My Pillow (4:03)
-04. Breaking Up Again (3:49)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49077FFB120041E890B8328BF2CD75BAAFE94A30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287499   (703692) от 07.03.2019
-
-Electronic Butterflies - Skylab (1977) LP [MP3|320 Kbps] <Electronic, Disco, Experimental, Modern>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор и продюсер - Dan Lacksman. Проект выпускался еще в 1974 году под названием: "Electronic System - Tchip.Tchip (Vol. 3)"01. Tschip Tschip (2:08)
-02. Hey Hey (2:23)
-03. Stay With Me (4:33)
-04. In The Woods (1:56)(   Читать дальше...   )Жанр: Electronic, Disco, Experimental, ModernПродолжительность: 00:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD3EC9705344DA0CE3652522909ACC595448132
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402293   (703932) от 13.08.2020
-
-The Difference - High Fly (1979) LP [MP3|320 Kbps] <Funk, Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High Fly (Poporompompo) (4:14)
-02. Searchin' (4:20)
-03. Hey Lover (3:56)
-04. Tell Me (5:07)(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:24:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:175D451FCDD141AF05EEAD4926FAA7F6498A72D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220454   (704413) от 19.04.2018
-
-Geoff Love And His Orchestra - Star Wars And Other Space Themes / Close Encounters Of The Third Kind And Other Disco Galactic Themes (1997) CD [MP3|320 Kbps] <Electronic, Instrumental, Disco, Th ...
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Star Wars And Other Space Themes (1977):
-01. Main Theme From 'Star Wars' (3:18)
-02. U.F.O. (2:38)
-03. Theme From 'Star Trek' (2:54)(   Читать дальше...   )Жанр: Electronic, Instrumental, Disco, ThemeПродолжительность: 01:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9618D69AE05D38B3B22C2FB276F5CA13C49C507F
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1388652   (786556) от 07.06.2020
+
+Block Group - A Tribute to Pink Floyd (2012) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money
+02. Another Brick in the Wall
+03. If
+04. On the Turning Away(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3ED9279B1674AB7FDA7BBFE5CF578ADAF9289E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388704   (786558) от 07.06.2020
+
+The Tibbs - Tribute to Pink Floyd (12 Classic Hits) (2014) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money
+02. Another Brick in the Wall
+03. If
+04. On the Turning Away(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7676FF6A90889A571BEBFC230D8A923FCB41FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388658   (786568) от 07.06.2020
 
 VA - Rockin' the 90's (2020) [MP3|320 Kbps] <Rock>
@@ -641,60 +695,6 @@ Atom Pink Floyd Tribute - Collection (2016-2019) 2 альбома [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71C0B2F0BF438BBD84CD62BD507BB9B75488054C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201259   (792820) от 24.01.2018
-
-Maschine (Dieter Birr of Puhdys) - Neubeginner (2016) [MP3|320 Kbps] <Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neubeginn 4:23
-02. Helden meiner Generation 4:40
-03. So viel erlebt 3:37
-04. Der grobe Magnet 4:46(   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A6CF1B803BBDEDA566F0C4FB00095E8F6838395
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123043   (793145) от 06.04.2017
-
-Smokie - Greatest Hits vol.1 & vol.2 (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lay Back In The Arms of Someone
-02. Something's Been Making Me Blue
-03. If You Think You Know How To Love Me
-04. Looking Daggers  *(   Читать дальше...   )Жанр: RockПродолжительность: 02:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87EE95F26431BE5FDE56EF8189D4AD49449A32B2
 ```
 
 

@@ -1,3 +1,162 @@
+###  Публикация: 1128410   (727668) от 25.04.2017
+
+VA - Mantra House Vol. 1 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body Dymension - Shake Your Ass (feat. Alex D.)Жанр: HouseПродолжительность: 01:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B737B6F13F1EDCB3175F26855EC16155E02407C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128402   (727669) от 25.04.2017
+
+VA - Blue Sunset Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Grooveyard - Seven Mile (Blade From Jestofunk Re-Edit)  7:03
+02.  Danny Tylar - Blow  3:12
+03.  Ruadh Munro - Joe Sax  3:11
+04.  The Cabildos - Collection Samba  3:44(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:117D3C4E881BFDFF67925D48701CC8936D2CFF1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022792   (727682) от 03.06.2016
+
+Above & Beyond - Acoustic II (2016) [FLAC|Lossless|WEB-DL|tracks] <Downtempo , Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello
+02. We're All We Need (Vocals – Zoë Johnston)
+03. On My Way to Heaven (Vocals – Richard Bedford)
+04. Save Me (Vocals – Zoë Johnston)(   Читать дальше...   )Жанр: Downtempo , ChilloutПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACDE3A644CB2FFFC8F24C9EF6E3C58434192E326
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022483   (727783) от 03.06.2016
+
+Pantha du Prince - The Triad (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronica, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Winter Hymn (feat. Queens) (4:38)
+02. You What Euphoria (5:52)
+03. Frau im Mond, Sterne laufen (6:13)
+04. In an Open Space (feat. Queens) (5:55)(   Читать дальше...   )Жанр: Electronica, MinimalПродолжительность: 01:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA1D42AC4BDCC3CBC82F9C1C2026C46ECEC103E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022776   (727788) от 03.06.2016
+
+VA - House Traxx (Tracks 4 DJ's) (2016) [MP3|320 кб/с] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fashion Lovers - Vaquero's Vow (5th Avenue House Mix) (5:42)
+02. Modell & Mercier - Taming of the Shrew (House Progression Mix) (5:42)
+03. Victor Montreal - Close the Eyes Simple (Gilda's Vocal Mix) (5:43)
+04. House Fly - Leather Stocking (Reference Mix) (5:42)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5670FAA10F944A291EB47712363034CBDC24B27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530883   (727818) от 12.02.2022
+
+VA - Winter Collection 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Organic House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bodaishin & RYAN (AR) - Fates (Original Mix) (8:11)
+02. Berni Mora - The Forgiveness Garden (Original Mix) (8:14)
+03. Larrosa & Gardoqui - Isolation (Original Mix) (8:00)
+04. Seiji Niizawa - Konbanwa (Original Mix) (8:05)(   Читать дальше...   )Жанр: Progressive House, Organic HouseПродолжительность: 03:11:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E6D084778708E957A989D6B9C3C75F92AA001F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284771   (727831) от 22.02.2019
 
 VA - Anjunadeep 10 (Mixed by Jody Wisternoff & James Grant) (2019) [FLAC|Lossless|Web-DL|tracks] <Deep House, House>
@@ -532,168 +691,6 @@ VA - Anthology of contemporary music from Africa continent (2019) Unexplained So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EE18B584D16EE1268D204F08EC94576DC28BDAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284534   (728962) от 21.02.2019
-
-VA - Workout House Bangers (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uniting Nations - Out of Touch (Extended Mix) 6:19
-02. David Morales & The Face feat. Juliet Roberts - Needin' U (Original Mistake Mix) 7:55
-03. Jeremy Sylvester - Whine Ya Bumper (Club Mix) 6:52
-04. Indo - R U Sleeping (Bump 'N' Flex Remix) 5:04(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6435E0B92FBDAD853E135EC2EDB9DED39F9A72F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284530   (728964) от 21.02.2019
-
-VA - Believe In Deep Vol.2 (2019) The Groove Edition [MP3|320 Kbps] <House, DeepHouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jay Cee Morgan - En Deux Heures (Sunrise Mix) 3:32
-02. Beach & Marine Star - Love Investigation (Original Mix) 2:53
-03. Jonas Layne - I Wait For You (Original Mix) 3:15
-04. Isaac Bradley - Shooting Star (Original Mix) 2:59(   Читать дальше...   )Жанр: House, DeepHouseПродолжительность: 01:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CDC03A6082B33268E7FC0059273C599E8D11C09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284469   (728965) от 21.02.2019
-
-VA - Ko Tao Dreams Vol.2 (2019) [MP3|320 Kbps] <House, DeepHouse, Downtempo>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dany Cohiba - El Doble Figurado (Original Mix) 6:24
-02. Climatic - Eya (Original Mix) 5:08
-03. Staubtanzer - Things That I Wrote (Radio Edit) 3:40
-04. Maui & Crizz - We Are The Sun (Radio Edit) 3:11(   Читать дальше...   )Жанр: House, DeepHouse, DowntempoПродолжительность: 02:05:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69E8316375390E934321F95D64EFE99E1AAA9CBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530573   (728980) от 11.02.2022
-
-VA - Distant Places Lounge Vol.1: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Spirit Muse - Breath-Ful Moments (20:21)
-02. Matt Sour - Like a Fairy Tale (Original Mix) (4:44)
-03. Gary B - Afraid to Fall (Original Mix) (4:53)
-04. Michael E - Wind Chime (Original Mix) (5:53)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC95F4D0ECC4D135AE7FC26DC2BC9680CE393493
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530592   (728985) от 11.02.2022
-
-VA - Maretimo Chill Radio - Best of Vol. 1 - Positive Summer Vibes (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Credo – Siesta Del Sol (Laid Back Summer remastered Cut) (04:57)
-02. Cafe Americaine – Solitude Charmante (Level One remastered mix) (04:21)
-03. Miss Lopez – Jeso Creadu (Paraiso Verda mix) (05:32)
-04. Vladi Strecker – Over The Sea (Island Sounds Deluxe remastered mix) (07:14)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FD5DA4A46F885A1547FCE9C387FC30DEEA2B72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530514   (728993) от 11.02.2022
-
-Ben Nicky - Live @ Hellfire, Victoria Warehouse Manchester, United Kingdom (2022-02-05) [MP3|320 Kbps] <Trance, Hard Dance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fred again.. & The Blessed Madonna - Marea (We've Lost Dancing) (Billy Gillies Rework)
-02. D-Block & S-te-Fan - Takin' Off (DJ Isaac Remix)
-03. Underworld & Ashley Bradbury vs. Chris Schweizer - Choose Control (Ben Nicky Mashup)
-04. Nutcase22 - Captain (Restricted Edit)(   Читать дальше...   )Жанр: Trance, Hard DanceПродолжительность: 00:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBDD0B32AFD864995CDB526A2044F1457EFDFB41
 ```
 
 

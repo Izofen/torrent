@@ -1,3 +1,166 @@
+###  Публикация: 1286673   (703474) от 07.03.2019
+
+Eurythmics - Missionary Man, Live Concert 1984 (2000) Unofficial Release, Bootleg [FLAC|Lossless|image + .cue] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sex Crime
+02. Let's Go
+03. The Last Time
+04. Here Comes The Rain Again(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:925E5A3B6BA7ED3531C0B80AAD3034D70F459CC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894851   (703578) от 04.05.2015
+
+VA - Bar and Grooves (30 Smooth Summer Tunes) (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703578.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cor De Savina - Mariana Green (06:27)
+002. The K2 Project - Suntanner (03:14)
+003. Chantell - Dreaming Of You (Naked On The Beach Mix) (05:26)
+004. Greg Knight - Chocolate & Marmelade (05:22)
+005. Steven Dual - Flying (Balearic Guitar Mix) (04:18)(   Читать дальше...   )Производство: Cherry Lounge RecordingsЖанр: Downtempo, Lounge, Chill OutПродолжительность: 02:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E8808281287D3F98A3B2B1FE1E4C2A690D02DDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287512   (703616) от 07.03.2019
+
+VA - 8 марта '10 Танцевальная версия (2010) [MP3|320 Kbps] <House, Euro House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pakito - Harmony (3:33)
+02. Sunrise Inc. - Forever in My Soul (Extended Mix) (Extended Mix) (6:45)
+03. Scooter - Ti Sento (4:03)
+04. ATB pres. Flanders - Behind (2:50)(   Читать дальше...   )Жанр: House, Euro House, Progressive HouseПродолжительность: 01:33:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996C89D7F7324E9537F01D8DD9E3B2AC68289F68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287511   (703694) от 07.03.2019
+
+VA - 8 марта '09 Танцевальная версия (2009) [MP3|320 Kbps] <House, Euro House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Mind - Baker Street (3:19)
+02. Basshunter - Angel In The Night (2:54)
+03. Jf Ray London - Blue (Da Ba Dee) (3:36)
+04. Commercial Club Crew - La Isla Bonita (Crew 7 Radio Remix) (3:00)(   Читать дальше...   )Жанр: House, Euro House, Progressive HouseПродолжительность: 01:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D65ED55AD8A47A4811FC4916BC0699637BE3DA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402271   (703813) от 13.08.2020
+
+Bronson - Bronson (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro House, Tech House, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FOUNDATION (3:04)
+ 02. HEART ATTACK (3:30)
+ 03. BLINE (4:25)
+ 04. KNOW ME (3:00)(   Читать дальше...   )Жанр: EDM, Electro House, Tech House, ExperimentalПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1461BC2648286E3065AC38C93DFD983455BF8E6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026523   (704070) от 15.06.2016
+
+VA - Disco Fever (2016) [MP3|320 кб/с] <House, Disco, Nu-Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discotron - Bang Bang (5:25)
+02. Jack Le Funk - The Disco Ride (5:25)
+03. Serial Thrilla - A Lil Higher (5:46)
+04. Audio Jacker - Shake That Ass (5:33)(   Читать дальше...   )Производство: Tasty RecordingsЖанр: House, Disco, Nu-DiscoПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0548F07CA7F598E0C07C437D352CA5799B7B244C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220513   (704203) от 19.04.2018
 
 VA - Night City Tribute - The Songs of Secret Service (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Italo-Disco, Electropop>
@@ -534,168 +697,6 @@ VA - Melodies For Ravers (2016) [MP3|320 кб/с] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9ED72647A38A4ED81B66FF83BD0F901964F3643E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220196   (706189) от 18.04.2018
-
-VA - Essential House Spring 2018 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tzesar - Spring Break (Original Mix) [00:05:15]
-02. Chris Kaufman - Burning My Socks [00:05:30]
-03. Tzesar - April Lady (Original Mix) [00:05:18]
-04. Renee - Music Heals All Wounds (Ice Cream edit) [00:05:35](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1905EDCF5AE35FECE4ADA04D4AD28E443CA0343
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220357   (706192) от 18.04.2018
-
-VA - Nothing But... The Future of Trance Vol. 06 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Exo - Skybouncer (Original Mix)
-02. Ultimate - Enru (Original Mix)
-03. Tau-Rine - New Life (Radio Edit)
-04. Paul Arcane - Transcend (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67109D5EFDF9BB5E9B10FD20BF8BD8831AD0EE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220187   (706193) от 18.04.2018
-
-VA - Trance Spring Essentials (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airdraw,Aaren, Jo.E - Bryde's Whale (Club Mix)
-02. LTN,Stendahl, Arielle Maren - Black Hole (Blood Groove & Kikis Instrumental Remix)
-03. PROFF - Innervate (Original Mix)
-04. Sound Quelle & Piramex - Shoreline (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:545D7AD83E6875F69B5FAA47EF8E1AB4D2BBB326
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220352   (706194) от 18.04.2018
-
-Mr. Cloudy - IRIT (2018) Limited Edition [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/08. Irit (0:40)
- 02/08. The Version (12:35)
- 03/08. Nautilus Lo-Fi Replication (9:25)
- 04/08. Desove Blessed Dub (7:21)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:440B8E606472C2A8B9E2BA78B6C38511E86111DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131732   (706476) от 06.05.2017
-
-Moskva-Kassiopeya - 3 Albums (2015-2017) [MP3|320 Kbps] <Synthpop, Electro, Retrowave, Space Disco, Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Moskva-Kassiopeya - российский электронный проект музыканта Жарикова Александра (также известного под псевдонимом "B A I K A L"), созданный в 2011 году. Стиль проекта характеризуется как сплав электронного саунда 80-х и современных веяний Electro, объединенных единой научно-фантастической концепцией ретро-футуризма, сочетая в себе элементы классической (   Читать дальше...   )Список альбомов:
-2015 - Road To The Stars (Author's compilation)
-2016 - Jupiter And Beyond The Infinite
-2017 - Encounters(   Читать дальше...   )Жанр: Synthpop, Electro, Retrowave, Space Disco, SynthwaveПродолжительность: 02:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D214BF964E08A39168759838B51A4E8218E9B40F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131552   (706606) от 06.05.2017
-
-Forest Swords - Compassion (2017) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Experimental, Tribal, Leftfield>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War It (05:54)
-02. The Highest Flood (05:07)
-03. Panic (04:49)
-04. Exalter (05:37)(   Читать дальше...   )Жанр: Experimental, Tribal, LeftfieldПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9348361DDB080B37ACFD97ED0547E2051BC7056B
 ```
 
 

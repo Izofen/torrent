@@ -1,3 +1,30 @@
+###  Публикация: 1091027   (944974) от 08.01.2017
+
+VA - Top 100 DJs Alive Sound (2017) [MP3|320 Kbps] <Tech Trance, Electro, Dutch, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944974.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cosmic Gate & JES - Fall Into You (Extended Mix) 6:34
+002. Andy Moor & Somna Feat. Amy Kirkpatrick - One Thing About You (Eximinds Remix) 5:40
+003. Raz Nitzan & Kate Louise Smith - This Time (Original Mix) 6:59
+004. Alex Leavon & Gemma Pavlovic - Counting Stars (Original Mix) 5:30(   Читать дальше...   )Жанр: Tech Trance, Electro, Dutch, ProgressiveПродолжительность: 08:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD87C9A90EAECA0F7291ED91437CF5935738BE62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091032   (944982) от 08.01.2017
 
 VA - Top 100 EDM Songs & DJ Tracks December (2017) [MP3|320 Kbps] <Electronica, Indie, Nu Disco, Tech>
@@ -677,33 +704,6 @@ VA - Dancehall Sun Hits 2017 [MP3|320 Kbps] <Modern Dancehall, Music Reggae, Bha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29CA658FC4EB360C63E31CF76A4333A0A4A4D779
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090569   (946151) от 07.01.2017
-
-VA - Снежный коктейль. Выпуск 50/50 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946151.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adventure Club Feat. Ben Stevenson - Forever 3:50
-002. Alicia Keys - The Gospel 3:02
-003. Сиран Агасаров - Для Тебя 3:33
-004. Катя Лель - Придумала 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B983FDD27A697ABEA342CD13D261F662E56BE2CE
 ```
 
 

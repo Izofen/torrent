@@ -1,3 +1,305 @@
+###  Публикация: 1031247   (668433) от 03.07.2016
+
+Medwyn Goodall - The Dreamworld (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamweaver
+02. Where Imaginations Meet
+03. Orbit
+04. Eye of the Wolf(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC6FFF517AF9E939D491A59ED82A57452AC7508
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031237   (668441) от 03.07.2016
+
+James Last - Instrumental Forever (1998) [APE|Lossless|image + .cue] <Instrumental, Pop, Latin>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A String Of Pearls
+02. Tico Tico
+03. Granada
+04. Brazil(   Читать дальше...   )Жанр: Instrumental, Pop, LatinПродолжительность: 00:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43FF4AC862A208E9AE2A516B31FFD8F8A613042C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510748   (668470) от 15.06.2012
+
+Set Fire to Flames - 2 albums (2001-2003) [FLAC|Lossless] <Post-Rock, Instrumental, Ambient, Experimental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_668470.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1. Telegraphs in Negative: (00:43:56)
+01. Deja, Comme Des Trous De Vent, Comme Reproduit (06:43)
+02. Small Steps Against Inertia / Echo Of A Dead End (03:01)
+03. Measure De Mesure (04:45)
+04. Holy Throat Hiss Tracts To The Sedative-Hypnotic (03:38)
+05. When Sorrow Shoots Her Darts (03:11)
+06. Kill Fatigue Frequencies (01:28)
+07. In Prelight Isolate (15:11)
+08. Tehran In Seizure / Telegraphs In Negative (05:56)2001-2003Жанр: Post-Rock, Instrumental, Ambient, ExperimentalПродолжительность: 01:28:09
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031139   (668587) от 03.07.2016
+
+John Williams - The BFG / Большой и добрый великан (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|CD|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (01:19)
+02. The Witching Hour (04:41)
+03. To Giant Country (02:34)
+04. Dream Country (10:11)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673DA5528A9549D5D4B6DA3B024DB76DE2D56648
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031143   (668594) от 03.07.2016
+
+John Williams - The BFG / Большой и добрый великан (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (01:19)
+02. The Witching Hour (04:41)
+03. To Giant Country (02:34)
+04. Dream Country (10:11)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD8BC4782AA459629EF123978629C92D171BF0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031242   (668644) от 03.07.2016
+
+Midori - Soul Healing / The Best of Midori (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Promise of Love
+02. Energy
+03. Pure
+04. Seraphim (The Spirits of Love)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C217C1E8C734FB8AA310C767388EFF63A225FB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031371   (668646) от 03.07.2016
+
+VA - Sleep, Rest, Relax (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radiance [00:10:20]
+02. Cloud Dancing [00:03:36]
+03. In a New Light [00:06:27]
+04. Sungrass [00:06:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4217E1B9098877B0B02223A7B6FD5E4066CFD368
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031229   (668647) от 03.07.2016
+
+Midori - Soul Healing / The Best of Midori (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Promise of Love [00:05:08]
+02. Energy [00:09:03]
+03. Pure [00:05:51]
+04. Seraphim (The Spirits of Love) [00:07:39](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE3EB6D93A6B94B7D917B6DC87896741D8715DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291586   (668668) от 25.03.2019
+
+Baba Yaga's Stew - Baba Yaga's Stew (2019) [FLAC|Lossless|tracks + .cue] <Folk, Contra Dance>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lörincreve, Amari Szi (3:20)
+02. Tirontanita, Anaconda (3:51)
+03. La Bruja (3:38)
+04. Koga Ke Odish Mome Za Voda, Üsküdar (4:54)(   Читать дальше...   )Жанр: Folk, Contra DanceПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13DCA18FF7268318EBE5CACDCA1CFB12ED931091
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291669   (668804) от 25.03.2019
+
+Cole Swindell - All of It (2018) [FLAC|Lossless|tracks + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love You Too Late
+02. All Of It
+03. Somebody's Been Drinkin'
+04. Sounded Good Last Night(   Читать дальше...   )Жанр: CountryПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75253406316A1EDB5CF5723E467D8E803B75BF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136963   (669132) от 25.05.2017
+
+The Romantic Strings and Orchestra - Great Broadway Favorites (1993) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oklahoma - Oh, What a Beautiful Mornin' (3:10)
+02. My Fair Lady - I Could Have Danced All Night (2:39)
+03. South Pacific - This Nearly Was Mine (2:50)
+04. Annie Get Your Gun - The Girl That I Marry (2:34)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3297D3068045655BD050DAE90619B0BFB159129A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030661   (670047) от 02.07.2016
 
 The Witcher 2: Assassins of Kings (Original Soundtrack) (2012) Enhanced Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -416,315 +718,6 @@ The Bodarks - Uprooted (2018) [FLAC|Lossless|tracks + .cue] <Contemporary Folk, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E0F92DB062575CF3A97B4E32259D8EB8FDB7C24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136756   (672537) от 23.05.2017
-
-VA - Baywatch / Спасатели Малибу (Music From The Motion Picture) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Notorious B.I.G. - Hypnotize (03:50)
-02. Sean Paul - No Lie (feat. Dua Lipa) (03:41)
-03. A$AP Rocky - Everyday (feat. Rod Stewart, Mark Ronson & Miguel) (04:21)
-04. Vince Staples - BagBak (02:40)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE8FA1C0CF4EFC2006F5976FBB641C14AE843BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136724   (672877) от 23.05.2017
-
-VA - Thai Massage Lounge: Asian Zen Spa Relaxation (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wellness Sounds Relaxation Paradise - Thai Massage Lounge 100
-02. Tranquility Spa Universe - Asian Zen Spa Relaxation 5
-03. Sauna & Massage Academy - Wellness Center 111
-04. Soul Therapy Group - Ayurveda Treatment 50(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20D6ADC03F8E0C6B1048629195DC09FD598ED09F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136758   (673010) от 23.05.2017
-
-VA - Music to Help You Sleep: Deep Restful Sleeping (2017) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_673010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Sleep Music Society - Music to Help You Sleep
-02. Deep Sleep Sanctuary - A Time to Relax
-03. Beautiful Deep Sleep Music Universe - Restful Healing Sleep
-04. Deep Sleep Hypnosis Masters - Health Benefits(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 01:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F40B70A3192E9F9D23788B097E4D874F8AA4C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136455   (673012) от 23.05.2017
-
-Holly Benton - Road Trip (2017) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_673012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Road Trip (3:28)
-02 - Swag (3:19)
-03 - Wishing Well (4:12)
-04 - Wedding Day (2:53)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EACFEC4AB43B65D0C2E4AEDF8BAEEE43B13914CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136493   (673124) от 23.05.2017
-
-VA - Kamasutra Divine: Harmonious Lessons for Love (2013) [MP3|320 Kbps] <New Age, Ambient, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673124.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. KoolSax - Angels Echoes (Meditation Mix) (5:46)
-2. Current Surrounds - Mercurys Love Maze (5:15)
-3. Keisuke Sakai - Mizu Sumu (4:40)
-5. Kolby Wade - Pilgrimage (3:32)(   Читать дальше...   )Жанр: New Age, Ambient, ChilloutПродолжительность: 01:32:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D29A62BD9F0AC185F566FC432D28C44FDCC894
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290860   (674332) от 22.03.2019
-
-Lullatone - Music For Museum Gift Shops (2019) 2CD [FLAC|Lossless|tracks + .cue] <Ambient, Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. trying something again again (piano version) (02:42)
-02. my second favorite song in the world (piano version) (04:37)
-03. an ode to eaten snowflakes (piano version) (01:10)
-04. a blanket of snow spotted from under the blankets in bed (piano version) (01:43)(   Читать дальше...   )Жанр: Ambient, Instrumental, PianoПродолжительность: 02:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15D8207138D0378B804A49CCC2D657E0DAD3AF4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290765   (674334) от 22.03.2019
-
-Tom Russell - October in the Railroad Earth (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. October in the Railroad Earth (04:58)
-02. Small Engine Repair (03:50)
-03. T-Bone Steak and Spanish Wine (05:16)
-04. Isadore Gonzalez (03:19)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:241C5EE253344BB563B0B0ADBB5DBA216A79792C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030318   (674414) от 30.06.2016
-
-J Stallworth - Unleashed (2016) [MP3|320 Kbps] <Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674414.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro (Romans 6.4-6) (0:45)
-2. Theme, Pt. 1 (6:24)
-3. A New Day, Pt. 2 (4:12)
-4. Joy Comes in the Morning, Pt. 3 (6:06)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6251934FABCF92BDD462EAD168B18D965DB6655B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 337412   (674689) от 16.05.2011
-
-Varios Artists - Manasa (2010) [MP3|128-320 kbps]<Instrumental, New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enigma - Sadeness (04:21)
-02. Enigma - I Love You … I’ll Kill You (8:56)
-03. Enigma - The Dream Of The Dolphin (2:50)
-04. Enigma - Age Of Loneliness (Carly’s Song) (5:25)
-05. Vangelis - Prelude (4:56)
-06. Enigma - Shadow in Silenсe (4:27)
-07. Enigma - The Child In Us (5:08)
-08. Enigma - Prism Of Life (4:57)
-09. Terry Oldfield - Spirit of Tibet (fragment) (6:11)
-10. Deep Forest - La Legende part 2 (4:10)(   Читать дальше...)Жанр: Instrumental, New Age, EnigmaticПродолжительность: 02:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE7B03CBCDA76D7A5BE1863DB717A5CFC8EB23F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 337479   (674819) от 16.05.2011
-
-Various Artists - Journey To Tibet (2000) [MP3|192-320 kbps]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674819.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Henri Seroka - Lost temple (5:47)
-2. Medwyn Goodall - OM (3:49)
-3. Clive Bell & Max Reed - Kuan Yin (3:21)
-4. Medwyn Goodall - The Snake Charmer (6:19)
-5. Chris Glassfield - Icicles are melting (3:44)
-6. Nawang Khechog - Peace in the world (4:59)
-7. Gyume Tibetan Monks - Guhyasamja (2:00)
-8. Medwyn Goodall - Nazca (4:44)
-9. Gregor Thelen - Bowing birches (4:29)
-10. Clive Bell & Max Reed - Milarepaґs Jorney (4:18)(   Читать дальше...)Жанр: New AgeПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E9DC1E73F38F371A8770F60B880DDBD391C1B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136439   (674901) от 22.05.2017
-
-NeillyRich - Here Now Forever (2017) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Take A Minute (3:43)
-02 - Sunshine Good Times (3:26)
-03 - Make Each Moment Last (3:47)
-04 - Here Now Forever (2:55)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E187B2A3264D710D67A07F671942012693201ADD
 ```
 
 

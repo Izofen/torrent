@@ -1,3 +1,165 @@
+###  Публикация: 1495010   (880617) от 12.09.2021
+
+VA - VREMЯ VПERЁD! Russkiй Pizdэnц (1993) Air Fish Records [FLAC|Lossless|tracks + .cue] <House, Hardcore, Ambient, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880617.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Sviridov*– Vremя Vпеrёd 1:27
+2 Block Four– Who Works With You? 6:13
+3 The Fantom– Planet Caladan 5:14
+4 X-Time– X-Time 5:24(   Читать дальше...   )Жанр: House, Hardcore, Ambient, TranceПродолжительность: 01:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D9354C518095C82EB970440343C368A633A7CEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995604   (880825) от 13.03.2016
+
+Space - Best Of (1998) 2002 BMG Russia [FLAC|Lossless|tracks + .cue] <Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic Fly (Original Version) (4:19)
+02. Running In The City (4:13)
+03. Just Blue (4:30)
+04. Carry On, Turn Me On (7:13)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C51446DDA09B5BBFE1B3F580D370FABAB0A9D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996222   (880840) от 13.03.2016
+
+Blutengel - Nemesis: Best of and Reworked (2016) 2CD, Deluxe Edition [FLAC|Lossless|image + .cue] <Darkwave, Synth-Gothic>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vampire Romance (Reworked) [04:45]
+02. Children Of The Night (Reworked) [05:18]
+03. Behind The Mirror (Reworked) [03:51]
+04. Soul Of Ice (Reworked) [05:20](   Читать дальше...   )Жанр: Darkwave, Synth-GothicПродолжительность: 01:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0A88AF0F9C1675D3E71100B677EC5978363CE81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996264   (880933) от 13.03.2016
+
+Physical Dreams - Orbital (2016) [MP3|320 кб/с] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andromeda
+02. Arcadia
+03. Baroque
+04. Der Testimony(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA36773A381C60F903108A4D1531588CDD7EA74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996274   (880950) от 13.03.2016
+
+Sean Tyas - Degeneration (2016) [FLAC|Lossless|tracks+.cue] <Trance, Psy-Trance, Breaks, Drum & Bass>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vagabond (5:43)
+02. Swarm (4:45)
+03. Diffuse (5:10)
+04. 9Am (5:53)(   Читать дальше...   )Жанр: Trance, Psy-Trance, Breaks, Drum & BassПродолжительность: 01:17:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC4CA2D37B6F1482CC6D533C8767A59E49D593C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996263   (880955) от 13.03.2016
+
+VA - Grotesque Winter Edition (Mixed by RAM & Mark Sherry) (2016) [FLAC|Lossless|tracks+.cue] <Trance, Uplifting Trance, Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ahmed Romel - Paradisum (3:57)
+02. Allen & Envy & Andy Elliass feat. Natalie Gioia - In Love (5:13)
+03. RAM & James Dymond feat. Kim Kiona - End Of Times (Flynn & Denton Remix) (4:50)
+04. Factor B - Sacrosanct (5:59)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive TranceПродолжительность: 01:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD03708B2D9B6974420148AAC6ED78F51790DC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996262   (881077) от 13.03.2016
 
 Underworld - Barbara Barbara, We Face A Shining Future (2016) [FLAC|Lossless|tracks + .cue] <Progressive House, Techno>
@@ -529,168 +691,6 @@ VA - Psychedelic Selections Vol.004 (Compiled by Antinomy) (2020) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB48FBE40FE4A34F05FA7578DABBD78CC7AD3813
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373096   (882088) от 05.04.2020
-
-Complicated - Time and Space (2019) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882088.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Like a Hurricane (6:37)
-2. Pieces (8:07)
-3. Intergalactic (7:06)
-4. Alien Conversation (6:19)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF813F2C6613D7B7B9439E7E8BC92A4EE18ACC32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373092   (882136) от 05.04.2020
-
-Complicated - Nature Harmony (2016) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882136.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Gate (Original Mix) (7:08)
-2. Matkot (Original Mix) (7:47)
-3. Complicated; Cosmic Tone - Stop In My Mind (Original Mix) (7:57)
-4. Distorted Reality (Original Mix) (7:43)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2AB594C07D13D56C525D144C4A6E446B9251D68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373010   (882200) от 05.04.2020
-
-Arktapes - Space Versions 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Techno Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled (Arktapes 001 A1 - Space Version) (09:14)
- 02. Untitled (Arktapes 001 A2 - Space Version) (07:04)
- 03. Untitled (Arktapes 001 B1 - Space Version) (11:35)
- 04. Untitled (Arktapes 002 A1 - Space Version) (08:14)(   Читать дальше...   )Жанр: Ambient, Dub Techno, Techno AmbientПродолжительность: 02:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6037A0C4C02DA9FE1F83308A5A6482900FB24AE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495294   (882292) от 11.09.2021
-
-VA - Italia Synthetica 1981-1985 (2013) CD [MP3|320 Kbps] <Electronic, New Wave, Synth-pop, Italo-Disco>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neon - Lobotomy (5:50)
-02. Der Blaue Reiter - Lights Off (3:12)
-03. Ein-st-ein - Varsavia (4:42)
-04. Modo - Niagara Falls (4:01)(   Читать дальше...   )Жанр: Electronic, New Wave, Synth-pop, Italo-DiscoПродолжительность: 01:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B927C3459D05C85B05D8E31ECA5B9C6EF2187E5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995976   (882692) от 12.03.2016
-
-VA - Zoo Debts (2016) [MP3|320 кб/с] <PsyTrance, Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zen Mechanics, Headroom - CBR [08:44]
-02. U-Nique - Dreams Are Real [07:16]
-03. Echotek - Space Patrol [07:06]
-04. Timelock - TNT [06:54](   Читать дальше...   )Жанр: PsyTrance, TranceПродолжительность: 03:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FDA2DAC8D6033DE6738196218FFABE550AC7F28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995837   (882839) от 12.03.2016
-
-Dusty Kid - III (2014) [FLAC|Lossless|tracks] <Techno, Acid, Tech Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crepuscolaris (05:57)
- 02. Far (06:48)
- 03. Sandalyon (14:15)
- 04. Raww Oohmm (03:56)(   Читать дальше...   )Жанр: Techno, Acid, Tech TranceПродолжительность: 01:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93FBB9A595CE652D01CA5715404A8FA7A6ACE019
 ```
 
 

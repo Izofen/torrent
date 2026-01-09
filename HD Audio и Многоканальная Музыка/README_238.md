@@ -1,3 +1,30 @@
+###  Публикация: 686920   (601259) от 06.08.2013
+
+Melody Gardot - 3 Альбома (2008-2012)[FLAC 2.0 24/96|image (Vinyl-Rip)]<Jazz, Easy listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mira
+02. Amalia
+03. So Long
+04. So We Meet Again My Heartache(   Читать дальше...   )Жанр: Jazz, Easy listening |Продолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842F7247551AACCB6C88176ABB74324705A3A885
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298844   (601561) от 29.04.2019
 
 Bad Boys Blue - Super 20. Greatest Hits (1995) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Electronic, Synth-pop, Disco>
@@ -670,33 +697,6 @@ Slippery When Wet является (   Читать дальше...   )01. Let 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DAB18CE42DE92A5A0606CD96ADA91A48D5EA4E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546483   (606113) от 24.04.2022
-
-VA - Старинные вальсы (1983) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хор Московских Студентов - Амурские Волны
-(слова народные)
-Худ. рук. В. Соколов
-02. Хор Московского Городского Управление Трудовых Резервов - Березка(   Читать дальше...   )Жанр: FolkПродолжительность: 00:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C240B8BDB80E89D342FB1C3A1C4F73B7104DCF9E
 ```
 
 

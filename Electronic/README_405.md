@@ -1,3 +1,165 @@
+###  Публикация: 1124245   (785984) от 10.04.2017
+
+VA - Quintessence 1st Elixir (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maximo Gladius – Summer Love  05:57
+ 02. Durga Amata – Misunderstanding  05:27
+ 03. David James Bianchi – Aqueduct  05:22
+ 04. Cassius Mc Fawner – Bright Cave  04:44(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF1ED448FAA9B935C7E4711F03FCA8D32442D94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123732   (785986) от 10.04.2017
+
+VA - Future Core Vol.1 (2017) [MP3|320 Kbps] <House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jetty Racher & James Bell - Ready For The Bass (Radio Edit)  2:39
+02.  Mark Edward Hilder - Fall In Love Again (Radio Edit)  3:35
+03.  Copamore - Where's Your Love (Radio Edit)  3:42
+04.  The STW Project - Us (Radio Edit)  3:50(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 02:16:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F2D094BAD380B6B5FB8C8B9F85C4E777152D2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123678   (786106) от 09.04.2017
+
+Blank & Jones - Milchbar: Seaside Season 9 (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blank & Jones - My Island
+02. Blank & Jones with Zoe Dee - Adios Ayer
+03. Cantoma - Sea of Blue
+04. Zee Erf feat. Francesca Mondi - Southern Freeez (Mudd's Mix for Emma)(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 01:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CAACE20C30B8C80AB108A2993CAB80A801D3613
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123948   (786208) от 09.04.2017
+
+VA - Ori Uplift - Uplifting Only 217 (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786208.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Avenger - Orca (New World Intro Mix Remaster)
+2. Syntouch & Blue Moon - Fields of Florette (Phil Dinner Remix)
+3. PRE-RELEASE PICK: Night Sky & Rebecca Louise Burch - Till I Break Free (Madwave Remix)
+4. The Enturance & Exouler - Inspiration(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A86CBC122C313D3F56967C5ACB20B66492E09874
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123468   (786220) от 09.04.2017
+
+VA - Infrasonic Spring Selection (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Max Denoise - Principessa (Ronski Speed Remix)  6:33
+02.  Empirian - Waves (Original Mix)  5:49
+03.  Artra & Holland - Freyja (Extended Mix)  6:38
+04.  Sam Laxton - Bliss (Extended Mix)  6:09(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 01:19:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB8CD703158A7A26AFFC4D921EF89B920DA7712
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123483   (786389) от 08.04.2017
+
+Martin Buttrich - Collaborator Vol.1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Tech, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Buttrich & DJ Tennis - Perpetual (Original Mix) [12:49]
+02. Martin Buttrich & Ramon Tapia - Evita (Original Mix) [08:36]
+03. Martin Buttrich, Timo Maas - Nach Acht [03:29]
+04. Martin Buttrich, Loco Dice - Damn U Made It [03:26](   Читать дальше...   )Жанр: Tech House, Deep Tech, MinimalПродолжительность: 02:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990E5DD6E1E06314BF652CEB288A662F02217962
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206667   (786522) от 07.06.2020
 
 Telefon Tel Aviv - Discography 19 Releases (2001-2020) Hefty Records, BPitch Control [FLAC|Lossless|tracks+.cue, tracks] <IDM, Leftfield, Experimental, Ambient, Downtempo, Abstract>
@@ -533,166 +695,6 @@ VA - Best Of Citrus (2018) [MP3|320 Kbps] <Electronica>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE070F311F2DBD383085B24072A3C221ADCD4D52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276978   (787222) от 18.01.2019
-
-VA - Sublime Drum And Bass, Vol.14 (2019) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Kurrupt - Traffic Cops (Original Mix)
-02.  Liraxity - Refuse (Dubbage Remix) (Feat Fireflake)
-03.  DJ Tiny M - Sanity Killz Dat (Original Mix)
-04.  Cryogenics - Addictive (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66050068158FFA45AECEF8459C81931633CBEE61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276846   (787238) от 18.01.2019
-
-VA - Black Hole Trance Music 01-19 (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Profetik Feat. Mandy Jones - Memories (Extended Mix)
-02. Orkidea - Forward Forever (Extended Mix)
-03. Maarten De Jong - Goodbye (Extended Mix)
-04. Myon & Late Night Alumni - Hearts & Silence (Super8 & Tab Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C31539303922E83B569F86F12658E50DAA715211
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276843   (787247) от 18.01.2019
-
-VA - Markus Schulz - Global DJ Broadcast Top 20 January (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & Jam El Mar - Lotus (Extended Mix)
-02. Moogwai - Viola (Elevation Extended Remix)
-03. Fisherman - The JaguarЖанр: TranceПродолжительность: 02:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7831F7349E573352D0A764236ED6ED5BC0687EE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276823   (787249) от 18.01.2019
-
-Adverb - Collection 6 Releases (2013-2019) Etoka Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Volatile (07:54)
- 02. Dub Protocol (09:30)
- 03. Manipulate (05:28)Тип издания: WEBЖанр: Dub Techno/Deep TechnoПродолжительность: 00:22:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B5A5FC6C0377290EEAFD78F6E61B62ABAE2AB36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277040   (787255) от 18.01.2019
-
-Aevin - Gravity (2019) [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, Electro, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L1 (01:37)
- 02. Neptune Trojan (05:03)
- 03. Halo Orbit (05:18)
- 04. L2 (01:40)(   Читать дальше...   )Жанр: IDM, Industrial, Electro, ExperimentalПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D635C360B283081352CACD0149DFA481AEB9DFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276973   (787258) от 18.01.2019
-
-VA - Beats And Grooves (30 Top House Tunes),Vol.3 (2019) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Encure feat. Brett Miller Extended Mix - You Lead, I Follow (Extended Mix)
-02. Zinner, Orffee - Someday (Instrumental Radio Edit)
-03. Fijin feat. Nessa Sovi Remix - The One (Sovi Remix)
-04. Ben Weber - My People(   Читать дальше...   )Жанр: HouseПродолжительность: 02:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48FEA7A73E7A2A6B0CCAF650E016A47AB1FB45B6
 ```
 
 

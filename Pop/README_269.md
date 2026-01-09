@@ -1,3 +1,249 @@
+###  Публикация: 1280512   (758726) от 04.02.2019
+
+Татьяна Лихачёва - Кофе с перцем (2002) [FLAC|Lossless|image + .cue]<Рор>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Всё теперь не так...
+02. Любовь - холодная война
+03. Кофе с перцем
+04. Я хочу забыть тебя(   Читать дальше...   )Жанр: РорПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:054CA2665687AF277DA25D705ECAAEA4B7A3F27C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018015   (759271) от 18.05.2016
+
+Dave Edmunds - 2 Albums (1983, 1984) [MP3|320 кб/с] <New Wave, Pop Rock, Rock & Roll>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британский певец, гитарист и продюсер.
+Имел множество хитов в 1970-х и начале 1980-х годов.
+Наиболее известными стали эти два альбома, сделанных и спродюсированных совместно с лидером группы E.L.O. Джеффом Линном (Jeff Lynne), чей стиль
+исполнения невозможно не узнать!01. Slipping Away   (4:22)
+02. Don't You Double   (3:16)
+03. I Want You Bad   (2:36)
+04. Wait   (4:11)(   Читать дальше...   )Жанр: New Wave, Pop Rock, Rock & RollПродолжительность: 01:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2807C66814CFB4F74D988F358FB71967CD1378C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 780720   (759475) от 26.04.2014
+
+VA - Pure... 80s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Electronic, Soft Rock, Europop, Pop-Rock, Synth-pop, Hard Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сборник от Sony Music возвращает нас к лучшим хитам 80-х. И хотя на первый взгляд вам может показаться, что в сборнике нет ничего необычного, тем не менее обратите внимание на такие неординарные хиты тех лет как "Hungry Like the Wolf," "Our House," "Relax," "Sweet Dreams (Are Made of This)," "Video Killed the Radio (   Читать дальше...   )CD1:
+Продoлжитeльность: 01:14:49
+ 01. Bill Medley & Jennifer Warnes - (I've Had) The Time Of My Life  (4:50)
+02. Starship - We Built This City  (4:54)(   Читать дальше...   )Жанр: Pop, Rock, Electronic, Soft Rock, Europop, Pop-Rock, Synth-pop, Hard RockПродолжительность: 04:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375769D9CC04976F03BAE269B54FEA90F6D1D4D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215339   (759618) от 25.03.2018
+
+VA - Best Of The 70's (2002) [FLAC|Lossless|tracks + .cue] <Rock, Reggae, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759618.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Rubettes - Sugar Baby Love [03:21]
+2. Santa Esmeralda - Don't Let Me Be Misunderstood [03:25]
+3. Mud - The Cat Crept In [04:07]
+4. Dillinger - Cocaine In My Brain [05:09](   Читать дальше...   )Жанр: Rock, Reggae, PopПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76EDE5AC949840B748EC95E868B91E3CAACD5A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215205   (759833) от 25.03.2018
+
+VA - Deutsche Schlager Hits Deluxe 2018 (80 Discofox Hits) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mike Bauhaus - Ich Geh Nicht Zu Boden (03:40)
+02 - Die Herzdiamanten - Am Besten Du Gehst (Fox Mix) (03:28)
+03 - Joel Gutje - Sensationell (Huma Dj Mix) (03:45)
+04 - Pat - Diese Geile Nacht (03:13)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 04:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:501CD70323185BC21B8C60DD69DBDF257E474FA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522230   (760350) от 06.01.2022
+
+VA - Best Of Funk 2021 (2022) [MP3|320 Kbps] <Disco, Nu-Disco, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Motta - Stay Together (Latouche Finale Remix) (feat. Dave Baron) (05:08)
+02. Eddy Sanchez - Back To Back (05:10)
+03. Jerem A - When The Sun Goes Down (DJ Hakuei Remix) (06:34)
+04. Infradisco - Il vizio (04:38)(   Читать дальше...   )Жанр: Disco, Nu-Disco, Funk, SoulПродолжительность: 01:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB19D0024C55061D536406EE36B2D826CB04E03E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280595   (760435) от 03.02.2019
+
+Marc De Ville - Don't Smile (1979) LP [MP3|320 Kbps] <Electronic, Power Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее имя - Rolf Köhler. Немецкий музыкант, композитор, продюсер и исполнитель из Гамбурга. Учавствовал во многих музыкальных проектах, наиболее известный из них - группа Systems In Blue.01. Don't Smile (4:00)
+02. Mistery Woman (3:47)
+03. Annie (I Don't Wanna Talk...) (3:38)
+04. You're The Worst Of All (4:11)(   Читать дальше...   )Жанр: Electronic, Power Pop, Pop RockПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB422895AB1F5AB56C453BB9CF83931AD8418A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017751   (760778) от 17.05.2016
+
+Jamala - Подих (2015) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760778.jpg" />
+</div>
+
+
+###  Подробнее
+
+На фоне возросшего интереса к этой самобытной певице с Украины, думаю будет не безинтересно познакомиться с последним её альбомом. Мне показалось, что на Евровидении всеж её голос звучал значительно профессиональнее и лучше. Но это чисто ИМХО. А каждый может сложить своё мнение. Особенно рекомендую послушать Обещание - настоящий хит на все времена!01. Подих  (4:31)
+02. Чому саме тебе (You've got me)  (3:25)
+03. Шлях додому  (4:29)
+04. Бiльше (feat Marphom)  (3:51)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71B0F6E1220A52E4ECE2DEDB38F78119B64DD5AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215070   (761376) от 24.03.2018
+
+Leila K. - Carousel (1993) [FLAC|Lossless|image + .cue] <Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carousel
+02. Open Sesame
+03. Ca Plane Pour Moi
+04. Slow Motion(   Читать дальше...   )Жанр: Euro-HouseПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F47F3883FA1970BF42E7D31A1E19377667A5E133
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280271   (761496) от 02.02.2019
 
 Кватро - XV лет. Часть 2 (2019) [MP3|320 Kbps] <Pop, Retro>
@@ -446,249 +692,6 @@ VOLUME 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4E304EB086CAEE16657C5C4D4E131333D381881
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280090   (763522) от 01.02.2019
-
-The Beloved - Sweet Harmony: The Very Best of The Beloved (2011) 2CD, RM. [FLAC|Lossless|tracks + .cue] <Pop, Synthpop, House, 80s, 90s>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loving Feeling (3:44)
-02. Satellite (4:15)
-03. Ease the Pressure (4:20)
-04. Scarlet Beautiful (4:40)(   Читать дальше...   )Жанр: Pop, Synthpop, House, 80s, 90s |Продолжительность: 02:38:59 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED3A78B2ED87167D53AFF30641CD9514DC72D84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279937   (763524) от 01.02.2019
-
-Clean Bandit - What Is Love (2018) Japanese Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, Dance-pop, Electro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symphony (feat. Zara Larsson) (03:32)
-02. Baby (feat. Marina & Luis Fonsi) (03:25)
-03. Solo (feat. Demi Lovato) (03:43)
-04. Rockabye (feat. Sean Paul & Anne‐Marie) (04:10)(   Читать дальше...   )Жанр: Indie Pop, Dance-pop, ElectroПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD2AD34D5C5FD57F5ABCE35AEBEBD35D98F52E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280074   (763638) от 01.02.2019
-
-Вика Дайнеко (Виктория Дайнеко) - Магнитные (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763638.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Твоя девочка
-2. Без ума
-3. Под красной луной
-4. По приколу(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFECDB9D2349F7058FC94439AD73509ED29F0567
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280078   (763639) от 01.02.2019
-
-Luis Fonsi - VIDA (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sola (3:24)
-02. Apaga la Luz (3:32)
-03. Le Pido al Cielo (4:07)
-04. Luis Fonsi & Ozuna – Imposible (2:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFA6AC37E87D10C99DCCC7CEC8B0392EF2C29C9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280162   (763642) от 01.02.2019
-
-VA - Bravo Hits,Vol.104 (2019) [MP3|320 Kbps] <Pop, Dance, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763642.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Ava Max - Sweet But Psycho 3:08
-02. HUGEL feat. Amber Van Day - WTF 2:41
-03. Rita Ora - Let You Love Me 3:10(   Читать дальше...   )Жанр: Pop, Dance, R&BПродолжительность: 02:29:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A766D1C3267B491E760FE8BA2FA21A914DC8345C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280082   (763650) от 01.02.2019
-
-НЕСОЛНЦЕ - Восход (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Рай
-02 - Проснись
-03 - Ау
-04 - Сладкая тоска(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B985490D856C7EC46FDE5B8706582053926805C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394477   (763750) от 05.07.2020
-
-The Lagoons - Midnight Afternoon (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FOMO (05:06)
-02. Angel Of My Life (04:00)
-03. So Did I (04:12)
-04. Something Good (03:42)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF44DBC44554D441E1D998DD10A9E08FA80F9B30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214523   (763972) от 22.03.2018
-
-VA - 44 Hits Latino (2018) [MP3|320 Kbps] <Reggae Fusion, Salsa, Bachata, Dembow>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763972.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Camilla Cabello - Havana 3:37
-02. Maluma Feat. Nego Do Borel - Corazon 3:04
-03. Luis Fonsi Feat. Demi Lovato - Echame La Culpa 2:54(   Читать дальше...   )Жанр: Reggae Fusion, Salsa, Bachata, DembowПродолжительность: 02:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C7BD56BB3127FB7C33658EF6075C9F70B2AEE1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214553   (763988) от 22.03.2018
-
-VA - NRJ Future Hits (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763988.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Maitre Gims & Super Sako feat. Hayko  -  Mi Gna (Maitre Gims Remix)  3:35
-02.  Luis Fonsi & Demi Lovato  -  Echame La Culpa  2:54
-03.  Madame Monsieur  -  Mercy  3:58(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4625D88457D4C534438FAC45945C8179EE4F8C7
 ```
 
 

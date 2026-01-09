@@ -1,3 +1,246 @@
+###  Публикация: 1116422   (824660) от 19.03.2017
+
+Amii Stewart - Knock On Wood & Paradise Bird (1979) Reissue, 1999, Limited Edition  [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knock On Wood (6:21)
+02. You Really Touched My Heart (4:28)
+03. Light My Fire / 137 Disco Heaven (8:24)
+04. Bring It On Back To Me (3:55)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E57ACF9807583E1A9C511A2215AEC9EF8DB6F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115987   (824751) от 19.03.2017
+
+Fenati At Piano With The Munich Machine - Disco Symphony (1977) LP [MP3|320 Kbps] <Disco,  Funk-Soul, Classical, Easy Listening, Modern>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совместный проект итальянского пианиста, композитора, руководителя оркестра и мюнхенской группы Giorgio Moroder - Munich Machine.01. Sheherazade (4:14)
+02. Ol' Man River (3:16)
+03. From The New World Symphony (7:10)
+04. Serenade (4:13)(   Читать дальше...   )Жанр: Disco,  Funk-Soul, Classical, Easy Listening, ModernПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50253CE029BFC9916B4F18B48CE295E29F710F2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381651   (824809) от 08.05.2020
+
+I Break Horses - Warnings (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn (09:00)
+02. Silence (04:28)
+03. l a r m (01:03)
+04. I'll Be The Death Of You (04:37)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3963F03240E3653A6F34A1BEC467A2C972DBA2F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502940   (824857) от 16.10.2021
+
+Инна Маликова & Новые Самоцветы - Просто не верится (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824857.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Просто не верится
+2. Лунная ночь
+3. Там
+4. Незнакомка(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317BC3A7D124A9420B2A740EA8A65B9B454115E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502939   (824944) от 16.10.2021
+
+VA - GANGSTER MUSIC, Vol. 4 (2021) [MP3|320 Kbps] <Eurodance, Technopop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824944.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. TRITICUM - Gangster
+2. Slider & Magnit - Down Low
+3. Motivee - Murcielago (Radio Mix)
+4. Mari Ferrari/Fugo - Slow(   Читать дальше...   )Жанр: Eurodance, TechnopopПродолжительность: 01:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D1BE8129BEF2F340CD879AB882999E0EF274B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502938   (824959) от 16.10.2021
+
+VA - GANGSTER MUSIC, Vol. 3 (2021) [MP3|320 Kbps] <Eurodance, Technopop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824959.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rasster - Alligator
+2. JOOLIA - Maserati
+3. DJ Chris Parker/Frost - Radioactive
+4. Rompasso/Rich The Kid - Angetenar(   Читать дальше...   )Жанр: Eurodance, TechnopopПродолжительность: 01:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2389E24E8013DFD15BD7751689C229A2C379C17F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006804   (825176) от 13.04.2016
+
+Alexandra Stan - Cliche (Hush Hush) (2013) Japanese Limited Edition [FLAC|Lossless|image + .cue] <Pop, Dancepop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Saxobeat (03:15)
+02. Ting Ting (03:56)
+03. Show Me The Way (03:44)
+04. Lollipop (Param Pam Pam) (03:55)(   Читать дальше...   )Жанр: Pop, Electronic, Dancepop, Electropop, Euro House, Europop, R&B, BalladПродолжительность: 00:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65877C0CE5388CD9135F31F966FB678F2F08E0E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006775   (825180) от 13.04.2016
+
+Fleur East - Love, Sax & Flashbacks (2015) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Funk & Soul, R&B, Dancepop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sax (3:56)
+02. Breakfast (3:24)
+03. More And More (3:55)
+04. Gold Watch (3:32)(   Читать дальше...   )Жанр: Pop, Funk & Soul, R&B, DancepopПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0C6607913384E0F4422419ED8129E3068CBA0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006938   (825184) от 13.04.2016
+
+VA - Retro Disco Koktel (2006) Compilation, Partially Mixed [MP3|255~303 кб/с (V0)] <Europop, Synth-pop, Euro-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro - Intro    00:17
+02. Joy - Touch by Touch    03:30
+03. Goombay Dance Band - Eldorado    03:13
+04. Ottawan - D.I.S.C.O.    02:55(   Читать дальше...   )Жанр: Europop, Synth-pop, Euro-DiscoПродолжительность: 01:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AADB82AB3287CB76B91F90B6D79F3FD44976260D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 196657   (825290) от 28.04.2010
 
 Pet Shop Boys - Pandemonium (2010) [FLAC|Lossless]<SynthPop>
@@ -453,251 +696,6 @@ Gary Criss - Rio De Janeiro (2019) [FLAC|Lossless|tracks + .cue] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:002635D5DB58E0481378A7F539FDBD1D5D94B6F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006509   (826765) от 12.04.2016
-
-АлоэВера - Держи меня в курсе (2016) EP [MP3|320 кб/с] <Pop-Rock, Indie Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826765.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Держи меня в курсе» – это песни про то, что нас волнует, это аранжировки про то, как мы хотим звучать, это переосмысление старых текстов и нечто совершенно новое.01. Беги (EP версия)
-02. Неумело
-03. Не ломайте
-04. Оправданий нет(   Читать дальше...   )Жанр: Pop-Rock, Indie PopПродолжительность: 00:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98190AEA3A1350630ADCAFAA3EB1B3226DEABA60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 774651   (827145) от 07.04.2014
-
-VA - 100 Hits: 70s (2007) [FLAC|Lossless]<Top 40, Pop, Rock, Disco, Funk & Soul, New Wave, Glam>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carly Simon - You're So Vain (1972) - 4:20
-02. Alvin Stardust - My Coo Ca Choo (1973) - 2:47
-03. Guys & Dolls - There's A Whole Lot Of Loving (1974) - 3:15
-04. Michael Nesmith - Rio (1976) - 4:31(   Читать дальше...   )Жанр: Top 40, Pop, Rock, Classic Rock, Pop Rock, Disco, Funk &Soul, Folk, World, & Country, Folk Rock, Prog Rock, Punk, New Wave, Glam, Doo-wop, RockabillyПродолжительность: 01:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECEA1FDE1129EF77C5695E41C7652731ECEC0478
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 653322   (827283) от 09.05.2013
-
-Modern Tracking - Running Away (Special Single Edition) (2013) [MP3|320 кб/с]<Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running away (Original Version) (4:24)
-02. Running Away (Remix) (4:25)
-03. Running away (Alex Neo Electro Mix) (5:39)
-04. Running Away (Alex Neo Remix) (4:50)
-05. Running Away (80` Alex Neo Version) (4:52)
-06. Running away (Extended Version) (6:10)Жанр: Pop,EurodanceПродолжительность: 00:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941B02702518ECA196EF52EBE3D11C383FF8002D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381343   (827814) от 06.05.2020
-
-Candido - Candi's Funk (1979) LP [MP3|320 Kbps] <Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Candi's Funk (8:25)
-02. Do You Wanna Dance? (8:12)
-03. Samba Funk (7:43)
-04. Super City (7:45)Жанр: Funk Soul, DiscoПродолжительность: 00:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A5DD90C98B9FAD8B5F75F2F30828565E1B336BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115203   (828058) от 17.03.2017
-
-The Chantoozies - Chantoozies (1988) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanna Be Up
-02. Kiss 'N' Tell
-03. Bang Bang
-04. Slightest Notion(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, PopПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B88C3BE1234A6F981FEBFEDD1F97441191FC8C3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115243   (828059) от 17.03.2017
-
-Zara Larsson - So Good (2017) [MP3|320 Kbps] <Pop, R'n'B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01. What They Say (03:39)
-02. Lush Life (03:21)
-03. I Would Like (03:45)(   Читать дальше...   )Жанр: Pop, R'n'BПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6BC725ADDCA12D86966DCAB27A030768258EA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115252   (828152) от 17.03.2017
-
-Hazmat Modine - Extra-Deluxe-Supreme (2015) [MP3|320 Kbps] <SKA, Fusion, World>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Day (04:25)
-02. Plans (05:12)
-03. Your Sister (05:37)
-04. Up & Rise (05:30)(   Читать дальше...   )Жанр: SKA, Fusion, WorldПродолжительность: 00:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63E14F4FE895AE7F37B0366FFE8FC9F06463374
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 773336   (829011) от 06.04.2014
-
-VA - Pure... america (2011) Box Set, 4 CD [FLAC|Lossless]<Pop, Dance, Rock, R&B, Other>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829011.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ответ на американские санкции публикую очередной сборник американских песен, изданных Sony Music в 2011 году. Интересно, что на ebay его жанр определили как Country, а уж на AllMusic разошлись - здесь целый букет: Adult Contemporary, Adult Contemporary R&B, AM Pop, Contemporary Pop/Rock, Country-Pop. Так что выбирайте, что вам хочется послушать больше из списка.01. Boston - More Than A Feeling  (3:31)
-02. The Calling - Wherever You Will Go  (3:29)
-03. Train - Drops Of Jupiter (Tell Me)  (4:21)
-04. Phantom Planet - California  (3:15)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 04:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2F94E4500D658EDE8A005721C44C872A93FEE1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381200   (829668) от 05.05.2020
-
-VA - Mega Dance Mix - 1 (Unknown) [FLAC|Lossless|image + .cue] <Medley, Cover, Italo-Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829668.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 -	Party Time/Salsa Mix	10:06
-1.1	Piano Groove
-1.2	Ritmo De La Noche
-1.3	Everybody Salsa(   Читать дальше...   )Жанр: Medley, Cover, Italo-DiscoПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95F9B61CD4B3B88377D28001D699F67103EBA8BA
 ```
 
 

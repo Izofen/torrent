@@ -1,3 +1,164 @@
+###  Публикация: 1196070   (824013) от 02.01.2018
+
+Real Life - Send Me An Angel • '80s Synth Essentials (2009) Compilation [FLAC|Lossless|image + .cue] <Synthpop, New Wave, 80's>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Send Me An Angel (2009) (4:12)
+ 02. Sweet Dreams (Are Made Of This) (3:24)
+ 03. Cars (3:42)
+ 04. Fade To Grey (3:16)(   Читать дальше...   )Жанр: Synthpop, New Wave, 80'sПродолжительность: 01:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3D2F8CC1BBAEC8A8ABFC8FDDB7B12D92B273D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 736402   (824072) от 25.03.2015
+
+Zero Cult - Discography (12 Releases) (2006-2015) [MP3|320 кб/с]<Downtempo, Psybient, Progressive Trance, Ambient, Psychill>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zero Cult - Aleph (5:07)
+02. Zero Cult - Fullmoonight (8:02)
+03. Vibrasphere - Sweet September (Zero Cult Remix) (7:02)Жанр: Downtempo, Psybient, Progressive Trance, Ambient, Psychill |Продолжительность: 00:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20688081F878056DB6E079F2230540E93B28AF10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196344   (824123) от 02.01.2018
+
+VA - Running Music 2018 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mykel Mars - Give Me the Sunshine (Ibiza Groove Squad Edit) 03:31
+02. David Caruso - Life Is Better with Sunshine (Disco Aerobic Edit) 03:15
+03. Tiziara - Red Light (Radio Mix) 03:29
+04. John Disco - The Need In Me 05:45(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B4A85BCF1D1A7E38ACDC5899D09433ED5DBF9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196473   (824132) от 02.01.2018
+
+Liquid Bloom - ReGen: Lucid Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Psychill, Psydub>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emerging Heart (Nanosphere Remix) (6:00)
+02. Roots of the Earth (Hedflux Remix) (7:43)
+03. Fire Gathering (Land Switcher Remix) (5:30)
+04. Sacred Blessing (Kaminanda Remix) (11:14)(   Читать дальше...   )Жанр: Downtempo, Psychill, PsydubПродолжительность: 01:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E92F4EEC3D51A8BE5E931D7A9BA4C45942DA4F5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196108   (824142) от 02.01.2018
+
+VA - Bodybuilding Music Top 100 For 2018! [MP3|320 Kbps] <Tech House, Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Xenias - Phrases 3:11
+02. Wunkeris - Region 3:11
+03. Walo Pils - Classic 3:11
+04. Voice Output - Main 3:11(   Читать дальше...   )Жанр: Tech House, Funky, Club HouseПродолжительность: 05:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF4CA9A24BF0E3E99303FDA961F6FA1E72679E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196267   (824235) от 02.01.2018
+
+VA - Yoshitoshi: Best Of 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yoshitoshi: Best Of 2017 (continuous DJ mix 1) [57:17]
+02. Yoshitoshi: Best Of 2017 (continuous DJ mix 2) [01:02:22]
+03. Aaaron - Black Arp (original mix) [07:05]
+04. PQM Feat. Cica - The Flying Song (UNER remix) [06:29](   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 04:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:330BDEAE2F416DC9271F8F76A2C2A020BBA1AE11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196297   (824241) от 02.01.2018
 
 VA - Calm Morning Vol.1 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
@@ -533,166 +694,6 @@ The London Elektricity Big Band - Live In The Park (2017) [MP3|320 Kbps] <Drum &
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C35F50848F5E98576A394F1E0B6B2AB168E5E42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502660   (826512) от 15.10.2021
-
-Tiesto - Together Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oohla Oohla (2:23)
-02. Money (2:50)
-03. I’ll Take You High (2:52)
-04. Be Something (2:58)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5363F9D4AC462186AE0197508CB46A92135037CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006530   (826985) от 12.04.2016
-
-U96 - The Dark Matter EP (2015) [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood Of The Rose [04:18]
-02. Dark Matter [04:02]
-03. Human Cosmic [04:17]
-04. Run With It [05:29](   Читать дальше...   )Жанр: Electro, TechnoПродолжительность: 00:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07A3781332DA0FBD204CD791C1C8271B17181F88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 343382   (827362) от 06.05.2020
-
-Kraftwerk - Greatest Hits (2CD) (2008) [FLAC|Lossless]<Synthpop, Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Robots
-02. The Man-Machine
-03. Radioactivity
-04. Neon Lights(   Читать дальше...   )Жанр: Synthpop, Electronic |Продолжительность: 01:18:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41B706C81800E0AD3EF8A5D44EB945047FF68C95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185868   (827643) от 06.05.2020
-
-Michael Kohlbecker (Funf D, Eternal Basement, Magnat, Masun, Paragon, S.M.I².L.E.) - Discography 30 Releases (1993-2020) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Psy-Tech, Psy-Trance, A ...
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glade (09:08)
- 02. Sumer (09:23)Тип издания: CD, Web, VinylЖанр: Techno/TranceПродолжительность: 23:37:59 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D1BB0AFA0C40474C3F8A558209B972B036F3EBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381413   (827725) от 06.05.2020
-
-Operentzia | Óperentzia - Collection 5 Releases (2011-2020) Zengőkert Records [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Ambient, Psy-Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mojave (06:05)
- 02. Ek Chuah (07:57)
- 03. Melancolony (06:19)
- 04. Pm (06:16)(   Читать дальше...   )Тип издания: WEBЖанр: Psychill/Dub/Downtempo/Ambient/Progressive Trance/Psy-TranceПродолжительность: 03:40:19 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:124CE306E5D319A0EC7F8C4DB38552678A156657
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381278   (827729) от 06.05.2020
-
-VA - I Love the Rain Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael E - I Love the Rain (Original Mix)
-02. Patiotic, Marga Sol - Hold Me (Marga Sol Chill Mix)
-03. Tigerfrost - I Will Follow You (Ametrine Remix)
-04. Gary B - All I Long For (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5E7495C0E21E057D3E4E93E2804220581ADC67E
 ```
 
 

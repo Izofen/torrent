@@ -1,3 +1,30 @@
+###  Публикация: 1456784   (1024660) от 24.03.2021
+
+VA - Best Remixes of Popular Songs (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024660.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ARTY, Cimo Frankel, Felon - Daydreams (Felon Remix) (3:15)
+002. Bazzi vs., SWACQ - Paradise (Bazzi vs. SWACQ Remix) (2:40)
+003. Breathe Carolina, Asketa & Natan Chaim, Rama Duke, GATTUSO - Get Away (GATTUSO Remix) (2:43)
+004. Dua Lipa, Kungs - Don't Start Now (Kungs Remix) (3:36)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:30:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70367AF848A631B5E6E57318C66E3A825833B91E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456891   (1024685) от 24.03.2021
 
 VA - Шансон Весна (2021) [MP3|320 Kbps] <Шансон>
@@ -665,33 +692,6 @@ VA - Music News vol.82 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1843D8414982680FD7829D6BE1C03A7CBE61DFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455582   (1025628) от 19.03.2021
-
-VA - ЕвроХит Топ 40 Europa Plus 19.03.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Save Your Tears (3:35)
-02. Travis Scott, HVME - Goosebumps (Remix) (2:42)
-03. Nea & Nio Garcia - Diablo (2:45)
-04. Michael Patrick Kelly - Beautiful Madness (2:55)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AFFAF1E15977F6838814A751656DC12BCC648BF
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1142237   (642708) от 14.06.2017
+
+VA - 2000 - Native American Music (2017) [MP3|320 Kbps] <Native american, Ethnic, Folk>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inishkea -  Song Of The Navajo
+02. Big City Indians -  Like An Indian
+03. Native -  White Buffalo (Holm)
+04. Walela -  Cherokee Morning Song(   Читать дальше...   )Жанр: Native american, Ethnic, FolkПродолжительность: 04:19:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69A8FA3C2AD8D05F2395F0834419BD845F571DC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090104   (642836) от 14.06.2017
 
 VA - Legends Classics World (2017) [MP3|320 Kbps] <Classical>
@@ -678,39 +705,6 @@ VA - Шансон на лето (2015) [MP3|256 кб/с]<Шансон>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:658EBC471C4FA201CB65F991694B104BC676CAB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518157   (643505) от 03.07.2012
-
-VA - Звездные хиты от Europa plus (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643505.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лавика - Все В Моей Душе (3:40)
-2. Lmfao Feat. Lauren Bennett & Goon Rock - Party Rock Anthem (4:33)
-3. Madonna - Masterpiece (4:01)
-4. Женя Вилль - Ты Для Меня (4:11)
-5. The Cats - Пополам (4:02)
-6. Анастасия Приходько - Романс (3:10)
-7. Елена Терлеева - Просто (5:20)
-8. 140 Ударов В Минуту - На Расстояни Дыхания (Light) (3:42)
-9. Cher - Strong Enough (Dj Ozeroff & Dj Sky Feat. Lebedev Radio Remix) (3:20)
-10. Диана Гурцкая - Забываю Тебя (3:46)Жанр: PopПродолжительность: 06:24:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB76FA309D663DA702DF7E5F165AA4B46CF67924
 ```
 
 

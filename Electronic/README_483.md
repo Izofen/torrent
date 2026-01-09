@@ -1,3 +1,165 @@
+###  Публикация: 1089433   (950704) от 04.01.2017
+
+VA - Acoustic Songs: 14 Classic Songs Reimagined Acoustically (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Portland UK - Bad Romance 3:18
+02. Karizma Duo - I Try 3:57
+03. Chris Pomeroy - Dark Horse 3:24
+04. Thom Cooper - Everybody Wants to Rule the World 2:48(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50BB2C48231AA26AF407B7C975A574669F5B4355
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089568   (950706) от 04.01.2017
+
+VA - Spring Blossom: 20 Smooth & Relaxing Jazz Lounge Tunes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gnu Quartet - Unintended 3:58
+02. Armando Corsi - Canciуn 4:23
+03. Angel Pocho Gatti E La Sua Grande Orchestra - Sonntag 3:11
+04. Riccardo Arrighini - Romanza Op. 40 5:45(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:15:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F939AD5D48A23CF9BE053AD81157111C4CF3C959
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089550   (950708) от 04.01.2017
+
+VA - Late Night Acoustic Sessions (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Portland UK - The Boxer 4:00
+02. Karizma Duo - Fix You 4:30
+03. Landa - Hello 6:07
+04. Anjali Joseph - Angel 4:15(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63324CD36801345FF14EAF55D3E781C378569D3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089509   (950710) от 04.01.2017
+
+VA - Bikini Lounge: The Best Chillout 2017  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charactana - Distant Thunder
+02. Hawaiian Love - Volcano
+03. His Name is Frank - Clouds
+04. Jupiter Jack - Blank Space(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:05:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96A1E6405E5A054062A7D0CD2188A6AF98428F59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089376   (950711) от 04.01.2017
+
+VA - Global Chillout Ambient: New Year Pack 2017 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BTA - High Tide 3:29
+02. Logan - U (Acoustic Version) 3:01
+03. VinzaR - Life (Instrumental Edit) 5:11
+04. Anxhjn. - Strobe Of Emotions 3:21(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:59:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2061C9472F7A125FD4F56418323C99F2BAF5AA76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089327   (950712) от 04.01.2017
+
+VA - If House Like To Party (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama Maestro - Under A Palm Tree [00:06:24]
+02. Mama Maestro - Baby (Original mix) [00:06:20]
+03. Rousing House - Story House Piano [00:05:50]
+04. Big Bunny - Super Boom (Original mix) [00:05:09](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:519E81750EF90AC136D84617AED045024A4A1C34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089271   (950760) от 04.01.2017
 
 VA - 6 Years Of CibiCaldi Records (2017) [MP3|320 Kbps] <Minimal, Tech House>
@@ -530,168 +692,6 @@ VA - Bedrock 18 - Signals (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62D12A2744E9E2E94E5A74860E9FCB539B4A678A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089134   (953877) от 02.01.2017
-
-VA - Playa Del Carmen 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chus & Ceballos/Supernova - The Prophet (Remastered) [06:40]
-02. Rafa Barrios - Horizont (original mix) [05:15]
-03. DJ Fronter - Damn (original mix) [07:52]
-04. Supernova - Shut Your Mouth (original mix) [07:44](   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 02:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E42B2DEA78FE9849C8547C913C125744397E7D6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088997   (953885) от 02.01.2017
-
-VA - Best 10 Bigroom Dance Of The Year (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953885.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cevelon - Neurotic (Original Mix) 02:54
-2. Manu3l - Tantrum (Igness Edit) 03:31
-3. Jozef - Aim High (Original Mix) 06:00
-4. Stan Castillo - Everybody Bounce (Original Mix) 04:31(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988296D261D3190678FBCBF2BEDA503D2A474503
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089164   (953904) от 02.01.2017
-
-VA - Best 10 Trance Of The Year (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A.M.P - November Leaves (Psymfonius Remix) 06:35
-02. Barzek - July (Stephane Badey Remix) 08:28
-03. Noize Compressor - Hurricane (Original Mix) 06:54
-04. Pax (UK) - Transatlantic (Mobil Remix) 06:18(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2715BD45BBA4822F640821617E893EA54701F27C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088965   (953908) от 02.01.2017
-
-VA - Sirocco Ibiza A Touch Of Class (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Pippi - A Touch Of Class Intro 00:44
-02. DJ Pippi feat. Gina Teves - Peculiar 06:08
-03. Boris Dlugosch feat. Roisin Murphy - Never Enough 06:11
-04. Jean Aita & The Noox feat. Maurizio Ponzo - Wilderness 05:10(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05551ED7E14340474E391CC83433406C930E9932
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089207   (954005) от 02.01.2017
-
-VA - Syndicated Soul, Vol. 1 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kraak & Smaak - One of These Days (Balearic Soul Remix) 08:04
-02. Dominique Lucena - Cocktail d'amour 04:20
-03. Luca Guerrieri - Evolution X014 (Roberto Cavicchioni Remix) 04:32
-04. Adrian B - With You (Instrumental Mix) 10:50(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F719D43302A6C43E76551AD5D7996F338A06835
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089209   (954016) от 02.01.2017
-
-VA - Silent Shore Records - The Best Of (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tristan Armes - Dreamfall (Original Mix) 06:14
-02. Josh Oshima - Voyage (Original Mix) 06:50
-03. Pvr - Solar Station (Original Mix) 08:21
-04. Nord Horizon - Innocent Angel (Original Mix) 07:17(   Читать дальше...   )Жанр: TranceПродолжительность: 02:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25453CB333FBF50F6CE2F1298A31A3A131990B58
 ```
 
 

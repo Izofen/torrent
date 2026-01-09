@@ -1,3 +1,250 @@
+###  Публикация: 988675   (918996) от 21.02.2016
+
+Demi Lovato - 5 альбомов (1998-2015) [MP3|192-320 кб/с] <Pop, Pop-Rock, R'n'B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918996.jpg" />
+</div>
+
+
+###  Подробнее
+
+1) 2008 - Don't Forget - 192Кб/с - 00:38:10
+2) 2009 - Here We Go Again - 320Кб/с - 00:46:57
+3) 2011 - Unbroken - 320Кб/с - 00:52:45
+4) 2014 - Demi - 320Кб/с - 01:15:38(   Читать дальше...   )Жанр: Pop, Pop-Rock, R'n'BПродолжительность: 04:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA83BECCF195798AE7F735737CD7BFA3E91550CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096466   (919074) от 24.01.2017
+
+Iowa - Remixes (2016) EP [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919074.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мои стихи, твоя гитара (Astero Remix)
+2. 140 (Astero Remix)
+3. Три дня холода (Ivan Spell Remix)
+4. Мои стихи, твоя гитара (Ivan Spell Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 00:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767DC195E498390C329EA0DE2F9F7E524C29FEE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096555   (919211) от 24.01.2017
+
+Andromeda - Star Ship/Shooting Star (1978) 7" [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Star Ship  (3:41)
+02. Shooting Star  (3:35)Жанр: Electronic, DiscoПродолжительность: 00:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D554E148A449E1CA74011D333911F44398E84AC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 631940   (919386) от 20.03.2013
+
+VA - MTV Top the Hits 2013 3CD (2013) [FLAC|Lossless]<Pop, Dance, Rock, R&B, Trance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычно на трекере размешаются в основном МР3ки. Сборник хитов в приличном качестве довольно большая редкость. Тем более, что все, представленные в этом сборнике треки действительно хиты!CD1Жанр: Pop, Dance, Rock, R&B, Trance, OtherПродолжительность: 01:08:49
+
+1. Pitbull Ft. Christina Aguilera - Feel This Moment (3:50)
+2. Rihanna Ft. David Guetta - Right Now (3:02)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 863597   (920051) от 29.01.2015
+
+Bjork - Vulnicura (2015) [FLAC|Web-Dl|Lossless]<Pop, Experimental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stonemilker
+ 02. Lionsong
+ 03. History of Touches
+ 04. Black Lake(   Читать дальше...   )Жанр: Pop, ExperimentalПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD69BDC72D64BEC42CBD2E43AA038ED7A17E8824
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366817   (920140) от 13.03.2020
+
+VA - Eurodisco 80's Maxi Hits & Remixes Vol.1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London Boys - London Nights (Special Extended Remix) (06:10)
+02. Caron - Out Of The Night (The First Step) (Extended Version) (07:09)
+03. Ivan - Fotonovela (Extended Special Remix) (06:14)
+04. Sabrina - Boys Boys Boys (Extended Dub Remix) (05:39)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE0A57EE072BED95404B675C6ECD1DE7922506E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988415   (920553) от 20.02.2016
+
+Sade - The Best Of Sade (1994) Compilation [FLAC|Lossless|image + .cue] <Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Love Is King (3:41)
+02. Hang On To Your Love (4:33)
+03. Smooth Operator (4:21)
+04. Jezebel (5:31)(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 01:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D7FA12F604DB8794CC16A7FB47FB39508830C51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988324   (920556) от 20.02.2016
+
+Фристайл плюс - Хиты и звёзды (2010) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Виталий Козловский - Больно, мне больно
+02.Фристайл и Нина Кирсо - А я тебя любила
+03.Триши - Завтра
+04.Фристайл и Сергей Кузнецов - Белая акация(   Читать дальше...   )Жанр: PopПродолжительность: 02:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F3076C3B2857D3C0EDFEE97E4D5CCF343BE2BC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288535   (921587) от 29.01.2011
+
+Lara Fabian - Best Of (2CD, Edition Limitee) (2010) [FLAC|Lossless]<Pop, French pop, Adult contemporary>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921587.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. On S'Aimerai Tout Bas (Inйdit)  (4:02)
+02. Je T'Aime  (4:23)
+03. Tout  (4:17)
+04. Si Tu M'Aimes (3:30)
+05. Humana (5:39)
+06. La Diffйrence  (4:15)
+07. Pas Sans Toi  (4:45)
+08. Tu T'En Vas (3:47)
+09. Je Suis Malade  (4:24)(   Читать дальше...)Жанр: Pop, French pop, Adult contemporaryПродолжительность: 02:08:20
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 864075   (921623) от 28.01.2015
 
 VA - Лучшие новинки радиоэфира vol.1 (2014) [FLAC|Lossless]<Pop>
@@ -451,251 +698,6 @@ magnet:?xt=urn:btih:C4141AED490D76DEB7DD1549FAB376790BEC302C
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094044   (924320) от 21.01.2017
-
-VA - 10 песен о любви (2004) бесплатное приложение к журналу Yes! [FLAC|Lossless|image + .cue] <Pop, Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924320.jpg" />
-</div>
-
-
-###  Подробнее
-
-В январе 2003 года журнал YES! обьявил о намерении собрать музыкальную группу с одноименным названием и устроил конкурс под названием "YES! зажигает звёзды!" Всё, что нужно было сделать - это прислать в редакцию фото, аудио- или видеозапись, где были бы "запечатлены таланты". В редакцию пришло n-ое количество записей. После жесткого отбора остались (   Читать дальше...   )01. Yes! - Ты не знаешь...
-02. Yes! - Передумала
-03. Мумий Тролль - Это по любви (Japanese version)
-04. Smash!! - Freeway(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B219D190C8C41BCB48B100B1ABF625EF98DBAF61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095571   (924392) от 21.01.2017
-
-Emma King - Emma King (2016) [FLAC|Lossless|tracks + .cue] <Pop, Soul, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Devil City  (03:16) 
-02|  All The Other Fools  (03:16) 
-03|  Keep It Coming  (04:17) 
-04|  Rollin' In  (03:59) (   Читать дальше...   )Жанр: Pop, Soul, FolkПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5372D88602A614DA1EE0893862C56B900EE3766F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987916   (924494) от 18.02.2016
-
-VA - Sugar Mambo - Heat Express (2000) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jon Secada - Stop (4:16)
-02. Shaft - Mambo Italiano (2:48)
-03. Los Del Duego - Cabello VleJo (3:25)
-04. Jennifer Lopez - Let,s Get Loud (3:58)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B58BA8A5266CC60F7E9A7F125F36105CB33C19A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366085   (925169) от 10.03.2020
-
-Dimash Kudaibergen (Димаш Кудайберген) - ID - 1st digital album (2019) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SOS d'un terrien en detresse
-02. The Crown
-03. Screaming
-04. If I Never Breathe Again(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89ED41DD3C772DDB4E8A06665336EFD0C8040762
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 863592   (925448) от 26.01.2015
-
-VA - Pure... latin dance (2012) Box Set, 4CD [FLAC|Lossless]<Latin, Pop, Rock, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Признаюсь, подзабросил я свою серию Pure... в клубе, пока товарищи по клубу настойчиво не стали напоминать в ЛС об обещании продолжать её.
-Ну вот и представляю очередной сборник из собственной фонотеки. На этот раз горячие латиноамериканские ритмы. Здесь Вы найдете и тех, кто традиционно выступает в этом жанре и тех, для кого это разовое действие. Так что если Вам (   Читать дальше...   )CD2:
-01. Pitbull - Hotel Room Service  (4:00)
-02. Celia Cruz - Yo Vivire (I Will Survive) (Album Version)  (4:33)
-03. Ciara ft. Justin Timberlake - Love Sex Magic (Main Version)  (3:42)(   Читать дальше...   )Жанр: Latin, Pop, Rock, Pop-RockПродолжительность: 04:13:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0FDDF7B8258C4B6EFC5F73BBC136BAB89B45280
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366242   (925492) от 10.03.2020
-
-VA - 2020 Grammy Nominees (2020) [FLAC|Lossless|tracks] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Много лет подряд церемония вручения наград «Грэмми» проводилась в феврале (за исключением зимних Олимпийских игр). В этом же году церемония 62-й премии Грэмми была перенесена на январь (видимо устроители догадывались о приближающейся эпидемии).
-26 января в Стэйплс-центре (Лос-Анджелес, США) наибольшее число наград (по 5) получили брат и сестра Finneas O'Connell и (   Читать дальше...   )01. Billie Eilish - bad guy  (3:14)
-02. Ariana Grande - 7 rings  (2:59)
-03. Lil Nas X feat. Billy Ray Cyrus - Old Town Road (Remix)  (2:37)
-04. Lizzo - Truth Hurts  (2:53)(   Читать дальше...   )Релиз состоялся: 17 января 2020 годаЖанр: Pop, Rock, DanceПродолжительность: 01:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B660C11AAC89CEAE5A7CE00EA394A8964BB27C56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366083   (925742) от 10.03.2020
-
-VA - I Love German Pop (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925742.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mokaby, Natha Lee - Diese Liebe (Radio Edit)
-2. Brian Ferris - Halt deine Fresse und tanz! (Party Mix Radio Edit)
-3. Boerney - Weißt Du noch gestern
-4. Freitagsauto - Mulinello(   Читать дальше...   )Жанр: PopПродолжительность: 01:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:002D32582ADC030C52F775C3C29580E088570AC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095174   (926044) от 20.01.2017
-
-Тати - Драма (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Голубые бабочки
-03. Связки металлических ключей
-04. Другой(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F4C3EE4A78805604D35F23460BED1F48E8B7981
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489250   (927116) от 15.08.2021
-
-EMIN - LOVE IS (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927116.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Таял
-2. Кругами
-3. Не было меня
-4. Love Is(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:174BB26462EA0034E74543F267FDAEAF1422CF54
 ```
 
 

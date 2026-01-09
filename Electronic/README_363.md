@@ -1,3 +1,165 @@
+###  Публикация: 1218434   (723408) от 09.04.2018
+
+VA - Interfered Vol.I (Mixed by Enlusion) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enlusion - Interfered Volume I (continuous DJ mix)
+02. Neil Soun - Bending Light (intro mix)
+03. Aquya - Ataraxia (radio edit)
+04. Vitaly Shturm - Sensoria (radio edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:586EE965B2790E82696C87B3B30A95274E997413
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284974   (724066) от 24.02.2019
+
+DJ Skydreamer - Наш Ответ!!! ATB (2005) [MP3|320 Kbps] <House, Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legend Of Dreamy (4:35)
+02. Light Fantasy (5:20)
+03. Back To The Universe (3:52)
+04. Relieve (4:01)(   Читать дальше...   )Жанр: House, TranceПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C65112EAAA268BCB58DF7E533B47E5901182AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243242   (724194) от 24.02.2019
+
+Nina (Nina Boldt) - 8 Releases (2011-2018) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me Away (Radio Edit) (3:24)
+02. Take Me Away (Extended Club Mix) (5:16)
+03. Take Me Away (TNTT Remix) (4:32)
+04. Take Me Away (Disco Damage Remix) (3:56)(   Читать дальше...   )Жанр: Synth-pop, SynthwaveПродолжительность: 03:33:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F2A3DF9F4B8FF539FA5FADACE5F29E8CC7A2483
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023391   (724255) от 05.06.2016
+
+Phaeleh - All That Remains (2016) EP [MP3|320 кб/с] <Tech House, Ambient, Modern >
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mountain (5:21)
+02. Acceptance (1:24)
+03. Remember (4:51)
+04. Trails of Light (4:48)(   Читать дальше...   )Жанр: Tech House, Ambient, ModernПродолжительность: 00:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627F600F499A8EEA983FB46D8258C8DC2F7D6ED5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026905   (724354) от 27.04.2017
+
+Pogo - 2 альбома (2015,2016) [MP3|320 kbps] <house, chill electronic, idm>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giving (02:46)
+02. Cupboard Shaker (03:23)
+03. There You Are (03:37)
+04. Data & Picard (03:05)(   Читать дальше...   )Жанр: house, chill electronic, hip-hop, idmПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:536A82DFDFCFCC9EE44DC3455E1D9A35DD291555
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129167   (724361) от 27.04.2017
+
+VA - Tiesto - In Search Of Sunrise 5: Los Angeles (2006) [MP3|320 Kbps] <Trance, Progressive Trance,House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conil - Malibu Beach (02:24)
+02. Mark Norman pres. Celine - Colour My Eyes (06:24)
+03. Late Night Alumni - Empty Streets (Haji & Emanuel Remix) (05:40)
+04. Electro-Prompt - Beside Me (Gothek D.C. Remix) (05:16)(   Читать дальше...   )Жанр: Trance, Progressive Trance,HouseПродолжительность: 02:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:258DF30BDA46BB3CF35BA02708298B0BC7E4EA04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077827   (724459) от 24.02.2019
 
 m² (m2, Squaremeter) - Discography 13 Releases (2000-2010) Ant-Zen, Hands Productions [FLAC|Lossless|tracks+.cue, tracks] <Experimental, IDM, Glitch, Dark Ambient, Industrial>
@@ -530,168 +692,6 @@ VA - Good Day Music Compilation Vol.4 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:858F44B957DF637996315F635891EB3951B391D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128850   (726266) от 26.04.2017
-
-Alphaville - Strange Attractor (2017) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giants (3:29)
- 02. Marionettes With Halos (4:23)
- 03. House Of Ghosts (5:08)
- 04. Around The Universe (4:01)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CADF5920ABE180E98129A0168B8B8844B39642F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128599   (726352) от 26.04.2017
-
-VA - Pure Bliss Vocals - Spring (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance, Vocal Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ana Criado & Alan Morris - Border Line (Radio Edit)  3:15
-02.  Allen Watts & Katty Heath - Break Without The Pain (Radio Edit)  3:23
-03.  Audrey Gallagher & Kaimo K - Lullaby (Radio Edit)  4:02
-04.  Adip Kiyoi & Susie Ledge - Another Chance (Radio Edit)  3:51(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908A2252CCA18F028D4B3CC4F32A3F72ED0AC46F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023262   (726413) от 04.06.2016
-
-VA - John Digweed - Re: Structured (Bedrock Records) (2015) Box Set [FLAC|Lossless|image + .cue] <Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quivver - Time Go By (Reprise)
-02. Joop Junior - Sofie_Lucie
-03. Rory Gallagher & James Trystan - Waking Giants
-04. Philipp Straub & Andrew Fonda - True Basics(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 03:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB9133C95510996B33B0BC38EF8FC0FC060F23BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128816   (726454) от 26.04.2017
-
-VA - Milchbar - Seaside Season 9 (Compiled by Blank & Jones) (2017) [FLAC|Lossless|CD|tracks+.cue] <Downtempo, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blank & Jones - My Island (4:20)
-02. Blank & Jones with Zoe Dee - Adios Ayer (4:27)
-03. Cantoma - Sea Of Blue (4:14)
-04. Zee Erf feat. Francesca Mondi - Southern Freeez (Muddґs Mix For Emma) (3:34)(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 01:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBE6A227E86D01D8E88A267AED5CA0BE93486D96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284973   (726546) от 23.02.2019
-
-VA - Deep Value, Vol. 3 (Mixed by Mihai Popoviciu) (2019) Bondage Music [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mihai Popoviciu - Triumph (Guido Schneider & Daniel Dreier Remix) (7:54)
-02. Azteca - Garage Nr. 2 (Original Mix) (6:45)
-03. Frink - Casuality (Original Mix) (7:34)
-04. Tuccillo - Auroris (Original Mix) (6:27)(   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 03:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDA9E334CCB4AEE9FAA31D36D34A1E8FE6C81D3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128307   (726569) от 26.04.2017
-
-VA - Lounge Escapades (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Flashbaxx - Madison  4:52
-02.  Thomas Vitali - Rebecca's Eyes  9:49
-03.  Monosolar - Titubear  4:28
-04.  Gabriel Loirat - Terraza  4:28(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEFD04BAF54EA85F804825FCD542F160E4B6DC2D
 ```
 
 

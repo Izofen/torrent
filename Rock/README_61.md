@@ -1,3 +1,30 @@
+###  Публикация: 913191   (607232) от 28.06.2015
+
+Apogee - The Art Of Mind (2015) [MP3|320 кб/с]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Art Of Mind (19:54)
+a) Psychocosmic Order
+b) Across The Border
+c) The Dividing Point(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5F7F07CF4A8F8978D6106DD4B06046E30C3F3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912718   (608684) от 27.06.2015
 
 Brainstorm - Чайки на крышах (2013) [MP3|320 кб/с]<Pop-Rock>
@@ -674,33 +701,6 @@ Imagine Dragons - Evolve (2017) Japanese Edition [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A2851476498199DEC292E4C3067F640F4815320
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911885   (614490) от 24.06.2015
-
-Aaron Fink - Saint Sylvania (2015) [MP3|320 кб/с]<Alternative, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After the Afterglow
-02. Atomic Doves
-03. The Other Side
-04. Nor'easter(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A73D9AC75AB61F5393E46C9093C0F3C5FA6D83C6
 ```
 
 

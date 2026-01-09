@@ -1,3 +1,30 @@
+###  Публикация: 1523177   (751422) от 11.01.2022
+
+Frank Duval - Compilation (2022) [MP3|320 Kbps] <Rock, Pop Rock, Electronic>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonesome Fighter Prologue
+02. Lonesome Fighter
+03. Lonesome Fighter Epilogue
+04. Mysterious Girl(   Читать дальше...   )Жанр: Rock, Pop Rock, ElectronicПродолжительность: 09:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:878888100F41DFFC711D8F83EE1CEF67639636A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523471   (751429) от 11.01.2022
 
 Dj kolhoz - Compilation (2021) [MP3|320 Kbps] <Instrumental>
@@ -669,33 +696,6 @@ VA - Deep House Collection Vol.161 (2018) [MP3|287-320 Kbps] <Deep House, Club H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BCBA2E810E5F83E6CEA44CAE9E16B50E0D188D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216093   (753062) от 29.03.2018
-
-VA - No Stress Relaxing Beats (2018) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Art Of Noise - Robinson Crusoe 3:49
-02 The Grid - Floatation (Single Version) 4:04
-03 Christian Falk feat. Jevetta Steele - Calling You 4:33
-04 William Orbit`s Strange Cargo - Million Town 5:32(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 01:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:611FC21428E7B0122D261193345D4DFB2AA98530
 ```
 
 
